@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846848.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846771.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846769.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846759.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846598.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846503.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846502.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846415.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846388.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Heaven and Hell - Radio City Music Hall Live! (2007/2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846379.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846330.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846053.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845381.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845108.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845017.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845016.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845011.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844920.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844911.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844909.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844828.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844825.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844823.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Annihilator - Triple Threat (2017) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844591.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844380.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844122.jpg" />
 </div>
 
 

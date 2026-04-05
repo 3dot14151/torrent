@@ -1,177 +1,3 @@
-###  Публикация: 1319985   (477471) от 15.08.2019
-
-Judy Jackson - Electric Love (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake-A-Belly (3:37)
-02. My Home Town (4:04)
-03. Electric Love (4:12)
-04. Feelings (4:12)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD25C8DD1FC8ADFE5D1E4EB60098D8A2AE2DCB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319949   (477469) от 15.08.2019
-
-Chips - Having A Party (1982) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Having A Party (3:00)
-02. Get Him Out Of Your Mind (3:18)
-03. Our Love Is Over (4:04)
-04. Day After Day (2:53)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD72DF1DC4DED1BABF4B3A82059DF148E469F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319915   (477458) от 15.08.2019
-
-Anitta - Kisses (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atención
-02. Banana (feat. Becky G)
-03. Onda diferente (feat. Ludmilla, Snoop Dogg & Papatinho)
-04. Sin miedo (feat. Dj Luian & Mambo Kingz)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C1E6232EF3D071FC46316E646F3BD2F1F86760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057056   (477380) от 27.09.2016
-
-Chris De Burgh - A Better World (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope In The Human Heart [0:55]
-02. Bethlehem [4:12]
-03. Once In A Lifetime [3:45]
-04. The Open Door [3:51](   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8674A99CABBBE971D51627F1469756A4E4445A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056956   (477375) от 27.09.2016
-
-Skylar Grey - Natural Causes (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Wilderness
-02. Jump
-03. Lemonade
-04. Kill For You (feat. Eminem)(   Читать дальше...   )Жанр: Alternative Pop, ElectronicПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AACF7EEBE50FAD0EA56E9487CD29A54C1572D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406226   (477225) от 02.09.2020
-
-Родион Газманов - Что такое любовь? (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Что такое любовь?
-2. Полюса
-3. Гравитация
-4. Шанс(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9943E7D99D468C4F072734F62A40FD39FF630A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057071   (477208) от 27.09.2016
 
 Олег Хромов - Дискография (1991 -1992) [MP3|320 Kbps] <Pop>
@@ -180,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477208.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ VA - The Best Acoustic Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476313.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Eros Ramazzotti - Ali E Radici (Limited Edition) (2009) (Limited Edition) [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476092.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475854.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ Pink (P!nk) - The Truth About Love (2012) [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475757.jpg" />
 </div>
 
 
@@ -331,7 +157,7 @@ Jasmine Thompson - Another Bundle of Tantrums (2014) [MP3|320 кб/с]<Indie Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475703.jpg" />
 </div>
 
 
@@ -360,7 +186,7 @@ VA - 80s Love (2015) [FLAC|tracks|WEB-DL]<Rock, Ballad, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475357.jpg" />
 </div>
 
 
@@ -389,7 +215,7 @@ VA - Pure... 90s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Sof
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475236.jpg" />
 </div>
 
 
@@ -418,7 +244,7 @@ Falco - So80s (Soeighties) Presents Falco (Curated By Blank & Jones) (2012) 2CD 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475137.jpg" />
 </div>
 
 
@@ -447,7 +273,7 @@ VLNY - Грустные танцы (2016) EP [MP3|320 Kbps] <Indie Pop, Synth Po
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475009.jpg" />
 </div>
 
 
@@ -476,7 +302,7 @@ Radiorama - The 2nd Album [30th Anniversary Edition] (1987) Reissue, 2016, Analo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474878.jpg" />
 </div>
 
 
@@ -505,7 +331,7 @@ The Chainsmokers - So Far So Good (+ Time Bomb) (2022) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474323.jpg" />
 </div>
 
 
@@ -534,7 +360,7 @@ VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474141.jpg" />
 </div>
 
 
@@ -563,7 +389,7 @@ Sabrina - Golden Disco Hits (2003) [APE|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474011.jpg" />
 </div>
 
 
@@ -592,7 +418,7 @@ Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473992.jpg" />
 </div>
 
 
@@ -621,7 +447,7 @@ Toto Cutugno - L'Italiano (1983) [FLAC|Lossless|image + .cue] <Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473862.jpg" />
 </div>
 
 
@@ -650,7 +476,7 @@ VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473853.jpg" />
 </div>
 
 
@@ -685,7 +511,7 @@ Boney M - Let It All Be Music-The Party Album (2009) 2CD [FLAC|Lossless|image + 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473746.jpg" />
 </div>
 
 
@@ -714,7 +540,7 @@ Arabesque - Deluxe (Twin Best) - Japan (1998) 2CD[FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473718.jpg" />
 </div>
 
 
@@ -743,7 +569,7 @@ Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473621.jpg" />
 </div>
 
 
@@ -758,6 +584,186 @@ Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320311   (473371) от 17.08.2019
+
+Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Moves On (6:01)
+02. Said You Didn't Love Him (3:13)
+03. Front Row Romeo (Instrumental) (4:23)
+04. We've Come A Long Way Baby (4:21)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678CB22FED902D3004D5FAAFF2C5D2C24B2EF48C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939733   (473213) от 22.09.2015
+
+Андрей Державин и группа Сталкер - Андрей Державин и группа Сталкер (1994) [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не плачь, Алиса [4:33]
+02. Когда ты уйдешь [4:42]
+03. Все как всегда [6:04]
+04. Было или не было [3:13](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50801769562051E492819DE444078A310DDE00D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406579   (472768) от 04.09.2020
+
+Linda Jo Rizzo - Magic Moments: My 35th Anniversary (2020) Single Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Volcano Project feat. Linda Jo Rizzo - More To Love (03:32)
+02. Linda Jo Rizzo - Paradise Island Amor (03:08)
+03. Linda Jo Rizzo & Ken Laszlo - Different Kind Of Magic (04:30)
+04. Linda Jo Rizzo - Policeman (04:06)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurodanceПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3E0C86498B532CDD65E60FEE53B395C7563054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386018   (472173) от 11.09.2011
+
+Наталья Сенчукова - Необходимость (2011) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ты так долго не звонил
+02.Необходимость
+03.Все шоколадно
+04.Сахарная вата
+05.Не отречься
+06.Не летная погода
+07.Перстенек
+08.Телефонная история
+09.Костя,ты не прав
+10.Все решено(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0902C665B937A74A9A9EF1F607E7D9E74651C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940169   (471323) от 23.09.2015
+
+Лариса Долина - Снимем маски, господа (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снимем маски, господа
+02. Очередь за мечтой
+03. Верни мне музыку
+04. У деревни Крюково(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505FAC2FC196631D598F91166391D5D622589D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320430   (471070) от 18.08.2019
+
+Kim Wilde - Aliens Live (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Shot  (Live in London)
+02. Water on Glass  (Live in Antwerp)
+03. Never Trust a Stranger  (Live in Gateshead)
+04. Kandy Krush  (Live in Utrecht)(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBDFD491485C8D753219673DE7DF87B083494F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

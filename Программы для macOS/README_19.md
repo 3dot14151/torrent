@@ -1,3 +1,58 @@
+###  Публикация: 974401   (976810) от 11.01.2016
+
+Permute 2.0.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute: Универсальный конвертер видео, аудио и изображений
+Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 января 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9399716517523955A85880885DBDB27D4394A403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974497   (976707) от 11.01.2016
+
+The Tagger 1.6.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976707.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Tagger - представляет собой редактор тегов в MP3 и ААС файлах. Приложение поддерживает пакетное редактирование и более широкий диапазон ID3-тегов, чем iTunes и другие редакторы. Это позволит каталогизировать музыку, используя теги, содержащие больше информации, чем прежде. 
+
+ The Tagger обладает необходимым набором функций, облаченных в приятный и понятный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: Deadbeat SoftwareПоддерживаемая ОС: Mac OS X 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E219CFE6A7F3442D88124E3AA09A5098CC3000D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975989   (970750) от 16.01.2016
 
 YouTubeHunter Pro 5.6.2 [Multi]
@@ -6,7 +61,7 @@ YouTubeHunter Pro 5.6.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970750.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Disk Drill Enterprise 3.8.965 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969480.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ Disk Order 3.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968886.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ Disco 1.0.3 [Rus] (2008)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968215.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Tublme for Tumblr 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967789.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ Grids for Instagram 3.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967750.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ Apple iMovie 10.1.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966323.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ IconFly 3.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966288.jpg" />
 </div>
 
 
@@ -230,7 +285,7 @@ Wizard Pro 1.9.36 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966279.jpg" />
 </div>
 
 
@@ -257,7 +312,7 @@ Adobe Photoshop Elements 2020.1 v18.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965895.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ Nvidia Web Driver for 10.11.3 346.03.05f01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965594.jpg" />
 </div>
 
 
@@ -310,7 +365,7 @@ Nvidia Web Driver for 10.11.4 346.03.06b01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965415.jpg" />
 </div>
 
 
@@ -337,7 +392,7 @@ DropDMG 3.5.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965229.jpg" />
 </div>
 
 
@@ -364,7 +419,7 @@ iFlicks 3 v3.4.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965125.jpg" />
 </div>
 
 
@@ -392,7 +447,7 @@ Screaming Frog SEO Spider 12.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964880.jpg" />
 </div>
 
 
@@ -418,7 +473,7 @@ Xcode 7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964384.jpg" />
 </div>
 
 
@@ -446,7 +501,7 @@ Arq 4.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963576.jpg" />
 </div>
 
 
@@ -475,7 +530,7 @@ EdgeView 2 v2.842 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963275.jpg" />
 </div>
 
 
@@ -504,7 +559,7 @@ Back-In-Time 5 v5.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961935.jpg" />
 </div>
 
 
@@ -531,7 +586,7 @@ Flexiglass 1.7.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961934.jpg" />
 </div>
 
 
@@ -558,7 +613,7 @@ Aiseesoft Mac PDF to Excel Converter 3.3.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961898.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ Aiseesoft Mac PDF to Word Converter 3.3.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961896.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ Paragon ExtFS for Mac 11.3.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961750.jpg" />
 </div>
 
 
@@ -640,7 +695,7 @@ Troga 1.7.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961054.jpg" />
 </div>
 
 
@@ -652,61 +707,6 @@ Troga 1.7.5 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DFA927D96A8F9B770928651A9C6BDCF2C40BB0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360367   (960788) от 15.02.2020
-
-Fuel for Keynote 2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fuel for Keynote - это удивительное дополнение для приложения Apple Keynote. Fuel for Keynote - темы сделанные вручную для ваших презентаций.
-
-Приложение содержит 51 тему с несколькими макетами. Каждая тема имеет 32 уникальных макета, поэтому вы всегда найдете идеальный слайд.
-Темы для презентаций имеют два размера - стандарт и широкий.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2020Разработчик: Infinite Loop AppsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF4597E8101328A6C174C1D9F3D2D2CE66293A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360396   (960290) от 15.02.2020
-
-Adobe Acrobat Pro DC 20.006.20034 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.02.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9208FEABBA70C069CC02CED6AD27CB6DC2717AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

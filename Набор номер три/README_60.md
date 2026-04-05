@@ -1,3 +1,160 @@
+###  Публикация: 972552   (981348) от 06.01.2016
+
+Стажёр / The Intern (2015) BDRip [H.264/1080p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981348.jpg" />
+</div>
+
+
+###  Подробнее
+
+70-летний вдовец Бен Уитакер обнаруживает, что выход на пенсию — еще не конец. Пользуясь случаем, он становится старшим стажером в интернет-магазине модной одежды под руководством Джулс Остин.Производство: СШАЖанр: Комедия, мелодрамаРежиссер: Нэнси МайерсАктеры: Роберт Де Ниро, Энн Хэтэуэй, Рене Руссо, Андерс Холм, ДжоДжо Кушнер, Эндрю Рэннеллс, Адам Дивайн, Зак Перлман, Джейсон Орли, Кристина Шерер, Нат Вулф, Линда Лавин, Селия Уэстон, Стив Винович, С.Дж. Уилсон, Мэри Кэй Плэйс, Эрин Маккей, Кристина Брукато, Уоллис Карри-Вуд, Молли БернардПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377F924787767CC5F1876A8EA7FD7B7EF985C646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972503   (981347) от 06.01.2016
+
+Microsoft: пользователи остаются на Windows 7 на свой страх и риск
+
+>>3
+>>28
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционная система Windows 7 по-прежнему установлена на 55 % всех находящихся в эксплуатации компьютеров, и Microsoft выражает по этому поводу беспокойство. Как заявил директор корпорации по маркетингу Крис Капоссела (Chris Capossela) в интервью Windows Weekly, пользователи, выбирающие Windows 7, делают это на свой страх и риск.«Нас беспокоит, что люди работают (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972290   (981346) от 06.01.2016
+
+Adobe Master Collection CC 2015 RUS/ENG Update 2
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как, надеюсь, вам известно, пакета Adobe Master Collection CC 2015 в природе не существует, компания Adobe его никогда не выпускала. Но, тем не менее, он перед вами! Я очень постарался, чтобы этот пакет появился на свет. Он представляет из себя сборник программ линейки Creative Cloud 2015, объединенный единым инсталлером. Выглядит все очень похоже на старый добрый (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC9915053B0618BB61A6B62D179AAD70547D102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970664   (981344) от 06.01.2016
+
+Он – дракон (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981344.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар свадьбы княжну Мирославу похищает дракон, унося в свой замок на острове. В прошлом остались родные, жених, теперь только каменный плен в компании прекрасного Армана… но кто он и как оказался на острове? Мира поймет это слишком поздно: любовь к нему, человеку-дракону, откроет ей горькую истину — любить страшно.Производство: Россия / Базелевс ПродакшнЖанр: ФэнтезиРежиссер: Индар ДжендубаевАктеры: Мария Поезжаева, Матвей Лыков, Станислав Любшин, Иева Андреевайте, Петр Романов, Андрей Лебединский, Марта Тимофеева, Иво Господинов, Егор Зубарчук, Виктория РунцоваПеревод: Не требуется (русский) iTunesПродолжительность: 01:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233DA269ECF38DF54238FF53AA86B79453F065F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355380   (980747) от 28.01.2020
+
+Сто секунд до Судного дня. Ученые прогнозируют глобальную катастрофу
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980747.jpg" />
+</div>
+
+
+###  Подробнее
+
+В четверг, 23 января, физики, в том числе несколько Нобелевских лауреатов, перевели так называемые часы Судного дня на 20 секунд вперед. Этот проект, придуманный в 1947 году Альбертом Эйнштейном, отражает вероятность глобальной катастрофы, в результате которой человечество может исчезнуть с лица Земли. По словам ученых, из-за неспособности мировых лидеров справиться (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355573   (980746) от 28.01.2020
+
+Налоговая служба получила доступ к информации о всех телефонных звонках
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на протесты «большой тройки»: «Мегафона», «Билайна» и МТС — 23 января Арбитражный суд Москвы опубликовал решение о том, что мобильные операторы обязаны делиться информацией с ФНС. И для этого даже не нужно решение суда. Какие данные уже доступны налоговикам и зачем им ещё и детализация звонков?
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355819   (980743) от 28.01.2020
 
 Bogatyr (2020) [Ru/En] (1.0) License DARKSiDERS
@@ -6,7 +163,7 @@ Bogatyr (2020) [Ru/En] (1.0) License DARKSiDERS
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980743.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980740.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980719.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980716.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ Photo Mechanic 5.0 (Build 16438) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980580.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ Adobe Photoshop CC 2015.1.1 (20151209.r.327) (x64) RePack by JFK2005 (07.01.2016
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980572.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980571.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980570.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980427.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980425.jpg" />
 </div>
 
 
@@ -274,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980349.jpg" />
 </div>
 
 
@@ -300,7 +457,7 @@ Linux Mint 17.3 Rosa KDE [32bit, 64bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979879.jpg" />
 </div>
 
 
@@ -326,7 +483,7 @@ The Bat! Professional 7.1.12 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979797.jpg" />
 </div>
 
 
@@ -352,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979796.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ Tor Browser Bundle 5.0.7 Final [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979792.jpg" />
 </div>
 
 
@@ -404,7 +561,7 @@ Linux Mint 17.3 Rosa XFCE [32bit, 64bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979787.jpg" />
 </div>
 
 
@@ -430,7 +587,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0/dlc) License PROPHET [Collection Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979783.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ The Evil Within (2014) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Repack / 1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979782.jpg" />
 </div>
 
 
@@ -482,7 +639,7 @@ Windows XP / 7AIO / 8.1 / 10 x86 x64 pe StartSoft 2-2016 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979780.jpg" />
 </div>
 
 
@@ -508,7 +665,7 @@ Lost Planet: Extreme Condition (2007) [Ru] (1.2) Repack =nemos= [Colonies Editio
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979778.jpg" />
 </div>
 
 
@@ -519,164 +676,6 @@ Lost Planet: Extreme Condition (2007) [Ru] (1.2) Repack =nemos= [Colonies Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3B2C216A97293B05FE088F2EBB9C5824466F27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953115   (979777) от 08.01.2016
-
-Эш против Зловещих мертвецов / Ash vs Evil Dead (2015) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) (NewStudio)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последние тридцать лет Эш старательно избегал всего, что связано с воспоминаниями о зловещих мертвецах, но когда очередное нашествие дедайтов грозит уничтожить всё население планеты, Эш становится единственным шансом человечества на спасение.Производство: СШАЖанр: ужасы, боевик, комедияРежиссер: Сэм Рэйми, Майкл Дж. Бассетт, Майкл Херст, Дэвид Фрэйзи, Тони Тилс, Рик ДжейкобсонАктеры: Брюс Кэмпбелл, Джилл Мари Джонс, Люси Лоулесс, Рэй Сантьяго, Дэна ДеЛоренцо, Хемки Мадера, Бен Френшам, Фил Пелетон, Дэмиен Гарви, Бриджит Хоффман и др.Перевод: Профессиональный многоголосый закадровый - NewStudio (ненормативная лексика)Формат: MKVПродолжительность: ~00:30:00 серия (00:43:49 первая серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0E46F2D36D505F1B550C73E9A397B2A35C3DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973019   (979774) от 08.01.2016
-
-Ужастики / Goosebumps (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зак переезжает с родителями в провинциальный городок, где знакомится с очаровательной соседкой Ханной. Он узнает, что ее отец — Роберт Стайн, знаменитый писатель, автор популярной серии триллеров для подростков «Ужастики», у которого есть мрачная тайна. Стайн — пленник собственных историй: монстры из его произведений вполне реальны, и он пишет свои книги для того, (   Читать дальше...   )Производство: США, Австралия,  Columbia Pictures, LStar Capital, Original Film, Scholastic Entertainment, Sony Pictures Animation, Sony Pictures Entertainment (SPE), Village Roadshow PicturesЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. Болден, Аманда Ланд, Тимоти С. Саймонс, Каран Сони, Р.Л. Стайн, Калеб Эмери, Габриэла Фрайле, Нэйт Андраде, Шелдон Браун, Мелисса Брюэр, Маршалл ЧокаПеревод: Дублированный (iTunes)Язык субтитров: Английский (Full)Продолжительность: 01:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534450923FA4FF71448A3D2B2E3EE96C87113D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906235   (979773) от 08.01.2016
-
-XCOM: Long War (2013) [Ru/Multi] (1.0) Mod JohnnyLump&Amineri [PreInstall]
-
->>3
->>25
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979773.jpg" />
-</div>
-
-
-###  Подробнее
-
-XCOM: Long War - модификация, которая делает из оригинальной игры хардкорный проект, бросающий серьезный вызов игроку. Если по нраву жесткая война, выиграть которую можно только вникнув во все аспекты игры, вдумчиво подбирая бойцов и их экипировку, а цель - победить в тяжелых и напряженных боях, то XCOM: Long War - для вас.Тип издания: ModРазработчик: JohnnyLump, Amineri, XMarksTheSpot, Ellatan & CoЖанр: Тактическая стратегия (Real-time, Turn-based)Язык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923D48D177C6B3343631A3E86C954032E5580A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355649   (979632) от 29.01.2020
-
-В России могут ввести наказание за скрученный пробег автомобилей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979632.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России предложили штрафовать на 1 млн рублей за скручивание пробега у машин
-Глава ассоциации "Российские автомобильные дилеры" Олег Моисеев выступил с инициативой ввести штрафы за скрутку пробега у подержанных машин: физических лиц, попавшихся на таком бизнесе, предлагают наказывать суммой в 300 тыс. рублей, а юридических - в 1 млн рублей. Обсуждение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355608   (979611) от 29.01.2020
-
-Роспотребнадзор опубликовал памятку, как обезопасить себя от коронавирусной инфекции
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специалисты Роспотребнадзора подготовили пакет мер для того, чтобы предотвратить распространение нового коронавируса на территории РФ. Главный санитарный врач страны разработал постановление, которое определяет основной перечень соответствующих мероприятий. Оно опубликовано на официальном сайте ведомства.В сообщении уточняется, что «Мероприятия по недопущению распространения (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356137   (979605) от 29.01.2020
-
-Windows 10 Pro 1909 b18363.592 x64 by SanLex (edition 2020-01-28) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинал образе Win10_1909_Russian_x64.
-Отключена/изолирована вся глобальная телеметрия, рекламные модули, и всё что влияет на приватность пользователя (в пределах возможного). Оптимизирована общая производительность Windows (фишка by SanLex). Добавлены накопительные обновления исправления/безопасность. В остальном ничего не добавлялось, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BB84017B6484DE4BB49B351BEBD7CD30D45155
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1410293   (438432) от 20.09.2020
+
+Neal Morse - Sola Gratia (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preface
+02. Overture (Instrumental)
+03. In The Name Of The Lord
+04. Ballyhoo (The Chosen Ones)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD57AC5146EC1A786C89E2F1FDDB016131570E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944869   (438405) от 08.10.2015
+
+Clepsydra - 3654 Days (2014) 4CD Boxset, Remaster [FLAC|image+.cue]<Neo-Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuesday Night 13:13
+02. Travel of Dream 10:52
+03. The Return 7:10
+04. The Father 7:30(   Читать дальше...   )Жанр: Neo-Progressive RockПродолжительность: 05:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A82D10C6C95336C8FE36F945823A5C88AC5FCAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944664   (438325) от 08.10.2015
+
+All Time Low - Future Hearts (2015) Deluxe Edition [FLAC|tracks + .cue]<Pop-Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellite [2:25]
+02. Kicking & Screaming [3:26]
+03. Something's Gotta Give [3:09]
+04. Kids in the Dark [3:37](   Читать дальше...   )Жанр: Pop-Punk, Alternative RockПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887BBB7DC23882108B2F563992F5308035B23A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248902   (438035) от 22.09.2018
+
+Caspian - Tertia (2009) [FLAC|Lossless|tracks + .cue] <Rock, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mie (4:10)
+ 02. La Cerva (4:59)
+ 03. Ghosts of the Garden City (7:31)
+ 04. Malacoda (5:04)(   Читать дальше...   )Жанр: Rock, Post RockПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3364F45D0825A0EE23F80973B30B751FFBD883DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248949   (438015) от 22.09.2018
 
 Mark Rowen - Radiance (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -6,7 +122,7 @@ Mark Rowen - Radiance (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438015.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437691.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Yes - Close To The Edge (1972) Hybrid SACD /2012, Audio Fidelity/ [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437596.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ Bob Seger - 23 Albums (1969 - 2018) 36 CD [FLAC|Lossless|image + .cue|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437561.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ David Knopfler - 9 альбомов (1983-2006) [FLAC, APE|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437423.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ Lowrider - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Desert, Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436220.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Symphorce - Unresticted (2010) [FLAC|Lossless|image + .cue] <Heavy-Power Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435564.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ John Lennon - Anthology (1998) /4CD Boxset/ [FLAC|track+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435512.jpg" />
 </div>
 
 
@@ -240,7 +356,7 @@ Kiss - Hotter Than Hell (1974) + Unmasked (1980) (1999) [WavPack|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434489.jpg" />
 </div>
 
 
@@ -269,7 +385,7 @@ Bigelf - 5 альбомов (1996 - 2014) [FLAC|image+.cue|tracks+.cue|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434298.jpg" />
 </div>
 
 
@@ -298,7 +414,7 @@ Magic Dance - Remnants (2020) [FLAC|Lossless|image + .cue] <Melodic  Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434036.jpg" />
 </div>
 
 
@@ -327,7 +443,7 @@ Bill Champlin - Livin' For Love (2021) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434032.jpg" />
 </div>
 
 
@@ -356,7 +472,7 @@ Generation Radio - Generation Radio (2022) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433945.jpg" />
 </div>
 
 
@@ -385,7 +501,7 @@ Deep Purple - Bombay Calling (Live in 95) (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433841.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [FLAC|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433813.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ Smokie - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433733.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433102.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ Gary Hoey - Monster Surf (2005) [FLAC|Lossless|tracks + .cue] <Surf, Instrumenta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432688.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ Colin James - Blue Highways (2016) [FLAC|Lossless|image + .cue] <Blues Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432521.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ Phil Collins - The Singles (2016) Expanded Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432143.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ En Minor - When The Cold Truth Has Worn Its Miserable Welcome Out (2020) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431984.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ VA - Eric Clapton: Life in 12 Bars (2018) 2CD, Compilation [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431031.jpg" />
 </div>
 
 
@@ -632,121 +748,6 @@ VA - Eric Clapton: Life in 12 Bars (2018) 2CD, Compilation [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:959BA8FADDAC8CD7129F4A5C0BD96430D140B658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410941   (429983) от 24.09.2020
-
-Cracked Machine - Gates of Keras (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic/Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429983.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cold Iron Light (7:26)
-2. Temple of Zaum (4:19)
-3. Black Square Icon (5:15)
-4. The Wood Demon (4:57)(   Читать дальше...   )Жанр: Psychedelic/Space RockПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2EB18AC5D9A02B6A6DB5AC5C547C26576730FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410990   (429839) от 24.09.2020
-
-SPACE DEER - The Forest (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock, Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March of the Myers [00:04:10]
-02. Ghost Magnet [00:04:45]
-03. Desire [00:05:29]
-04. Death Arrives in Town [00:05:50](   Читать дальше...   )Жанр: Stoner Rock, Psychedelic Rock, Desert RockПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87118AD1C207E6CF9833140DD3635DD3D17CDBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411039   (429744) от 24.09.2020
-
-La Maschera Di Cera - S.E.I. (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il tempo millenario [00:21:35]
-02. Il cerchio del Comando [00:09:56]
-03. Vacuo senso [00:13:30]Жанр: Progressive Rock, Art RockПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE369E0401CB90C8D4AA33D1AE64496BE727D492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411101   (429742) от 24.09.2020
-
-Ace Frehley - Origins, Vol 2 (2020) [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times, Bad Times (3:24) (Originally by Led Zeppelin)
-02. Never in My Life (4:04) (Originally by Mountain)
-03. Space Truckin’ (5:04) (Originally by Deep Purple)
-04. I’m Down (2:59) (feat. John 5) (Originally by the Beatles)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFFA21B26BC200B940D531557A404242E345016
 ```
 
 https://mybot314.ru/tekegram_catalog/

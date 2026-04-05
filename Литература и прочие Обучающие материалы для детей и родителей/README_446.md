@@ -1,3 +1,56 @@
+###  Публикация: 1789468   (22476) от 04.04.2025
+
+Г.Е. Рудзитис, Ф.Г. Фельдман | Химия. Учебник для 10 класса (базовый уровень) (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный учебник — основной элемент информационно-образовательной среды учебно-методического комплекта по органической химии для 10 класса. Учебник позволяет обеспечить достижение предметных, метапредметных и личностных результатов образования в соответствии с требованиями Федерального государственного образовательного стандарта среднего общего образования. Материал (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CA1E1C4CFB52A8F7F0A81033C16D48317FE241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789487   (22459) от 04.04.2025
+
+К.Ю. Поляков, Е.А. Еремин | Информатика. Учебник для 9 класса (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для изучения предмета «Информатика» в 9 классе (базовое и углублённое изучение). Содержание учебника является продолжением курса 8 класса. В нём рассматриваются вопросы, связанные с компьютерными сетями и моделированием, основы математической логики, программирование, работа с табличными процессорами и базами данных, социальная информатика.
+ (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB71E92F0A058AD56D5A629E21B639AEFFF1A84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790373   (22081) от 08.04.2025
 
 И. Вольпер | Юным химикам (1965) [PDF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22081.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22060.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22058.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22053.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21975.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21942.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21843.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21841.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21834.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21113.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21104.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20714.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20710.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20709.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20708.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20706.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20703.jpg" />
 </div>
 
 
@@ -466,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20700.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20379.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20375.jpg" />
 </div>
 
 
@@ -550,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20373.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20188.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20183.jpg" />
 </div>
 
 
@@ -630,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19268.jpg" />
 </div>
 
 
@@ -641,60 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D7C7D4BC5065182B88F4FB261EF4A7EA8A81591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796391   (18718) от 10.05.2025
-
-Журнал | Юный техник №4 (апрель 2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18718.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Юный техник" - ежемесячный детско-юношеский журнал о науке и технике. В популярном виде доносит до читателя (в первую очередь школьника) достижения отечественной и зарубежной науки, техники, производства.Жанр: Детский познавательный журналИздательство: ООО "Юный техник"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B7D43D0CA0741A114859FE4A70AF8F0DCCE3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811318   (16326) от 09.08.2025
-
-Алексей Бондарев | Вирусы и микробы. Детская энциклопедия (2024) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16326.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой энциклопедии любимые герои познакомятся с миром вирусов и микроорганизмов. Вместе с Чевостиком и дядей Кузей читатели узнают, почему мы болеем и как иммунитет противостоит болезням, кто первым смог разглядеть микробы и существуют ли полезные бактерии.
-
-Герои побывают в самых неожиданных местах, понаблюдают за инфузориями и амёбами, переместятся в прошлое (   Читать дальше...   )Жанр: детская познавательная и развивающая литература, детские приключения, детские энциклопедииИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722C1169D4788944E6609189F1BE926EA9630BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

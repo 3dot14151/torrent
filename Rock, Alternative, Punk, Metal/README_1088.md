@@ -1,3 +1,32 @@
+###  Публикация: 970220   (143550) от 29.12.2015
+
+Lost Society - Braindead (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am the Antidote
+02. Riot
+03. Mad Torture
+04. Hollow Eyes(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BCE07611EFFC0458AF9C8D536510643171158E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969951   (143510) от 29.12.2015
 
 Billy Joel - Turnstiles (1976) SACD, Remastered 2012, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <olk Rock, Pop Rock>
@@ -6,7 +35,7 @@ Billy Joel - Turnstiles (1976) SACD, Remastered 2012, Mobile Fidelity Sound Lab 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143510.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Jessica Wolff - Grounded (2015) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143417.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Artemesia - Apocryphal (2003) [WavPack|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143412.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Megadeth - Warheads On Foreheads (2019) Compilation, Remastered [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143317.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ R.E.M. - Out Of Time (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143296.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ The Bronx - The Bronx (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143248.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Maciej Malenczuk - Psychodancing (2008) [MP3|192 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143230.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Le Maximum Kouette - Moi j'aime ça! (2002) Maxi-Single [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143227.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ Ridel High - Emotional Rollercoaster (1998) [FLAC|Lossless|tracks + .cue] <Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143223.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ Notorious - Sexy Funky Monkey (1997) Single [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143201.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ New Found Glory - Makes Me Sick (2017) [FLAC|Lossless|tracks + .cue] <Pop Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143150.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Carcariass - Hell And Torment (2012) Compilation [MP3|~245 кб/с (V0)]<Technic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143134.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ Dead Meadow - The Nothing They Need (2018) [FLAC|Lossless|tracks + .cue] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143109.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ Mass Of The Heretic - Flames Of Hatred (2016) [MP3|320 Kbps] <Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143079.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ nobody.one - 4 Альбома (2010-2015) [MP3|128-320 кб/с] <Instrumental Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143003.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Accept-SP - Dream Of Tree (2019) [MP3|320 Kbps] <Metal, Progressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142975.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ Soilwork - Verkligheten (2019) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142840.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Deep Purple - Machine Head (1972) SACD, 2003 EMI [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142791.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Legenda Aurea - Ellipsis (2009) [APE|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142752.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ The Purple Gang - Strikes (1968) Reissue, 1998, Essential [MP3|320 Kbps] <Folk R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142742.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Veil of Mist - Another End Is Possible (2023) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142711.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Lindi Ortega (Линди Ортега) - Little Red Boots (2011) Last Gang Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142708.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Vehemence - Forward Without Motion (2015) [FLAC|Lossless|tracks + .cue] <Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142698.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Vehemence - God Was Created (2002) [FLAC|Lossless|image + .cue] <Metal, Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142682.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Udo Lindenberg - Stärker als die Zeit Live (2016) Deluxe Edition 3CD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142669.jpg" />
 </div>
 
 
@@ -727,35 +756,6 @@ CD3Жанр: RockПродолжительность: 01:00:11
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:520095384CBB6DAF8657493BA21817B12E638EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678913   (142630) от 23.11.2023
-
-The Sixth Chamber - Beyond the Night Veil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Doom Metal, Hard Rock, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penny Dreadful [00:01:56]
-02. Red Death Masquerade [00:04:20]
-03. Walpurgis Night [00:05:58]
-04. Necropolis [00:03:43](   Читать дальше...   )Жанр: Heavy Doom Metal, Hard Rock, Gothic RockПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0E93263215BF2431A67B01324F4758EBD48205
 ```
 
 https://mybot314.ru/tekegram_catalog/

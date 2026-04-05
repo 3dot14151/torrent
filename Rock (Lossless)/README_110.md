@@ -1,3 +1,119 @@
+###  Публикация: 1331337   (333392) от 14.10.2019
+
+The Rolling Stones - Honk (Deluxe Edition) (2019) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Me Up (03:33)
+02. Brown Sugar (03:50)
+03. Rocks Off (04:33)
+04. Miss You (04:49)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DAA1285C0AF14981BEB94F84ABB03E07786F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955730   (332400) от 12.11.2015
+
+Queen - A Night At The Odeon: Hammersmith 1975 (2015) Live [FLAC|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now I'm Here
+02. Ogre Battle
+03. White Queen (As It Began)
+04. Bohemian Rhapsody(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F0B0F99357C3AB7FEADD9AE4DC344B023C813E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580060   (331846) от 30.09.2022
+
+Twenty Four Hours - Ladybirds (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crevasses and Puddles [00:06:06]
+02. Una Perla Vive Nascosta Tutta la Vita [00:06:34]
+03. Unexpected Results [00:06:07]
+04. Ghost Pension [00:04:49](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC472B27922125FBFAFF44530CEA8692AC9D1CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420701   (331367) от 02.11.2020
+
+3 Wheeler Band - Smoke n' Groove (2013) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Ain't That Lucky [04:39]
+02. Me & My Jack [03:45]
+03. My Hangover [04:34]
+04. Beg for Mercy [04:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4FC92AA897DFFDE1B93F06F0BDFB75D28E6407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420820   (331199) от 02.11.2020
 
 Bruce Springsteen - Letter To You (2020) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Heartland Rock>
@@ -6,7 +122,7 @@ Bruce Springsteen - Letter To You (2020) [FLAC|Lossless|tracks + .cue] <Rock, Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331199.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Del
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330985.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Imaginaerium - The Rise Of Medici (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330890.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Robot God - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330887.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ Marenna - Voyager (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330882.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ Manfred Mann’s Earth Band - Messin’ (1973) Japanese Edition, Reissue, 2022, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330728.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Beth Hart - Leave The Light On (2006) [FLAC|image + .cue]<Rock,  Blues Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330271.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Marillion - B'Sides Themselves (1988) EMI Records Ltd.[FLAC|image + .cue]<Neo-Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330268.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Rik Swinn - Strum (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329995.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Jess Harnell - The Sound Of Your Voice (1995) Japanese Edition, Reissue, 1998, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329994.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Compass - Theory of Tides (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329930.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Manfred Mann’s Earth Band - Watch (1978) Japanese Edition, Reissue, 2022, Bell
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329775.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Rod Stewart - Another Country (Deluxe Edition) (2015) [FLAC|Image+cue]<Classic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329374.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Black Tongue Reverend - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329055.jpg" />
 </div>
 
 
@@ -408,7 +524,7 @@ Elysian Fields - Gateway (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329053.jpg" />
 </div>
 
 
@@ -435,7 +551,7 @@ Sonata Arctica - Acoustic Adventures (Volume Two) (2022) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328980.jpg" />
 </div>
 
 
@@ -464,7 +580,7 @@ Phantom Spell - Immortal's Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328968.jpg" />
 </div>
 
 
@@ -493,7 +609,7 @@ Manfred Mann’s Earth Band - Angel Station (1979) Japanese Edition, Reissue, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328891.jpg" />
 </div>
 
 
@@ -522,7 +638,7 @@ VA - Classic Rock Presents - Voodoo Lounge (2014) [FLAC|tracks + .cue]<Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328412.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ Bryan Ferry - Avonmore (2014) [FLAC|image+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328358.jpg" />
 </div>
 
 
@@ -580,7 +696,7 @@ The Tirith - 2 Albums (2015-2019) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328136.jpg" />
 </div>
 
 
@@ -609,7 +725,7 @@ Realm Drifter - Realm Drifter (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stone
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328133.jpg" />
 </div>
 
 
@@ -623,122 +739,6 @@ Realm Drifter - Realm Drifter (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stone
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A3D89F511D35D3E12108094B5382BC1648707F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581067   (328060) от 04.10.2022
-
-Deadly Vipers - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes from Wasteland [00:02:51]
-02. Atom [00:05:29]
-03. Low City Drone [00:09:13]
-04. Welli Welloo [00:05:44](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8530AECF6764DAA94A1E28FFC644DC3D9D8BF0BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581054   (328052) от 04.10.2022
-
-Ethel Cain - Preacher’s Daughter (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock,Goth-Pop, Dream-Pop, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Family Tree (Intro) [03:41]
-02. American Teenager [04:18]
-03. A House In Nebraska [07:46]
-04. Western Nights [06:05](   Читать дальше...   )Жанр: Rock,Goth-Pop, Dream-Pop, AlternativeПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B95DEE08D6CD474FA09F6F13DF99B177A68CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842527   (327233) от 19.11.2014
-
-Queen - Forever (2014) 2SHM-CD, Japanese Edition [FLAC|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Let Me In Your Heart Again   (4:36)
-02.  Love Kills - the ballad   (4:13)
-03.  There Must Be More To Life Than This (William Orbit Mix)   (3:27)
-04.  Play The Game   (3:15)(   Читать дальше...   )Жанр: RockПродолжительность: 02:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD7259E4F1A16FDA9B4AC67E5CE2342B8CA2461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581438   (326483) от 06.10.2022
-
-Mephistofeles - Violent Theatre (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buried in Worms [00:08:04]
-02. Frustrated [00:02:50]
-03. The Meaning of All Evil [00:05:15]
-04. Chapel Sins [00:03:42](   Читать дальше...   )Жанр: Psych Stoner DoomПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF01586467E3B0C841FE6137F1226B119711FD66
 ```
 
 https://mybot314.ru/tekegram_catalog/

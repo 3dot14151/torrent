@@ -1,81 +1,3 @@
-###  Публикация: 390465   (448934) от 21.09.2011
-
-Артур. Идеальный миллионер / Arthur (2011) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_448934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артур Бэч, попадая в жизненные передряги, всегда полагался на две вещи: свое огромное состояние и здравомыслие собственной няньки Хобсон. Но теперь ему придется сделать выбор между браком по расчету, который еще более укрепит его финансовое положение, и неопределенным будущим с единственным, что нельзя купить за деньги, — прекрасной Наоми, любовью всей его жизни. (   Читать дальше...   )Производство: Warner Bros. Pictures / MBST Entertainment / BenderSpink / Langley Park Productions (США)Жанр: КомедияРежиссер: Джейсон УайнерАктеры: Расселл Брэнд, Хелен Миррен, Грета Гервиг, Дженнифер Гарнер, Джеральдин Джеймс, Луис Гузман, Ник Нолти, Кристина Калф, Мерфи Гайер, Хосе Рамон РосариоПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые, отключаемыеЯзык субтитров: Английский, русский, украинскийПродолжительность: 01:45:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827121   (448850) от 02.10.2014
-
-Любовь в квадрате / Des gens qui s'embrassent (2013) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Похороны жены Зефа совпадают с церемонией свадьбы дочери Рони! Это неожиданное событие обостряет конфликт между двумя братьями, которых и так разделяет всё: профессии, женщины, монашество одного и жизнерадостность другого: всё, кроме их старого кутежника-отца и двух дочерей, обожающих друг друга…Производство: Франция, БельгияЖанр: Драма, комедияРежиссер: Даниель ТомпсонАктеры: Эрик Элмоснино, Лу де Лааж, Кад Мерад, Клара Понсо, Макс Бублиль, Моника Беллуччи, Иври Гитлис, Валери Боннетон, Алексис Михалик, Кристиан ЭкПеревод: Профессиональный (многоголосый закадровый)Субтитры: НетПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0808538E9AF275CFD3BF19CA7B13575AABC98ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390217   (448756) от 21.09.2011
-
-Хэнкок [Расширенная Версия] / Hancock [Unrated] (2008) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_448756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть герои, есть супергерои, и есть Хэнкок. Обладание сверхспособностями предполагает ответственность, все знают это — кроме него. За любую задачу он берётся с душой и лучшими намерениями, спасает жизни людей — ценой нечеловеческих разрушений и неисчислимого ущерба. В конце концов, терпение общественности подходит к концу: люди благодарны своему местному герою, но (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, КомедияРежиссер: Питер БергАктеры: Уилл Смит, Шарлиз Терон, Валери Эзлинн, Джейсон Бейтман, Стефен Бишоп, Саманта Кэннон, Кейт Кларк, Ши Керри, Кайла ДангПеревод: ДублированныйСубтитры: Русские, Английские, УкраинскиеПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552426   (447926) от 26.09.2012
 
 Угнанный / Hijacked (2012) DVD9
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447926.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447455.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446983.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446979.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445849.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445771.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445530.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445495.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444939.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443844.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443601.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443360.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442613.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_440829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440829.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_440477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440477.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438386.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438152.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437251.jpg" />
 </div>
 
 
@@ -558,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437211.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437206.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436641.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434771.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432974.jpg" />
 </div>
 
 
@@ -675,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAF23FEF1111A7ADB6BCFF899BA2F32593BDB561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249372   (432646) от 24.09.2018
+
+Призрак в доспехах / Ghost in the Shell (2017) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кибер-технологии подчинили себе все сферы жизни, а самые опасные преступники переместились в виртуальное пространство. Киборг-гибрид, стоящий во главе элитного подразделения полиции, идет по следу могущественного хакера.Производство: Великобритания, Китай, Индия, Гонконг, США / Paramount Pictures, DreamWorks SKG, Reliance Entertainment, Shanghai Film Group, Huahua Media, Arad ProductionsЖанр: Фантастика, боевик, триллер, драма, криминал, детективРежиссер: Руперт СандерсАктеры: Скарлетт Йоханссон, Йохан Филип Асбек, Такеши Китано, Жюльетт Бинош, Майкл Питт, Чин Хань, Дануся Самал, Ласарус Ратуэре, Ютака Идзумихара, Таванда МаниймоПеревод: Дублированный (лицензия)Субтитры: Русские, английские, украинскиеПродолжительность: 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E4B799D34F20C4225AD4A283624A16BD8AE105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707962   (432593) от 07.10.2013
+
+Доказательство / Proof (2005) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блестящий математик в последние годы утрачивает связь с действительностью, продолжая упорно работать дома, окруженный заботой своей дочери Кэтрин. И только его бывший студент Хал все еще верит в него. Но вскоре, уже после того, как между молодыми людьми зародилось чувство, Хал должен разобраться: какое из неординарных свойств профессора воплотилось в дочери?...Производство: США, Miramax Films, Hart-Sharp Entertainment, Endgame EntertainmentЖанр: Драма, детективРежиссер: Джон МэдденАктеры: Гвинет Пэлтроу, Энтони Хопкинс, Джейк Джилленхол, Дэнни МакКарти, Хоуп Дэвис, Тобиаш Дашкивич, Гэри Хьюстон, Энн Уиттман, Ли Зиммерман, Колин Стинтон, Лелэнд Барнетт, Джон Киф, Чипо Чанг, С. Джерод Харрис, Рошан Сет и др.Перевод: ДублированныйЯзык субтитров: Русский, украинскийФормат: DVD9Продолжительность: 01:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF840FF906091A1A3F4B007767B3476C1382554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 393472   (432272) от 28.09.2011
+
+Джейн Эйр / Jane Eyre (2011) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викторианская Англия. После восьми лет, проведенных в пансионе для бедных девочек, сирота Джейн Эйр получает место гувернантки в Торнфилде — вотчине Эдварда Ферфакса Рочестера. Хозяин поместья редко наведывается в родные края, а в его отсутствие Джейн должна присматривать за восьмилетней Адель Варанс — воспитанницей аристократа. И вот однажды Рочестер возвращается. (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Драма, МелодрамаРежиссер: Кэри ФукунагаАктеры: Миа Васиковска, Майкл Фассбендер, Джейми Белл, Су Эллиот, Холли Грэйнджер, Тэмзин Мерчант, Амелия Кларксон, Крэйг Робертс, Салли Хокинс, Элизабет ХоплиПеревод: ДублированныйСубтитры: нетПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

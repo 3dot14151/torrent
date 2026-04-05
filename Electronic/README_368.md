@@ -1,3 +1,119 @@
+###  Публикация: 1424506   (292202) от 17.11.2020
+
+Stenny - Stress Test (2019) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stress Test (04:28)
+ 02. ElasTCT (04:12)
+ 03. Adequate Force (06:09)
+ 04. Fail Better (Bent Mix) (04:11)Жанр: Breakbeat, BreaksПродолжительность: 00:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777779BC9CE9837992F66C43D7DC07EDF7437379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079753   (292145) от 05.12.2016
+
+VA - Cinematic Chillout Collection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Rising Sun 6:25
+02. Enrico Donner feat. Theresa Thomason - Something New 4:37
+03. Cane Garden Quartet - Sea Jam 5:24
+04. DJ Riquo - Starting Over 5:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D64B440AF975E3A35AEF8185CC0DF02DD798E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079595   (292140) от 05.12.2016
+
+VA - 5 Years Of Drugstore Records (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MadMal/Rokka Animal - Brutal Style (original mix) 05:33
+02. Kill Eat Ratz - Goosebumps (original mix) 05:15
+03. Victor Bascu - Hello Man (original mix) 06:00
+04. Ralph Le Beat - Mexican Legends (MinimalFlex remix) 06:46(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 03:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074BF7F03527700F6695CFE1D6457FC771263A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079793   (292135) от 05.12.2016
+
+VA - Timeless Desires: Finest Chillout Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro - Punta Roja 5:56
+02. Aqua Mundi - Sudden Inspirations 5:42
+03. Lamar Ensemble - About Yesterday 5:47
+04. Rey Salinero - Conexiones 6:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569CFDA507CF2C213D116833CEAF0D1555DC9B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079860   (292074) от 05.12.2016
 
 VA - Come On And Touch Me: Smooth Chill Out Lounge For Lovers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +122,7 @@ VA - Come On And Touch Me: Smooth Chill Out Lounge For Lovers (2016) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292074.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Eschaton - Universe 2 (2016) [MP3|320 Kbps] <Electronic, Drum & Bass, Deep Techn
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292059.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Trance Travel Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291812.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Dream Travel - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291811.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Adedition: Trance Collection Of Amsterdam (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291739.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291738.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Christmas Mega Dance 2017 [MP3|320 Kbps] <House, Electro House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291728.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Halloween Night EDM Party (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291670.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Solarstone - One (Limited Edition) (2019) Box Set [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291664.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Club Royale: Vocal House (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291562.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Stoneface & Terminal - Altered Floors (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291558.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Sarah Lynn - Clear As The Sky: The Best Of (Extended Mixes) (2018) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291554.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Cafe Del Mar - Ibiza - Volumen Dos (1995) [FLAC|Lossless|tracks + .cue] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291548.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ ADN' Ckrystall - Jazz' Mad (1982) LP [MP3|320 Kbps] <Electronic, New Wave, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291532.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Flucturion 2.0 - Inner Camertone (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291528.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Rock the Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291526.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Rompasso - Angetenar (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291406.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Deadmau5 - mau5ville: Level 2 (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291392.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Solarstone - . . . - - (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291334.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ BlutEngel - Damokles (2019) [MP3|320 Kbps] <Darkwave, Synth-pop>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291322.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ I.M.D - Mensaje Al Corazon (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291119.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Shamall - Schizophrenia (2019) 2CD [MP3|320 Kbps] <Electronic, New Wave, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291109.jpg" />
 </div>
 
 
@@ -629,120 +745,6 @@ Shamall - Schizophrenia (2019) 2CD [MP3|320 Kbps] <Electronic, New Wave, Industr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:610842738C369B9BC52265D8D819491A2FAFC0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263044   (291078) от 17.11.2018
-
-Нейромонах Феофан - Тьма во мне (2018) Single [MP3|320 Kbps] <Drum & Bass, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291078.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вне контекста мини-альбомов этого года, хочу пред грядущим туром порадовать вас двумя новыми песнопениями, что также войдут в программу плясок «Вече»."1. Тьма во мне
-2. Быть вьюгойЖанр: Drum & Bass, ElectronicПродолжительность: 00:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23120BE483D7FE7AD716BDB92334F3E49A0C8B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262954   (291069) от 17.11.2018
-
-VA - The Underground Guide, Vol. 10 (2018) [MP3|320 Kbps] <Electro House, Progressive House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saschienne – Grand Cru (Pachanga Boys Glam Drive)
-02. Emery Warman – Bounce Is Back
-03. DJ Fronter – Warning (Nico Cabeza Remix)
-04. Alberto Santana – Imagine (Juanjo Tur Remix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Tech HouseПродолжительность: 03:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58E56D9BA22FD6AFDA4B4847545E462AE05CFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962153   (290978) от 06.12.2015
-
-Sigma - Life  (2015) (Deluxe Edition) [MP3|320 кб/с]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemption (with Diztortion feat. Jacob Banks)
-02. Slow Down (feat. Jetta)
-03. Higher (feat. Labrinth)
-04. Life (feat. Bartoven)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444897E9D733796C1B79EB78B3A4A7160689E210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963001   (290744) от 06.12.2015
-
-Enei - Rituals LP (2015) (Beatport Edition)  [MP3|320 кб/с]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Vertigo
-03. Bad Proof
-04. Iron Curtain(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEF5AD5B4554DF7ED9B209AFE777ECEC7530E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

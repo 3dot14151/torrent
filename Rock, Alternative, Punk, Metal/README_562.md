@@ -1,3 +1,90 @@
+###  Публикация: 930758   (513876) от 24.08.2015
+
+Bon Jovi - Burning Bridges (2015) [FLAC|image+.cue]<Melodic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Teardrop To The Sea
+02. We Don't Run
+03. Saturday Night Gave Me Sunday Morning
+04. We All Fall Down(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4595C003099ECB051196A7A3005C6950D4EB4C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930582   (513871) от 24.08.2015
+
+VA - Stairways To The Songbook Of Led Zeppelin - Homage To The Legend (2015) [FLAC|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. STAIRWAY TO HEAVEN [8:22]
+ Dweezil Zappa - Lead Guitar
+ Michael White - Vocals
+ Billy Sherwood - Bass, Guitar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5FA00BF99124381EFCD2682CF6924D949A6FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930861   (513864) от 24.08.2015
+
+Йорш - Оковы Мира (2015) [MP3|320 кб/с]<Punk Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слово
+02. В игре
+03. Ненависть
+04. Живое оружие(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABBE15CF33B37B46BA1BAE5D486CA6E38D47AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315431   (513823) от 19.07.2019
 
 Scott Stapp - The Space Between the Shadows (2019) Napalm Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge>
@@ -6,7 +93,7 @@ Scott Stapp - The Space Between the Shadows (2019) Napalm Records [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513823.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - 100 Hits - The Best Soft Rock Album (5CD) (2018) Box Set [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513684.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Profetus - As All Seasons Die (2014) EP [FLAC|Lossless|image + .cue] <Funeral Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513673.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ The Troops of Doom - The Rise of Heresy (2020) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513672.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ The Troops Of Doom - Antichrist Reborn (2022) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513671.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Thy Kingdom Will Burn - The Void and the Vengeance (2022) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513670.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Gosta Berlings Saga - Artefacts - Live (2020) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513669.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Honey Bone Rush - Chapel Of Sorrow (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513668.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Into Denial - Into Denial (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513666.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Protector - Summon the Hordes (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513665.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ The Blackening - Stultifera (Heaven Of Madness) (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513664.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Motor!k - 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513663.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ DRH - Ode To A Firework (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513662.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Sabaton - The Great War (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513636.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Curved Air - Air Cut (1973) Reissue, Remastered, 2004, Belle Antique, Japanese E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513619.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Greg Puciato - Child Soldier: Creator of God (2020) [FLAC 2.0|96/24|WEB-DL|track
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513618.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Shores Of Attica - Transitions (2012) [MP3|320 кб/с]<Metalcore / Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513585.jpg" />
 </div>
 
 
@@ -503,7 +590,7 @@ Lynyrd Skynyrd - Last Of A Dyin' Breed (Special Edition) (2012) [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513460.jpg" />
 </div>
 
 
@@ -538,7 +625,7 @@ Imagine Dragons - Mercury - Acts 1 & 2 (2021) 2CD, Deluxe Edition, 2022, Kid Ina
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513452.jpg" />
 </div>
 
 
@@ -567,7 +654,7 @@ Rage - 25Albums+7EP (1984-2012) [FLAC|Lossless]<Heavy Metal/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513308.jpg" />
 </div>
 
 
@@ -602,7 +689,7 @@ HER - Chain Reaction (2017) [FLAC|Lossless|tracks] <Alternative Rock, Hard Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513104.jpg" />
 </div>
 
 
@@ -631,7 +718,7 @@ The New Regime - Exhibit B (2015) [OGG| 441-540 кб/с]<Alternative Rock, Moder
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513015.jpg" />
 </div>
 
 
@@ -660,7 +747,7 @@ The New Regime - Exhibit A (2013) [OGG| 475-550 кб/с]<Alternative Rock, Moder
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513011.jpg" />
 </div>
 
 
@@ -674,93 +761,6 @@ The New Regime - Exhibit A (2013) [OGG| 475-550 кб/с]<Alternative Rock, Moder
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A71B6BA7797808141DA9943C45D35E6B2E8FAAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931356   (512928) от 25.08.2015
-
-Styx - Gold (2006) 2CD [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Collar Man (Long Nights)
-02. Sing For The Day
-03. Renegade
-04. Pieces Of Eight(   Читать дальше...   )Жанр: RockПродолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545AEBFEB1572F4E10F61ACD7614EA56B1B12AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931102   (512920) от 25.08.2015
-
-Pop Evil - Up (2015) Deluxe Edition [OGG| 383-544 кб/с]<Alternative Rock, Hard Rock, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Footsteps
-02. Core
-03. In Disarray
-04. Take It All(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post GrungeПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E5ACF5DABA79863ED075097D4E60420C99A8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931179   (512867) от 25.08.2015
-
-Наутилус Помпилиус - Концерт в Москве (2013) [FLAC|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в ДК МЭЛЗ, Москва, 1987 г.01. Эпиграф (Разлука)   [2:43]
-  02. Мальчик зима   [2:26]
-  03. Стриптиз   [7:35]
-  04. Казанова   [4:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB779B35549E570C3DC6CEB929000EBCC447E9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

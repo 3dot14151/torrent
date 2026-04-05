@@ -1,3 +1,57 @@
+###  Публикация: 585586   (302151) от 06.12.2012
+
+Homefront [Ru/En] (Rip/1.0.384501) 2011 | R.G. Games
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homefront – сюжетно-ориентированный кинематографический боевик, в котором сценарий играет важную роль. В работе над сюжетом игры принимали участие известный голливудский сценарист Джон Милиус («Апокалипсис сегодня», «Красный рассвет») и бывший сотрудник американской разведки. Авторы придумали реалистичный геополитический сценарий, согласно которому к 2025 году экономика США будет окончательно уничтожена второй волной кризиса, а набравшая политической и военной мощи Новая Корея (образовавшаяся в результате объединения северной и южной Корей) взорвёт над ослабленными Штатами ядерный боезаряд и оккупирует запад страны. Народ Америки, лишившийся регулярной армии, но не сломленный, продолжит сражаться с захватчиками, ведя против них бескомпромиссную партизанскую войну. Их главная задача – поднять восстание в Сан-Франциско, который стал базой оккупационных сил.
+
+(   Читать дальше...   )Тип издания: RipРазработчик: Digital ExtremesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский/АнглийскийЯзык интерфейса: Русский/Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A889442516289C812C6E181E0D14380E834056CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078360   (301668) от 30.11.2016
+
+Radiation Island (2016) [Ru/Multi] (1.0) License HI2U
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiation Island — приключенческая игра, где вам придется выживать в огромном открытом мире. Вы принимали участие в Филадельфийском эксперименте, и вас выкинуло в другую параллельную реальность. Исследуйте новый и опасный мир, раскройте все его секреты. Ищите предметы, чтобы выжить, и разгадайте тайну острова, чтобы вернуться домой.Тип издания: LicenseРазработчик: Atypical GamesЖанр: Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652F739BC9D622E022447A1722D8CEDFD4BF8680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375255   (301517) от 12.11.2020
 
 Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
@@ -6,7 +60,7 @@ Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301517.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Hollow (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300659.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.05/2dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298993.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Hollow (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298439.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298435.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298430.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298331.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ Maize (2016) [En] (1300) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297278.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296375.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ Betrayer (2014) [Multi] (1.8.5816) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295247.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ Generation Zero (2019) [Ru/Multi] (Build 20191028/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294331.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ Borderlands (2009) [Ru] (1.5.0/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292597.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292538.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291220.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290756.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290706.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290627.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289639.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289284.jpg" />
 </div>
 
 
@@ -501,7 +555,7 @@ Awe of Despair (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288868.jpg" />
 </div>
 
 
@@ -527,7 +581,7 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288862.jpg" />
 </div>
 
 
@@ -553,7 +607,7 @@ Call of Duty: Advanced Warfare (2014) [Ru/En] (1.22.0.1/upd12/dlc) Rip R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285388.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0upd5) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285240.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ Borderlands Game of the Year Enhanced (2019) [Ru] (1.5.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285224.jpg" />
 </div>
 
 
@@ -616,58 +670,6 @@ Borderlands Game of the Year Enhanced (2019) [Ru] (1.5.0/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:826F81DC86EF0750336D7755A5F0A7212C1636F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081378   (283632) от 09.12.2016
-
-Root Of Evil: The Tailor (2016) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Root Of Evil: The Tailor - история об одном случае произошедшем 20 лет назад. Супружеская пара, была убита, в живых остался лишь их новорожденный ребенок. Полиция провела расследование и оказалось, что по их мнению это было самоубийство, и дело было закрыто. Новорожденный ребенок был отправлен в детский дом. После окончания расследования, в доме стали происходить (   Читать дальше...   )Тип издания: LicenseРазработчик: EastFog StudiosЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: Русский, Английский, ВьетнамскийЯзык интерфейса: Русский, Английский, Вьетнамский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15E5506C2B6BF8ABD6FA4E73A3788852BFB7E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186965   (283356) от 26.11.2017
-
-Battlefield: Bad Company 2 (2010) [Ru/En] (795745) Repack xatab
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сохраняя все лучшие традиции серии, Battlefield: Bad Company 2 предлагает вниманию поклонников игры массу интересных возможностей. Сражаться предстоит в самых разных условиях: в заснеженных лесах и непроходимых джунглях, в жарких пустынях и неприступных горах, что предполагает использование соответствующей тактики.Тип издания: RepackРазработчик: EA Digital Illusions Creative EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB986B7E30D9E0A3AEA57E7528B56786D50C761
 ```
 
 https://mybot314.ru/tekegram_catalog/

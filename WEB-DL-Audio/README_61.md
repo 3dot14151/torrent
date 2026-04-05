@@ -6,7 +6,7 @@ Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105541.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105538.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nicole Marxen - Thorns (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105517.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Andre Obin (André Obin) - Armored King (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105513.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ moiii - moiii (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial, Experime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105498.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Deville - 20 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Stoner Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105495.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eddie & The Wolves - Tasty Sin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105478.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eater - The Album (1977) Deluxe Edition, 2024, Cleopatra Records [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105422.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Moby - always centered at night (3rd St. DJ Mix) (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105408.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dwell in Doom - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105402.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ All India Radio - 2006 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105397.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105389.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Foster The People - Paradise State of Mind (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105386.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Frank Turner - Undefeated (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105367.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jontavious Willis - West Georgia Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105321.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rosie Lowe - Lover, Other (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105317.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tight - Right Between The Eyes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105310.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Strevellna - Revoldom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105309.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Budderside - Good For Nothing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105308.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105307.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ A.D.A.M. Music Project - World Takeover (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105306.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Hazel Gaze - Hazel Gaze II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105305.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Brian Ray - My Town (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105304.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Hifi Sean & David McAlmont - Daylight (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105302.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lesibu Grand - Triggered (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105301.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Zero Digital - Timeline (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105300.jpg" />
 </div>
 
 

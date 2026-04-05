@@ -1,3 +1,29 @@
+###  Публикация: 912823   (608328) от 27.06.2015
+
+Ellery Connell | Модо 701 Базовый тренинг/ Modo 701 Essential Training (2013) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608328.jpg" />
+</div>
+
+
+###  Подробнее
+
+В то время как дизайнеры используют Modo уже несколько лет, он так и не прижился с VFX-художниками или аниматорами. Однако, когда Foundry и Luxology объединили свои силы, Modo 701 родился заного и стал использоваться как конечное решение для 3D-моделирования и рендеринга. Из этого курса вы узнаете, как использовать Modo 701 и предварить ваш 3D-проект в жизнь с аниматором (   Читать дальше...   )Производство: Lynda.comЖанр: 3D-графикаПродолжительность: 05:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34EA16F54FB2E6D73E2A54EE41C87F1A769715B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912822   (608180) от 27.06.2015
 
 Convert Monster | Эффективный Яндекс.Директ 2.0 (2015) PCRec [H.264]
@@ -6,7 +32,7 @@ Convert Monster | Эффективный Яндекс.Директ 2.0 (2015) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608180.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608092.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Udemy | Игры со спрайтами на C# (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608058.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607931.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607349.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607348.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607272.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Lynda.com | Использование регулярных выражений (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607261.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607182.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ Udemy | Java. Клиент-серверное приложение. Многоп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605997.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Mzed, Seth Worley | Writing 101 w/Seth Worley (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605928.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ CGcircuit, Arihant Gupta | Introduction to Vellum Grains in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605682.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ CGcircuit, Florian Bard | Disintegration Effect I - The Head (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605676.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ Rohan Dalvi | Patterns and textures in Houdini (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605673.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ Masterclass, Margaret Atwood | Margaret Atwood Teaches Creative Writing (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605608.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ The Art of Aaron Blaise, Lyndon Ruddy | The Art of the Storyboard with Lyndon Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605607.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ The Gnomon Workshop, Scott Robertson | How to Render Matte Surfaces Vol. 1-3 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605600.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ Yiihuu, Han Yang | Creating A Sci-fi Short Film - The Lander (2018) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605598.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ The Gnomon Workshop, Scott Robertson | Basic Perspective Form Drawing (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605590.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605488.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605041.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ SLR Lounge | Lighting 101 (2016) PCRec [H.264/1080p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604903.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604622.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics II: Generative Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604321.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics I: Introduction to 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604294.jpg" />
 </div>
 
 
@@ -665,33 +691,6 @@ Skillshare, Joshua Davis | Processing - Programming Graphics I: Introduction to 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5743C428C8A26AD3FF5793DDA702BF1ECB2A2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546751   (604258) от 25.04.2022
-
-Skillshare, Joshua Davis | Processing - Programming Graphics III: Painting with Sound (2015) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы будем работать с отличной библиотекой для Processing под названием minim и использовать FFT (Fast Fourier Transform) для считывания звукового спектра из аудиофайлов или живого звука с микрофона или линейного входа и будем приминять эти аудиоданные для управления чем-то на экране, например анимацией или освещением.
-Этот курс основан на двух моих предыдущих курсах.Производство: SkillshareЖанр: Генеративное искусствоЯзык озвучки: АнглийскийПродолжительность: 05:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7E8B6832A006264D48311B41A69F61E7EB701E
 ```
 
 https://mybot314.ru/tekegram_catalog/

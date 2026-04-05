@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260428.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260235.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260001.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259960.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259611.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258549.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258538.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258502.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258273.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256534.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256178.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253787.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253564.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251530.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251528.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251296.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250894.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250308.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248641.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248639.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248577.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248527.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248272.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248023.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247990.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245239.jpg" />
 </div>
 
 

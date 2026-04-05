@@ -1,3 +1,31 @@
+###  Публикация: 430783   (7357) от 17.08.2025
+
+Джон Голсуорси | Сага о Форсайтах. Современная комедия (Книга 1). Белая обезьяна (2010) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Сага о Форсайтах. Современная комедия.
+Джон Голсуорси (1867–1933) – английский прозаик и драматург, автор знаменитого цикла «Сага о Форсайтах».
+«Сага о Форсайтах» – монументальная серия разноплановых произведений английского писателя Джона Голсуорси, которая описывает историю многочисленного семейства Форсайтов на протяжении нескольких поколений, ее связь (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Рита Райт-КовалёваИздательство: Студия «АРДИС»Продолжительность: 13:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5779BC7BA6CC6AF67FC65D22A4A4D88B8E69A0D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 430873   (7355) от 17.08.2025
 
 Джон Голсуорси | Сага о Форсайтах. Современная комедия (Книга 2). Серебряная ложка (2010) [MP3, Станислав Федосов]
@@ -6,7 +34,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7355.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7350.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7337.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7335.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7334.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7224.jpg" />
 </div>
 
 
@@ -174,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7183.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7117.jpg" />
 </div>
 
 
@@ -228,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7055.jpg" />
 </div>
 
 
@@ -256,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7052.jpg" />
 </div>
 
 
@@ -285,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7051.jpg" />
 </div>
 
 
@@ -314,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7041.jpg" />
 </div>
 
 
@@ -342,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7020.jpg" />
 </div>
 
 
@@ -370,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6759.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6742.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6741.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6736.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6565.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6405.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6403.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6398.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6290.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6287.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6276.jpg" />
 </div>
 
 
@@ -664,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6272.jpg" />
 </div>
 
 
@@ -677,32 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C823C84DF3F72BC1459F102D9EEA1904700F07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814081   (6269) от 23.08.2025
-
-Николай Гоголь | Тарас Бульба (2007) [MP3, Дмитрий Писаренко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто не слышал о казаках, прославившихся своей непокорностью и доблестью? Герои повести Николая Васильевича Гоголя – Тарас Бульба и его сыновья – отважные казаки-запорожцы. Они познают смысл жизни в лютых сражениях с врагом, куют свою волю, «как сталь в огне». Но судьба не пощадит никого: ни Тараса, ни его сыновей – Остапа и Андрея… Непростое это было время, когда (   Читать дальше...   )Жанр: Историческая литература, классическая проза, литература 19 века, повести, русская классикаИздательство: ВимбоПродолжительность: 06:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6C9011D970E0A97CE3F791FAC4240ED0B865B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

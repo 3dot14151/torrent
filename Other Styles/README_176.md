@@ -1,3 +1,61 @@
+###  Публикация: 1509958   (5471) от 29.08.2025
+
+OTTA-Orchestra - Дискография (2014-2025) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Neo-Classical, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evening with Mauriat (4:18)
+02. Royal Safari (4:43)
+03. Sheldo (3:23)
+04. The Cossack Song... Forever... (2:38)(   Читать дальше...   )Жанр: Instrumental, Neo-Classical, New Age |Продолжительность: 05:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21366C228C0A6F614B964733C9462A4D27008EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816328   (4405) от 04.09.2025
+
+VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
+02. Project Blue Sun, Tibetania - Ad Astra Per Aspera (Original Mix) (5:10)
+03. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)
+04. Tibetania, Summer Department - Sub Rosa (Original Mix) (5:44)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1B98CD1C032C375B2D02CF4987705AD82653D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818121   (2599) от 15.09.2025
 
 Надежда Бабкина, Русская Песня - Модно-народно (2025) [MP3|320 Kbps] <Folk>
@@ -6,7 +64,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2599.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2595.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, E
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2480.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2131.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1784.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Laura Cantrell - Just Like A Rose: The Anniversary Sessions (2023) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1267.jpg" />
 </div>
 
 

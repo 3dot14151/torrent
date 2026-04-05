@@ -1,3 +1,107 @@
+###  Публикация: 1655110   (193508) от 30.08.2023
+
+За пригоршню динамита / Giu la testa / A Fistful of Dynamite (1971) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193508.jpg" />
+</div>
+
+
+###  Подробнее
+
+На бескрайних мексиканских просторах встречаются два солдата удачи - развеселый бандит Хуан Миранда, грабящий со своими детишками почтовые дилижансы, и ирландский террорист Мэллори, мчащийся на мотоцикле навстречу опасности и оставляющий воронки от разрывов динамитных шашек. Миранда мечтает использовать взрывоопасный талант Мэллори для ограбления банка. Но вместо (   Читать дальше...   )Производство: Италия / Euro International Film (EIA), Rafran Cinematografica, San MarcoЖанр: вестерн, боевик, приключенияРежиссер: Серджио ЛеонеАктеры: Джеймс Коберн, Род Стайгер, Ромоло Валли, Антуан Сент-Джон, Франко Грациози, Дэвид Уорбек, Рой Босьер, Джон Фредерик, Мария Монти, Антонио КазалеПеревод: многоголосый профессиональный, двухголосый профессиональный, одноголосый любительский.Язык озвучки: русский, английский, итальянскийСубтитры: русские (Forced, Full), английские (Full, SDH), итальянские (SDH)Продолжительность: 02:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E717F0BE22B1D972C2DAC151FD17E7878F7780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652399   (192976) от 02.09.2023
+
+Мальтийский сокол / The Maltese Falcon (1941) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это третья по счёту и наиболее прославленная экранизация одноимённого романа Дэшила Хэмметта (1930). В 1539 году рыцари ордена тамплиеров острова Мальта заплатили дань королю Испании Карлу V, послав ему золотого сокола, покрытого от клюва до когтей редкими драгоценными камнями. Но пираты захватили галеру, перевозившую бесценный дар, и судьба мальтийского сокола остаётся (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: нуар, мелодрама, криминал, детектив, экранизацияРежиссер: Джон ХьюстонАктеры: Хамфри Богарт, Мэри Астор, Глэдис Джордж, Петер Лорре, Бартон МакЛэйн, Ли Патрик, Сидни Гринстрит, Уорд Бонд, Джером Кауэн, Элиша Кук мл., Джеймс Бёрк, Мюррэй Элпер, Джон Хэмилтон, Чарльз Дрэйк, Честер ГанПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеКачество: BDRipПродолжительность: 01:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78490A4ECCC8362D68396553D1F79AA81286C97E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587598   (192667) от 31.10.2022
+
+Леди в поезде / Lady on a Train (1945) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на рассказе Лесли Чартерис и рассказывает о Ники, любительнице книжных детективов, которая из окна поезда становится свидетельницей убийства в соседнем здании. После того как она сообщает об убийстве в полицию, которая быстро отвергает её версию, Ники обращается к популярному автору детективов с просьбой помочь ей раскрыть преступление...Производство: США, Universal PicturesЖанр: нуар, мелодрама, комедия, криминал, детектив, триллерРежиссер: Чарльз ДэвидАктеры: Дина Дурбин, Ральф Беллами, Дэвид Брюс, Джордж Кулурис, Аллен Дженкинс, Дэн Дьюриа, Эдвард Эверетт Хортон,Жаклин деВит, Патриша Морисон, Элизабет ПаттерсонПеревод: профессиональный многоголосый (Инфофильм)Субтитры: английские SDHПродолжительность: 01:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F386A275422ED517DDC1BA5DBF06B59A4F86D765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551920   (192582) от 31.10.2022
+
+Дочь дьявола / La fille du diable (Devil’s Daughter) (1946) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преследуемого полицией грабителя Саже по доброте душевной подсаживает к себе в машину возвращающийся в родные края из Америки Людовик Мерсье. Но на ночной дороге автомобиль, управляемый изрядно набравшимся по случаю возвращения на родину репатриантом, терпит аварию. Мерсье погибает, а чудом выживший Саже присваивает себе его личность. В маленьком провинциальном городке (   Читать дальше...   )Производство: Франция, Pathé Consortium Cinéma, Safia, Société Nouvelle Pathé CinémaЖанр: ДрамаРежиссер: Анри ДекуанАктеры: Пьер Френе, Фернан Леду, Тереза Дорни, Пьер Жювене, Роберт Селер, Поль Франкёр, Николас Амато, Андре Васле, Альберт Гладо, Франсуа ПатрисПеревод: Авторский (Андрей Дольский)Субтитры: Английские, французскиеПродолжительность: 01:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEB8FAE0B0AEB63D85B51D8D0693B1AC4D84EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587755   (192394) от 01.11.2022
 
 Юные дикари / The Young Savages (1961) BDRip [H.264/720p]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192394.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192274.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192095.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191889.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191860.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191710.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191467.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191143.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191122.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190944.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190184.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190122.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190083.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189969.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189943.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189753.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189684.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189291.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188760.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188468.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188202.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188129.jpg" />
 </div>
 
 
@@ -568,112 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:424668D07B83BB84B86B082C6535639D5B9A92F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 83302   (188126) от 16.09.2023
-
-Индиана Джонс: В поисках утраченного ковчега / Raiders of the Lost Ark (1981) HDTVRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный археолог и специалист по оккультным наукам доктор Джонс получает опасное задание от правительства США. Он должен отправиться на поиски уникальной реликвии - священного Ковчега. Но Индиана и не подозревает, что аналогичный приказ уже получили тайные агенты Адольфа Гитлера...
-Этим потрясающим фильмом продюсер Джордж Лукас и режиссер Стивен Спилберг положили (   Читать дальше...   )Производство: СШАЖанр: Боевик, Триллер, ПриключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Карен Аллен, Пол Фриман, Рональд Лэйси, Джон Рис-Дэвис, Денхолм Эллиотт, Альфред Молина, Энтони ХиггинсПеревод: Многоголосый закадровыйПродолжительность: 01:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6751F37B9B854D26DD0BD7CB6358D29E00A3FECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591008   (187753) от 16.11.2022
-
-Жандарм и инопланетяне / Le gendarme et les extra-terrestres (1978) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все земные враги уже побеждены бесстрашным отрядом жандармов и их сержантом Крюшо. Осталось помериться силами с пришельцами, и они действительно высаживаются в окрестностях Сен-Тропе. Коварные существа принимают вид обычных людей, отличаясь от них только тем, что пьют масло и ржавеют от воды.Производство: Франция, Италия / Société Nouvelle de Cinématographie (SNC)Жанр: комедия, криминал, фантастикаРежиссер: Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Морис Риш, Жан-Пьер Рамбаль, Ги Гроссо, Мишель Модо, Франс Румилли, Жан-Роже Коссимон, Марио Давид, Жак ФрансуаПеревод: Дублированный, многоголосый закадровыйСубтитры: Русские, английские, французскиеПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B2E90FB282A8AE603A84BEDCB98A88371E765F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590810   (187750) от 16.11.2022
-
-Жандарм на отдыхе / Le Gendarme en balade (1970) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всему приходит конец. Начальство сочло наших героев слишком старыми и отправило их на заслуженный отдых. Это трагический момент в жизни такого мужественного офицера как сержант Крюшо.
-Запершись в роскошном замке своей жены, он предается унынию. Приезд бывшего начальника Жербера выводит его из спячки. Они собирают своих подчиненных, надевают любимую жандармскую форму (   Читать дальше...   )Производство: Франция, Италия /  Société Nouvelle de Cinématographie (SNC), Mega FilmЖанр: комедия, приключения, криминалРежиссер: Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Жан Лефевр, Ги Гроссо, Мишель Модо, Николь Вервиль, Франс Румилли, Ив Венсан, Кристиан Марен, Клоди ЖансакПеревод: Многоголосый закадровыйСубтитры: Русские, английские, французскиеПродолжительность: 01:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BED813EF5460F9B9625203B98C2F331C1CC0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591023   (187720) от 16.11.2022
-
-Жандарм и жандарметки / Le Gendarme et les gendarmettes (1982) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187720.jpg" />
-</div>
-
-
-###  Подробнее
-
-К жандармам прислали стажеров — девушек. Жандармы в восторге — проводят учения с новенькими в три смены, 24 часа в сутки. А их жены в шоке — закатывают скандалы и требуют увольнения новых сотрудниц. Через неделю всех девушек похитили: на чёрной машине увезли в неизвестном направлении и даже не потребовали выкупа. Если Крюшо не вернет стажеров завтра к утру, его уволят (   Читать дальше...   )Производство: Франция / Société Nouvelle de Cinématographie (SNC)Жанр: комедия, криминалРежиссер: Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Морис Риш, Жак Франсуа, Ги Гроссо, Мишель Модо, Патрик Прежан, Франс Румилли, Катрин Серр, Никес Жан-ЛуиПеревод: Многоголосый закадровыйСубтитры: Английские, французскиеПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240BCE0E3621E03507CB3EB2E6AB8885283F5D61
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 704977   (843996) от 26.04.2020
+
+Мотыльки (2013) [1080p] HDTV (серии 1-4 из 4)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843996.jpg" />
+</div>
+
+
+###  Подробнее
+
+История любви выпускницы старших классов Али и солдата срочной службы Паши, которая разворачивается на фоне одной из самых масштабных техногенных катастроф XX века, Чернобыльской аварии. Им суждено было встретиться в конце апреля 1986 года в городе Припять. Словно мотыльки, стремящиеся к огню, они летели навстречу своим чувствам, не замечая ничего вокруг...Производство: "Film.ua", УкраинаЖанр: ДрамаРежиссер: Виталий ВоробьёвАктеры: Юрий Борисов, Мария Поезжаева, Евгения Лоза, Андрей Казаков, Юрий Назаров, Юлия Рутберг, Артём Ткаченко, Максим Заусалин, Тимур Боканча, Олег Примогенов, Станислав Щёкин, Семен Штейнберг, Наталья Васько, Александр Игнатуша, Евгений Ефремов, Азамат Нигманов, Евгений Сангаджиев, Дарья ПитероваПродолжительность: 4 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F3E5D23C54CB8833E9DED80DAC4D08C02D3631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377847   (843993) от 26.04.2020
 
 foxminded | Java Start (2020) PCRec [H.264/1080p-LQ]
@@ -6,7 +32,7 @@ foxminded | Java Start (2020) PCRec [H.264/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843993.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BitDefender Internet Security 2011 14.0.23.312 х86 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_843769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_843769.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843371.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_843127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_843127.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842724.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842542.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Battlefield: Bad Company 2 (2010) [Ru] (1.0.1/dlc/multiplayer) Repack LEON
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842488.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842427.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Edens Zero | Нулевой Эдем [2021, TV, 25 эп.] HDTVRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842204.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842032.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841802.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841801.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Maxthon 2.5.12.4586 [Русский] (Updated 18.04.2010) (TechnicsKuzya mod)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841404.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Hai to Gensou no Grimgar / Grimgar of Fantasy and Ash / Гримгар фант�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840934.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ The Walking Dead: Michonne - Episode 1-2 (2016) [Ru/Multi] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840933.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840909.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840908.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840844.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_840823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_840823.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Total Commander 10.00 LitePack & PowerPack & ExtremePack + Portable 2021.10 by S
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840816.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Alan Wake Remastered (2021) [Ru/En] (Build 33793/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840808.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840771.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840768.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Windows XP SP3 Standard Edition 03.2011 CD [Только русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840509.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840497.jpg" />
 </div>
 
 
@@ -648,33 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E64966BDEA0BE8AF185F08EA61DB5B6BFC600D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309302   (840495) от 16.03.2011
-
-[PS3] MotorStorm: Apocalypse [RUS] [PAL] (2011)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840495.jpg" />
-</div>
-
-
-###  Подробнее
-
-События игры происходят на фестивале MotorStorm в Долине монументов. Цель игры состоит в том, чтобы выиграть серию внедорожных гонок и стать победителем на фестивале. Игрокам предоставляется возможность управлять семью различными типами транспортных средств: раллийные автомобили, грузовики, мотоциклы, квадроциклы, трагги, багги. В некоторых гонках можно выбрать любой класс, а в других есть классовые ограничения.
-Гоночный фестиваль MotorStorm ураганом пронесся по Долине Монументов, тихоокеанскому острову и арктическим просторам.Тип издания: ЛицензияЖанр: RacingЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

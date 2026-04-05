@@ -1,3 +1,159 @@
+###  Публикация: 1595639   (174979) от 06.12.2022
+
+Военные корабли: в открытом море / Warship: Life at Sea (2021) WEBRip [H.264/720p] (сезон 3, серии 1-5 из 5) [DVO]
+
+>>Документалистика и Телепередачи
+>>Флот
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откровенный документальный сериал об эсминце Королевского флота HMS Duncan, рассказывающем о жизни на борту его экипажа из двухсот восьмидесяти человек.Производство: ВеликобританияЖанр: документальныйРежиссер: Rebecca Allan, Ник Гарднер, Matt FisherПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русскийПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F989E3BEFDE59A35980AAB244CB0176691C0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595615   (174967) от 06.12.2022
+
+Жизнь в открытом космосе / Life in Outer Space (2022) WEBRip [H.264/720p] [VO]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научное сообщество убеждено, что в ближайшие десятилетия мы раскроем одну из величайших тайн Вселенной и найдем жизнь за пределами Земли. Мы пока не можем знать, произойдет ли открытие жизни в нашей Солнечной системе или в другом отдаленном месте во Вселенной, но ясно, что следующее поколение станет свидетелем открытия, которое бросит вызов нашему пониманию Вселенной.Производство: ИспанияЖанр: документальныйРежиссер: Ruth ChaoПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русскийПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43CA943452B434FD271F63E4F71B40CC2BCF95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595641   (174847) от 06.12.2022
+
+Территория / The Territory (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174847.jpg" />
+</div>
+
+
+###  Подробнее
+
+С тех пор как коренной народ уру-эу-вау-вау вступил в контакт с некоренными бразильцами, его население сократилось, а культура оказалась под угрозой. Хотя им было обещано право на владение своей землей тропических лесов, они столкнулись с незаконными вторжениями со стороны разрушительных для окружающей среды лесозаготовительных и горнодобывающих компаний, а в последнее (   Читать дальше...   )Производство: Бразилия, Дания, США / Associação Jupaú do Povo Uru-eu-wau-wau, Doc Society, Documist, Passion Pictures, Protozoa Pictures, Real LavaЖанр: документальныйРежиссер: Alex PritzПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, португальскийСубтитры: английские (full, SDH)Продолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE540A60E75411E5D95A048B1BE29E25219D2D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668274   (174570) от 11.10.2023
+
+Гильотина: французское изобретение / La guillotine, une invention francaise (2021) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174570.jpg" />
+</div>
+
+
+###  Подробнее
+
+В коллективном сознании французов гильотина остается орудием смертного приговора. Изобретённая во время революции 1789 года, она изначально преподносилась как инструмент прогресса. Со временем и с отменой смертной казни во Франции в 1981 году она стала символом человеческой жестокости.Производство: Франция, TV5MONDE EuropeЖанр: документальный, историяРежиссер: Жан-Шарль ДениоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод Анастасии Малицкой, компания Hiventy), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681DA9671993A30AFE26121F4677C9AB7BEE2E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595818   (174545) от 07.12.2022
+
+Настоящий Дес: История Денниса Нильсена / The Real Des (2020) WEBRip [H.264/720p] [DVO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деннис Нильсен — один из самых известных серийных убийц в британской криминальной истории. В этом документальном фильме представлены эксклюзивные интервью с фигурантами его дела.Производство: ВеликобританияЖанр: документальныйРежиссер: Iwan RobersПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAF6B99CDA4242C49FE3530557614356135D162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595904   (174501) от 07.12.2022
+
+Монстр. Йозеф Фритцль: 10 лет спустя / Fritzl The Monster: 10 Years On (2019) HDTVRip [H.264/720p] [VO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дело Йозефа Фритцля шокировало весь мир в 2008 году, когда открылась правда о том, что на протяжении 24 лет он насильно удерживал собственную дочь в подвале. В результате Элизабет родила 7 детей. Документальный фильм раскрывает подробности этого жуткого дела спустя 10 лет после судебного разбирательства, а также рассказывает, что случилось в дальнейшем со всеми участниками (   Читать дальше...   )Производство: ВеликобританияЖанр: документальныйРежиссер: Софи БлэкПеревод: Одноголосый любительский (datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112C2BFBBFDACABF4A8B66CE6C90F229E4BA5043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430150   (174430) от 09.12.2020
 
 Дикая Исландия / Wild Iceland (2020) WEB-DL [H.264/2160p]
@@ -6,7 +162,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174430.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174391.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174328.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174001.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173967.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173862.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173808.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173779.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173775.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173745.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173744.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173657.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173641.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173542.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173540.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173531.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173260.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173247.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173240.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173228.jpg" />
 </div>
 
 
@@ -511,170 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EEDA1502CB3B1A147CD6144BE94E7DE1020517C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668968   (173220) от 14.10.2023
-
-Военная тайна с Игорем Прокопенко (14.10.2023) WEB-DL [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173220.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB924E5CFCC5500D54A6123954263643B476841C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668950   (173216) от 14.10.2023
-
-Живая еда с Сергеем Малозёмовым (14.10.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычные грибные заготовки не только в банках! Как кулинары получают грибное масло и грибную пудру, стоит ли грибы замораживать и сушить, сколько можно хранить домашние соленья и почему в банках с груздями и опятами зачастую оказываются совсем не те грибы.
-  В каких блюдах баклажаны полезны, а в каких — не очень, и почему при жарке эти овощи впитывают так много масла. (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DED769FB2770644328A6D73AFAE3BC2BA3F383A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668917   (173205) от 14.10.2023
-
-Главная дорога (14.10.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лишний табун под капотом: зачем в ГАИ добавляют мощность в машине?
- Заряженная тачка! Андрей Федорцов и Денис Юченков отправились на «электричке» до Санкт-Петербурга. Где найти разъем для зарядки машины, поможет ли в дороге генератор и так ли экологичны автомобили, как о них рассказывают?
- Кредит не брала, банку должна: чем опасны мобильные приложения.
- Козлы отпущения: (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629A0929F61D6E7E997A0B49C18EA325B207C365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669238   (173026) от 15.10.2023
-
-Своя игра (15.10.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE305ED49D7592EC0E5D7C25F67CD0E504A4FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669182   (173022) от 15.10.2023
-
-Первая передача на НТВ. Автомобильная передача (15.10.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такси-призрак: как найти машину, скрывшуюся с места ДТП, и кто возместит ущерб?
-Обгон как повод для жестокой мести: почему за нападение на водителя никто не наказан?
- Нелепые, абсурдные и даже карикатурные причины автомобильный аварий.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F638F920507E4A42280164B1B001BDBCA634B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669183   (173013) от 15.10.2023
-
-Чудо техники с Сергеем Малозёмовым (15.10.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гаджеты в огне! Почему взрываются роботы-пылесосы, пауэрбанки и самокаты, как с ними правильно общаться, чтобы такого не случилось, и можно ли оставлять их на зарядке без присмотра на длительное время.
-Жидкие обои, которые, судя по рекламе, скрывают недостатки стен, не горят, а наносить их могут даже дилетанты — чудо или не чудо?
- Как идеальные газоны вредят животным (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568F962DF07124799F6377A59CF2442312ADB474
 ```
 
 https://mybot314.ru/tekegram_catalog/

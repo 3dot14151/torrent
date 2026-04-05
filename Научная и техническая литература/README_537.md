@@ -1,135 +1,3 @@
-###  Публикация: 813252   (190322) от 10.09.2023
-
-Ю.А. Быстров, И.Г. Мироненко | Электронные цепи и устройства (1989) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190322.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены вопросы теории и расчета электронных цепей, анализ электрических сигналов и их взаимодействия с линейными, нелинейными и параметрическими цепями, усилители и устройства импульсной техники, генераторы непрерывных, модулированных и импульсных напряжений, устройства на элементах цифровой вычислительной техники.Издательство: Высшая школаФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCCD72D2CF5AFA600DF90BACDA07E6DF2F79119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589414   (190310) от 09.11.2022
-
-В.С. Владимиров | Уравнения математической физики (1988) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная особенность курса - широкое использование концепции обобщенного решения краевых задач классической математической физики. Поэтому в книге содержится специальная глава, посвященная теории обобщенных функций. Излагается теория интегральных уравнений, теория сферических функций, теория функций Бесселя, операционное исчисление обобщенных функций. Настоящее издание (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F30241A77999276B0CA198775F5B0B7E69FE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589301   (190289) от 09.11.2022
-
-С.Л. Соболев | Уравнения математической физики (1954) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третье издание учебника по уравнениям математической физики.
-Эта книга составлена в результате переработки курса лекций, читанного автором в Московском государственном университете имени М. В. Ломоносова. Поэтому автор сохранил за отдельными лекциями их название. Этим объясняется и подбор материала, который был ограничен в объеме количеством лекционных часов.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41ACF88F8F97F754EC7D2B4EAE771BAEE7A6AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657750   (190275) от 10.09.2023
-
-И.Ф. Акулич и др. | Математика. Полная энциклопедия (2020) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без математики невозможно ни освоение космоса, ни создание роботов. Математика – точная наука, не терпящая ошибок. Ее законы легли в основу всех изобретений. Материал книги позволит как проверить свои знания, так и узнать новое.
-Математика в последние годы стала одной из самых востребованных тем, а математическое образование - одним из самых престижных. Это фундаментальное (   Читать дальше...   )Жанр: МатематикаИздательство: РосмэнФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4FDD234778AD98CECDECA358D40F73C0EABE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589353   (190224) от 09.11.2022
-
-А.Г. Чертов | Единицы физических величин (1977) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190224.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии в соответствии с современным состоянием метрологии в систематическом виде изложено построение систем единиц СИ и СГС, рассмотрены внесистемные единицы, а также дана классификация единиц физических величин. Изложение материала в пособии соответствует курсу общей физики, изучаемому в вузах Книга может быть полезна для преподавателей и инженеров.Жанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B07F041DA4D283C4D769B74400C8768F9F19AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589340   (190221) от 09.11.2022
 
 И.Л. Зайцев | Курс высшей математики (1958) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190221.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190183.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190182.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190180.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189946.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189939.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189938.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189905.jpg" />
 </div>
 
 
@@ -347,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189900.jpg" />
 </div>
 
 
@@ -373,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189656.jpg" />
 </div>
 
 
@@ -399,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189646.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189542.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189538.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189349.jpg" />
 </div>
 
 
@@ -508,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189321.jpg" />
 </div>
 
 
@@ -534,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189303.jpg" />
 </div>
 
 
@@ -560,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189290.jpg" />
 </div>
 
 
@@ -586,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189277.jpg" />
 </div>
 
 
@@ -612,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189258.jpg" />
 </div>
 
 
@@ -638,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189249.jpg" />
 </div>
 
 
@@ -665,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189087.jpg" />
 </div>
 
 
@@ -676,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820375CC72FEAFC90D08B57E05D864A1458C3F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590477   (189032) от 13.11.2022
+
+А.М. Семахин | Методы математического моделирования  (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189032.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматриваются методы линейного и нелинейного программирования, сетевого моделирования, имитационного моделирования и систем массового обслуживания, методы поиска в пространстве состояний. Приведены примеры решения задач, вопросы и задания для самостоятельной работы.
+Учебное пособие может быть использовано в учебном процессе студентами и специалистами, (   Читать дальше...   )Жанр: Компьютерная литература, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717BFAB15FEBDE029F4EC78F13A3F1EB6675FBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590281   (188988) от 13.11.2022
+
+В. Н. Фещенко, Р. Х. Махмутов | Токарная обработка (1990) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены основные сведения о работах, выполняемых на токарновинторезных станках, обрабатываемых материалах, основном и вспомогательном инструментах, о типах, устройстве и наладке токарных станков. Изложены особенности конструкции и наладки станков с ЧПУ. Второе издание (1-е - 1984 r.) дополнено сведениями о гибких модулях и роботизированных комплексах. Учебник может (   Читать дальше...   )Жанр: учебник для ПТУФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65828A5417AE2761B3160EAA4CC73A98271BFE75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590377   (188958) от 13.11.2022
+
+Михаил Щетинин | Парадоксальная гимнастика Стрельниковой. Упражнения при любых заболеваниях (2022) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальная российская методика, не имеющая аналогов в мировой медицине, – Стрельниковская дыхательная гимнастика: восстанавливает нарушенное носовое дыхание; излечивает заикание и болезни голосового аппарата; высокоэффективна при лечении заболеваний бронхолегочной системы; избавляет от болей в сердце, ликвидирует спазм сосудов; укрепляет опорно-двигательный аппарат; (   Читать дальше...   )Жанр: Здоровье, популярно о медицинеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED67C148CDD73FBC7A12410739DE60213D6B0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384669   (188909) от 13.11.2022
+
+Книжная серия | Философский поединок [45 книг] (2013-2022) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия «Философский поединок» издательства «Алгоритм». Серия начала издаваться в 2013 году. Ее название говорит само за себя: в каждой книге представлены произведения двух мыслителей по сходной тематике.
+В фильме «Матрица» один из его героев (Нео) читает книгу французского философа Жана Бодрийяра. С помощью этой книги Нео пытается понять, где реальность, а (   Читать дальше...   )Жанр: Философия, Политология, Социология, ПсихологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947B6C1B4A4AF259129671FF4CAFFBC6D671435C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383430   (188900) от 13.11.2022
+
+Книжная серия | Философия – Neoclassic [41 книга] (2016-2022) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188900.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии «Философия – Neoclassic» публикуются работы, ставшие определяющими в развитии мировой философии и касающиеся разных областей человеческой мысли: экономики и социологии, психологии и религии, культурологии и этики, гностики и методологии. В их числе — сделавшиеся основой теории коммунизма «Капитал» Карла Маркса и «Анти-Дюринг» Фридриха Энгельса, послужившие (   Читать дальше...   )Жанр: Социальная философия, Социальная психология, Культурология, РелигиоведениеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A28444C44FE8233BA0788B7AF64B736A125824
 ```
 
 https://mybot314.ru/tekegram_catalog/

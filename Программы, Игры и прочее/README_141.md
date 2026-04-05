@@ -1,3 +1,108 @@
+###  Публикация: 1719764   (58065) от 30.04.2024
+
+vpnify - Безлимитный VPN 2.1.9 Mod by YouAreFinished [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58065.jpg" />
+</div>
+
+
+###  Подробнее
+
+vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высокоскоростной VPN-прокси на Android. Это очень надежное приложение с шифрованием военного уровня обеспечит вам безопасную навигацию в общественных, деловых и школьных сетях. Разблокируйте недоступные и цензурированные сайты.Тип издания: PremiumРазработчик: VPNIFYПоддерживаемая ОС: Android 6.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D71C785FDAEAEDBC259DA42CA04105EB17B6C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719619   (58053) от 30.04.2024
+
+Gaia GPS (Topo Maps) v2024.4 b7878 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планируйте путешествия и исследуйте мир с Gaia GPS на телефоне, планшете и компьютере. Широко признано, что Gaia GPS является лучшим приложением с картами для использования на открытом воздухе, оно было продемонстрировано в историях Apple "Your Verse", и о нем писали в бесчисленном количестве крупных изданий, от Outside и TrailRunner, до New York Times (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.04.2024Разработчик: TrailBehind Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741FF448532AE88EAD0F4DD511197AC7FD0993FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719914   (57948) от 01.05.2024
+
+Listen Audiobook Player v5.2.7 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проигрыватель предназначен для воспроизведения контента, предоставленного пользователем. Вы можете получить книги без DRM с таких сайтов, как https://librivox.org/, Overdrive (через вашу библиотеку), http://www.downpour.com/, http://www.loyalbooks.com/ или любого другого места, где можно найти аудио без DRM.Тип издания: ModРелиз состоялся: 01.04.2024Разработчик: acme-android.comПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1CE0C6C367593BBD03957AF443136E6B12C746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720035   (57942) от 01.05.2024
+
+Пранария - Дыхательные практики v1.2.6 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кто знает, насколько это важно дышать правильно и как сильно это влияет на нашу жизнь.
+Наблюдая за детьми, вы можете обратить внимание, что у них вдох выдох происходит через живот. С возрастом человек теряет эту привычку и вдох у него происходит грудью. Объем легких рассчитан на 3–6 литров воздуха. Во втором случае воздух не полностью заполняет легкие, всего (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.05.2024Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED408CE2B6F2B75756349D6F73C10FD930943D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719917   (57936) от 01.05.2024
 
 ToonMe v0.7.7 Mod by Mixroot [Ru/Multi]
@@ -6,7 +111,7 @@ ToonMe v0.7.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57936.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Malwarebytes Mobile Security 5.7.0+297 Mod by slavahm [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57866.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Malwarebytes Mobile Security 5.7.0+297 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57861.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ VPN Servers for OpenVPN 46 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57792.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57756.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ tvQuickActions Pro 3.4.0 (172) Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57728.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57633.jpg" />
 </div>
 
 
@@ -195,7 +300,7 @@ Gaia GPS (Topo Maps) v2024.4 b7881 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57599.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.1.615 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57504.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ BSPlayer Pro 3.20.248-20231218 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57413.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ Melon VPN - Secure Proxy VPN 8.0.032 Mod By Derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57381.jpg" />
 </div>
 
 
@@ -302,7 +407,7 @@ Spotify 8.9.38.494 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57220.jpg" />
 </div>
 
 
@@ -331,7 +436,7 @@ GPS АнтиРадар v44.1 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57214.jpg" />
 </div>
 
 
@@ -357,7 +462,7 @@ Mirror Plus: Mirror with Light / Зеркало Плюс v4.3.12 Mod by srajawwa
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57207.jpg" />
 </div>
 
 
@@ -383,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56964.jpg" />
 </div>
 
 
@@ -409,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56901.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56827.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ VirusTotal Mobile 2.5 Lite-Mod by cvvar00 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56793.jpg" />
 </div>
 
 
@@ -487,7 +592,7 @@ ibis Paint X 12.1.0 Lite-Mod by NURIK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56708.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ D Notes - заметки и списки 2.6.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56687.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ Via Браузер / Via Browser 5.5.1 Mod by AnBo39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56680.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ Via Браузер / Via Browser 5.5.1 Mod by bot3.14 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56669.jpg" />
 </div>
 
 
@@ -576,110 +681,6 @@ Via - весьма популярный и востребованный Брау
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBCB96D4668265E6A079D8F97293417F2C6FBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722887   (56661) от 13.05.2024
-
-Via Браузер / Via Browser 5.5.1 Mod by person10301 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Via - весьма популярный и востребованный Браузер, что понравится всем кто любит использовать мобильное устройство для путешествий по пространству интернета. Для них приготовили комфортную оболочку, простое управление, различные настройки улучшающие взаимодействие, а так автоматическую блокировку рекламы, отсутствие сбора конфиденциальной информации, а так же спектр (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.04.2024Разработчик: Tu YafengПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8732984480F0588522DEDD55A6BEDFA03AA5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722874   (56657) от 13.05.2024
-
-ibis Paint X 12.1.0 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56657.jpg" />
-</div>
-
-
-###  Подробнее
-
-ibis Paint X - известное благодаря своим качествам и возможностям приложение для рисования. Высокая популярность среди поклонников творить на мобильных устройствах вполне обосновано и понятно. Удобное управление огромным разнообразием инструментов, различными предметами, палитрами, работой со слоями и всеми прочими элементами, что представлены в данном проекте, делает (   Читать дальше...   )Тип издания: ProРелиз состоялся: 02.05.2024Разработчик: ibis inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C81500265D3F651E6E589A3E68875B39649040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723125   (56623) от 14.05.2024
-
-Adobe Acrobat Reader для PDF 24.4.1.33150 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Reader - знаменитое приложение название которого стало практически нарицательным для процесса взаимодействия людей с PDF форматом во всех его проявлениях и задачах. Пользователи в данном случае получают возможность не только удобно открывать и просматривать документы на мобильных устройствах, но и вести полноценную деятельность с созданием, редактированием (   Читать дальше...   )Тип издания: ProРелиз состоялся: 09.05.2024Разработчик: AdobeПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675CE111F67FB2BFC1D728167AFAF063CB7F9476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696556   (56596) от 14.05.2024
-
-Яндекс.Погода v24.4.4 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56596.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 12.05.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D70C79B1FE4931CC2A2E6721E0BEA76265AA68
 ```
 
 https://mybot314.ru/tekegram_catalog/

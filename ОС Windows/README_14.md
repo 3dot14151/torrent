@@ -1,3 +1,29 @@
+###  Публикация: 1222958   (680554) от 01.05.2018
+
+Microsoft Windows 10 10.0.17134.1 Business editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 April 2018 Update от 30 апреля 2018 года. С обновлением Redstone 4 должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3972DD1A47B0C7CB5CDF83997085A2C1CACD9F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222973   (678684) от 02.05.2018
 
 Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] by WZT [Ru/En]
@@ -6,7 +32,7 @@ Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678684.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677896.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676140.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675741.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Microsoft Windows 10 10.0.17134.1 Version 1803 (Updated April 2018) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671091.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Microsoft Windows 10.0.19042.1586, Version 20H2 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669178.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Microsoft Windows 10.0.19043.1586, Version 21H1 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669092.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Microsoft Windows 10.0.19042.1586, Version 20H2 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669084.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ Windows Server, Version 20H2 (10.0.19042.1586) (Updated March 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669080.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Microsoft Windows 10.0.19043.1586, Version 21H1 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668976.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ Microsoft Windows 10.0.19044.1586, Version 21H2 (Updated March 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668966.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Microsoft Windows 11 [10.0.22000.556], Version 21H2 (Updated March 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668717.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ Microsoft Windows 10.0.19044.1526, Version 21H2 (Updated February 2022)  - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666281.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ Microsoft Windows 10.0.19044.1586 Professional Version 21H2 (Updated March 2022)
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665112.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ Recovery USB-Flash for Lenovo Z5070 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658414.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ Microsoft Windows 7 SP1 Updated (12.05.2011) - Оригинальные обра
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657452.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ Microsoft Windows 10 Version 1809 Build 17763.379 (Updated March 2019) Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646355.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Microsoft Windows 10 Version 1809 Build 17763.379 (Updated March 2019) Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644320.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Microsoft Windows 7 Enterprise with SP1 x86 Updated (12.05.2011) - Оригин�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640940.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Recovery Partition for Samsung NP300V5A / NP300E5A / NP300E5Z Win7 HB x64 Window
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629134.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Recovery USB-Flash for Lenovo B5010 / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614997.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Microsoft Windows 10.0.19042.1645, Version 20H2 (Updated April 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614689.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Windows Server, Version 20H2 (10.0.19042.1645) (Updated April 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614575.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Microsoft Windows 11 [10.0.22000.613], Version 21H2 (Updated April 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612552.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ Microsoft Windows 10.0.19044.1645, Version 21H2 (Updated April 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612551.jpg" />
 </div>
 
 
@@ -679,32 +705,6 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F33F306C0A58B8D4BB80B32D85BC357FDBC2CC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147094   (610706) от 01.07.2017
-
-Microsoft Windows 10 10.0.15063.0 Version 1703 (Updated March 2017) - Оригинальные образы от Microsoft VLSC [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D23D3941404DA5B86A340EAFAD526DF42239EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

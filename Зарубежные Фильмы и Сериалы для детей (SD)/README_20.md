@@ -1,3 +1,56 @@
+###  Публикация: 1661936   (188232) от 16.09.2023
+
+Чокнутая нянька / The Crazysitter (1994) DVD5 [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сначала в семействе Ван Асделов было две маленькие проблемы - очаровательные, но жутко проказливые детки. Решив разобраться с этим вопросом при помощи няни, бедные родители заполучили и третью неприятность - у няньки оказался тот еще характер! К тому же ее только недавно выпустили из самой настоящей тюрьмы, правда, этот факт она сделала своей маленькой тайной... (   Читать дальше...   )Производство: США / Concorde-New Horizons, Libra PicturesЖанр: драма, комедия, криминалРежиссер: Майкл МакдональдАктеры: Беверли Д’Анджело, Эд Бегли мл., Кэрол Кейн, Брэйди Блум, Рэйчел Дункан, Фил Хартмен, Нелл Картер, Лиза Кудроу, Шон Уэйлен, Эрик Аллан КрамерПеревод: многоголосый профессиональный, авторский, одноголосыйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B9A82C6FE049E8055ABDD2DBE4AB59466FB05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662453   (188019) от 17.09.2023
+
+Снежная королева / Lumikuningatar (1986) DVDRip [H.264] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация известной и любимой детьми всего мира сказки Ганса Христиана Андерсена, вечной истории борьбы Добра и Зла. Коварная Снежная Королева силой колдовства подчиняет себе маленького мальчика Кая. С его помощью она хочет овладеть волшебным камнем, который позволит ей во веки веков править в мире льда.
+Чтобы освободить своего брата из плена Снежной Королевы, (   Читать дальше...   )Производство: Финляндия / NeofilmiЖанр: фэнтези, семейныйРежиссер: Паиви ХартцеллАктеры: Сату Сильво, Оути Вайнионкульма, Себастиан Каатрасало, Туула Нюман, Эско Хукканен, Пирьо Бергштрём, Юулия Укконен, Пааво Вестерберг, Саара Паккасвирта, Исмо АланкоПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: НетПродолжительность: 01:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBAB149034586334A447EE62BEF6D81BDE3C5D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661867   (187944) от 17.09.2023
 
 Снежная королева / Lumikuningatar (1986) DVD5 [VO]
@@ -6,7 +59,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187944.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187802.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186964.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186443.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186221.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185897.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185843.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182747.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182258.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181479.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181477.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181445.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180231.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179710.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179492.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179298.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178739.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178078.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177548.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176728.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171787.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171722.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171690.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170692.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:008F8D9A57DF69803F6ADC22F0E1EFEFACC49FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596114   (170295) от 09.12.2022
-
-Руфус / Rufus (2016, 2017) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американские телевизионные фильмы канала Nickelodeon о приключениях пса Руфуса, превращающегося в человека. В первой части фильма школьник Мэнни переехал в новую школу, он хочет, чтобы у него было много друзей. Его собака Руфус находит таинственный амулет, который Мэнни надевает Руфусу на шею. Вдруг на следующий день Руфус превращается в мальчика! Мэнни не знает, (   Читать дальше...   )Производство: США / Pacific Bay Entertainment CanadaЖанр: комедия, приключения, семейныйРежиссер: Сэвидж Стив ХолландАктеры: Джейс Норман, Дэвис Кливлэнд, Хейли Тджу, Джэйд Петтиджон, Кэлвин Олафсон, Уэсли Сэлтер, Амитай Мэрморштейн, Чад Райли, Лиза Дурупт, Лиллиэн ЛимПеревод: Дублированный (Nickelodeon)Субтитры: ОтсутствуютПродолжительность: 00:43:45 / 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D017AD733C058A1B2464E9370F60594AB0A43AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356070   (169819) от 06.12.2021
-
-Затура: Космическое приключение / Zathura: A Space Adventure (2005) BDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Уолтер и Дэнни находят в подвале своего старого дома загадочную игру под названием «Затура» и в результате оказываются в космосе. Во время их фантастического путешествия они встречаются с астронавтом, попадают под метеоритный дождь, противостоят враждебным инопланетянам, похожим на ящериц, сталкиваются с неуправляемым роботом и межгалактическим космическим (   Читать дальше...   )Жанр: Фантастика, Приключения, СемейныйРежиссер: Джон ФавроАктеры: Йон Бобо, Джош Хатчерсон, Кристен Стюарт, Тим Роббинс,  Дэкс Шепард, Фрэнк Оз, Джон Александр, Дерек Мирс, Дуглас Тейт, Джо Букаро IIIПеревод: Дублированный / Оригинальный (английский)Субтитры: Русские, Английские (отдельно)Продолжительность: 01:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C448322ECD413568599493153056ED5A2F191E95
 ```
 
 https://mybot314.ru/tekegram_catalog/

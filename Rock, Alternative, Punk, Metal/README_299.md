@@ -1,3 +1,149 @@
+###  Публикация: 1201259   (792820) от 24.01.2018
+
+Maschine (Dieter Birr of Puhdys) - Neubeginner (2016) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neubeginn 4:23
+02. Helden meiner Generation 4:40
+03. So viel erlebt 3:37
+04. Der grobe Magnet 4:46(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6CF1B803BBDEDA566F0C4FB00095E8F6838395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201447   (792814) от 24.01.2018
+
+The Animal In Me - Helping Won’t Help (2017) [MP3|320 Kbps] <Post-Hardcore, Female & Male Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling It Quits (03:58)
+02. Get What You Give (04:23)
+03. Miles Away (04:31)
+04. Handbook (03:34)(   Читать дальше...   )Жанр: Post-Hardcore, Female & Male VocalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E907CC6F1A6F49254CAB26BDD5934F9C312219B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201352   (792808) от 24.01.2018
+
+Сруб - Скорбь (2018) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792808.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гибельные травы, которые срезают ночами черти обломками челюстей мёртвых лис, дымка над болотами, страх от прикосновения кого-то к плечу на пустой дороге через предрассветное поле, чащи, буреломы, папоротники, колючая и мокрая хвоя прямо в лицо. И смех без источника. Всё это здесь" (Всматривающаяся бездна)
+Новосибирский "Лютый славянский пост-панк" (   Читать дальше...   )01. По ягоды (5:32)
+02. Вспять (5:27)
+03. В чаще, где пал крест (5:55)
+04. Храни (5:58)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC97B7621B9D1E8B465A73047AAE033FA9CE5289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201230   (792771) от 24.01.2018
+
+Motorhead - Under Cover (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Breaking the Law 2:33 (Judas Priest)
+02 God Save the Queen 3:19 (Sex Pistols)
+03 Heroes 4:37 (David Bowie)
+04 Starstruck 4:06 (Rainbow)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAFFDC9E5CC88A8038C67776610A36FF70F9EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201267   (792752) от 24.01.2018
+
+Machine Head - Catharsis (2018) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volatile
+02. Catharsis
+03. Beyond the Pale
+04. California Bleeding(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDF6BA99B790E2A7E46D0F2AB5641C855376E9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386919   (792694) от 31.05.2020
 
 The Pretty Things - S.F. Sorrow (1968) Reissue, 1998, Mono [FLAC|Lossless|tracks + .cue] <Rock>
@@ -6,7 +152,7 @@ The Pretty Things - S.F. Sorrow (1968) Reissue, 1998, Mono [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792694.jpg" />
 </div>
 
 
@@ -35,7 +181,7 @@ Otargos - Ten-Eyed Nemesis (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792680.jpg" />
 </div>
 
 
@@ -64,7 +210,7 @@ Cremation - In The Maelstrom Of Time (2017) [MP3|320 Kbps] <Death metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792676.jpg" />
 </div>
 
 
@@ -93,7 +239,7 @@ Van Morrison - Astral Weeks (1968) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792669.jpg" />
 </div>
 
 
@@ -122,7 +268,7 @@ The United States Of America - The United States Of Americ (1968) Reissue, 2004,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792643.jpg" />
 </div>
 
 
@@ -152,7 +298,7 @@ Traffic - Traffic (1968) Limited Edition, Reissue 2008 [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792641.jpg" />
 </div>
 
 
@@ -182,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792638.jpg" />
 </div>
 
 
@@ -211,7 +357,7 @@ Magnum - The River Sessions (2005) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792629.jpg" />
 </div>
 
 
@@ -240,7 +386,7 @@ John 5 aka John William Lowery + Side Projects (L.A. Rats, Red Square Black, Two
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792618.jpg" />
 </div>
 
 
@@ -269,7 +415,7 @@ Katatonia - City Burials (2020) Limited Edition [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792587.jpg" />
 </div>
 
 
@@ -298,7 +444,7 @@ Area 55 - One Ocean (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792574.jpg" />
 </div>
 
 
@@ -327,7 +473,7 @@ Lento - Earthen (2007) [MP3|320 Kbps] <post-metal, instrumental, ambient>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792530.jpg" />
 </div>
 
 
@@ -356,7 +502,7 @@ Dangerkids - Blacklist_ (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792492.jpg" />
 </div>
 
 
@@ -385,7 +531,7 @@ Atom Pink Floyd Tribute - Collection (2016-2019) 2 альбома [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792477.jpg" />
 </div>
 
 
@@ -414,7 +560,7 @@ Gorillaz - Humanz (2017) Pre-Release Tracks [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792372.jpg" />
 </div>
 
 
@@ -443,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792341.jpg" />
 </div>
 
 
@@ -472,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792332.jpg" />
 </div>
 
 
@@ -501,7 +647,7 @@ The Hardkiss - Perfection Is a Lie (2017) [MP3|320 kbps] <Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792324.jpg" />
 </div>
 
 
@@ -530,7 +676,7 @@ Deep Purple - Infinite (2017) Limited Edition [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792323.jpg" />
 </div>
 
 
@@ -559,7 +705,7 @@ Emma Ruth Rundle - On Dark Horses (2018) Japanese Edition [FLAC|Lossless|tracks 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792273.jpg" />
 </div>
 
 
@@ -588,7 +734,7 @@ Kauan - Kaiho (2017) [FLAC|Lossless|tracks + .cue] <Post Rock, Folk, Ambient, Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792270.jpg" />
 </div>
 
 
@@ -602,151 +748,6 @@ Kauan - Kaiho (2017) [FLAC|Lossless|tracks + .cue] <Post Rock, Folk, Ambient, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:687A67C19E22129DB0C5C87ECEAA4CF66735469D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274849   (792254) от 08.01.2019
-
-Kauan - Kaiho (Instrumental Version) (2018) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Folk, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lapsenmuisto (5:32)
-02. Kasvot (Instrumental) (7:27)
-03. Siiville Nousu (Instrumental) (9:33)
-04. Poissa (2:24)(   Читать дальше...   )Жанр: Post Rock, Folk, Ambient, Doom Metal, InstrumentalПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8799CFA0272E8F52509C50C202BF742B471B46E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274850   (792252) от 08.01.2019
-
-Kauan - Sorni Nai (2015) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Folk, Funeral Doom>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. akva (7:57)
-02. kit (7:08)
-03. khurum (7:50)
-04. nila (7:18)(   Читать дальше...   )Производство: Blood Music - BLOOD-127Жанр: Experimental, Dark Folk, Atmospheric Black Metal, Post Rock, Funeral DoomПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC645AA618E604497E8A2C4638FDDD35F3579C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274750   (792249) от 08.01.2019
-
-Фёдоров и Крузенштерн - Гимн Чуме (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792249.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом альбоме Леонида Федорова и Игоря Крутоголова звучат 15 стихо­твор­ных текстов Пушкина — текстов очень разных: это и школьно-канони­ческие стихотворения вроде «Пророка» и «Памятника» («Я памятник себе воздвиг нерукотворный…»), и хрестоматийные фрагменты из «больших» произведений («Евгений Онегин», «Пир во время чумы»), и популярные в музыкальных переложе­ниях (   Читать дальше...   )1. Бессонница
-2. Гимн Чуме
-3. Эхо
-4. Мне Вас Не Жаль(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1A28C808E6644F5926C238DBC8A42469424642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274767   (792241) от 08.01.2019
-
-Lenny Kravitz - Raise Vibration (2018) Japanese Edition [MP3|320 Kbps] <Rock, Soul, Funk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792241.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We Can Get It All Together
-2. Low
-3. Who Really Are The Monsters?
-4. Raise Vibration(   Читать дальше...   )Жанр: Rock, Soul, FunkПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0DEA899574D3BE23715B4251A527996163B816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201469   (792226) от 25.01.2018
-
-Lione/Conti - Lione/Conti (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascension
-02. Outcome
-03. You're Falling
-04. Somebody Else(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1410F7A175CC4D04857A0A9913DBB789B48F2EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

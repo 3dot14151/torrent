@@ -1,3 +1,29 @@
+###  Публикация: 1357435   (974281) от 03.02.2020
+
+ТерраМатер: Тасмания - удивительная и прекрасная / Terra Mater: Tasmanien - Eine Insel steht kopf (2017) IPTVRip [H.264] (сезон 1, эпизод 251)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тасмания - это остров, населенный странными и удивительными представителями дикой природы. В 150 милях к югу от материковой Австралии, этот остров - последняя остановка перед замороженными пустошами Антарктиды. Тем не менее, со снежными горами, умеренными тропическими лесами, нетронутыми песчаными пляжами и ледниковыми озерами, Тасманию можно назвать поистине уникальным (   Читать дальше...   )Производство: Terra Mater Factual StudiosЖанр: Документальный, Природа, ФаунаРежиссер: Мэтт ХэмилтонПеревод: Одноголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F3CD1A43506933B58366BF3C34160B179AF56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358563   (968575) от 08.02.2020
 
 Великий Тихий океан / Big Pacific (2017) BDRip [H.264/1080p] (серии 1-5 из 5) [EN / EN Sub]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968575.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966070.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964997.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964003.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961809.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960406.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959521.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951725.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951214.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949052.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947672.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940034.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937222.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937063.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932367.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930010.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929193.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927016.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925880.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923539.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918636.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917497.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916832.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915502.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ BBC. Секреты Кожи / Secrets of Skin (2020) WEB-DL [H.264/1080p] (се
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915365.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ BBC. Секреты Кожи / Secrets of Skin (2020) WEB-DL [H.264/1080p] (се
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55E0F4153D7F19CFB96289F8B0F34A4E09FAF988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098322   (910530) от 29.01.2017
-
-Тайны бездны. Революция в науке / Mysteries of the Abyss. A science Revolution (2012) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910530.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данный момент океанские глубины - это последние неизученные места на Земле. В них таятся совершенно новые возможности для жизни. Они переворачивают науку и наше представление о самих составляющих жизни.Телекомпания: ГерманияЖанр: ДокументальныйРежиссер: Флориан ГуткнехтПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A115DAA1AF3113FF140C783DE6F9579041C0859
 ```
 
 https://mybot314.ru/tekegram_catalog/

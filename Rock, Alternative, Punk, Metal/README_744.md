@@ -1,3 +1,32 @@
+###  Публикация: 1075114   (318820) от 23.11.2016
+
+Loudness - Masters Of Loudness (1996) Japanese Edition 2CD Compilation [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Dust 04:45
+02. Dream Fantasy 04:34
+03. Speed (Live) 07:59
+04. Let It Go 04:13(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90698FD8BB77317E00945ED50E33253D16B1F967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075122   (318812) от 23.11.2016
 
 Loudness - King Of Pain (2010) Japanese Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +35,7 @@ Loudness - King Of Pain (2010) Japanese Edition [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318812.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Metallica - Master of Puppets (1986) Remastered, 2017 [FLAC|Lossless|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318792.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Evanescence - Synthesis (2017) [MP3|320 Kbps] <Alternative Metal, Symphonic Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318779.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mad Max - Wings Of Time (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318771.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Roxette - Look Sharp! (1988) Reissue, 1994, EMI [OGG Vorbis|480 Kbps] <Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318769.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318759.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Keith Forsey - Dynamite (1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318659.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Roxette - Pearls Of Passion (The First Album) (1986) Reissue, Remastered, 1997, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318636.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Iron Maiden - Live …Santiago, Chile 1996 (2022) 2xCD, Japanese Edition [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318619.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ W.H.I.T.E (White) - Бий першим! (2007) [FLAC|lossless|image + .cue] <Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318520.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318497.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Lionsheart - Heart of the Lion (2019) 5CD Box Set [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318490.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318257.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ringo Starr - Whats My Name (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318252.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317939.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Seventh - Decide (2002) [MP3|128 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317829.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Armored Saint -3 альбома (1985 - 1991) [WavPack|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317815.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ On Thorns I Lay - Threnos (2020) [FLAC|Lossless|image + .cue] <Death Metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317764.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ Evildead - United States of Anarchy (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317763.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Fife Augury - The Shape Of A Tree (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317762.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Trivium - In Waves (2011) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317760.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Fates Warning - Long Day Good Night (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317751.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Steel Prophet - The God Machine (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317750.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Nuclear Assault - Atomic Waste! Demos & Rehearsals (2012) [FLAC|Lossless]<Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317726.jpg" />
 </div>
 
 
@@ -720,7 +749,7 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) Japanese Edition [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317569.jpg" />
 </div>
 
 
@@ -734,35 +763,6 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) Japanese Edition [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08CD7A6348C878E715137BFBE4B7298FF4386215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421682   (317567) от 05.11.2020
-
-Proteus - Prometheia I: Arrival (2020) [MP3|320 Kbps] <Progressive Rock, Pop Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disappearing Grace (05:03)
- 02. Here and Now (05:15)
- 03. From the Shadows (03:27)
- 04. Merciless (05:20)(   Читать дальше...   )Жанр: Progressive Rock, Pop Rock, ElectronicПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA58D641CF45B98E968224676EAFA4476FD154D
 ```
 
 https://mybot314.ru/tekegram_catalog/

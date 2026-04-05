@@ -1,138 +1,3 @@
-###  Публикация: 1432315   (164196) от 17.12.2020
-
-В.Н. Сарабьянов | Введение и диалектический материализм (1925) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164196.jpg" />
-</div>
-
-
-###  Подробнее
-
-... Каким должно быть наше мировоззрение?
-
-Биолог изучает законы всего живого, зоолог законы животного мира (фауны), ботаник растительного мира (флоры), минералог работает в области минералов, физик рассматривает процессы перехода тел от одного состояния в другие, химик - процессы превращения одного тела в другие тела, социолог интересуется процессами в человеческом (   Читать дальше...   )Жанр: История, науковедение, философия, логикаИздательство: ПролетарийФормат: DJVU, PDFКачество: OCR с ошибками
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4464B50D4744C4D629BC4D1E10F9360DC987ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158948   (164112) от 13.12.2021
-
-Книжная серия | Новейшие исследования по истории России [4 книги] (2017) [PDF, FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164112.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Новейшие исследования по истории России» - новая серия исторических книг.
-Написанное живым, но вместе с тем научным языком, исследование предназначено всем, кто интересуется историей России, историей русского военного дела и повседневной жизнью русского общества той эпохи.Жанр: ИсторияФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D727B26CBF448D05F007C072A43683FC9697FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673653   (164095) от 02.11.2023
-
-Н. П. Калашников, М. А. Смондырев | Основы физики в 3 томах. Том 3. Упражнения и задачи (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задачник соответствует действующей программе дисциплины «Физика» для естественнонаучных и технических университетов. Книга входит в состав учебного комплекта, включающего также два тома учебника «Основы физики» тех же авторов.
-
-По всем темам представлены основные уравнения и формулы, разбор решения интересных для практики задач, задачи для самостоятельной работы. (   Читать дальше...   )Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: Лаборатория знанийФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A1C7913ED8BF4319B2EB9F832D3169FC8AACA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432502   (164001) от 17.12.2020
-
-Николай Костомаров | Обычаи и нравы народов государства Российского (2018) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о жизни и быте народов Московского государства XVI–XVII вв. Читатель найдет здесь увлекательные истории о нравах людей этого времени, каковы были их интеллектуальные и материальные потребности и интересы. Что ели, во что одевались, что выращивали в своих садах и огородах, как лечились, справляли свадьбы и воспитывали детей. Семейные традиции и обряды, увеселения (   Читать дальше...   )Жанр: История, Культурология, ЭтнографияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F33502C9577FA1D2C0CD8AD84DEEB3DBC643EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432501   (163980) от 17.12.2020
-
-Эдуард Фукс | Эпоха Ренессанса (2018) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Эпоха Ренессанса» – один из трех томов популярного издания Э. Фукса «Иллюстрированная история нравов», посвящена истории нравов эпохи Ренессанса. В ней увлекательно рассказывается о том, как в разных странах и у разных народов складывались представления о красоте и наслаждении, способах проявления чувств, брачных обычаях, внебрачных связях, наконец, о том, (   Читать дальше...   )Жанр: Культурология, Популярно об историиПеревод: Владимир ФричеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B752383B9808B20AE236B5130A3361035C0DFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598072   (163976) от 17.12.2022
 
 В.Н. Руденко (сост.) | Школьникам о современной физике. Акустика. Теория относительности. Биофизика (1990) [DJVU]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163976.jpg" />
 </div>
 
 
@@ -168,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163926.jpg" />
 </div>
 
 
@@ -195,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163912.jpg" />
 </div>
 
 
@@ -221,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163896.jpg" />
 </div>
 
 
@@ -248,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163834.jpg" />
 </div>
 
 
@@ -276,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163820.jpg" />
 </div>
 
 
@@ -302,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163812.jpg" />
 </div>
 
 
@@ -328,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163809.jpg" />
 </div>
 
 
@@ -354,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163794.jpg" />
 </div>
 
 
@@ -380,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163708.jpg" />
 </div>
 
 
@@ -406,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163627.jpg" />
 </div>
 
 
@@ -432,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163608.jpg" />
 </div>
 
 
@@ -458,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163584.jpg" />
 </div>
 
 
@@ -485,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163550.jpg" />
 </div>
 
 
@@ -511,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163530.jpg" />
 </div>
 
 
@@ -537,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163525.jpg" />
 </div>
 
 
@@ -564,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163515.jpg" />
 </div>
 
 
@@ -590,7 +455,7 @@ Cathleen Shamieh | Electronics For Dummies / Электроника для ча�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163510.jpg" />
 </div>
 
 
@@ -616,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163475.jpg" />
 </div>
 
 
@@ -642,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163465.jpg" />
 </div>
 
 
@@ -668,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163463.jpg" />
 </div>
 
 
@@ -679,6 +544,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50F30B22B6473767F05702CD6DA0AC2F9658A6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625347   (163428) от 17.12.2020
+
+Яков Перельман | сборник в 54 книгах [1919-2010] [FB2, DJVU, PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди делятся не только на мужчин и женщин. Существуют еще два лагеря: "физики" и "лирики".
+Яков Перельман - просто удивительный человек, благодаря которому уже несколько поколений открывают для себя увлекательный мир точных наук, мир "физиков", мир, рождающий академиков и двигающий прогресс.
+Яков Перельман - это Пушкин, Моцарт, Дали (   Читать дальше...   )Формат: FB2, DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440E299E6954CC8272B245B21F44E8DFD5AC63C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346489   (163410) от 19.12.2019
+
+Эндрю Лумис | Рисование фигуры (2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эндрю Лумис (1892–1959), один из выдающихся художников-иллюстраторов Америки, а также один из лучших преподавателей рисунка и живописи, подробно освещает основы графического искусства.
+Отобрав все самое ценное из своего огромного творческого и педагогического опыта, Эндрю Лумис создал пособия, которые сохраняют актуальность на протяжении многих десятилетий и сами (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A610B34CDADF24BB113E1737621EC94164B49FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346275   (163380) от 19.12.2019
+
+Наша Уинтерс, Джесс Келли | Тело может! Как контролировать, лечить и предотвращать рак (2020) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снова и снова подтверждается, что развитие рака связано с диетой и образом жизни. По какой причине современная онкология так часто это игнорирует? Почему все свои силы врачи бросают на уничтожение опухоли, а не на то, что ее вызвало? Организм человека – удивительная система, которая чутко реагирует на все, что с ним происходит. И рак – это его крик о помощи, сигнал, (   Читать дальше...   )Жанр: МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D099DA02D0FB67D04F720BF9BF2D740237C14064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673802   (163351) от 03.11.2023
+
+О.С. Зайцев | Химическая термодинамика к курсу общей химии (1973) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная общая и неорганическая химия быстро превращается из описательной науки в количественную. Почти полное отсутствие знаний по высшей математике у студентов первого курса крайне затрудняет введение в программу новых важнейших разделов химии, в том числе и термодинамики. В книге без применения высшей математики в простой форме изложены элементарные основы (   Читать дальше...   )Жанр: ХимияИздательство: Издательство Московского университетаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B277D78E99D719FC3922BD4743B44A902F16B7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346500   (163326) от 19.12.2019
+
+Егор Матита | Портреты карандашом. Техники достижения фотореализма (2019) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги – талантливый художник-график Егор Анцупов, архитектор по образованию, а также основатель студии рисования Matita.
+В этой книге вы не увидите академических схем или анатомических выдержек о подробном изучении построения человеческого лица. Книга максимально простая, для людей, которые не обладают продвинутыми знаниями об устройстве человеческого тела (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964F076F4F3CA1445526F51743F5B23145ADCC73
 ```
 
 https://mybot314.ru/tekegram_catalog/

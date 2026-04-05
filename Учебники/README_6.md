@@ -1,3 +1,56 @@
+###  Публикация: 1449215   (1030202) от 20.02.2021
+
+А.И. Жур | Электрооборудование предприятий и гражданских зданий (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит сведения об электрооборудовании термических установок, металлорежущих станков, установок электрической сварки, общепромышленных установок, электрических талей, прессов и лифтов. Рассмотрены вопросы охраны труда, электрооборудование взрывоопасных и опасных установок, особенности монтажа и проектирования электрооборудования станков.
+Предназначено учащимся (   Читать дальше...   )Жанр: ЭлектроснабжениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445A32B15CE8200EE9AC7035FA183F11894FDEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449085   (1030196) от 20.02.2021
+
+К.К. Ким и др. | Средства электрических измерений и их поверка (2-е изд.) (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое учебное пособие предназначено по своему содержанию для всех, кто желает познакомиться с принципами действия средств электрических измерений и их поверкой. Авторы имели при этом в виду обучающихся в высших учебных заведениях, но и практических работников электротехники, занятых в лабораториях, на электрических подстанциях, электрическом транспорте и т. (   Читать дальше...   )Жанр: МетрологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E492290C02CE439A24716B7E587C1B9532003B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449127   (1030193) от 20.02.2021
 
 А.В. Дробов, В.Н. Галушко | Электрические машины. Практикум (2017) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030193.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030192.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030180.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030152.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029971.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029923.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029921.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029916.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029903.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029721.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029699.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029674.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029531.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029501.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029499.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029369.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029181.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029144.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029008.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029005.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028673.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028669.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026729.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026581.jpg" />
 </div>
 
 
@@ -620,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:282920FC49B75753C131E96A9E062A7455AE33D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454068   (1026569) от 13.03.2021
-
-С.А. Плотников и др. | Математическое моделирование систем управления (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие посвящено основам теории управления и математического моделирования. Представлены шесть лабораторных работ с последовательно увеличивающейся сложностью, начиная от исследования устойчивости линейных систем управления, заканчивая исследованием устойчивости систем управления с запаздываниями. Пособие предназначено для студентов, обучающихся по направлениям (   Читать дальше...   )Жанр: Теория управления, математическое моделированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8862900E1DC9FCDADF0F97B5AC24C9D442F70ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454100   (1026554) от 13.03.2021
-
-И.Ю. Сахаров и др. | Физико-химические и взрывчатые свойства аммиачной селитры (2016) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены физико-химические свойства аммиачной селитры, технические требования к различным маркам аммиачной селитры и её взрывчатые свойства в составах промышленных взрывчатых веществ.Приведены стандартизованные методики изучения и анализа физико-химических свойств и методы определения взрывчатых свойств аммиачной селитры в составах взрывчатых веществ.
-Предназначено (   Читать дальше...   )Жанр: Химия, физикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1EDD75C7F36AD89723AC14BDA2EB1395B1E37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

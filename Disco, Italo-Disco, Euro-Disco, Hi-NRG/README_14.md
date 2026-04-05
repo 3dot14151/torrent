@@ -6,7 +6,7 @@ Giorgio Moroder - Midnight Express (1978) [MP3|320 кб/с] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709930.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pan Demonium - Start The Fire (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709860.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dazzle - Dazzle (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709403.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Angela Bofill - Teaser (1983) Reissue CD, Arista, 1999 [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709089.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Joy Peters - Back To Joy (2012) [MP3|320 Kbps] <Euro-Disco, Pop, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708168.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Fresh Fox & Marco - Augenblicke (2016) [MP3|320 кб/с] <EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708031.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Disco Feeling (2019) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705358.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Daniel Grau - El Leon Bailarin (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705230.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Raes - Dancing Up A Storm (1979) LP [MP3|320 Kbps] <Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705228.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Pavel Panchenko - To the Stars (2017) [MP3|320 Kbps] <Disco, Hi-NRG, Nu Disco, S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704506.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Difference - High Fly (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703932.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sugar & Candy - Come To The Party (1979) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703626.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mario Renzi - Un Violino In Discoteca (1978) LP [MP3|320 Kbps] <Electronic, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703326.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - ZYX Italo Disco New Generation Vol. 14 (2019) 2CD, Compilation [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703226.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dennis Coffey - Back Home (1977) LP [MP3|320 Kbps] <Funk, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702456.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - At Midnight! Disco Club Classics (2019) [MP3|320 Kbps] <Disco, Funk>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701760.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jackie Carter - 2 Albums LP (1976, 1979) ex. Silver Convention [MP3|320 Kbps] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701637.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - ZYX Italo Disco: Flemming Dalum Remixes (2021) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701372.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kim & Buran - Orbita (2016) [MP3|320 кб/с] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700199.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Atkins - Atkins (1982) [MP3|320 Kbps] <Disco, Funk, Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699861.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Space Oddities (2008) CD, Vol. 1 [MP3|320 Kbps] <Electronic, Experimental, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698870.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Disco Revival (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698713.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Italo Disco New Revival Volume 1-10 (2015) [MP3|320 Kbps] <Italo-Disco, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698602.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Possession - Possession (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696804.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Ultimate Disco (4CD) (2018) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696729.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Sirena - The Dancer (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695129.jpg" />
 </div>
 
 

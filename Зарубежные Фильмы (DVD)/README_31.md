@@ -1,82 +1,3 @@
-###  Публикация: 690608   (563920) от 18.08.2013
-
-Авиатор / The Aviator (2004) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США, Германия / Appian Way,Cappa Productions,Forward PassЖанр: Драма, БиографияРежиссер: Мартин СкорсезеАктеры: Леонардо ДиКаприо, Кейт Бланшетт, Мэтт Росс, Джон Си Райли, Алан Алда, Кейт Бекинсейл, Алек Болдуин,, Иэн Холм, дам Скотт, Дэнни ХьюстонПеревод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 02:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD3082148B3672B407132AF261844F0BCF4E46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364436   (563345) от 17.07.2011
-
-Час расплаты / Paycheck (2003) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Дженнингс — выдающийся компьютерный инженер-виртоуз, работающий над строго засекреченными мега-проектами. После успешного выполнения работы Майклу на специальном устройстве стирают часть памяти, дабы он не смог вспомнить никаких подробностей.
-Последнее дело Дженнингса — контракт на три года от старого друга, по завершении которого герой должен получить чек (   Читать дальше...   )Производство: США, КанадаЖанр: Фантастика, Боевик, Триллер, ДетективРежиссер: Джон ВуАктеры: Бен Аффлек, Аарон Экхарт, Ума Турман, Пол Джаматти, Колм Фиор, Джо Мортон, Майкл С. Холл, Питер Фридман, Кэтрин Моррис, Ивана МиличевичПеревод: ДублированныйСубтитры: нетПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152621   (563014) от 24.07.2017
-
-Джейсон Борн / Jason Bourne (2016) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир на грани катастрофы, а значит пришло время ему вернуться. Неаполь, Мюнхен, Нью-Йорк — его имя знают повсюду. Элитный суперагент, лучший из лучших, даже в Лас-Вегасе игра пойдет по его правилам. Он — Джейсон Борн.Производство: Великобритания, Китай, США / Universal, Perfect World (Beijing) Pictures Co.Жанр: Боевик, триллерРежиссер: Пол ГринграссАктеры: Мэтт Дэймон, Алисия Викандер, Томми Ли Джонс, Венсан Кассель, Джулия Стайлз, Риз Ахмед, Ато Эссонда, Скотт Шеперд, Билл Кэмп, Винцец КиферПеревод: Дублированный (лицензия)Субтитры: Русский, английский, чешский, венгерский, польский, греческий, иврит, болгарский, хорватский, эстонский, латышский, литовский, румынский, словенский, украинскийПродолжительность: 01:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A4D1EE4375733D5963C2634B6459E4DFBCDCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152568   (562891) от 24.07.2017
 
 Отряд самоубийц / Suicide Squad (2016) DVD9
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562891.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562861.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562859.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562785.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562750.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562726.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562712.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562304.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562127.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561739.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561194.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561021.jpg" />
 </div>
 
 
@@ -398,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560137.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559547.jpg" />
 </div>
 
 
@@ -450,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559300.jpg" />
 </div>
 
 
@@ -476,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_558569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558569.jpg" />
 </div>
 
 
@@ -504,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557700.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557645.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557634.jpg" />
 </div>
 
 
@@ -582,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556002.jpg" />
 </div>
 
 
@@ -608,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556000.jpg" />
 </div>
 
 
@@ -634,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555999.jpg" />
 </div>
 
 
@@ -660,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555993.jpg" />
 </div>
 
 
@@ -672,6 +593,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD71830B65CB56C01388765C9B9662C352756623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 316380   (553871) от 14.06.2019
+
+Леон: Профессионал / Leon, The Professional (1994) DVD9 [Director's cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный убийца Леон, не знающий пощады и жалости, знакомится со своей очаровательной соседкой Матильдой, семью которой расстреливают полицейские, замешанные в торговле наркотиками. Благодаря этому знакомству он впервые испытывает чувство любви, но…Производство: Франция / Gaumont, Les Films du DauphinЖанр: Триллер, Драма, КриминалРежиссер: Люк БессонАктеры: Жан Рено, Гари Олдман, Натали Портман, Дэнни Айелло, Питер Эппел, Уилли Уан Блад, Дон Крич, Кит А. Гласко, Рэндольф Скотт, Майкл Бадалукко и др.Перевод: Профессиональный многоголосый (Супербит/Киномания), Авторский одноголосый (Д.Пучков aka Гоблин, присутствует ненормативная лексика; А.Гаврилов)Субтитры: Английские, русские, французские, испанские, португальскиеПродолжительность: 02:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC1C2409FA4625F54D5F5BB7EAD9B29A1551891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814961   (553115) от 22.08.2014
+
+Филомена / Philomena (2013) DVD5 [BD -> DVD]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная ирландка Филомена родила сына, будучи подростком, и её, как «падшую», отправили на «перевоспитание» в монастырь, а младенца отдали в усыновление в американскую семью. В монастыре Филомена подвергалась неисчислимым унижениям. Затем ей удалось вырваться оттуда, и она прожила достойную жизнь, но все эти годы пыталась безуспешно найти своего сына. Её историей заинтересовался (   Читать дальше...   )Производство: Великобритания, США, Франция / BBC FilmsЖанр: Драма, комедияРежиссер: Стивен Фрирз / Stephen FrearsАктеры: Джуди Денч, Стив Куган, Софи Кеннеди Кларк, Мэр Уиннингхэм, Барбара Джеффорд, Рут МакКейб, Питер Хэрман, Шон Махон, Анна Максвелл Мартин, Мишель ФэйрлиПеревод: дублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E1475FED11B3F9B9C0D0CCD774EEED5D84D341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 691894   (552028) от 23.08.2013
+
+21 грамм / 21 Grams (2003) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что каждый человек в момент смерти теряет 21 грамм. Столько весит горстка монет в пять центов, плитка шоколада, птица колибри…
+«21 грамм» — это история о надежде и человечности, жизнелюбии и выживании. Независимо от того, боитесь вы смерти или нет, она приходит, и в этот момент ваше тело становится на 21 грамм легче. Быть может, это вес человеческой души?Производство: США / Mediana Productions Filmgesellschaft,This Is That Productions,Y ProductionsЖанр: Триллер, Драма, КриминалРежиссер: Алехандро Гонсалес ИньярритуАктеры: Наоми Уоттс, Шон Пенн, Бенисио Дель Торо, Шарлотта Генсбур, Эдди Марсан, Клеа ДюВалл, Дэнни Хьюстон, Мелисса Лео, Пол Кэлдерон, Дэнис О’ХареПеревод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 01:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB128A1F605F9D47D0391B6B375B2BEE51D32A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

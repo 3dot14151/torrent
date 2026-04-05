@@ -1,3 +1,31 @@
+###  Публикация: 1133058   (697217) от 11.05.2017
+
+Михаил Лезинский, Борис Эскин | Мальчишка с бастиона (1966) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улица Коли Пищенко… Здесь заканчивает свой маршрут девятый номер севастопольского троллейбуса. А прежде чем попасть сюда, он проходит по площади Ушакова, по улицам Нахимова, Лизирева… Эти славные имена мы знаем с детства по книгам, кинофильмам. А кто такой Коля Пищенко?
+
+К сожалению, о подвигах и жизни юного героя обороны Севастополя 1854 - 1855 гг. не написано книг. (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6765AE644EC13580BAB7798FD2C40C1EEB9C4E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133056   (697102) от 11.05.2017
 
 Иван Дроздов | Катя-лётчица (1973) [FB2]
@@ -6,7 +34,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697102.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696886.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696882.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696881.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696813.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696811.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696805.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696800.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696764.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696761.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696760.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696659.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696372.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696045.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695932.jpg" />
 </div>
 
 
@@ -402,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695931.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695819.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695818.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695688.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695563.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695534.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_695439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_695439.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695145.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695142.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695109.jpg" />
 </div>
 
 
@@ -651,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:334354E036AFE5CE26AA97BF2D804C2BA4E6692B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221417   (694920) от 24.04.2018
-
-Д. Голиков, А. Голиков | Школа капитана Грампа. Scratch и Arduino для школьников (2017) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не обычный учебник программирования. Это дверь в фантастический мир космических приключений. Почти реальных, так как результатом изучения каждой главы станет запрограммированный своими руками симулятор космического корабля. Создавая проекты и управляя космическим кораблем, школьники совместно с героями книги пройдут по опасному пути искателей космических сокровищ (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A306B1A8E5EA6F54C8203E7D9142A5B0209755
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1604545   (1045335) от 14.01.2023
+
+Mirror for Philips TV 2.8.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Philips. Приложения для зеркального отображения экрана вашего Мака на любом Smart TV Philips. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Smart TV. Philips с 2012 и позже. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2023Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9175C265CE32F0122EBCC1BF6EA669CC77A10B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604525   (1045334) от 14.01.2023
+
+Screegle - Clean Screen Sharing 2.2.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screegle позволяет вам поделиться любым окном, которое вы хотите, поверх чистого фонового изображения рабочего стола. Screegle - это совместное использование экрана для профессионалов. Ваши коллеги, команда, клиенты или студенты видят чистую, не загроможденную версию вашего рабочего стола, которая содержит только окна, какие вы явно выбрали, и ничего больше. Больше (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2023Разработчик: © 2022 © AppBlit LLCПоддерживаемая ОС: macOS 10.14.0+Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E59CACE9D31ED5AF00DE7A2971904AB19794A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604549   (1045332) от 14.01.2023
 
 Mirror for TCL TV 3.8.3 [En]
@@ -6,7 +58,7 @@ Mirror for TCL TV 3.8.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045332.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ iconStiX 4.2.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045113.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Tipard DVD Cloner for Mac 6.2.38 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045111.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Backtrack - Record Past Audio 1.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045106.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Timecode Pro 3.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045099.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Soulver 3 v.3.7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045094.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ Apeaksoft iPhone Eraser 1.0.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045091.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Sketch Fashion 1.2.5 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045055.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ TurboMosaic Pro 3.6.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044985.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ AnyMP4 Mac Video Enhancement 8.2.30 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044981.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ Geekbench 5 v.5.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044961.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ Vidmore Video Enhancer 1.0.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044956.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ Apeaksoft Video Editor for Mac 1.0.36 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044886.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ Postico 2.0 beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044883.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ Tipard All Music Converter 9.1.20 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044878.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ Time Stamp 2.60 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044870.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ Tipard Mac Video Enhancer 9.1.36 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044868.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ FoneDog iPhone Cleaner for Mac 1.0.12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044865.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ FrameMagic - Collage Maker Pro 3.7.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044748.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ AnyMP4 Mac Video Converter Ultimate for Mac 9.2.38 [Rus/Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044697.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ Auto Invert! 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044656.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ MarkupTable 1.7.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044652.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ AnyMP4 MXF Converter for Mac 8.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044649.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ FonePaw Screen Recorder for Mac 3.2.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044641.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ FonePaw Screen Recorder, профессиональное программное
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FDC416A66588E18E6EC0931BC1F6E7032215D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605998   (1044639) от 20.01.2023
-
-Apeaksoft Video Converter Ultimate for Mac 2.2.32 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Converter Ultimate — это мощное программное обеспечение для конвертации видео, которое легко работает с различными видеофайлами на входе и выходе, независимо от того, находятся ли ваши видеофайлы с/на iOS/Android, с USB-накопителей или внешних жестких дисков.Тип издания: macOS SoftwareРелиз состоялся: 13.01.2023Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF4B282193C8D6166A660575DD8D337E3483F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605983   (1044628) от 20.01.2023
-
-Air Calendar 1.9 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Air Calendar — это приложение в строке меню, которое объединяет часы, календарь и события. Оно синхронизируется с Google, Outlook и со всеми службами календаря, которые поддерживает календарь macOS. Утилита представляет вам красивый и понятный календарь с вашими встречами, праздниками и всеми повестками дня самым быстрым и удобным способом.
-Air Calendar стремится (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2023Разработчик: © guojiuboПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BA35E410F1BEFE502B5B97B784398F3F1741C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

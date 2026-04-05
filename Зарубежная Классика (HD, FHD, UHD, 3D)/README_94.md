@@ -1,3 +1,108 @@
+###  Публикация: 1798509   (66624) от 22.05.2025
+
+Стромболи, земля божья / Stromboli (Terra di Dio) (1950) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литовская беженка Карин в ходе Второй мировой войны оказывается в итальянском лагере для перемещённых лиц и там, чтобы получить гражданство и вид на жительство, выходит замуж за рыбака Антонио. Супруги отправляются жить на малую родину Антонио остров Стромболи. Однако это удалённое от цивилизации местечко сразу же разочаровывает привыкшую к большим городам Карин. (   Читать дальше...   )Производство: Италия, США / Berit Films, RKO Radio Pictures Inc.Жанр: драмаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Марио Витале, Ренцо Чезана, Марио Спонцо, Джетано Фамуларо, Роберто ОноратиПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CC805DF9E4C99246D8C97A22C556D88F72272E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821711   (63881) от 03.10.2025
+
+Академия Рашмор / Rushmore (1998) BDRip [H.264/720p] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс Фишер учится в десятом классе престижной академии Рашмор. Его грандиозным успехам можно только позавидовать: редактор школьной газеты, капитан всевозможных команд, президент бесчисленных школьных клубов. И безнадёжный двоечник. Максу назначают испытательный срок, во время которого он не придумывает ничего лучше, как влюбиться в молодую учительницу, получив при (   Читать дальше...   )Производство: США / American Empirical Pictures, Touchstone PicturesЖанр: драма, мелодрама, комедияРежиссер: Уэс АндерсонАктеры: Джейсон Шварцман, Билл Мюррей, Оливия Уильямс, Сеймур Кэссел, Брайан Кокс (I), Мейсон Гэмбл, Сара Танака, Стивен МакКоул, Конни Нильсен, Люк Уилсон, Дипак Паллана, Эндрю Уилсон (I), Мэриетта Мэрич, Ронни МакКоли, Кейт МакКолиПеревод: профессиональный двухголосый (Видеосервис), авторский Никита Севастьянов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6934A4B9ED1F4941B5AAD1E725D9523D9336853E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700762   (63841) от 06.03.2024
+
+Горец / Highlander (1986) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [Director's Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63841.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1536 году шотландец Коннор Маклауд был сражен в битве, но мистическим образом воскрес, и родной клан изгнал его. Учителем Маклауда стал испанский дворянин, объяснивший, что они принадлежат к бессмертной расе воинов, которых можно лишить жизни, лишь обезглавив мечом.
+Сражение между Маклаудом и его вечным врагом Курганом, начавшееся в Шотландии XVI века, продолжается (   Читать дальше...   )Производство: Великобритания, США / Davis-Panzer Productions, Highlander Productions Limited, Thorn EMI Screen EntertainmentЖанр: фэнтези, боевик, приключенияРежиссер: Рассел МалкэйАктеры: Кристофер Ламберт, Роксанна Харт, Клэнси Браун, Шон Коннери, Бети Эдни, Алан Норт, Шила Гиш, Джон Полито, Хью Куарши, Кристофер МалкольмПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, английскиеПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4FA0C7F647AECCC3F3EBCE860D4F4114EDA70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700865   (63742) от 07.03.2024
+
+Ночь ужасов / Ужас в замке / Terrore Al Castello / Nuit de terreur (1968) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фернан едет в довольно странный замок, на оглашение завещания своего покойного дядюшки. В замке собралась довольно-таки теплая компания претендентов на дядюшкино наследство: родственники, друзья и слуги покойного. С началом ночи начинается настоящая чертовщина: обитатели замка получают в качестве черной метки туза пик и умирают или бесследно исчезают. В панике, некоторые (   Читать дальше...   )Производство: Франция, Италия / Clodio CinematograficaЖанр: Комедия, ужасыРежиссер: Камилло МастрочинкуэАктеры: Фернандель, Романо Луиджи, Ниетта Дзокки, Франко Латини, Фортунато Арена, Марко Тулли, Стефания Грациёли, Марио Силетти, Элеонора Морана, Марио Кастеллани, Риккардо Билли, Джино Равадзини, Умберто д'Орсо, Мариза Мерлини, Эмануэла ФаллиниПеревод: Одноголосый любительский (Stalk)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFFE384C2F52A0CF9D6C33F086AE0EDC3892B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700908   (63714) от 07.03.2024
 
 Кольт пропел о смерти / Le colt cantarono la morte e fu... tempo di massacro (1966) BDRip [H.264/720p]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63714.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63639.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63265.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63228.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63095.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62968.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62848.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62584.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62446.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61865.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61614.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61611.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61505.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61390.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61003.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60899.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60792.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60701.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60585.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60418.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60142.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59965.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E7D2D1ED57888362B95B7B073F215B0D521C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453601   (59894) от 13.04.2024
-
-Лицо со шрамом / Scarface (1983) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем - «Лицо со шрамом»...Производство: США / Universal PicturesЖанр: Драма, КриминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель СаласарПеревод: Многоголосый профессиональный (Киномания)Субтитры: Русские, АнглийскиеПродолжительность: 02:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E4C2D39D3ECF9516F0FC39174C0895D35FCD14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714523   (59235) от 19.04.2024
-
-Апокалипсис сегодня / Apocalypse Now (1979) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [Redux]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время Вьетнамской войны капитан Уиллард отправляется вверх по реке в Камбоджу со спецзаданием: найти и убить сумасшедшего полковника Курца, создавшего в отдалённом районе нечто вроде собственного культа. По пути капитан становится свидетелем безумия и ужасов войны.Производство: США / Zoetrope StudiosЖанр: военный, драма, история, боевикРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Мартин Шин, Роберт Дювалл, Фредерик Форрест, Сэм Боттомс, Лоренс Фишбёрн, Альберт Холл, Харрисон Форд, Деннис Хоппер, Г.Д. СпрэдлинПеревод: Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 03:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EF0886BB96249CF210F93D634EEE919AE67061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715561   (58885) от 22.04.2024
-
-Сквозь тёмное стекло / Sasom i en spegel (1961) BDRip [H.264/720p] [MVO] [BFI]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название фильма происходит от библейского выражения (1-е послание к Коринфянам, 13), означающего неполноту нашего знания о Боге в этом мире... Каждый из героев этого камерного фильма по-своему страдает, каждый из них внутренне одинок: юная Карин мучается от осознания неизлечимости болезни и от того, что не может «жить в двух мирах одновременно»; её муж Мартин — от (   Читать дальше...   )Производство: Швеция / Svensk Filmindustri (SF) ABЖанр: драмаРежиссер: Ингмар БергманАктеры: Харриет Андерссон, Гуннар Бьёрнстранд, Макс фон Сюдов, Ларс ПассгордПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, шведскийСубтитры: русские (Валерий Казаков; Леонид Мерзон), английские (BFI (Kajsa von Hofsten); Criterion Collection)Продолжительность: 01:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6C445AA2310C451371CDE80D38C8709E9F27D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716378   (58803) от 23.04.2024
-
-Молчание / Tystnaden (1963) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молчание и одиночество - вот ключ к истории двух сестёр в вымышленной стране, в несуществующем отеле, в загадочном поезде. Три близких человека - сестры и сын одной из них - скучают, ждут перемен и пытаются услышать хоть что-то сквозь молчание... "Молчание" иногда интерпретируется как представление двух сторон одной женщины, одна из которых представляет (   Читать дальше...   )Производство: Швеция / Svensk FilmindustriЖанр: драмаРежиссер: Ингмар БергманАктеры: Ингрид Тулин, Гуннель Линдблум, Ёрген Линдстрём, Хокан Янберг, Биргер Мальмстен, Лисси Аланд, Карл-Арне Бергман, Лейф Форстенберг, Эдуардо Гутьеррес, Эскиль Каллинг, Биргер Ленсандер, Кристина Улауссон, Нилс Вальдт, Улоф ВидгренПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, шведскийСубтитры: русские, английскиеПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D423DF08DFDAE9D28DDA008A499ECE7EF8AC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

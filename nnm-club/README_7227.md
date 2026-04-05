@@ -1,54 +1,18 @@
-###  Публикация: 1125052   (773599) от 13.04.2017
+###  Публикация: 399985   (774344) от 23.05.2013
 
-VA - Uplifting Trance Essentials Vol.15 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Барбоскины. Серии 1-100 (2011-2012) SATRip/DVDRip [Обновляемая]
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Illitheas - Alive (Original Mix)  7:32
-02.  Jak Aggas - Nanaki (Original Mix)  6:27
-03.  Afternova - Who We Are (Original Mix)  7:20
-04.  SaphirSky - Divine (Emotional Mix)  8:29(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED539E491D9BCF85AF61062EC3120D74BCE9B78B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200492   (773596) от 18.05.2010
-
-Чен (Broken Sound) - Правда (Single) (2010) [MP3|256 kbps]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Правда? feat Жара(Песочные Люди)
-2. На Бис
-3. Правда? feat Жара (funky mix)
-4. Пролетари
-5. Кривда
-6. Не пизди
-7. Кризис feat Гек (live!)
-8. Правда? feat Жара (акапелла)Жанр: Rap
+Мама, папа и… пятеро щенят. У Барбоскиных все, как у людей. Папа свободное время проводит за компьютером, дочери увлекаются модой и слушают Жанну Киску, а сыновья играют в футбол и мечтают о Нобелевской премии.Жанр: Мультсериал, Анимация, ДетскийПродолжительность: Каждая серия ~ 00:05:00
 
 ## Скачать торент
 ```bash
@@ -60,23 +24,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 660326   (773576) от 24.05.2013
+###  Публикация: 1015560   (774343) от 11.05.2016
 
-Полицейский из Беверли-Хиллз 2 / Beverly Hills Cop II (1987) BDRip [720p] ATV
+Л. Голосницкий | Путешествие в прошлое (1957) [FB2]
 
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение подвигов по поимке преступников веселого и находчивого полицейского Акселя. Сексапильная блондинка вместе с группой гангстеров грабит ювелирный магазин. Но неутомимый Аксель тут как тут, на страже порядка и закона.
+Как и когда возникла жизнь на Земле? Каким образом развились те растения и животные, которые мы видим каждый день? Наконец, каким образом из животного царства выделился человек, приобретший со временем власть над природой?
 
-Дальше, как и положено в полицейской комедии, динамичный сюжет раскручивается все в более и более быстром темпе, погони и перестрелки следуют одна за другой, лихой мордобой сменяют смешные, хотя порой и грубоватые шутки.Жанр: боевик, триллер, драма, комедия, криминалВ ролях: Эдди Мёрфи, Джадж Райнхолд, Джон Эштон, Юрген Прохнов, Ронни Кокс, Бриджит Нильсен, Аллен Гарфилд, Дин Стокуэлл, Пол Райзер, Гилберт Р. ХиллПеревод: Русский многоголосый закадровый (Киномания), многоголосый закадровый (R5), многоголосый закадровый, многоголосый закадровый  многоголосый закадровый (Premier), многоголосый закадровый (CTC), одноголосый закадровый (Михалев), одноголосый закадровый (Горчаков)Продолжительность: 01:42:58
+На все эти увлекательные вопросы и даёт ответ эта книга.Жанр: Детская проза, биологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6175C7A28DCF97AF70DBBEE6E1DB38B0ABEC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015552   (774342) от 11.05.2016
+
+Цинь Бэнь-ли | История экономической агрессии американского империализма в Китае (1951) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой краткий очерк истории экономической экспансии американского империализма в Китае с момента проникновения американцев в Китай и до самого последнего времени (начало 1950 г.). Основное внимание в книге уделено описанию послевоенной агрессии американского империализма, которое занимает более трети всей работы и содержит новый фактический материал.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CC67F393635CE096BCE80B82406BA862730152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201497   (774340) от 17.05.2010
+
+Парк Горького/ Gorky Park - Grand Collections (2002) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moscow calling (5:09)
+2.  Stranger (4:51)
+3.  Stare (4:58)
+4.  Two candles (5:03)
+5.  Politics of Love (4:10)
+6.  Ocean (3:55)
+7.  Welcome to the Gorky Park (4:24)
+8.  California promise (3:57)
+9.  Tell me why (3:27)
+10.  All roads (5:13)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:34
 
 ## Скачать торент
 ```bash
@@ -88,26 +113,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 660181   (773569) от 24.05.2013
+###  Публикация: 1277983   (774322) от 23.01.2019
 
-Либба Брэй, Филиппа Грегори | Магия Времени (3 книги) [2013] [RTF, FB2]
+VA - Suanda Winter Vol. 6 (2019) [MP3|320 Kbps] <Trance>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Магия Времени - серия издательства Эксмо. Жанр - литература для молодежи (young adult fiction), с элементами фэнтези.
-В серии издают новые книги. Начаты два цикла: «Джемма Дойл» (писательница Либба Брей) и «Орден Тьмы» Филиппа Грегори.Формат: RTF, FB2
+01. Photographer – Infinity (Steve Allen Extended Remix)
+02. Christina Novelli & Roman Messer – Fireflies (Alexander Popov Extended Remix)
+03. Attila Syah & Boris Foong – Falcon (Extended Mix)
+04. Feel & Alexandra Badoi – We Are One (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4CB1B29E5CC1CB783136090F680CD07727DB02A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,244 +142,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 660402   (773561) от 24.05.2013
+###  Публикация: 1277937   (774321) от 23.01.2019
 
-Tenkuu no Escaflowne / Vision of Escaflowne TV / Видение Эскафлона [1996, TV, 26] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка Хитоми попадает в иной мир. В нем война, жестокость, смерть, романтика героев-рыцарей, взрослое отношение к ней и восприятие в качестве женщины. А девочке — немного лет, в ином мире остались мама, лучшая подруга, любимый человек. Но новый мир так манит неизведанным!
-
-Действие сюжета происходит в двух мирах. Один из них — Земля (называемая на Гайе «Волшебной (   Читать дальше...   )Жанр: приключения, фэнтези, романтика, мехаРежиссер: Аканэ КадзукиСубтитры: • RUS;Продолжительность: 26 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FE25603DCB9A6CE3CC4F371EF0F616782EA7AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885614   (773558) от 06.04.2015
-
-Игорь Борщенко | Болят руки – что делать (2014) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суставы рук – слабое звено опорно-двигательного аппарата, на которое порой приходится максимальная нагрузка. Поэтому именно они чаще всего напоминают о себе болями разного характера. От постоянного напряжения суставы травмируются и теряют подвижность, что приводит к самым различным заболеваниям. Простая и доступная изометрическая гимнастика доктора Борщенко поможет вам избавиться от болей в суставах рук и восстановить их подвижность. Такой изометрический тренинг не потребует от вас лишних усилий и резких движений (   Читать дальше...   )Жанр: Нетрадиционная медицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC4EA4514FFC1345A9ACC2838728EB30E95CDDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885610   (773557) от 06.04.2015
-
-Алексей Садов | Заболевания позвоночника. Карманный справочник (2015) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заболеваний позвоночника много, и практически каждый из нас хотя бы раз в жизни страдал от одного из них. Проблем они создают предостаточно: ограничивают подвижность в области поясницы, вызывают боль в спине, ощущение онемения конечностей, головные боли. Все это подчас лишает нас радости жизни, а иногда и делает нетрудоспособными. Нередко болезни позвоночника появляются у человека в молодом возрасте. С годами они приобретают хроническую форму, и больные вынуждены обращаться к специалисту за помощью. Чтобы не (   Читать дальше...   )Жанр: ЗдоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3EA866CDA64FC52A460B8B3FA1FB0F0B850E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885736   (773556) от 06.04.2015
-
-Sunset Riders 1.1.1 (SEGA Genesis Game) [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впечатляющая игра формата "Run and Gun". Дикий Запад ждёт вас, а вместе с ним захватывающие приключения и перестрелки. В Sunset Riders задействовано два персонажа, которых можно выбрать перед началом игры. Оба они - крутые парни из разряда охотников за головами. Билли вооружён мощным револьвером, а Кормано в своём арсенале имеет дробовик. Выбрав героя вы отправляетесь в путь состоящий из четырёх уровней. Каждый уровень поделён на две части. В первой части необходимо заняться спасением заложника, а (   Читать дальше...   )Тип издания: FullРелиз состоялся: 2015 (порт с SEGA)Разработчик: Konami (ссылка на оф. сайт)Поддерживаемая ОС: Android 2.3 +Жанр: Вестерн, Run and GunЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B02451DA633A74592AC63010DBA79B69A97B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885763   (773555) от 06.04.2015
-
-Марина Ильинская | Как учиться и не испортить зрение (2014) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Must-have для родителей, которые заботятся о зрении своих детей, особенно при большой нагрузке в школе, которая, как правило, заканчивается близорукостью. Автор этой книги офтальмолог Марина Ильинская знакомит читателей с уникальной методикой восстановления зрения у детей. Ребенку не понадобятся очки, если вы подберете ему щадящий режим зрительных нагрузок, обучите его специальным методам разгрузки глаз, освоите с ним уникальный тренировочный комплекс упражнений для глазных мышц. Эта методика поможет ребенку (   Читать дальше...   )Жанр: ЗдоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E5BA7DEDC975B9E0214A71C62F3BDC5630B8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885652   (773545) от 06.04.2015
-
-Радиоточка Плюс 8.8 + Portable [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоточка Плюс – удобная бесплатная программа для прослушивания онлайн-радио каналов. Огромное количество радиостанций всех направлений. Присутствует отображение логотипа, название исполнителя и композиции в радиостанциях, которые поддерживают данную опцию. Хотите слушать радио, онлайн, бесплатно, без регистрации? Устанавливайте "Радиоточку" и слушайте любимую музыку на любимых радиостанциях.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2163DBE8BD8869A9418A87676D36EF93F6643E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125076   (773540) от 13.04.2017
-
-Germind - Thoughtform (2017) [MP3|320 Kbps] <Psybient, Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Textures Life
-02. Shimmering At Sunrise
-03. Thoughtform
-04. Galactic Stems(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E846A6614EA80F8942534A0F22C3BD8EFDA2B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125060   (773539) от 13.04.2017
-
-Statsey - app usage statistics in your menu bar 1.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Statsey - это средство отслеживания использования приложений на панели меню, которое позволяет анализировать свои привычки и определять, насколько они влияют на производительность.
-
-Особенности:
-- самые частые срезы данных всегда на один клик в вашей строке меню,(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2017Разработчик: Nice AppsПоддерживаемая ОС: macOS 10.12 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2BE922C31E791790E0053A2B48C29C84407DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124831   (773538) от 13.04.2017
-
-VA - Singers & Songwriters: Classics (2010) [MP3|320 Kbps] <Pop/Rock ,Country ,R&B>
+Boulevard des Airs - Je Me Dis Que Toi Aussi (2018) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Buffalo Springfield - For What It's Worth (2:39)
-02. Gordon Lightfoot - Sundown (3:34)
-03. Nilsson - Everybody's Talkin' (2:44)
-04. Loggins And Messina - Your Mama Don't Dance (2:49)(   Читать дальше...   )Жанр: Pop/Rock ,Country ,R&BПродолжительность: 01:12:16
+01. Je me dis que toi aussi
+02. Tout le temps
+03. Comment ca tue
+04. Si la vie avance(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:245B203F65E50557B77EE1E7D77FC59C233D6D38
+magnet:?xt=urn:btih:E82C9DF210B594CFCA3A7662DC34172C125F9C65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,276 +171,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125120   (773537) от 13.04.2017
+###  Публикация: 1278000   (774320) от 23.01.2019
 
-Тимур Кибиров | Греко- и римско-кафолические песенки и потешки (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773537.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стихах Кибирова нет ни махрового академизма, ни высоколобой зауми. И что ещё важнее — стихи этого автора всегда существовали вне рамок привычного поэтического мейнстрима. Поэзию Кибирова трудно идентифицировать, определить принадлежность какому-либо жанру. Поскольку Кибиров — сам по себе — жанр. Безграничная вселенная повседневность, в центре которой — всё тот (   Читать дальше...   )Жанр: ПоэзияПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C25DA62FB8E1581BF26C4A0026845E0C00C89E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124689   (773536) от 13.04.2017
-
-Использование поляризованного света позволяет воспроизводить более высококачественные и стабильные голографические изображения
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_773536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неподалеку от места, где в свое время Эдвин Лэнд (Edwin Land), изобретатель фотоаппаратов Polaroid, делал свои открытия, связанные с поляризованным светом, группа исследователей из Школы технических и прикладных наук (School of Engineering and Applied Sciences, SEAS) Гарвардского университета продолжает открывать новые возможности, предоставляемые этим поляризованным (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125000   (773535) от 13.04.2017
-
-VA - Uplifting Only Top 15 April (2017) [FLAC|Lossless|WEB|tracks] <Trance , Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DreamLife - Fly Away (7:56)
-02. Ikerya Project - RA (6:24)
-03. illitheas - Moments With You (5:29)
-04. Syntouch & Angel Falls - Alone (Plutian Remix) (7:51)(   Читать дальше...   )Жанр: Trance , Uplifting TranceПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B8A7EC285F271534588DE71F360CF249CD32E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125145   (773534) от 13.04.2017
-
-Генриетта Гётте | Николаевская Римско-католическая церковь Святого Иосифа (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткая история католического храма св. Иосифа в г. Николаеве (Украина), построенного в 1794 году на средства прихожан, рассказанная дочерью последнего органиста Лео Гётте - в годы репрессий верного свидетеля Христа.Жанр: ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3136EF73E617C4F81F0992D7E961F3D9CB4CEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124909   (773533) от 13.04.2017
-
-Вечерний Ургант (2017.04.11) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9407B259241959F2378C2263E01B5CDF68BC57BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125027   (773532) от 13.04.2017
-
-Dizzy Gillespie, Stan Getz, Coleman Hawkins - Sittin' In (1957) 2005, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dizzy Atmosphere [10:57]
- 02.Ballad Medley (I'm Through With Love- Without A Word Of Warning - Sweet Lorraine - Love Walked  In - September Song) [11:00]
- 03.Ballad Medley (On The Alamo - Stompin' At The Savoy - This Time The Dream's On Me - Time After Time - Gone With The Wind) [12:29]
- 04.The Way You Look Tonight [13:38]Жанр: Mainstream Jazz, BopПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2C98BC46A69C8E60C1FF5D22EE59878D22D4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124967   (773531) от 13.04.2017
-
-VA - Dark Sessions Radio 025 (Mixed by Oberon) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omega Drive - MIDI 1 (6:36)
-02. Cristian Ketelaars - Limitless (Omega Drive Remix) (7:46)
-03. Opt-in - Wurmtreiber (7:18)
-04. Mekk V - Embryo (Funked Up Mix) (6:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE5E8D4A26E72EED1CDD581148E18BA8B0A1178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124769   (773530) от 13.04.2017
-
-Fax Templates for Pages 1.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fax Templates for Pages -  высококачественный набор из более 100 оригинальных шаблонов для приложения Pages Apple. В то время как многие предприятия перешли на различных современные коммуникационные технологий, некоторые до сих пор настаивают на использовании факсимильного аппарата. Вы можете быть на вершине факса с диапазоном стильных шаблонов от Graphic Node.
-
-Каждый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 апреля 2017Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F362FF2B2C6FE6B78806F8E3B7BDD75C69580B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124732   (773529) от 13.04.2017
-
-Chuck Mangione - Journey To A Rainbow (1983) [FLAC|Lossless|image + .cue] <Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey To A Rainbow (07:03)
-02. Do I Dare To Fall In Love (05:59)
-03. Love Bug Boogie (05:56)
-04. Buttercorn Lady (05:02)(   Читать дальше...   )Жанр: Fusion, Smooth JazzПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374C05C264D4909AA529C36EEEE9046485D078D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124862   (773528) от 13.04.2017
-
-Oni - Ironshore (2016) [FLAC|Lossless|image + .cue] <Progressive Death Metal, Djent>
+De Staat - Bubble Gum (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Electronic Rock, Experimental Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Barn Burner 04:00
-02. Eternal Recurrence 04:49
-03. The Only Cure (featuring Randy Blythe of Lamb of God) 05:04
-04. The Science 11:15(   Читать дальше...   )Жанр: Progressive Death Metal, DjentПродолжительность: 00:49:05
+01. Kitty Kitty (05:55)
+02. Fake It Till You Make It (04:07)
+03. Mona Lisa (05:08)
+04. I'm out of Your Mind (03:11)(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Experimental RockПродолжительность: 00:52:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A10E80258AE3BE59D4F6BB33ED2DE199099D95F
+magnet:?xt=urn:btih:3F1B2C4387EDD74CF2F8385504A3A1D516BD1014
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,28 +200,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124971   (773527) от 13.04.2017
+###  Публикация: 1277978   (774319) от 23.01.2019
 
-VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance>
+Ness - Moving Through Illusions (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno>
 
 >>Electronic
->>Trance (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danny Legatto & Alex Van Gray - Fly Away (7:59)
-02. Laura May - Are You Afraid of Ghosts (Cenk Basaran Remix) (6:57)
-03. Nikolauss - Solaris (6:24)
-04. Tau-Rine & Haig & Raffi - Redemption (8:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:47
+01. A Darkly Sunset In Barcelona (06:51)
+ 02. In The Meanderings Of Shibuya (06:03)
+ 03. The Moon In Montreal (07:27)
+ 04. The Mist In Cherni Vrah (05:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:35:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5A15E770DF60CD39D551804C69636AFB171D53A
+magnet:?xt=urn:btih:D40791219EF4A8E0EF82D85D0B4F1A43CF1388B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,28 +229,396 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125010   (773526) от 13.04.2017
+###  Публикация: 1277956   (774318) от 23.01.2019
 
-File Multi Tool 6 v6.06 [En]
+Turbonegro - RockNRoll Machine (2018) [FLAC|Lossless|tracks + .cue] <Deathrock, Rock & Roll, Pop Punk>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-File Multi Tool   — мощная и полезная утилита для изменения атрибутов файлов. File Multi Tool позволить изменить дату создания фотографии или дату последнего изменения файла.
-С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе.
+01. Suite: The Rock And Roll Machine Part 1: Chrome Ozone Creation (02:00)
+02. Part II: Well Hello (01:54)
+03. Part III: RockNRoll Machine (03:41)
+04. Hurry Up & Die (03:27)(   Читать дальше...   )Жанр: Deathrock, Rock & Roll, Pop PunkПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69CA7950CD546E06E0D363902AF2CE71DCE62B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278088   (774317) от 23.01.2019
+
+Роман Ильин | Скобы. 2014 – конец 2018 (2017) [PDF]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов тульского поэта Ильина Романа "Скобы 2014 - конец 2018" - продолжение серии сборников стихов, написанных за период с 2013 по 2018 года. Охват тем данного сборника более узок, чем прежних "Скоб" и вращается в основном вокруг личных жизней автора и некогда приближенных к нему людей. Естественно, в иносказательной форме. Тематика касается (   Читать дальше...   )Жанр: ПоэзияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5402163498E5A75E49550BE89EBCB4EC903D0B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277817   (774316) от 23.01.2019
+
+Meta 1.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
+С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2019Разработчик: Benjamin JaegerПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40804088C15668AC5957C58CC5354870C88E3489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278012   (774315) от 23.01.2019
+
+VA - Tea Leaves (2019) Compiled by DJ V ++ [FLAC|Lossless|WEB-DL|tracks] <Downtempo, ChillOut, Lounge, Electronica>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eguana - Spacewalk (Original Mix) 8:00
+02. Blue Lotus - In The Fog (Original Mix) 6:27
+03. Sasha Malkovich - Spring (Original Mix) 4:49
+04. Kayatma & Julya Ruurman - Drevo (Original Mix) 7:45(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lounge, ElectronicaПродолжительность: 01:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510067ABFA62D1878CAB7BB5140775A2C0D75ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277998   (774314) от 23.01.2019
+
+VA - Symptom Of Nature (2019) [MP3|320 Kbps] <Goa Trance, Psychedelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774314.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Acidprojekt - Selenophile
+002. Breaker - Data Party
+003. Creationforce - Mantra (Remastered)
+004. Creationforce - Reality(   Читать дальше...   )Жанр: Goa Trance, PsychedelicПродолжительность: 12:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D871E4A640D98D20C5C1ACF898C7738AB422F764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278002   (774313) от 23.01.2019
+
+French Revolution - Fantasia (1988) Virgin Scandinavia AB [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, 80s>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Not The End (4:25)
+ 02. Alien Too (Fallin') (4:54)
+ 03. Moscow And Washington (3:25)
+ 04. 14th Of July 1789 (3:19)(   Читать дальше...   )Жанр: Synthpop, New Wave, 80sПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7E6BCCC3A7284AA36C955F8B92CB577D4DD0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277987   (774312) от 23.01.2019
+
+VA - Vocal Dance Vol. 5 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betsie Larkin - Unite (Omnia Extended Remix)
+02. Christina Novelli - Carousel (Ruslan Radriges Extended Remix)
+03. FEEL feat. Diana Leah - One Last Time (Vadim Bonkrashkov Remix)
+04. Gamma - Every Goodbye (NoMosk Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32EC58DB1E6E21D696F68E8B3D011E9A73400C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277953   (774311) от 23.01.2019
+
+VA - Ibiza Winter Island 2019 (2018) The Deep-House Edition [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Progression-Rome (5th Avenue Mix)
+02. Ernst Bentley-Get It Now (Original Mix)
+03. Club Elite-Fujinami (Red Motel Deep Mix)
+04. One Light Project-Fashion Show (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D414E6E94A7DCCFD4DA4F4AF8BDD43CF60EE2075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277924   (774310) от 23.01.2019
+
+VA - Space Oddities (2016) Studio Ganaro (1972-1982) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Roger, Nino Nardini - Expectation (1:55)
+02. Cecil Leuter - Pop Electronique No. 1 (2:27)
+03. Roger Roger - Sound Industrial No. 2 (2:03)
+04. Eddie Warner - Shut Up (2:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616F253B6D87E50FD3696D0F5BBA33BC01723BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278115   (774309) от 23.01.2019
+
+Roger Molls - Melography (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hip-Hop, Breakbeat>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night is Here (5:41)
+02. F*ck the Industry (feat. Slik Jack) (5:58)
+03. House of Fools (feat. Ptates) (3:58)
+04. Moonshine (3:23)(   Читать дальше...   )Производство: DLoaw & Co.Жанр: Hip-Hop, Instrumental Hip-Hop, Breakbeat, Downtempo, Trip HopПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D39260FC9BBC8394B91CEE6AFB5DBF612570C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278030   (774308) от 23.01.2019
+
+AKB - Rhythmic Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Up - Sit Down (8:13)
+02. We Got Rhythmic Feet (8:31)
+03. When We're Alone (4:12)
+04. Goin' Downtown (5:21)(   Читать дальше...   )Жанр: Electronic, Soul, DiscoПродолжительность: 00:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0667FAC545A17658C4496E8F48660D9DBAB38DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277878   (774307) от 23.01.2019
+
+Photo Supreme 4.3.2.1901 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme - вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB09805D03241B28A423B53FB92ED9C16C1F4018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278028   (774306) от 23.01.2019
+
+Road of Kicks - Before the Stone (2019) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом итальянцев базирующихся в Австралии, что сказалось на музыкальной составляющей альбома, ИМХО.01. Double Fire
+02. Genuine Times
+03. 24 Spindle Jenny
+04. Midnight Knockers(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC3E36916A6FFA82DEEC2299C93E7F72C005BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277945   (774305) от 23.01.2019
+
+В. И. Громов, П. Тарасов-Родионов | Расследование хищений и злоупотреблений в торговом аппарате (1934) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борьба с хищениями и злоупотреблениями в системе потребительской кооперации и предприятиях государственной торговой сети является на данном этапе социалистического строительства одной из важнейших задач всех органов власти в том числе и органов юстиции, которые, должны заострить свое особенное внимание на борьбе с этими социально-опасными явлениями.
 
-Помимо этого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2017Разработчик: PublicspaceПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+В настоящей (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:610C5AB3561648D49A754E3BFFDF44F25F6C5A8A
+magnet:?xt=urn:btih:5EDEEE5B8AF1A54E6A27B233ED5D4008A853AE47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,26 +626,113 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125030   (773525) от 13.04.2017
+###  Публикация: 1277543   (774304) от 23.01.2019
 
-Sublime Text 3 Dev (3128) [En]
+The 69 Eyes - Devils (2004) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
+01.Devils (3:53)
+02.Feel Berlin (4:10)
+03.Nothing On You (4:11)
+04.Sister Of Charity (5:05)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F31A1375924E9F2B1CE8ED496F76E30FA1CC772
+magnet:?xt=urn:btih:780A090C343289371BE43B98370B74FEE23444F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278001   (774303) от 23.01.2019
+
+Miles Davis - Bitches Brew Live (1969, 1970) 2011, Legacy Recordings [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Runs The Voodoo Down [10:27]
+02. Sanctuary [3:59]
+03. It’s About That Time/The Theme [9:45]
+04. Directions [7:31](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855995F1D73E28CAF573097667DD6F9BD6E64803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212623   (774302) от 14.03.2018
+
+А.А. Жосан и др. | Электронные системы управления работой дизельных двигателей (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит подробные описания систем впрыска топлива на дизелях с электронным регулированием (датчики, блок управления, исполнительные механизмы), дает представление о современных методах диагностики систем питания дизелей, а также о методах снижения токсичности отработавших газов.
+Издание адресовано студентам высших учебных заведений по направлению (   Читать дальше...   )Жанр: Транспорт, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B860231215E004EF37F0CC4ED183BDAC496D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212833   (774301) от 14.03.2018
+
+Boris Zhivago - Memories (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memoires (5:29)
+02. Love Is A Memory Away (7:56)
+03. Russian Fantasy (5:25)
+04. The Girl That Saved My Life (7:02)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi-NRGПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C69CD6906618A660241219EB1064C24B128A04
 ```
 
 https://mybot314.ru/tekegram_catalog/

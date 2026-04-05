@@ -1,3 +1,159 @@
+###  Публикация: 957653   (912807) от 24.02.2016
+
+Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru] (1.40/dlc) SteamRip Let'sРlay [Gold Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1868 год. Индустриальная революция, эпоха невероятных изобретений. Немыслимые ранее технологии меняют жизнь миллионов. Люди устремляются в Лондон, вдохновленные новыми возможностями, жаждущие стать частью нового мира, над которым будут не властны короли, императоры, политики и священники, мира, где деньги сравняют всех.Тип издания: SteamRipРазработчик: Ubisoft EntertainmentЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E47A9090BD64C2C97CAC6880D5C1244C004B438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977615   (912806) от 24.02.2016
+
+Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.0.3/dlc) SteamRip Let'sРlay
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homeworld: Deserts of Kharak - стратегия в реальном времени, которая является приквелом к серии Homeworld. Игра предлагает отправиться в экспедицию и разузнать тайны пустыни Харака. Сюжет крутиться вокруг девушки по имени Рейчел С-Джет, являющейся опытной исследовательницей. В распоряжении игроков окажется множество военной техники, включая небольшие штурмовые машины, (   Читать дальше...   )Тип издания: SteamRipРазработчик: Blackbird InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD79662FDC870CC5BFE627D605D2D3F41629FBDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979511   (912804) от 24.02.2016
+
+Секретные материалы / The X-Files (2016) WEB-DLRip [H.264] (сезон 10, серии 1-6 из 6) ТВ3, Кравец
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фокс Малдер и Дана Скалли снова вместе. На них выходит ведущий интернет-канала Тэд О'Малли, специализирующийся на расследовании государственных секретов. По словам О'Малли, он близок к раскрытию международного заговора, скрывающего от населения всю правду об инопланетянах. Малдер готов поверить О'Малли, Скалли как всегда скептична, но, как минимум, готова выслушать (   Читать дальше...   )Производство: США / 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пиледжи, Уильям Б. Дэвис, Робби Амелл, Том Брэйдвуд, Дин Хэглунд, Брюс Харвуд, Джоэл МакХэйл, Лорен Эмброуз и др.Перевод: Дублированный (ТВ3), многоголосый закадровый, профессиональный (Кравец)Субтитры: отсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF64026E9CBE77631A93572EFC5C3F00BBC367A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989448   (912803) от 24.02.2016
+
+God of War III (2010) [PS3] [EUR] 3.41/3.55/4.21+ [Repack / 1.03 / ALL DLC] [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой - Кратос - бывший спартанец, бросивший вызов самим небожителям, оказывается в самом центре кровавой бойни. Его ждет восхождение на вершину Олимпа и путешествие в глубины ада - предавших его богов мститель настигнет везде. Вооруженный уникальным оружием и магическими способностями, не представленными в предыдущих эпизодах серии, воин готов ко всему. (   Читать дальше...   )Тип издания: RepackРазработчик: SCE Santa Monica StudioЖанр: Hack & Slash, Action-AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCDBCC40B648AB45A28E2E83A31D4CADAC4E483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989813   (912801) от 24.02.2016
+
+Microsoft Windows 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 02.2016 2DVD [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912801.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборки на основе оригинальных русских образов операционной системы Windows 8.1 (Pro VL editions) (x86/x64) - DVD (Russian) Final (msdn) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64) и встроенным пакетом обновления Update 3. Установка полностью "вручную" с выбором параметров установки ОС. Интегрированы: последние (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D08CCAC5D957F62269059166D0EFBBDEB2F2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989944   (912799) от 24.02.2016
+
+В сердце моря / In the Heart of the Sea (2015) HDRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912799.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада, Cott Productions, Enelmar Productions, Imagine EntertainmentЖанр: Биография, Приключения, ДрамаРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:01:37Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B367D30B272C379DDCBDC4BE0932DF92F057B8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990223   (912798) от 24.02.2016
 
 OS X 10.11.1 Installer USB for Win [BDU]
@@ -6,7 +162,7 @@ OS X 10.11.1 Installer USB for Win [BDU]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912798.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912795.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ Doom (2016) [En] (Closed Alpha Test) SteamRip
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912792.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ A Better Camera v3.37 Unlocked [Ru/Multi] - Многофункциональна
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912790.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Windows 7 Home Premium SP1 IDimm Edition х86/x64 v.19.15 [RU]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912730.jpg" />
 </div>
 
 
@@ -141,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912726.jpg" />
 </div>
 
 
@@ -167,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912681.jpg" />
 </div>
 
 
@@ -195,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912204.jpg" />
 </div>
 
 
@@ -223,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911820.jpg" />
 </div>
 
 
@@ -249,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911746.jpg" />
 </div>
 
 
@@ -275,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911740.jpg" />
 </div>
 
 
@@ -301,7 +457,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4939.1000 VL (x86)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911730.jpg" />
 </div>
 
 
@@ -327,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911671.jpg" />
 </div>
 
 
@@ -355,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911661.jpg" />
 </div>
 
 
@@ -381,7 +537,7 @@ The Elder Scrolls 3: Morrowind + Tribunal + Bloodmoon [Ru] (RePack) 2002-2003 | 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911563.jpg" />
 </div>
 
 
@@ -407,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911529.jpg" />
 </div>
 
 
@@ -433,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911505.jpg" />
 </div>
 
 
@@ -459,7 +615,7 @@ Garmin: Дороги России Топо 6.23 (FID 3332 + FID 4594) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911502.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ Tuxera NTFS 2016.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911493.jpg" />
 </div>
 
 
@@ -512,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911490.jpg" />
 </div>
 
 
@@ -523,162 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3ED92D381F7F4E17DBD7A0E993D9840DB9783D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097776   (911481) от 28.01.2017
-
-CyberLink PowerDirector Ultimate 15.0.2509.0 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911481.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04F3DECC83C3D0C249862021AF96FCF0E6C2FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096462   (911480) от 28.01.2017
-
-Отсев / The Thinning (2016) WEB-DL [H.264/1080p-LQ] [AD]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. Ресурсы планеты истощены из-за перенаселения. ООН требует от всех стран ежегодно сокращать численность своего населения на 5%. Все ученики школ в США ежегодно сдают стандартный экзамен. Набравшие наименьшее количество баллов подлежат физическому уничтожению. Официальный номер экзамена – 10-241. Но обычно его называют...Отсев.Производство: США, Cinemand, Kids At Play, Legendary Digital MediaЖанр: ТриллерРежиссер: Майкл Дж. ГаллахерАктеры: Пейтон Лист, Логан Пол, Лия Мари Джонсон, Кэлам Уорси, Мэттью Глэйв, Майкл Трэйнор, Райан Ньюман, Патрик О’Салливан, Яна Винтерниц, Кирстен УорренПеревод: Любительский многоголосый (@MUZOBOZ@)Язык субтитров: ОтсутствуетПродолжительность: 01:24:04Реклама: Присутствуют голосовые и текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C846423046BA86BED38FEDBCB27CCC0E8870C0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776894   (911476) от 28.01.2017
-
-Инструкция для вменяемой части мирного населения - на время любой информационной войны
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911476.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Любая война закончится. Это точно. В итоге политики договорятся, а ты останешься в том дерьме, которым ты поливаешь своих "идеологических противников".- Когда кидаешь в человека грязью, помни: она до него может не долететь, а на твоих руках останется.- В каждом народе или стране есть разные люди, и не все участвуют в войне, не стоит оскорблять всех подряд. Если тебе очень важно высказать своё отношение к политике - выскажи, но при этом не обязательно кого-то оскорблять.- Во время войны врут ВСЕ. Не распространяй информацию анонимную и ту, истинность которой меньше 150%, то-есть, пиши только (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097655   (911473) от 28.01.2017
-
-Голос монстра / A Monster Calls (2016) WEB-DL [H.264/720p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911473.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о мальчике Конноре и монстре из его снов. Когда Коннору особенно тяжело, происходит нечто невероятное — старое тисовое дерево за окном оживает и превращается в громадное чудовище. По ночам монстр рассказывает Коннору истории, которые помогут ему понять, что даже когда весь мир рушится, можно найти в себе силы и не отчаиваться.Производство: США, Испания, Apaches Entertainment, La Trini, Monster Calls, A, Participant Media, River Road EntertainmentЖанр: Фэнтези, ДрамаРежиссер: Хуан Антонио БайонаАктеры: Льюис МакДугалл, Сигурни Уивер, Фелисити Джонс, Тоби Кеббелл, Бен Моор, Джеймс Мелвилл, Оливер Стир, Доминик Бойл, Дженнифер Лим, Макс ГаббейПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Продолжительность: 01:48:21Реклама: Присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7819F59F4F48C1E76C6EB70BC36BC2BD5D6B2BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990569   (910953) от 25.02.2016
-
-Bandicam 3.0.3.1025 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD3D86C978647CE310E84F7535B72385009E76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990535   (910952) от 25.02.2016
-
-В сердце моря / In the Heart of the Sea (2015) BDRip [H.264/720p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910952.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада / Cott Productions, Enelmar Productions, Imagine EntertainmentЖанр: Приключения, Драма, БиографияРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F27233A8E97540964B8E428A756232FCA35CB79
 ```
 
 https://mybot314.ru/tekegram_catalog/

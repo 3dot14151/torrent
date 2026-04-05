@@ -1,3 +1,55 @@
+###  Публикация: 1834326   (249057) от 03.11.2025
+
+Defender of the Crown (1986) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249057.jpg" />
+</div>
+
+
+###  Подробнее
+
+События игры разворачивались в средневековой Англии (противостояние саксов норманнским завоевателям в середине XI века). Для того, чтобы одержать победу, игрок должен был завоевать все норманнские замки, однако союзники-саксы могли в любой момент нанести коварный удар в спину и надолго задержать наступление.Тип издания: LicenseРазработчик: Fantasy Research, Master Designer SoftwareЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C285383C620FA0AC446D0C7FDAE169FC2272C38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493158   (248904) от 08.05.2012
+
+Rival Realms (P) [Ru] 1998
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казалось бы, это всего лишь очередная стратегия «в стиле WarCraft», но при ближайшем рассмотрении можно убедиться, что перед нами – совершенно особое и самобытное творение. Rival Realms – это малоизвестная фэнтезийная стратегия реального времени, в которой вы можете выбрать одну из трёх рас – Люди, Эльфы или «зеленокожие существа», в которых, само собой, легко узнаются орки.  От большинства «похожих» стратегий её отличает сильный «РПГ-элемент»Тип издания: ПираткаЖанр: СтратегияЯзык озвучки: РусскийЯзык интерфейса: Русский (7 Волк)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BCA4CE2ACFA04AF79A5EF8EE7F9506D127CD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493232   (248616) от 07.05.2012
 
 Total Control (RePack) [Ru] 1995 | Pilotus
@@ -6,7 +58,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248616.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247737.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247405.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247002.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Comanche 4 / Команч 4 (2001) [Ru] (1.14) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246952.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246580.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246169.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ MechCommander Gold (1998) [Ru/En] (2.1.0.3/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246072.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246070.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242378.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241091.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237632.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236481.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236415.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236275.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234043.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233750.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233451.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233314.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233127.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231934.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231513.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231452.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230422.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B37E69CE6EFAA6279E023AC8B01531D1154B8E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512883   (228082) от 26.11.2021
-
-Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры стартует, словно гоночный автомобиль. Вот мы в роли молодого ученика местной магической школы по имени Sareth ищем в какой-то пещере, забитой врагами, некий могущественный артефакт. Вот прибываем в город и буквально сразу же вступаем в схватку с гигантским циклопом, крушащим дома и пожирающим людей. Дальше - больше. Эти вот выходцы из средневекового наркодиспансера (   Читать дальше...   )Тип издания: LicenseРазработчик: Arkane Studios, Floodgate Entertainment, Kuju EntertainmentЖанр: Экшены, Ролевые игрыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649963   (227231) от 30.07.2023
-
-Traffic Giant (2001) [En] (1.0.0.0) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Traffic Giant - это удивительная игра-симулятор, которая выводит общественный транспорт на правильный путь. Вы управляете целым парком автобусов, трамваев, поездов метро и многим другим. Вы почувствуете реалистично функционирующее городское движение с тысячами транспортных средств и пешеходов. Вы можете спросить каждого жителя, что он или она думает и чувствует.Тип издания: LicenseРазработчик: QLOCЖанр: Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C7A51FD62C367211EBC7D16B9321B29F52F600
 ```
 
 https://mybot314.ru/tekegram_catalog/

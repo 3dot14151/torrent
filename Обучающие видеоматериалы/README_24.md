@@ -1,3 +1,30 @@
+###  Публикация: 1444993   (1033911) от 04.02.2021
+
+James Schauf | Vehicle Modeling for Production (2018) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033911.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе James Schauf поделится своими методами/подходами на примере моделирования хотрода в стиле Безумного Макса.
+Начнет James с пояснения значимости этапа сбора референсных изображений, которые при последующей разработке и моделировании будут направлять, ориентировать, вдохновлять, служить основой и источником идей.Производство: The Gnomon WorkshopЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 08:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34054EABB895CF7E651C14C48B0C04EF2A88ABF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445020   (1033908) от 04.02.2021
 
 Сауле Кха | Строим позы (2020) PCRec
@@ -6,7 +33,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033908.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033905.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033900.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033875.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ James Schauf | Vehicle Texturing in Substance Painter: From Clean to Mean (2018)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033869.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ CodeWithMosh, Mosh Hamedani | The Ultimate HTML/CSS Mastery Series. Part 1-3 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033867.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ Udemy, Stephen Grider |  Microservices with Node JS and React (2021) PCRec [En /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033864.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ Waqas Qazi | Freelance Colorist (2020) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033859.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ Udemy, Ben Tristem и др. | Discovering Godot: Make Video Games in Python-like
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033853.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033851.jpg" />
 </div>
 
 
@@ -282,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033849.jpg" />
 </div>
 
 
@@ -311,7 +338,7 @@ FXPHD, Jeronimo Maggi | Taking Houdini Digital Assets to the Next Level (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033820.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ Steven Knipping | Applied Houdini Dynamics I (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033729.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ Udemy, Nick Walter | Django 3 - Full Stack Websites with Python Web Development 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033660.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033658.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ Jerry Ghionis | The Art of Wedding Photography - COMPLETE TRAINING BUNDLE (2020)
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033650.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ Steven Knipping | Applied Houdini Dynamics IV (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033537.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ Steven Knipping | Applied Houdini Dynamics II (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033535.jpg" />
 </div>
 
 
@@ -498,7 +525,7 @@ Steven Knipping | Applied Houdini Dynamics III (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033531.jpg" />
 </div>
 
 
@@ -524,7 +551,7 @@ Steven Knipping | Applied Houdini Rigids II (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033526.jpg" />
 </div>
 
 
@@ -550,7 +577,7 @@ Steven Knipping | Applied Houdini Dynamics V (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033525.jpg" />
 </div>
 
 
@@ -576,7 +603,7 @@ Steven Knipping | Applied Houdini Rigids III (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033511.jpg" />
 </div>
 
 
@@ -602,7 +629,7 @@ Steven Knipping | Applied Houdini Rigids I (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033510.jpg" />
 </div>
 
 
@@ -628,7 +655,7 @@ Steven Knipping | Applied Houdini Dynamics VI (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033503.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ Sebastian Otto | HyperHyperlapse Masterclass (2021) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033493.jpg" />
 </div>
 
 
@@ -666,32 +693,6 @@ HyperHyperlapse - это идеальный мастер-класс для ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF3147B220A6C9A2D396B60E238FD85E2163F557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445666   (1033492) от 06.02.2021
-
-Steven Knipping | Applied Houdini Rigids IV (2016) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033492.jpg" />
-</div>
-
-
-###  Подробнее
-
-pplied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41381CE83811A6BE3CA3BCD67E5160B41F028C55
 ```
 
 https://mybot314.ru/tekegram_catalog/

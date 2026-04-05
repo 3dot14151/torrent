@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431451.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431418.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431108.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430944.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430761.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430043.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430041.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429860.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429445.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Reece Mastin - Change Colours (2015) [AAC|256 кб/с]<Pop, Pop Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429418.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Sirenia - At Sixes And Sevens (2002) [AAC|256 кб/с]<Death-Doom, Gothic Metal,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429409.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Hurts - Surrender (Deluxe) (2015) [AAC|256 кб/с]<Synthpop, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429328.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Ramin Djawadi - Железный человек / Iron Man (2008) [AAC|WEB-DL|25
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429324.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Disturbed - Immortalized (Deluxe Edition) (2015) [AAC|256 кб/с]<Alternative M
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429173.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Five Finger Death Punch - Got Your Six (Deluxe Version) (2015) [AAC|256 кб/с]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428960.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428924.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428237.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428068.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428001.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428000.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427901.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427829.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427752.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427653.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427574.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427287.jpg" />
 </div>
 
 

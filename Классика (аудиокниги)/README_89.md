@@ -1,3 +1,30 @@
+###  Публикация: 358168   (47046) от 12.08.2024
+
+Фёдор Сологуб | Красота. Собака. Турандина (Радиоспектакль) (2007) [MP3, Александр Клюквин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературная коллекция «Забытые классики».
+Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.Жанр: Русская литература, классика, рассказВ ролях: Александр Клюквин, Наталья Литвинова, Алина Покровская и др.Издательство: Радио РоссииПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727FB9299EAA6C7D0A159205E3D2FD8367122AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 414401   (46553) от 17.08.2024
 
 Чингиз Айтматов | Плаха (2008) [MP3, Пётр Коршунков]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46553.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46526.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46439.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46416.jpg" />
 </div>
 
 
@@ -117,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45936.jpg" />
 </div>
 
 
@@ -145,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45913.jpg" />
 </div>
 
 
@@ -174,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45898.jpg" />
 </div>
 
 
@@ -201,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45890.jpg" />
 </div>
 
 
@@ -229,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45885.jpg" />
 </div>
 
 
@@ -257,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45828.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45806.jpg" />
 </div>
 
 
@@ -312,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45798.jpg" />
 </div>
 
 
@@ -339,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45495.jpg" />
 </div>
 
 
@@ -367,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45488.jpg" />
 </div>
 
 
@@ -395,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45487.jpg" />
 </div>
 
 
@@ -422,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45134.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44476.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44364.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44340.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43620.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43511.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42992.jpg" />
 </div>
 
 
@@ -614,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42771.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42473.jpg" />
 </div>
 
 
@@ -671,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42461.jpg" />
 </div>
 
 
@@ -684,33 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CCCC151C52088CA694E0E89DA1C0B1754BDDB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751527   (42412) от 25.09.2024
-
-Александр Куприн | Суламифь (2014) [MP3, Михаил Горевой]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
-Суламифь – это сказочная и поразительная история любви. Царь Соломон неотразимо красив, у него было 700 жён и 300 наложниц, а (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ИП Сергей ГригорянПродолжительность: 02:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B707085CE5174C67D798C2CD74175878DE3047
 ```
 
 https://mybot314.ru/tekegram_catalog/

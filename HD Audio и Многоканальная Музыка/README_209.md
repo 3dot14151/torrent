@@ -1,29 +1,3 @@
-###  Публикация: 1803854   (65739) от 26.06.2025
-
-Muse - Unravelling (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unravelling [00:03:58]Жанр: PopПродолжительность: 00:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C23B3F6A6D60D7DF3126B397BEE9BEC539DC81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803912   (65736) от 26.06.2025
 
 Muzzy - Do You Know the Muzzy Man (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -32,7 +6,7 @@ Muzzy - Do You Know the Muzzy Man (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65736.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Gregory James Falcon - Something Blue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65735.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ Wisemary - Awake (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65734.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ The Red Moon Macabre - Baleful Gathering (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65733.jpg" />
 </div>
 
 
@@ -148,7 +122,7 @@ Lord Belial - Unholy Trinity (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65730.jpg" />
 </div>
 
 
@@ -177,7 +151,7 @@ Rosetta West - Gravity Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65729.jpg" />
 </div>
 
 
@@ -206,7 +180,7 @@ A-Z - A2Z² (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Progressive H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65728.jpg" />
 </div>
 
 
@@ -235,7 +209,7 @@ Wicked Bluesman - Dreams & Destiny (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65725.jpg" />
 </div>
 
 
@@ -264,7 +238,7 @@ Triumph - Magic Power: All Star Tribute to Triumph (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65724.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Abys - Telegraph (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65722.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Mint Club - Slice Of Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Punk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65719.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ Lorde - Virgin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Electropop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65714.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ Royale Lynn - Black Magic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65710.jpg" />
 </div>
 
 
@@ -409,7 +383,7 @@ Peter Gabriel - In The Big Room (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65708.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ Related to Strangers & Matthew. - Ghost (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65702.jpg" />
 </div>
 
 
@@ -467,7 +441,7 @@ Frank Zappa, The Mothers Of Invention - Cheaper Than Cheep: The Soundtrack (Live
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65698.jpg" />
 </div>
 
 
@@ -496,7 +470,7 @@ Zig Zags - Deadbeat At Dawn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65695.jpg" />
 </div>
 
 
@@ -525,7 +499,7 @@ Nathan East & Noah East - Father Son (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65694.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Sonic Mood - Sunny Guitars - Neo Jazz LoFi (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65693.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Adrian Quesada - Boleros Psicodelicos II (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65691.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ Orianthi - Some Kind of Feeling (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65685.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ Mute Balloon - Out of the Red (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65683.jpg" />
 </div>
 
 
@@ -670,7 +644,7 @@ Qbiq - Endless Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65682.jpg" />
 </div>
 
 
@@ -699,7 +673,7 @@ Shiver. - Topsfield Fair (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65681.jpg" />
 </div>
 
 
@@ -728,7 +702,7 @@ Steve Marriner - Hear My Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65678.jpg" />
 </div>
 
 
@@ -742,6 +716,35 @@ Steve Marriner - Hear My Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7ACCE9512AAF5086CFD74D138F7258DF5CB05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804296   (65677) от 28.06.2025
+
+Tommy Baldwin - Nappy Headed White Boy (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Feel It (3:03)
+02.  Summertime Lovin' (3:13)
+03.  Sooner or Later (4:22)
+04.  Stay Awhile (5:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67D0DF76ADE93FEED1DA63008DDA2C2456B725B
 ```
 
 https://mybot314.ru/tekegram_catalog/

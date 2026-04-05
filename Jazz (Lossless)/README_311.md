@@ -6,7 +6,7 @@ Anita O'Day - The Breakfast Show (1964) 2007, Emily Productions [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115814.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115798.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115676.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115675.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rodney Whitaker - All Too Soon: The Music Of Duke Ellington (2017) 2019, Origin 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115674.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sullivan Fortner - Moments Preserved (2018) Impulse! [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115673.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kjell Karlsen Big Band - Edvard Grieg In Jazz Mood (2008) Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115663.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Blue Mitchell - Graffiti Blues (1973) 1993, Mainstream Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115482.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Einar Haavik Kvartett - On A Sentimental Journey (1999) Bjarne Recordings [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115312.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Sahib Shihab Quintet - Seeds (1968) 2008, Rearward [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115175.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Marian McPartland - Contrasts (1992, 1994) 2CD, 2003, The Jazz Alliance [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115157.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115156.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sahib Shihab - Jazz Joint 2: Companionship (1971) 2007, Anti-Magnetic [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114818.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Marian McPartland - Windows (1979, 1980) 2CD, 2004, Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114807.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Marian McPartland & Friends - 85 Candles: Live In New York (2005) 2CD, Concord J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114806.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rhonda Burchmore - Cry Me a River: The World Of Julie London (2013) ABC Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114802.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sahib Shihab - Sentiments (1965, 1971) 2005, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114787.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114661.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Pearl Django - Modern Times (2007) Modern Hot Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114644.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ George Rabbai & Brian Betz Trio - Muted Bebop (2006) Dreambox Media [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114626.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Houston Person - Truth! (1968, 1970) 1999, Prestige [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114624.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lars Gullin - Portrait of the Legendary Baritone Saxophonist: Complete 1951-1955
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114622.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Avi Yifrah, Asher Fedi - The Avi Yifrah / Asher Fedi Project (2024) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114620.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Donald Byrd - A City Called Heaven (1991) Landmark Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114614.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ben Webster & Buck Clayton - Ben And Buck (1967) 1995, Storyville Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114481.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Clare Fischer & Salsa Picante - Crazy Bird (1985) Discovery Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114480.jpg" />
 </div>
 
 

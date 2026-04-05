@@ -1,3 +1,32 @@
+###  Публикация: 1346915   (154719) от 21.12.2019
+
+devtodev | Введение в геймдев (2019) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задумала этот курс уже много лет назад. Реализовывала его в виде текстового документа и инструктажей по его использованию для новых сотрудников. Постепенно об этом документе узнавали друзья из индустрии и просили доступ.
+Но всем желающим отдельный инструктаж не проведешь!
+Стало сложно успевать это делать даже внутри своей компании.
+Хватит это терпеть, подумалось (   Читать дальше...   )Производство: devtodevЖанр: Разработка игрПродолжительность: 10:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E9349DEC0B50E89DE55F0DED3046F91B3D33A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600808   (154707) от 28.12.2022
 
 BAS, Павел Дуглас | Курс по BAS (2022) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@ BAS, Павел Дуглас | Курс по BAS (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154707.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154693.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Learn Squared, Maxx Burman | Intro to Matte Painting (2017) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154673.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Shultais Education | Проектирование баз данных (2018) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154669.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Convert Monster | Тренды интернет-маркетинга 2018 (2017)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154633.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Skillbox, Оксана Осадченко | Fashion-скетчинг (2021) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154622.jpg" />
 </div>
 
 
@@ -173,7 +202,7 @@ Shultais Education | Расширенные возможности SQL (2019) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154602.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ Udemy.com | Photoshop CC 2020 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154592.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ Shultais Education | Основы SQL (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154552.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Udemy, Roman Dushkin | Основы криптографии и подстано
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154545.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154524.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop 2023: Adobe Camera 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154503.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ Skillbox, Евгений Мирошниченко  | Шахматы с нуля 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154498.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154496.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Slurm (Слёрм) | Асинхронное программирование н�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154493.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154486.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Associate (SAA-C03) (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154476.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154360.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154204.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154170.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154165.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154129.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154111.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154100.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154093.jpg" />
 </div>
 
 
@@ -683,33 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A68C11117A1709014AFD5C9655270923E4D62B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676809   (154052) от 15.11.2023
-
-Елена Реунова, Марина Тушевская | Будилка-Переходилка. Переход в ТАК (2020) HDRip [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все то, что вы видите, создано вами, а именно вашими мыслями, которые бесконтрольно воспроизводятся вашим умом. Вы можете соглашаться с этим или не соглашаться, можете позволить вашему уму играть в свою игру, а можете взять управление процессом на себя.
-Предлагаем вам сделать первый переход - «Переход в ТАК». В ТАК, как лучше для вас, в ТАК, как вы определили для (   Читать дальше...   )Жанр: психология, саморазвитиеЯзык озвучки: РусскийПродолжительность: 55:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E689B22549A28E9013EB786253D6DB495C670E42
 ```
 
 https://mybot314.ru/tekegram_catalog/

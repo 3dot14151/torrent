@@ -1,3 +1,133 @@
+###  Публикация: 1465785   (1018689) от 28.04.2021
+
+Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018689.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2014 году инопланетяне предстали перед человечеством и предложили сделку. За каждую тонну известняка они пообещали дать людям одну мощную боевую единицу под названием Exoframe — это трёхметровая меха, которая эффективнее, дешевле и проще в эксплуатации, чем какое-либо другое оружие землян. После этого «бартера» обстановка на Земле начала стремительно меняться. (   Читать дальше...   )Производство: Buemon / 武右ェ門Жанр: приключения, фантастика, мехаРежиссер: Сирато СэйитиЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 6 эп. по 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9BA4523FC3A1BB99A56512E1E9B08244C0A29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466557   (1018334) от 30.04.2021
+
+Маг-целитель: Новый старт | Kaifuku Jutsushi no Yarinaoshi | Redo of Healer [2021, TV, 12 из 12] HDTVRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018334.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Фэнтези о мести» расскажет историю Кэяруги (Кэяру) — мага-целителя, которого тупо используют его «друзья»-авантюристы для достижения своих целей. Ведь целители не могут сражаться. Однако Кэяруги удаётся преодолеть пределы возможностей, доступных обычному целителю, но уже поздно, его лишили всего. Поняв, что целитель на самом деле сильнейший класс, Кэяруги применяет (   Читать дальше...   )Производство: Япония, TNKЖанр: Приключения, этти, фэнтезиРежиссер: Асаока ТакуяЯзык озвучки: Русский (многоголосый)Субтитры: Русские (внешние, отдельной папкой)Продолжительность: 12 х ~ 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2AFB6AC72BE5F19B42FEE7A748E632F2142283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467040   (1017882) от 03.05.2021
+
+Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычному старшекласснику Канамэ Судо приходит сообщение с приглашением в загадочную мобильную игру «Darwin's Game». Стоило ему запустить приложение, как он стал частью игры, в которой игроки сражаются между собой, причём каждому из них дана сверхъестественная способность — сигил. Сможет ли Канамэ победить сильных противников и выжить в игре, где цена ошибки — смерть? (   Читать дальше...   )Производство: Студия NexusЖанр: приключенияРежиссер: Токумото ЁсинобуЯзык озвучки: Японский, РусскийСубтитры: #1: Русские, ASS, Полные+надписи |Продолжительность: 11 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82FC12BD517C9CC6F7806BFB61F3B581D2FB83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467241   (1017868) от 03.05.2021
+
+Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не любит [2020, Movie] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый рассуждает о любви по-своему. Для Юны романтика превыше всего, в то время как Акари чересчур приземлённа и практична в своих взглядах. Но девушки есть девушки. А что насчет парней? Те, оказывается, недалеко ушли от своих подруг. У Кадзуоми ветер в голове, и парень будто ничего не смыслит в вопросах любви. А вот Рио времени зря не теряет и не упускает ни одной (   Читать дальше...   )Производство: A-1 PicturesЖанр: комедия, романтикаРежиссер: Куроянаги ТосимасаЯзык озвучки: японский, русскийСубтитры: отсутствуютПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD58687280A182E51309C37D9BCF01A2A8B5FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462740   (1017330) от 06.05.2021
+
+Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | Может, я встречу тебя в подземелье? [ТВ-3] [2020, TV, 12 из 12 + OVA] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орарио. Город, ставший домом для многих богов, знаменитый своим подземельем, которое ведёт к неизведанным глубинам. Богиня Гестия всё так же заботится о своём единственном подопечном — начинающем авантюристе Белле Кранеле. Но теперь на юношу, которому быстрее всех на свете покорился второй уровень, многие смотрят с интересом. Значит, впереди героя ждут лабиринт, (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Татибана ХидэкиЯзык озвучки: Японский, РусскийСубтитры: Русские, ASS, Полные + надписи |Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1931E997E2657D70BA3F58246A3F391956014301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468319   (1017038) от 08.05.2021
 
 Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Нацумэ [ТВ-1] [2008, TV, 13 эп.] BDRip 1080p raw+rus
@@ -6,7 +136,7 @@ Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017038.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016564.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016507.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016344.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Mach Go Go Go | Speed Racer | Гонщик Спиди [1967, TV, 52 из 52] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015282.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Saiyuuki | Alakazam the Great | Путешествие на Запад | Вел�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013988.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ Eizouken ni wa Te o Dasuna! | Keep Your Hands Off Eizouken! | Руки проч�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013521.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011272.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Ме
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011093.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ Air | Высь [2005, TV, 12 эп.] SDTV 720p rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010732.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Ги�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009918.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ UFO Robo Grendizer | Grandizer | Инопланетный робот Гренд�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009502.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009061.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008775.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ Ayashi no Ceres | Ceres: Celestial Legend | Подозрительная Цер�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008225.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ Fruits Basket the Final TV-3 | Корзинка фруктов: Финал ТВ-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007953.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Я 300 ле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007938.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken / The Slime Diaries: That Time I G
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007657.jpg" />
 </div>
 
 
@@ -481,7 +611,7 @@ Zombie Land Saga Revenge / Зомбиленд. Сага [ТВ-2] [2021, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007654.jpg" />
 </div>
 
 
@@ -509,7 +639,7 @@ Majo Minarai o Sagashite | Looking for Magical Doremi | Дореми: В пои�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007523.jpg" />
 </div>
 
 
@@ -535,7 +665,7 @@ Hyper Police | Гиперполиция [1997, TV, 25 из 25] DVDRip 478p 10-bi
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006577.jpg" />
 </div>
 
 
@@ -547,140 +677,6 @@ Hyper Police | Гиперполиция [1997, TV, 25 из 25] DVDRip 478p 10-bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9258330FCB4D01AC15E52319CDCB31FD62CF9509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483658   (1006572) от 15.07.2021
-
-Boys Be... | Мальчишки есть мальчишки [2000, TV, 13 + 1] DVDRip 720p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006572.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждой любовной истории есть две стороны. Как водится, одну сторону представляют девочки, другую — мальчики. И, конечно же, ни одна любовная история не обходится без своих героев, от чьего лица ведётся рассказ. «Мальчишки есть мальчишки» повествует о том, как на самом деле выглядят отношения двух влюблённых с точки зрения одной из сторон — парней.
-Три забавных (   Читать дальше...   )Производство: Hal Film Maker / ハルフィルムメーカーЖанр: романтика, комедия, повседневностьРежиссер: Симода МасамиПеревод: KoKoRo FansubsЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 13 эп. по 25 мин. + 1 спешиал на 7 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749FCA9BD3B5393274B326848D284730423BE43E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484576   (1005975) от 20.07.2021
-
-Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сильнейший герой, обученный в тайном подземелье [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди множества подземелий существуют особые, «скрытые» подземелья. Единицы попадали и выходили оттуда живыми, и в слухах об опасностях и сокровищах, что там хранятся, уже не поймёшь, где правда, а где — вымысел. Но именно такое подземелье находит Нуар Стардия, выходец из семьи бедного баронета. Так и начались его приключения.
-© crunchyrollПроизводство: Студия Okuruto Noboru / オクルトノボルЖанр: приключения, комедия, фэнтези, эттиРежиссер: Ониси КэнтаЯзык озвучки: Японский и русскийСубтитры: Русские, ASS, Полные+надписи (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715D0C1C1F4448B5FD923529167BB248B6B906B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483751   (1004661) от 31.07.2021
-
-Kamisama ni Natta hi | The Day I Became a God | День, когда я стала богом [2020, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004661.jpg" />
-</div>
-
-
-###  Подробнее
-
-В день, когда она стала богом… Был предрешён конец света. Для Тайё Наруками наступили последние летние каникулы в старшей школе. Он учится дни напролет, готовясь к скорому поступлению в университет… Но однажды перед ним, откуда ни возьмись, появляется Хина и заявляет, что она богиня знаний. «Конец света наступит через тридцать дней», — предрекает она. Наруками, конечно, (   Читать дальше...   )Производство: Студия P.A. Works / ピーエーワークスЖанр: повседневность, романтика, драмаРежиссер: Асай ЁсиюкиСубтитры: Русские, ASS, Полные+надписи (Wakanim - andromeda88)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C36689B169D242D851CAB538E54CE3DF8AD643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486927   (1004252) от 02.08.2021
-
-Ima, Soko ni Iru Boku | Now and Then, Here and There | Здесь и сейчас [1999, TV, 13 из 13] DVDRip 576p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сю - обычный японский парень, он всегда бодр, оптимистичен и решителен. Однажды он увидел загадочную девушку, сидящую на высокой трубе и любующуюся закатом. Он лишь успел узнать, что её зовут Лала-ру, как на них напали неизвестные. Сю хотел спасти новую знакомую, но в результате они оба были перенесены в странный пустынный мир. Сю вскоре сталкивается с истинными (   Читать дальше...   )Производство: AICЖанр: приключения, драма, фэнтезиРежиссер: Дайти АкитароПеревод: TenkoseЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC7A0F45F0C3AF5B1166214F8DFC41570053C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486859   (1004248) от 02.08.2021
-
-Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, Баки Ханма, тренируется с большим упором для того, чтобы превзойти своего отца, Юджиро Ханма, самого сильного бойца в мире. Пятеро из самых жестоких и брутальных в мире смертников объединяются, что бы встретиться с Баки. Их главная задача - почувствовать вкус поражения, в надежде, что Баки сможет сокрушить и полностью раздавить их. В этом сумасшествии (   Читать дальше...   )Производство: Япония, TMS EntertainmentЖанр: Боевые искусства, спортРежиссер: Хирано ТосикиВ ролях: Симадзаки Нобунага, Оцука Акио, Суго Такаюки, Симада Бин, Кояма Рикия, Эгути ТакуяЯзык озвучки: Японский; Русский
-- любительский многоголосый Kansai (серии 01-25)
-- любительский одноголосный закадровый JAM (серии 01-26))Субтитры: Русские (перевёл Виталий Тарасов)Продолжительность: 26 серий по ~23 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F323AA4136E8381FB7DD485154A9CEF1AC44C14
 ```
 
 https://mybot314.ru/tekegram_catalog/

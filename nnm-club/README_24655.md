@@ -1,24 +1,25 @@
-###  Публикация: 1779742   (70642) от 14.02.2025
+###  Публикация: 1777253   (71099) от 05.02.2025
 
-Шрифты - Creative Market - Blue Mirage - 290875593 [OTF, TTF, WOFF]
+Dream Theater - Parasomnia (2025) [FLAC|Lossless|tracks] <Progressive Metal>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Blue Mirage — это современный шрифт с засечками с высокой контрастностью и элегантными изгибами, больше, чем просто красивое начертание.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF
+01 In The Arms Of Morpheus (5:22)
+02 Night Terror (9:55)
+03 A Broken Man (8:30)
+04 Dead Asleep (11:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACE8EED9925F5F5CEFD8069BC4A13105E02EE066
+magnet:?xt=urn:btih:0C0E004EEC667DAC623715332399B8328453EB56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,28 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779619   (70641) от 14.02.2025
+###  Публикация: 1777239   (71098) от 05.02.2025
 
-VA - Black Hole Trance Music 02-25 (2025) [MP3|320 Kbps] <Trance>
+Спенсер Уэллс | Генетическая одиссея человека (2018) [MP3, Андрей Курилов]
 
->>Electronic
->>Trance
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Richard Durand - Sugarphoria (Extended Mix) [5:44]
-02. Cosmic Gate & Christian Burns - Brave (ATB's Extended Anthem Remix) [6:36]
-03. Driftmoon & Hel:Sløwed - Orion (Misja Helsloot Extended Remix) [7:26]
-04. RAM & Roxanne Emery - Echoes (Craig Connelly Extended Remix) [8:14](   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:24
+Около 60 000 лет назад в Африке жил человек. Каждый из нас – его потомок. Как же этот реально существовавший Адам стал нашим общим отцом, и какой путь проделали его дети и внуки, чтобы заселить практически все уголки нашей Земли?
+Ответы на эти вопросы дают достижения генетики, ставшие доступными неподготовленному читателю благодаря остроумной, полной удивительных (   Читать дальше...   )Жанр: Эволюция и антропология, Эволюция человечестваИздательство: ЭВЕРБУКПродолжительность: 08:45:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B7414189CA46064D20AB653AFCB632D68F49D35
+magnet:?xt=urn:btih:2E9A2E91555C1C914AD062C09E52CD0DF3A05910
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779587   (70640) от 14.02.2025
+###  Публикация: 1777374   (71097) от 05.02.2025
 
-VA - Armin van Buuren - A State Of Trance 1212 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Magic Eraser / Магический ластик v2.18.2 Mod by Maximoff⁠ [Ru/Multi]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BLR & Amber Revival – Love Me Endless (Tune Of The Week)
-02. Arodes – Kidz (CamelPhat Remix)
-03. Claptone & Chicane ft. Moya Brennan – Saltwater
-04. Giuseppe Ottaviani pres. Ottagon ft. Lake Silver – Dust(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:07
+Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 04.02.2025Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31F6A5723BEA8A06118C3610AF7D639F47A53F2C
+magnet:?xt=urn:btih:A008F9676A818E56B209967D6D8B7701639988B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,29 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779618   (70639) от 14.02.2025
+###  Публикация: 1777389   (71096) от 05.02.2025
 
-Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Giorgio Moroder & Raney Shockne - Queen of the South (Original Series Soundtrack) (2018) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthwave, Synth-pop, Ambient>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шведские хард-рокеры CRAZY LIXX выпустят новый студийный альбом “Thrill Of The Bite” 14 февраля 2025 года на лейбле Frontiers Music Srl.
-“Thrill Of The Bite” обещает поднять музыку CRAZY LIXX на новые высоты. На альбоме масса мощных гимнов, запоминающихся риффов и мелодий, зажигательных гитарных соло и могучей энергетики, которую фэны уже привыкли ждать от группы. (   Читать дальше...   )01.    Highway Hurricane  03:36
-02.    Who Said Rock N’ Roll Is Dead  03:02
-03.    Little Miss Dangerous  06:10
-04.    Call Of The Wild   04:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:17
+01. The Queen Of The South
+02. Escapar
+03. Cemetry Stroll
+04. Everybody Wants To Rule The World(   Читать дальше...   )Жанр: Synthwave, Synth-pop, AmbientПродолжительность: 01:10:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4583DDDAB3DDFC9B3566715980B0860BED5B984F
+magnet:?xt=urn:btih:249815DBBDB23469D409D947A9DED0177E10FCB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,195 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779748   (70638) от 14.02.2025
+###  Публикация: 1777167   (71095) от 05.02.2025
 
-Шрифты - Creative Market - Across Corner Font - 290875836 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Across Corner, потрясающий шрифт с засечками, сочетающий в себе вневременную элегантность с современной эстетикой. Смелый и пленительный шрифт, который соединяет элегантность средневековых засечек с резким очарованием темного футуристического дизайна.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E871DD8EF5717D377B9100E57E1DD5407FE3B6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779616   (70637) от 14.02.2025
-
-Журнал | Профиль №5-6 (247) (февраль 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34EF99F5A944F1B43F2860BE96845082EF5DA9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779660   (70636) от 14.02.2025
-
-Шрифты - Creative Market - Square Byte - Modern Pixel Font - 290873883 [OTF, TTF. WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шагните в яркий ретро-мир с Square Byte, современным пиксельным шрифтом, вдохновленным золотым веком классических видеоигр! Благодаря смелому, блочному дизайну и уникальному стилю этот шрифт идеально подходит для всех ваших творческих потребностей.
-
-Кириллица не поддерживается.Формат: OTF, TTF. WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D4E6BFFFADACB33ADB0DAE08C719F96D1E20C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779597   (70635) от 14.02.2025
-
-Журнал | Здоровье №1-2 (812) (январь-февраль 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ИД журнала «Здоровье»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A92F5D3320EF3EB4F44A9673AC2463F4F989932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779609   (70634) от 14.02.2025
-
-VA - Winter Tech House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fluction - XTC's (3:08)
-02. Amiy - Make Your Mind (2:26)
-03. Nikk - My Zone (3:02)
-04. Rush - Fruity (2:45)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BC9CACEEE4EA595F5A47B72818B4F29A0A9614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779733   (70633) от 14.02.2025
-
-Ginger Evil - The Way It Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rainmaker (3:31)
-02.  Dead On Arrival (4:01)
-03.  Shame Old (3:33)
-04.  Flames (4:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D55C4E5ADEA71F76F86DAC4614E9DFCB5ACBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779475   (70632) от 14.02.2025
-
-Fidel Wicked - Compilation (2025) [MP3|320 Kbps] <Electronic>
+VA - Spacesynth Forever 3 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  L'amour
-  02.  Wicked Angel
-  03.  Sadness
-  04.  Fidelity(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:29:39
+01. 7he Myriads - Spacer (5:11)
+02. 16th channel - Deep Pink (You!) (4:19)
+03. Anssi H - Linear Dimensions (4:51)
+04. Apoxyz - Space Tank (4:22)(   Читать дальше...   )Жанр: Spacesynth, Synth-DanceПродолжительность: 04:27:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C865DC7808A1BDBB44E706B47D3B5C9D0D8044F2
+magnet:?xt=urn:btih:4E97B7D72D018699F4B843FD78594B6A90661705
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,107 +138,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779703   (70631) от 14.02.2025
+###  Публикация: 1777352   (71094) от 05.02.2025
 
-Двухминутное предупреждение / Two-Minute Warning (1976) BDRip [H.264] [EN / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе Джорджа Лафонтена... Снайпер-психотик планирует массовое убийство на футбольном стадионе в Лос-Анджелесе во время крупного чемпионата. Полиция во главе с капитаном Питером Холли и командиром спецназа сержантом Баттоном узнает о заговоре и спешит на место происшествия...Производство: США / Filmways PicturesЖанр: драма, криминал, детектив, триллерРежиссер: Ларри ПирсАктеры: Чарлтон Хестон, Джон Кассаветис, Мартин Болсам, Бо Бриджес, Мэрлин Хэссет, Дэвид Джэнссен, Джек Клагмен, Джина Роулендс, Уолтер ПиджонПеревод: субтитрамиЯзык озвучки: английскийСубтитры: русские (rsuk), английскиеПродолжительность: 01:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2640A86AE00E09F2BC6F3BE178AADA6C1E15CCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779599   (70630) от 14.02.2025
-
-Шрифты - Creative Market - Brighter Brush a Realistic SVG Font [OTF, TTF]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brighter Brush — реалистичный шрифт с кистью, созданный для любого профессионального брендинга проекта, например, логотипа, комикса, водяных знаков, плаката, брендинга, акций, упаковки продукта и т. д. Каждая буква имеет реалистичный стиль кисти.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8783B7164E4968142D1FE74B626703FC64BC5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778753   (70629) от 14.02.2025
-
-John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Modern Classical, Film Soundtracks, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Bateman & Czech National Symphony Orchestra - Hedwig's Theme (From "Harry Potter And The Philosopher's Stone") [1:29]
-02. John Williams, Anne-Sophie Mutter & The Recording Arts Orchestra of Los Angeles - Sayuri's Theme (From "Memoirs Of A Geisha") [4:44]
-03. John Williams - Gupta's Deliverance (The Terminal/Soundtrack Version) (   Читать дальше...   )Жанр: Classical, Modern Classical, Film Soundtracks, SoundtrackПродолжительность: 02:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87179B3297DBE0E58B570F99D009833A21FDD4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779598   (70628) от 14.02.2025
-
-Process Lasso Pro  15.1.0.41 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
+Desktop Calendar 3.21.221.6970 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Desktop Calendar – бесплатный календарь рабочего стола для операционных систем Windows. Авторы приложения сделали достаточно интересное решение календаря, переросшего в органайзер благодаря  своим функциям и техническим возможностям. Так, пользователь сможет не только узнать дату и созерцать графический интерфейс, но также сможет вести список дел, делать заметки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3333D2C2CC680C5E9FA4355A47509BBA589850F
+magnet:?xt=urn:btih:1AA6EC6A36907BFCB48567F27E4E2B40BDFF201A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,28 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779636   (70627) от 14.02.2025
+###  Публикация: 1777263   (71093) от 05.02.2025
 
-Юлия Коган - Соло на нервах (2025) [MP3|320 Kbps] <Pop>
+Илья Ильф, Евгений Петров | Двенадцать стульев (2024) [MP3, Кирилл Радциг]
 
->>Pop
->>Отечественная поп-музыка
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Соло на нервах
-2. Таблетка
-3. Быть для тебя
-4. Влюбились и выжили(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
+Роман Ильи Ильфа и Евгения Петрова «Двенадцать стульев» по праву считается эталоном сатиры и юмора. Единодушно любимый всеми читателями, этот роман вошел в «золотой фонд» русской и мировой литературы. Поиски брильянтов мадам Петуховой, спрятанных в одном из стульев мебельного гарнитура, – история, которая и по сей день вызывает искреннюю улыбку. Имена героев – обаятельных (   Читать дальше...   )Жанр: Юмор, сатира, аудиокнигаИздательство: INSPIRIAПродолжительность: 15:24:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:138C0C8891AC00A196443BA15C7C8AE6B0B3C469
+magnet:?xt=urn:btih:3EEEFC31F606DB79AB2DAE5C9F778F20F426F9EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,28 +190,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779507   (70626) от 14.02.2025
+###  Публикация: 1777391   (71092) от 05.02.2025
 
-Johnny Valdivia - Mandolin Cover Compilation (2025) [MP3|320 Kbps] <Instrumental, Easy listening, Cover>
+Vivaldi 7.1.3570.47 include standalone [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAE0CF3A21D8175B3DE97F5A71636131904A6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777363   (71091) от 05.02.2025
+
+Ventusky: Прогноз погоды v40.2 Mod by Alex.Strannik [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.02.2025Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7166B9368BC80AD2F4D72EEE05787DA31629D159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777252   (71090) от 05.02.2025
+
+Scatman John - Compilation (1995-2019) [MP3|320 Kbps] <Pop, Jazz, Scat rap, Dance>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Guetta, Johnny Valdivia - Lovers on the Sun
-02. Annalisa, Johnny Valdivia - Sinceramente
-03. Joe Dassin, Johnny Valdivia - Et Si Tu N'existais Pas
-04. Johnny Valdivia - The Beauty of Rose of Versailles(   Читать дальше...   )Жанр: Instrumental, Easy listening, CoverПродолжительность: 00:50:05
+01. Song Of Scatland (Song Of Scatland EP 1995)
+02. Scatman (Ski-Ba-Bop-Ba-Dop-Bop) (Scatman's World 1995)
+03. Let It Go (Go For More) (Let It Go EP 1996)
+04. Everybody Jam ! (Everybody Jam ! 1996)(   Читать дальше...   )Жанр: Pop, Jazz, Scat rap, DanceПродолжительность: 02:04:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC8546BB2F59AD5542BB850DE2CBC6729B68FDF9
+magnet:?xt=urn:btih:95E4A48F479F339AAFF978DF09388623F6D12211
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,28 +271,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779668   (70625) от 14.02.2025
+###  Публикация: 1777378   (71089) от 05.02.2025
 
-Les McCann - How's Your Mother (1967) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano jazz>
+Медицинские термины v3.7.8 Mod by vadj [Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love for Sale [7:11]
-02. I Can Dig It [8:24]
-03. Doin' That Thing [8:56]
-04. I Am in Love [6:09](   Читать дальше...   )Жанр: Hard Bop, Piano jazzПродолжительность: 00:49:40
+Медицинская терминология: поисковые слова и медицинский словарь.
+Медицинский справочник - это автономная энциклопедия медицинских терминов прямо на вашем устройстве. Более 40 тысяч тематических статей: определение медицинских терминов, словосочетаний, аббревиатур, расшифрованных на английском языке. Медицинское приложение содержит словарь наиболее часто используемых (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 04.02.2025Разработчик: Medical Group SoftПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8026C027612EFD6A1997FB233C80AB2DF59769D5
+magnet:?xt=urn:btih:0C333ABC0AFF8673448503A8F892FF445998B2D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,25 +298,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779522   (70624) от 14.02.2025
+###  Публикация: 1777286   (71088) от 05.02.2025
 
-Футбол. Чемпионат Германии 2024/25. Бундеслига 21-тур. Бавария (Мюнхен) - Вердер (Бремен) (07.02.2025) DVBRip [H264]
+Rossini & Hoffmeister - Quartets with Double Bass, Vol. 2 (2018) [DSD 2.0, DST 5.0 1bit/2822,4kHz |SACD-R] <Classical>
 
->>Спорт и активный отдых
->>Футбол
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во встрече предыдущего тура Бундеслиги мюнхенцы чуть было не нарвались на сенсационную потерю очков. «Вердеру» придётся несладко, ведь «Бавария» будет нацелена исправиться. Главный недостаток «Вердера» заметен невооружённым глазом. Результативность хорошая, но пропускает клуб чаще. А в Мюнхен бременцы отправляются ещё и без двух ведущих защитников. В игре предыдущего (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:48:29
+Rossini - Sonata No. 4 in B-flat major
+01. I. Allegro vivace (10:58)
+02. II. Andante (3:47)
+03. III. Allegretto (3:05)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:33:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7130E3487B83638B9C0EC156FB9A934F9FCB1DC
+magnet:?xt=urn:btih:C85A60B75ECEAD737A35FB5D6457D72E6954E897
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,28 +327,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779721   (70623) от 14.02.2025
+###  Публикация: 1776426   (71087) от 05.02.2025
 
-Алексей Николаевич Толстой | Сорочьи сказки (2013) [MP3, Александр Котов]
+Растровый клипарт - Dealjumbo.com - Deeezy - Beach Gems FREE 3D Alphabet - 59623 [PNG]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
-Для детей дошкольного возраста предлагается сборник сказок А.Н. Толстого, в который вошли сказки о природе.
-
- Алексей Николаевич Толстой (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:45:31
+Бесплатный алфавит-кириллица и латиница в виде пляжных стёклышек. Материал раздается с официальной документацией.
+Кириллица и увеличенные изображения (при помощи AI) до 2000 x 2000 от "He Rez AD".Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900, 2000 x 2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6237058E2EB956433CEA6D302539B79584CEEA6
+magnet:?xt=urn:btih:70D5936CC5DBF27E341A5DDE38D5BD28DFC25FCA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,28 +354,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779661   (70622) от 14.02.2025
+###  Публикация: 1776629   (71086) от 05.02.2025
 
-Dick Hyman - Plays The Great American Songbook (1994) 2CD, MusicMasters Jazz [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+Растровый клипарт - Dealjumbo.com - Deeezy - Electro - Free 3D Lettering - 32078 [PNG]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Easter Parade [2:52]
-02. Liza [4:36]
-03. Woman's Prerogative [4:47]
-04. All Through the Night [4:31](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 02:05:00
+Бесплатный алфавит-латиница в виде начинки электроники. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CD2101B9897BDCC1A392EA09ECB728880512CD7
+magnet:?xt=urn:btih:740BBDEA72616307294BA05C3918C9A1A9D8CB84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,25 +380,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779724   (70621) от 14.02.2025
+###  Публикация: 1776625   (71085) от 05.02.2025
 
-Обыватель / Enhver (1915) WEBRip [H.264/720p]
+Растровый клипарт - Dealjumbo.com - Deeezy - Cable - Free 3D Lettering - 31204 [PNG]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу фильма положена пьеса австрийского поэта Хуго фон Хофмансталя «Старая игра Энхвера», написанная в 1911 году и повествующая о «беспомощности и покинутости богатого любителя удовольствий перед лицом смерти» (цитата из оригинальной программы фильма). Короче, это нравоучительная история выбора приоритетов жизни. Выборе, который делает каждый из нас. И название (   Читать дальше...   )Производство: Дания / Filmfabrikken DanmarkЖанр: драма, немое киноРежиссер: Vilhelm GlückstadtАктеры: Питер С. Андерсен, Gudrun Houlberg, Lilly Jansen, Charles Løwaas, Питер Мальберг, Вальдемар Мюллер, Джонна Нейендам, Расмус Оттесен, Else Schiwe, Alfred SjøholmПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:51:50
+Бесплатный алфавит-латиница в виде кабеля. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE4710BFA4D69C14EB79F5C2907CBB391CA8F6FB
+magnet:?xt=urn:btih:804C0C6717AD52370AA8424AFF4F2AAC375CC047
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,85 +406,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779585   (70620) от 14.02.2025
+###  Публикация: 1777356   (71084) от 05.02.2025
 
-Элисон Гопник | Садовник и плотник (2019) [MP3, Чигинская Галина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига, которая развеивает популярные мифы о воспитании.
-Еще один научный аргумент в пользу того, что дети могут сами руководить своим обучением.
-Как передать детям традиции нашей культуры, при этом не навязывая их и давая новому поколению шанс двигаться дальше, вырабатывая свои совершенно новые ценности и двигая вперед всю цивилизацию? Как сделать так, чтобы (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияИздательство: АудиокнигаПродолжительность: 10:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DA83AF58024418D2C830E013DAC41396EBFF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779635   (70619) от 14.02.2025
-
-VA - Ori Uplift - Uplifting Only Episode 627 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tune Of The Year Vote 2024
-25. Nik Andre & Yuri Melnikov – Opera
-24. RAM & Arctic Moon with Stine Grove – A Billion Stars Above (Ciaran McAuley Remix)
-23. Michael Angelo, Lokka Vox – Take Me To The Stars(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8394B2C28C916CF02EC402701CEA596A576345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779658   (70618) от 14.02.2025
-
-VA - ADE Underground Amsterdam Sampler (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+VA - Kontor Top Of the Clubs: Jan 2025 (DJ Mix) (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Findike - Pyramids (Ramus Remix) [7:06]
-02. Findike - Recondite (Original Mix) [7:45]
-03. Furkan Sert - Turkey (Original Mix) [5:42]
-04. Nicola Saladino - No Name (Original Mix) [8:36](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:09:22
+01. Tiscore & MYT - Nur Der Rave (Mixed) (02:40)
+02. Niklas Dee - Around the World (feat. René Miller)Жанр: Dance, Club, House, ElectronicПродолжительность: 01:19:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0A9A751A5B2614F3CDC2B385B23761EE75B532D
+magnet:?xt=urn:btih:B9818FD3E6A5D556900B9C5FCECEAD05D0326BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +433,264 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779915   (70617) от 15.02.2025
+###  Публикация: 1777243   (71083) от 05.02.2025
 
-VA - Compilation part 143 (2025) [MP3|320 Kbps] <Electronic>
+Нюта Федермессер | Настоящее время (2024) [MP3, Нюта Федермессер]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Umar Keyn & Imazee - A Girl Alone
-02. Dndm & Umar Keyn & Davvi - You Said Forever
-03. Menda - Calmness
-04. Isskoy - Confident(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:53:19
+2024-й – год тридцатилетия паллиативной помощи в Москве. В 1994 году с запуска службы помощи на дому начал свою работу Первый московский хоспис, позднее названный в честь своего основателя Веры Миллионщиковой. Сегодня он является образцом организации паллиативной помощи в нашей стране.
+Хосписы в России – государственные бесплатные медицинские учреждения. Для того, (   Читать дальше...   )Жанр: Истории из жизниИздательство: Азбука-АттикусПродолжительность: 06:20:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EF9FD49E30229A5B7D134128E0C0A4FAC914FE3
+magnet:?xt=urn:btih:952987D57B247E7A3CC107DDE7BF9763566FAD83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777373   (71082) от 05.02.2025
+
+MusicBrainz Picard 2.13.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71082.jpg" />
+</div>
+
+
+###  Подробнее
+
+MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
+Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85BC170F61D2197A58010EA9ED4E89E30F6A1CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776634   (71081) от 05.02.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Vintage Metallic - Free 3D Lettering - 31965 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A594839EB7C7C3260B3EF7967A90346DC009B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777291   (71080) от 05.02.2025
+
+Газета | Азбука вязания №6 (июнь 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство “Газетный мир” представляет вашему вниманию журнал “Азбука вязания”. Если ваше хобби - рукоделие или вы всегда мечтали научиться вязать, то в этом журнале вы найдете множество полезных советов и техник. В каждом номере разбирается отдельная тема, и освещается вязание как на спицах, так и крючком.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960123E4D58DC40FFAB6F4FA66B1088102E06415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776639   (71079) от 05.02.2025
+
+Текстуры - protabsorkar11 - Deeezy - 20 Watercolor FREE Christmas Patterns - 90954 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные рождественские орнаменты.Разработчик: protabsorkar11Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BADA46BBDC5E15D8F17F0237AC7658C9CD17D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777372   (71078) от 05.02.2025
+
+Daff Moon Phase (Фазы Луны) v3.43 Mod by shv7net [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение показывает текущую фазу Луны, фазы Луны на любой месяц, и другую информацию о Луне, Солнце и восьми планетах солнечной системы в реальном времени. Программа позволяет посмотреть положение светил на простейшей небесной сфере, которую можно поворачивать на произвольный угол!
+Изображение фазы Луны с высокой точностью соответствует реальному для данного момента (   Читать дальше...   )Тип издания: ModРелиз состоялся: 04.02.2025Разработчик: Evgeny FedorischenkoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625055B2954944819E34883ABB7CC70A10B3A351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777278   (71077) от 05.02.2025
+
+Ад / Jigoku (1979) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проявление ада через грехи, стыд и желания деревенской семьи из высшего класса и материнского горя из могилы...Производство: Япония / Toei CompanyЖанр: ужасы, драмаРежиссер: Тацуми КумасироАктеры: Миэко Харада, Кёко Кисида, Рюдзо Хаяси, Куниэ Танака, Дзюн Хамамура, Кадзуко Инэно, Рэндзи Исибаси, Нобуо Канэко, Ёси Като, Хироми КуритаПеревод: любительский одноголосый закадровый (VO iDimo)Язык озвучки: русский, японскийСубтитры: русские (на песни и полные, sstonecold), английскиеПродолжительность: 02:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A62F5AEE6F608833EEC3A08C1E732D4FBF25CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776229   (71076) от 05.02.2025
+
+Шрифты - Gonia Font Family [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gonia — это семейство шрифтов с засечками, разработанное для использования во всех размерах. Благодаря большому диапазону насыщенности это семейство остается функциональным и разборчивым в малых размерах, в то время как его использование в более крупных размерах точек раскрывает более тонкие детали форм букв.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CD2803221121F60144CF1ACA98ADFF50642A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777376   (71075) от 05.02.2025
+
+GeoGebra 6.0.874.1 Classic + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71075.jpg" />
+</div>
+
+
+###  Подробнее
+
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95EE8105525A80A906E932A685DB34F3B17B3537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777361   (71074) от 05.02.2025
+
+Шрифты - Schaberstein Font Family by Typogama [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Schaberstein — это семейство шрифтов без засечек, которое переосмысливает шрифт Steinschaber, использовавшийся первым печатником в Женеве. Благодаря шести начертаниям, от обычного до черного, это семейство предлагает уникальный голос с его отличительными формами букв. Будь то заголовки или более длинные отрывки текста, Schaberstein сохраняет хорошую разборчивость (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5595A4F0FE2BDF85B0C9611BBBE722D5F5069D
 ```
 
 https://mybot314.ru/tekegram_catalog/

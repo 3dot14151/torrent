@@ -1,3 +1,56 @@
+###  Публикация: 1020449   (745308) от 26.05.2016
+
+Телефон пополам / Pillow Talk (1959) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обладатели спаренного телефонного номера дизайнер Джен Морроу и композитор Брэд Аллен никогда друг друга не видели, но люто друг друга ненавидят. Брэд каждый вечер играет своим многочисленным поклонницам одну и ту же мелодию, а Джен подслушивает, возмущается и жалуется в телефонную компанию. За Джен ухаживает миллионер Джонатан Форбс, который по стечению обстоятельств (   Читать дальше...   )Производство: США / Arwin Productions, Universal International Pictures (UI or U-I)Жанр: Мелодрама, КомедияРежиссер: Майкл ГордонАктеры: Рок Хадсон, Дорис Дэй, Тони Рэндалл, Тельма Риттер, Ник Эдамс, Джулия Миде, Аллен Дженкинс, Марсель Далио, Ли Патрик, Мэри МакКартиПеревод: Многоголосый, двуголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FC2E2478C07588FFC5AC0DAFE6DFA7A3AB37C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459872   (745253) от 04.05.2014
+
+Мост через реку Квай / The Bridge on the River Kwai (1957) BDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захваченные в плен японцами британские солдаты и их командир полковник Николсон вынуждены строить железнодорожный мост через реку Квай в Бирме. Несмотря на свирепый характер полковника Сайто, Николсон проявляет настоящее мужество.
+Тем временем командование назначает группу коммандос для уничтожения этого стратегически важного объекта.Производство: Великобритания, США / Columbia Pictures, Horizon Pictures (II)Жанр: Драма, Приключения, ВоенныйРежиссер: Дэвид ЛинАктеры: Алек Гиннесс, Уильям Холден, Джек Хоукинс, Сессю Хаякава, Джеймс Дональд, Джеффри Хорн, Андре Морелл, Питер Уильямс, Джон Боксер, Перси ХербертПеревод: Профессиональный многоголосый закадровый R5/ВидеосервисЯзык озвучки: Руский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF424AC79CF3C9F61865E6496C18AE27E578759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390171   (745076) от 16.07.2020
 
 Встреть меня в Сент-Луисе / Meet Me in St. Louis (1944) BDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745076.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745029.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744859.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744849.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744519.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743804.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743403.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743335.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743113.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743013.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742565.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742158.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742115.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741634.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740865.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740859.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740789.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740749.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740602.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740548.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740056.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739927.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739762.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738115.jpg" />
 </div>
 
 
@@ -620,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5950E1FB8446C91334232C8F3995A1267CC1FF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786309   (737936) от 14.05.2014
-
-Привидение / Widziadlo (1984) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помещик Петр, отец большого семейства, приезжает в свою усадьбу с новой женой. В доме все напоминает ему о первой жене Анжелике, которую он безумно любил, но которая умерла несколько лет назад. В каждой женщине — в своей жене, соседке, горничной, он видит образ Анжелики, и это сводит его с ума. Тем временем его сын-подросток Павел начинает задумываться, кто его родители (   Читать дальше...   )Жанр: Ужасы, ДрамаРежиссер: Марек НовицкийАктеры: Роман Вильгельми, Мажена Трыбала, Ханна Микус, Мариуш Бенуа, Мариуш Дмоховский, Ольгерд Лукашевич, Дорота Квятковска, Мацей МазуркевичПеревод: Одноголосый закадровыйПродолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5392726E218539C3F1B443620AFED9B01665E864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018553   (737669) от 26.01.2022
-
-Он начинает сердиться, или Горчица бьет в нос / La moutarde me monte au nez (1974) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьер Дюруа, учитель в пансионе для девочек, в свободное время занимается журналистикой. Когда в город приезжает съемочная группа кино, он пишет ядовитую заметку об американской кинозвезде — вулканической Джеки Логан.
-Случайно познакомившись с Джеки, он меняет свое мнение и пытается сделать все, чтобы предотвратить публикацию заметки и ее откровенных фотографий…Производство: ФранцияЖанр: КомедияРежиссер: Клод ЗидиАктеры: Пьер Ришар, Джейн Биркин, Клод Пьеплю, Жан Мартен, Даниэль Миназзоли, Витторио Каприоли, Жюльен Гиомар, Анри Гибе, Жан-Мари Пролье, Клеман Арари, Бруно Бальп, Изабель Со, Анна Гейлор, Изабель Готье, Катрин Де Кёшель, Маню Плютон, Жак ПаолиПеревод: Дублированный, профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C06E1229F8F6BDBDAB4FB42DBA2CB3802B2365
 ```
 
 https://mybot314.ru/tekegram_catalog/

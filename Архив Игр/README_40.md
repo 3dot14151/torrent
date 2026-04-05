@@ -1,3 +1,56 @@
+###  Публикация: 532374   (537865) от 07.08.2012
+
+Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Расширенное издание [En] (L/2.0) 2011 l THETA
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537865.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Afterfall: Тень прошлого» — психологический survival horror, предлагающий ценителям жанра пережить будоражащие кровь приключения в атмосфере всепоглощающего ужаса. Оказавшись в мрачных подземных бункерах, из которых нет выхода, игроки приподнимут завесу тайны, под которой скрывается нечто гораздо большее, чем просто безумие обитателей убежищ. В ходе расследования они столкнутся с непростыми загадками и вступят в противоборство с жестокими монстрами, им часто придется принимать трудные решения. Справиться же с крайне сложной и опасной задачей помогут не только рефлексы, но также способность мыслить логически и умение использовать дедуктивный метод.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Intoxicate Studios, Nicolas Entertainment GroupЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF5A354280A6BF9CF067026D55C89C8A429EB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532010   (537857) от 07.08.2012
+
+[PS3] Max Payne 3 [ENG] [PAL] [FIXED TB](2012)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс Пэйн пережил многое: на его глазах умирали родные и близкие ему люди, и эти трагедии оставили в его душе неизгладимый след. Он ушел из полиции, пристрастился к выпивке и болеутоляющим, все больше погружаясь в бездну отчаянья. В попытке бежать от своего прошлого Макс перебирается в Бразилию и становится телохранителем богатого торговца недвижимостью из Сан-Паулу - Родриго Бранко. Но события разворачиваются таким образом, что Макс оказывается на улицах незнакомого города лицом к лицу со смертельной опасностью. Он должен выжить - и выяснить, что происходит.
+Новейшая игровая ''механика'', позволяющая вести предельно точную стрельбу, усовершенствованные эффекты замедления времени (Bullet Time®) и стрельбы в прыжке (Shootdodge™), система поведения персонажей Euphoria, созданная компанией Natural Motion, а также мрачный и закрученный сюжет - все это делает игру Max Payne 3 от компании Rockstar Games невероятно кинематографичной, проработанной до мельчайших деталей и проносящейся перед игроком на одном дыхании.Тип издания: Пиратка TBЯзык интерфейса: Русские субтитры и меню
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB2A3EF741AE979BABBC4D2F60992671EF2F1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513857   (537751) от 07.08.2012
 
 Quantum Conundrum [Ru/En] (RePack/1.0u2) 2012 | Audioslave
@@ -6,7 +59,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0u2) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537751.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536614.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Deponia [Multi3\+] (Steam-Rip/1.2) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536552.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Deponia [Ru] (RePack/1.2) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536270.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Death Rally [En] (RePack/1.00.20.023) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536155.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Alan Wake's Коллекция [Multi12/Ru] (L/Steam-Rip) 2012 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536154.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536031.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Inversion [Ru/En] (Repack/1.0.0.1) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536022.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ DOOM (2016) [Ru/En] (1.0/upd2) Repack VickNet
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535976.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Jotun (2015) [Ru/Multi] (1.0/u3) License GOG [Valhalla Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535954.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Serious Sam 3: Before First Encounter / Крутой Сэм 3: До Первог
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535748.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0/4DLC) Repack Табличка
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535745.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ UnEpic (2011) [Ru/Multi] (1.50.06) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533920.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ Parkitect (2016) [En/Mutli] (Alpha 5с) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533910.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Alpha Protocol [Ru/En/Multi8] (L/Steam-Rip/1.0.0.0) 2010 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533879.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.4.1.0s/dlc) Repack R.G. Механ
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533794.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533710.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532867.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ Animal [Ru] (RePack) 1996 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532505.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ Investigator (2016) [Ru/En] (1.12) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531823.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru/Multi] (1.02) SteamRip R.G. И�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531597.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ Age Of Mythology (2014) [Ru/En] (1.9.2975) RePack Audioslave [Extended Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531311.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ Battles for Glory 2 / Битвы за славу 2 (2007) [Ru] (1.0) Repack Anto
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531106.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ The Legend of Heroes: Trails of Cold Steel II (2016) [PS3] [USA] 4.46 [Repack] [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530317.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ Legend of Heroes: Trails of Cold Steel II — это японская ролев
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F6FC963562387F6E0A1FCDD15DC8FC99B40DACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306636   (530216) от 05.07.2019
-
-Assetto Corsa Competizione (2019) [Ru/Multi] (1.0.5) Repack xatab
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assetto Corsa Competizione — продолжение реалистичного гоночного симулятора Assetto Corsa, посвященного соревнованию Blancpain GT, которое ежегодно организовывает автомобитестроительная корпорация SRO Motorsports Group. В игре вас ожидает невероятная графика и фотореалистичные погодные условия, что позволят максимально погрузиться в атмосферу высокоскоростного гоночного (   Читать дальше...   )Тип издания: RepackРазработчик: Kunos SimulazioniЖанр: Simulator, Racing, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E03527BD389370A41D4C4659374E8B17FA4FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051643   (530208) от 12.09.2016
-
-Zombie Army Trilogy (2015) [Ru/En] (1.8.20.01) Repack Mizantrop1337
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zombie Army Trilogy - это шутер от третьего лица, объединяющий в себе хаос совместной игры и жесткие ужасы с наполненными кровью сценами, включающий в себя и первые две игры – Sniper Elite: Nazi Zombie Army 1 & 2, а также новую третью кампанию, повествующую о поднявшемся из мертвых Адольфе Гитлере, который ведет свою мертвую армию на захват Европы.Тип издания: RepackРазработчик: RebellionЖанр: Action (Shooter), 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFB2F97BF5FAD28CCF69762C3C79EF25765544A
 ```
 
 https://mybot314.ru/tekegram_catalog/

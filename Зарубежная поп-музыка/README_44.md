@@ -6,7 +6,7 @@
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543665.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Top 40 Club Beats for Dj's 2015.6 (2015) [MP3|320 кб/с]<Club, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542990.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VC-People - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Synth-po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542888.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Thanks - No Mercy in the Mountain (2016) [MP3|320 Kbps] <Alternative Pop, Altern
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542015.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Q - Dancin' Man (1977) LP [MP3|320 Kbps] <Pop, Disco, Funk Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541974.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Sternstunden der Volksmusik (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541908.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Lana Del Rey - Unreleased (2012) [MP3|128-320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541824.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tom Jones - The Best Of Tom Jones (1999) 3CD Box Set [MP3|320 Kbps] <Pop, Blues,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540782.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VA - Summer Latin Hits (2018) [MP3|320 Kbps] <Reggaeton, Salsa, Merengue, Bachat
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540493.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adriano Celentano - Дискография(86 альбомов) (1962-2009) [MP3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539290.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ivy Levan - No Good (2015) [MP3|320 кб/с]<Pop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539104.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Vanessa Mai - Schlager (Ultra Deluxe Fanbox) (2018) 5CD, Box Set [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536722.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Lady Gaga - Perfect Illusion (2016) Single [MP3|320 Kbps] <Pop, Electropop, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536458.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Dave And Sugar - Greatest Hits (1981) LP [MP3|320 Kbps] <Pop, World, Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536389.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Toto Cutugno - Дискография [61 CD] (1976-2010) [MP3|320 Kbps] <Pop, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535606.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Iamdynamite - Wasa Tusa (2015) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535593.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - 110 Hits Ete 2018 (2018) 5CD [MP3|320 Kbps] <Dance, Pop, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535092.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - 110 Hits Eté 2019 (2019) 5CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534384.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - 100 Greatest Dance Tracks (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534084.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Phoebe Ryan - Mine (2015) EP [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533500.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Italo Top Hits (1979) LP [MP3|320 Kbps] <Electronic, Pop Rock, Italodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533455.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Ministry of Sound - Good Vibes (2016) [MP3|320 Kbps] <Pop, Electronic, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532577.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Heather Bond - So Long (2015) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531722.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531644.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Karen Marie Orsted (MØ) - No Mythologies to Follow (2014) [MP3|320 кб/с]<Ind
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531610.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ VA - Kiss Kiss Play Summer 2018 [MP3|320 Kbps] <Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531281.jpg" />
 </div>
 
 

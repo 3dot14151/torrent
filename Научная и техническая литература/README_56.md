@@ -1,137 +1,3 @@
-###  Публикация: 600392   (998747) от 08.01.2013
-
-В.К. Толкачев | Роскошь системного мышления [2011] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Толкачева Виктора Константиновича - одного из основоположников нового направления в психологии - системно-векторной психологии, основанной на физико-математической модели мира, разработанной его учителем, профессором Ганзеным Владимиром Александровичем - доктором психологических наук, профессором Ленинградского / Санкт-Петербургского государственного университета, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51AF1B22F7865128683CC6D5922BB91DCF2F2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601454   (998345) от 10.01.2013
-
-И.И.Матусис | Витамины и антивитамины [1975] [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998345.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в популярной форме рассказано о биологической роли витаминов в жизнедеятельности организма, проблеме витаминной недостаточности у людей и сельскохозяйственных животных. В соответствующих разделах книги освещены следующие вопросы: обмен веществ и круговорот веществ в природе, способы питания и пищевые вещества, ферменты, функции витаминов в организме, коферментные функции витаминов, витамины и биологические мембраны, витамины и здоровье, водо- и жирорастворимые витамины, антивитамины. Предназначена для широкого круга читателей, интересующихся данной проблемой, студентов медицинских вузов и биологических факультетов университетов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DCAC60166E906F1C252FDFC31697E035D73725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601030   (998196) от 10.01.2013
-
-Сара Ки | Настольная книга для тех, у кого болит спина [2009] [DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступным языком объяснено «устройство» человеческой спины, после чего становится понятно, как и почему эффективно срабатывают все предлагаемые упражнения, нацеленные на её укрепление, развитие и постоянное поддержание полной работоспособности. Для широкого круга читателей.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1266F1181D4C173F0F9699E8D0A66458D6B48D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601573   (997828) от 12.01.2013
-
-Н.М. Коробков | Метро и прошлое Москвы [1935] [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борьба за метро получает широкое освещение в периодической прессе, назначение же книги Н.М. Коробкова "Метро и прошлое Москвы" - ознакомить читателя не только с организацией и выполнением грандиозного плана строительства, но также дать представление о геологическом строении и историческом прошлом той территории, по которой пойдут пути метро.
-Живой историко-геологический очерк дан на основе последних геологических исследований и археологических находок, впервые публикуемых, а также анализа исторических документов, записей современников и старинных планов. Читатель узнает, какую пользу дало строительству сочетание геологического исследования с археологическими и какие можно сделать отсюда выводы по линии геологического и исторического прошлого Москвы.
-Книга "Метро и пршлое Москвы" будет одинаково полезна широкому кругу читателей: туристу, краеведу, учителю и школьнику.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A434EF4D0C3556BA9192FFE94D7F3DBBBC95D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601827   (997661) от 12.01.2013
-
-"Астрель", "Corpus" | Книжная серия "Элементы" (6 книг) [2010-2012] [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элементы - серия научно-популярных книг для широкого круга читателей. Охват тематики - от гена до возникновения и существования вселенных.
-Серия Элементы входит в библиотеку Династия, о чем свидетельствует значок на обложках.
-Серию Элементы отличают очень качественные переводы.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51B61AF3269F3A0990F00E3F0A9F3736BCE9CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601888   (997198) от 14.01.2013
 
 Лев Минц | Котелок дядюшки Ляо [2009] [RTF, FB2]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997198.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997163.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997117.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997020.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996871.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996812.jpg" />
 </div>
 
 
@@ -299,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996626.jpg" />
 </div>
 
 
@@ -333,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996439.jpg" />
 </div>
 
 
@@ -360,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996329.jpg" />
 </div>
 
 
@@ -386,7 +252,7 @@ Raymond Murphy | English Grammar in Use 4-edition [En] [2012] [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996264.jpg" />
 </div>
 
 
@@ -412,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996193.jpg" />
 </div>
 
 
@@ -438,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996158.jpg" />
 </div>
 
 
@@ -464,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996035.jpg" />
 </div>
 
 
@@ -490,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995868.jpg" />
 </div>
 
 
@@ -516,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995630.jpg" />
 </div>
 
 
@@ -543,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995595.jpg" />
 </div>
 
 
@@ -570,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995550.jpg" />
 </div>
 
 
@@ -596,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995508.jpg" />
 </div>
 
 
@@ -622,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995250.jpg" />
 </div>
 
 
@@ -649,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995165.jpg" />
 </div>
 
 
@@ -675,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995128.jpg" />
 </div>
 
 
@@ -688,6 +554,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B7A3E8FD452FF022FABF8B910E9B6B4E9251BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606672   (995124) от 21.01.2013
+
+Светлана Чойжинимаева | Диагностика в тибетской медицине [2010] [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целью диагностики в тибетской медицине является установление истинных причин заболевания с тем, чтобы посредством лечения устранить их и вернуть организм в здоровое состояние. В данном издании представлены основы и методы тибетской диагностики, рассказывается о ранней диагностике тяжелых заболеваний, даны программы лечения и прогнозы исцеления.
+В этом состоит коренное отличие тибетской медицины от аллопатической (западной), усилия которой направлены лишь на устранение симптомов, и лечение не затрагивает подлинной сути болезни. Вот почему представители западной медицины, как правило, не находят времени, чтобы узнать обстоятельства возникновения и развития болезни, характер питания и образ жизни своего пациента, его психоэмоциональное состояние, и выносят суждение исключительно на основании жалоб больного и одного двух явных симптомов.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803E30D0C77C75B5EF8A8DB1CE2DF5382341BF46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606727   (995093) от 21.01.2013
+
+А. И. Сидоров | Подводные лодки. Их история, устройство и действие в общедоступном изложении [1928] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995093.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора:
+Во время последней мировой войны, когда начались действия подводных лодок, в публике появился известный интерес к этому, мало известному широким кругам роду оружия. Однако, никто из из петербургских моряков не нашел нужным удовлетворить этому интересу. Тогда я составил популярную лекцию о подводных лодках и прочел её с большим успехом в большой аудитории Политехнического музея. В настоящее время ознакомление возможно широких кругов народа с военным делом является делом государственной важности и потому издание моей лекции, в несколько переработанном и дополненном виде Государственным Техническим Издательством является вполне своевременным.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C5E2974B92B3DCBDE261264C4EAF3045070536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605859   (995038) от 21.01.2013
+
+Эдвард Радзинский | Иван IV Грозный [2012] [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995038.jpg" />
+</div>
+
+
+###  Подробнее
+
+В страшные дни войны, когда немцы рвались к Москве, на стол к Иосифу Сталину попала пьеса А. Н. Толстого об Иване Грозном. Прочитав ее и, видимо, о чем-то раздумывая, Сталин несколько раз написал на задней стороне обложки одно слово – «Учитель».
+
+Учитель… но в чем? Сталинская любовь к Грозному связана с неким важнейшим вопросом, который когда-то задал наш великий историк Карамзин. И ответ на который скрывает история самого загадочного и самого кровавого из русских царей…Формат: FB2.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8098F2613A105CFA4553BDD6DD8F91FCE210FC1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607375   (994917) от 22.01.2013
+
+М.И. Ципоруха | Вокруг света под парусами [2012] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о кругосветных плаваниях российских военных моряков на парусных судах в первой половине XIX века - экспедициях И.Ф.Крузенштерна и О.Ф.Лисянского на шлюпах "Надежда" и "Нева", М.П.Лазарева на корабле "Суворов", О.Е.Коцебу на бриге "Рюрик", В.М.Головнина на шлюпе "Диана", Ф.Ф.Беллинсгаузена и М.П.Лазарева на шлюпах "Восток" и "Мирный" и многих других. Читателей ожидают встречи со многими замечательными российскими географами, исследователями океанов, адмиралами, офицерами, матросами, учеными-натуралистами, беззаветно служившими Отечеству и мировой науке.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86139287DEA7F4FDEB37B4182249F4ED3E83AA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607220   (994880) от 22.01.2013
+
+Юрий Сенкевич, Александр Шумилов | Их позвал горизонт [1987] [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы рассказывают об открытиях и судьбах замечательных географов и путешественников: о Колумбе и Эль-Кано, о Седове и Стеллере, о Миклухо-Маклае и Отто Шмидте... Тринадцать новелл, тринадцать человеческих судеб.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F115151D63FDCC4FCE70D8A2AEF5E69E624B1040
 ```
 
 https://mybot314.ru/tekegram_catalog/

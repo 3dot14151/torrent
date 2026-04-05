@@ -1,3 +1,159 @@
+###  Публикация: 1013302   (777767) от 03.05.2016
+
+Linux Deepin 15.1.1 [x86-64] 2xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китайский дистрибутив основанный на Debian 8.3. Красивый и лаконичный дизайн обеспечивает собственное окружение рабочего стола "Deepin Desktop Environment" и оконный менеджер "Gala". Включает ряд приложений домашней разработки:  Deepin Software Center, DPlayer, Dmusic.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68878DF52853367ADEA18FEE9CDE4521A221A910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990677   (777764) от 03.05.2016
+
+American Truck Simulator (2016) [Ru/En] (1.2.1.1s/dlc) Repack R.G. Catalyst
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777764.jpg" />
+</div>
+
+
+###  Подробнее
+
+American Truck Simulator – продолжает серию автосимуляторов Truck Simulator, перенося действия в США. Разработчики подготовили подборку самых легендарных тягачей, прокатиться на которых можно по огромной территории с большим количеством известных мест. Игроку предстоит начать свой путь с водителя, постепенно расширяя свои возможности, чтобы в итоге создать самую (   Читать дальше...   )Тип издания: RepackРазработчик: SCS SoftwareЖанр: Simulator, Racing, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D63B6FA65144833514914F16009C4BCB8EF474A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924444   (777755) от 03.05.2016
+
+The Forest (2014) [Ru/En] (Alpha 0.37) SteamRip MarkusEVO (R.G. Games)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой игры остается в живых после крушения самолета на необитаемом острове. Основная задача - выжить: рубите деревья, чтобы построить себе убежище, охотьтесь на диких животных или ищите и садите плоды, чтобы не умереть с голоду, а также не забывайте поддерживать очаг, чтобы не замерзнуть.Тип издания: Steam-RipРазработчик: SKS GamesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1BBB3688A81D022B3B674513315CF7935D49D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942620   (777754) от 03.05.2016
+
+Области тьмы / Limitless (2015) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-22 из 22) (NewStudio)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777754.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о человеке, которому удаётся максимально раскрыть возможности своего мозга. Главный герой Брайан Финч открывает для себя фантастическую силу препарата NZT и пытается использовать её для раскрытия запутанных дел на службе в ФБР. Дженнифер Карпентер сыграет Ребекку — агента ФБР, которая стремительно поднимается по карьерной лестнице, но всё ещё не смирилась (   Читать дальше...   )Производство: СШАЖанр: фантастика, триллер, драмаРежиссер: Марк Уэбб, Дуглас Арниокоски, Гильермо НаварроАктеры: Джейк Макдорман, Дженнифер Карпентер, Хилл Харпер, Мэри Элизабет Мастрантонио, Брэдли Купер, Генри Джальярди, Рон Рифкин, Дэниэл Эрик Голд, Майкл Джеймс Шоу, Арджун Гупта и др.Перевод: Профессиональный многоголосый закадровый - NewStudioФормат: MKVПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2960854006C0CD1FD5E347A5344D0CB80CD182F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973872   (777753) от 03.05.2016
+
+ARK: Survival Evolved (2015) [Ru/En] (239.2) Repack MAXAGENT
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная на движке Unreal Engine 4, ARK: Survival Evolved является игрой в жанре выживания с уникальной смесью мультиплеерного, кооперативного и соревновательного режимов. Игроки просыпаются голыми и голодными на пляже таинственного острова, среди множества других обескураженных людей. В ARK: Survival Evolved вы должны: охотится, собирать урожай, осваивать ремесло, (   Читать дальше...   )Тип издания: RepackРазработчик: Studio WildcardЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D16D7C33BA1ABF1E1917AD936669A586FAC802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924501   (777752) от 03.05.2016
+
+Tomb Raider (2013) [Ru] (1.1.748.0/dlc) Repack =nemos= [Survival Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomb Raider — это современное приключение, где свирепый экшен совмещается с прокачкой, а использование гаджетов перемежается с бескомпромиссными перестрелками. История древнего острова и стереотипные персонажи порой делают игру похожей на перепевку «Кинг-Конга», но энергичный сюжет и оригинальный сеттинг не дают заскучать. Игра постоянно меняет темп, задает новый (   Читать дальше...   )Тип издания: RePackРазработчик: Crystal DynamicsЖанр: Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C017EAA5E9AFA22CE5AFC49A81230E1D9C2F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012876   (777751) от 03.05.2016
 
 Grass Valley EDIUS Pro 8.20.312 [En]
@@ -6,7 +162,7 @@ Grass Valley EDIUS Pro 8.20.312 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777751.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777707.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777689.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777429.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (03.05.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777409.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777407.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Autodesk 3ds Max 2017 [Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777406.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ Battlefield 3 (2011) [Ru] (7.0.4.0/dlc) [MP+SP] Repack =nemos= [Premium Edition]
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777404.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777398.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777381.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777373.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ Malwarebytes Premium 3.4.4.2398 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777370.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777363.jpg" />
 </div>
 
 
@@ -349,7 +505,7 @@ Adobe Photoshop CC 2018 (19.1.1.42094) Portable by XpucT [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777362.jpg" />
 </div>
 
 
@@ -375,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777359.jpg" />
 </div>
 
 
@@ -401,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_777037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_777037.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_777028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_777028.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_777027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_777027.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777021.jpg" />
 </div>
 
 
@@ -509,7 +665,7 @@ Rage of Mages / Аллоды: Печать тайны (1998) [Ru/En] (1.03) Lice
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777018.jpg" />
 </div>
 
 
@@ -520,164 +676,6 @@ Rage of Mages / Аллоды: Печать тайны (1998) [Ru/En] (1.03) Lice
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90DEBF3DBF88E8647B6241F6464CD9025AFEF835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013666   (777015) от 05.05.2016
-
-CorelDRAW Graphics Suite X8 18.0.0.448 Special Edition RePack by -{A.L.E.X.}- [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непревзойденные возможности CorelDRAW Graphics Suite X8 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9700A7F5DAD2B370316995C1E174787FE3C5916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013874   (777014) от 05.05.2016
-
-Adobe Audition CC 2015.1 8.1.0.162 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F265C0627EA16E9AF76DE0CEDCAE606F6EE272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013894   (777012) от 05.05.2016
-
-Adobe After Effects CC 2015.2 13.7.1.6 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777012.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DCDE3AA9DA7E101F47CC94F4EECFCEBF40337F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011506   (777010) от 05.05.2016
-
-Нонамки ищут дизайнера - Голосование [Завершено]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_777010.jpg" />
-</div>
-
-
-###  Подробнее
-
-  Большое спасибо за ваши голоса и информативные отзывы!
-Очень приятно было читать вдумчивые комментарии и понимать, что вам не всё равно.
-Каждая работа была интересна по-своему, было очень сложно выбрать что-то одно :)Итак, вот итоговая таблица распределения ваших голосов:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013888   (777008) от 05.05.2016
-
-Adobe Premiere Pro CC 2015.2 9.2.0 (41) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2015 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K x 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A671EE40DB0C8A4FE8E9ECC08DA099ACFF8DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013792   (777007) от 05.05.2016
-
-Avira Antivirus Pro 15.0.17.273 Final RePack by Alker [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avira Antivirus Pro - простой, легкий и надежный антивирус. Включает комплексную защиту от вирусов, кражи личных данных и финансовых потерь. Этот отличный набор инструментов безопасности является идеальным решением для обеспечения защиты пользователя, компьютера и важных данных. Новый Avira Antivirus Pro использует передовые и эффективные функции антивирусной защиты, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F389DA490CB8A8A82D4500A4DC69FAF41C9874D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

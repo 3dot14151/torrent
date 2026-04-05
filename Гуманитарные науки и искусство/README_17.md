@@ -1,81 +1,3 @@
-###  Публикация: 1092192   (938645) от 12.01.2017
-
-В. М. Бехтерев | Избранные произведения (1954) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Академик Владимир Михайлович Бехтерев по праву занимает одно из видных мест в ряду корифеев русской научной мысли. Его авторское наследие поражает воображение не только объемом созданного, но и широтой распределения творческой активности. Его перу принадлежат работы в области медицины, в том числе морфологии мозга, психиатрии и медицинской психологии, детской психологии, (   Читать дальше...   )Жанр: История, науковедение, биология, медицина, естествознание, анатомия, физиология, невропатология, психология, психиатрияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CBDA27046D5004CB612733F3BF8038D7E40607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092177   (938643) от 12.01.2017
-
-В. М. Бехтерев | Внушение и его роль в общественной жизни (1903) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Михайлович Бехтерев (1857-1927), выдающийся русский физиолог, психиатр, психолог, создатель рефлексологии — оригинальной естественнонаучной теории поведения, внесшей значительный вклад в развитие наук о человеке. В настоящее издание включена книга. Внушение и его роль в общественной жизни, где раскрываются сущность внушения как психического феномена, механизмы (   Читать дальше...   )Жанр: История, психология, психиатрия, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A96BFD10FE7A14055E390AB2526504BF428DD58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092206   (938639) от 12.01.2017
-
-Т. Кениг | Психология рекламы (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа представляет собой попытку привести в систему научные данные, добытые до сих пор исследователями в области психологии рекламы, и критически их рассмотреть, не только с чисто научной, но и с прикладной точки зрения.Жанр: История, психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074C57051A7FAC7F159C54AB48125642D6A8CDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364407   (937869) от 02.03.2020
 
 Михаил Трофименков | Культовое кино (2019) [EPUB]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937869.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937814.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937789.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937656.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937324.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936917.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936325.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934878.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934643.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933900.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933565.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933480.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932646.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932627.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932620.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932586.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932476.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932131.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931291.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930980.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930862.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930840.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930407.jpg" />
 </div>
 
 
@@ -676,6 +598,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF347A2A12660DAEC74C9E4168F2AFDFD4A1744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365820   (927068) от 09.03.2020
+
+Г. Шнейкерт | Тайна преступника и пути к ее раскрытию. Выпуск II [К учению о судебных доказательствах] (1925) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Печатаемая в русском переводе книжка начальника берлинского бюро по идентификации и преподавателя криминалистки в берлинском университете Ганса Шиейкерта Verheimlichte Tatbestände und ihre Erforschung (Berlin, 1924) представляет собою в развитом виде доклад, прочитанный автором в начале 1924 года в берлинском Психологическом Обществе. Автор ставит своею задачей (   Читать дальше...   )Жанр: История, политология, правоведение, социология, криминалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E690A94C5C3F4D5964899C7CC5EBDFEC420B6FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365766   (927004) от 09.03.2020
+
+Скотт Беркун | Откровения оратора (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря этой книге каждый желающий сможет освоить непростое искусство ораторства и научиться выступать перед публикой так, чтобы все не просто слушали, но и слышали оратора.
+Автор подробно рассказывает о самых важных составляющих публичных выступлений. Как преодолеть страхи? Как работать со сложной аудиторией? О чем следует помнить во время выступления с микрофоном? (   Читать дальше...   )Жанр: Ораторское искусствоПеревод: Татьяна ЗемлерубФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A25F859C4F29DD58964802AA66668630B4D5C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095374   (926192) от 20.01.2017
+
+Т.В. Симашко (сост.) | Проблемы концептуализации действительности и моделирования языковой картины мира: [Выпуск 6] (2013) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены статьи лингвистов, литературоведов, философов и педагогов, принявших участие в VI Международной конференции, проведенной в октябре 2013 года в г. Северодвинске. На основе различных подходов раскрывается семантика разнообразных единиц в лингвокогнитивном, лингвокультурологическом, в этнокультурном аспектах. Значительное внимание уделяется описанию актуальной (   Читать дальше...   )Жанр: Лингвистика, филология, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F634D0432ABB8EB03872FDC8BC433911BC281A
 ```
 
 https://mybot314.ru/tekegram_catalog/

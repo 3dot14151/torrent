@@ -1,3 +1,60 @@
+###  Публикация: 1260047   (314701) от 06.11.2018
+
+Acronym - Burgundy (2018) Stilla Ton [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burgundy Soul (06:33)
+ 02. Burgundy Blood (09:45)
+ 03. Burgundy Robes (06:50)Жанр: TechnoПродолжительность: 00:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0486DC282857E6FCA8920E18ECC42DEFF9889243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332358   (314470) от 20.10.2019
+
+Luis Fernando | ^L_ - Discography 11 Releases (2014-2019) Antime, Underground [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Planet (03:05)
+ 02. Postbrutalism (07:21)
+ 03. Ivanka Lost in Bangladesh (06:42)
+ 04. Bot Blood (05:35)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/Experimental/AcidПродолжительность: 05:02:59 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FF4E018C9118AAB43A96469C514C3A7E8D8CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260410   (312034) от 07.11.2018
 
 VA - Beach Party 2018 (2CD) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Other>
@@ -6,7 +63,7 @@ VA - Beach Party 2018 (2CD) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Other>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312034.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ VA - Deep Value, Vol.1 (Mixed By Markus Homm) (2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311873.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Thomas Carmody (Soundarium) - Discography 22 Releases (2015-2019) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311522.jpg" />
 </div>
 
 
@@ -92,7 +149,7 @@ VA - Ministry Of Sound: XX Twenty Years (4CD Boxset) (2011) [FLAC|Lossless]<Club
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311093.jpg" />
 </div>
 
 
@@ -121,7 +178,7 @@ VA - John Digweed Live In London (2012) [FLAC|Lossless]<Tech House, Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_310033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_310033.jpg" />
 </div>
 
 
@@ -147,7 +204,7 @@ VA - Berlin Underground Selection, Vol.6 (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309081.jpg" />
 </div>
 
 
@@ -176,7 +233,7 @@ VA - Spring Tube 9th Anniversary Compilation, Part 1 (2018) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307789.jpg" />
 </div>
 
 
@@ -205,7 +262,7 @@ DJ Dado - Greatest Hits & Future Bits (1998) [FLAC|Lossless]<House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306880.jpg" />
 </div>
 
 
@@ -231,7 +288,7 @@ Havantepe - Robo Owl EP (2018) Luck Of Access [FLAC|Lossless|tracks|Vinyl] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305641.jpg" />
 </div>
 
 
@@ -259,7 +316,7 @@ VA - ọrun VA004 (orun VA004) (2019) End Of Perception [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305616.jpg" />
 </div>
 
 
@@ -288,7 +345,7 @@ Lemna - Retrocausality: A Posteriori (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305526.jpg" />
 </div>
 
 
@@ -317,7 +374,7 @@ Fourtimeszero - Shaping Lifeforms (2019) Natural Expressions [FLAC|Lossless|Cass
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305525.jpg" />
 </div>
 
 
@@ -346,7 +403,7 @@ Music Instructor - Electric City (Maxi-Single) (1999) [FLAC|tracks+.cue]<House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305447.jpg" />
 </div>
 
 
@@ -375,7 +432,7 @@ Javier Orduna - Erretica (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304994.jpg" />
 </div>
 
 
@@ -404,7 +461,7 @@ VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303415.jpg" />
 </div>
 
 
@@ -433,7 +490,7 @@ Rrose / Orphx - Summer Solstice Edition EP (2016) [FLAC|Lossless|WEB-DL|24Bit|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302842.jpg" />
 </div>
 
 
@@ -460,7 +517,7 @@ MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301292.jpg" />
 </div>
 
 
@@ -488,7 +545,7 @@ Paolo Lucchi - The Dawn Sessions (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301279.jpg" />
 </div>
 
 
@@ -517,7 +574,7 @@ VA - Steyoyoke Paradigm, Vol. 01-08 (2017-2020) Steyoyoke Recordings [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299790.jpg" />
 </div>
 
 
@@ -546,7 +603,7 @@ Scatman John - Take Your Time (1999) [FLAC|tracks+.cue]<Euro House, Jazzdance, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298912.jpg" />
 </div>
 
 
@@ -575,7 +632,7 @@ F-Act - Detuned World (2018) Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298875.jpg" />
 </div>
 
 
@@ -602,7 +659,7 @@ Lane 8 - Little by Little (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298867.jpg" />
 </div>
 
 
@@ -631,7 +688,7 @@ Yotto - Hyperfall (Remixed) (2019) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298844.jpg" />
 </div>
 
 
@@ -660,7 +717,7 @@ Eelke Kleijn - Maschine (2018) DAYS like NIGHTS [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298758.jpg" />
 </div>
 
 
@@ -674,61 +731,6 @@ Eelke Kleijn - Maschine (2018) DAYS like NIGHTS [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:955E0ACEF4F07BAC6F7973C2219DE66D4DED48A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961694   (298629) от 02.12.2015
-
-Snap! - This Is Snap! (2001) [FLAC|tracks+.cue]<Hip-House, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power (original 7') (3:49)
-02. Keep It Up (4:03)
-03. Welcome to Tomorrow (Are You Ready?) (4:15)
-04. Mary Had a Little Boy (radio edit) (3:41)(   Читать дальше...   )Жанр: Hip-House, Euro HouseПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAF3F75557A8D875ADEC78C9E41E714009C42DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175095   (298595) от 13.11.2018
-
-Kiasmos - Discography 9 Releases (2009-2018) Erased Tapes Records [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Tech House, Modern Classical, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zebra (03:43)Тип издания: CD, WebЖанр: Tech House/Modern ClassicalПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A13744B1D2566ADA9461393483699EA04B0D10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1130169   (716540) от 01.05.2017
-
-Александр Мыльников | Искушение чудом: «Русский принц», его прототипы и двойники-самозванцы (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена забытым драматическим страницам в истории XVIII в., связанным с появлением под именем российского императора Петра III принятых народом самозванцев не только в России, но и за ее пределами. Рассматривая события 60 - 70-х годов XVIII в., связанные с появлением самозванцев, в контексте межславянских контактов, автор останавливается на причинах возникновения (   Читать дальше...   )Жанр: историческийПродолжительность: 14:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AF8C7C9BD87132A6B2246B82FD34A0CB69F09E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328435   (715462) от 26.04.2011
-
-Николай Альбертович Кун | Легенды и мифы Древней Греции (2011) [MP3, Сергей Ефремов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Альбертович Кун (1877–1940) – русский историк, писатель и педагог. С 1908 г. он был профессором всеобщей истории московских Высших женских педагогических курсов и в 1914 году написал «для учениц и учеников старших классов средних учебных заведений, а также для всех тех, кто интересуется мифологией греков и римлян» свою знаменитую книгу «Что рассказывали древние (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 20:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A046A0461C9DD185ECA2665BD4F3A941744F13ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024351   (715313) от 09.06.2016
 
 Генри Форд | Моя жизнь. Мои достижения (2013) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715313.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714880.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714138.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713643.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712565.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712113.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712047.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711731.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711717.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710659.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710398.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710032.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709943.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709834.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709645.jpg" />
 </div>
 
 
@@ -458,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708894.jpg" />
 </div>
 
 
@@ -484,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707947.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707737.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705959.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705946.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703799.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703796.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703390.jpg" />
 </div>
 
 
@@ -667,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703389.jpg" />
 </div>
 
 
@@ -678,6 +626,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9536B75E364B721842A40F091289EDB0D6BC7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026706   (702430) от 16.06.2016
+
+Ирина  Мудрова (сос.) | Великие матери знаменитых людей (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702430.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге приводятся удивительные жизненные истории матерей, которые оставили след в истории человечества тем, что воспитали замечательных людей, либо тем, что сами были замечательными личностями. Чаще всего в случае с матерями эти два обстоятельства взаимосвязаны, ведь, как правило, чтобы вырастить выдающегося человека, нужно самой таковой быть. Мать во всех (   Читать дальше...   )Жанр: История Биографии и МемуарыПродолжительность: 12:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84D3662E615173D383E507B2C9E7406DFD135A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220578   (702328) от 20.04.2018
+
+Николай Задорнов | Золотая лихорадка (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702328.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Золотая лихорадка» – третья часть широко известного романа Н. Задорнова «Амур-батюшка», в котором повествуется об освоении русскими переселенцами Приамурья. Во второй половине XIX века с берегов Камы двинулись гонимые нуждой крестьяне через Сибирь, Забайкалье на Дальний Восток. В борьбе с трудностями, лишениями выковывались сильные характеры. Читатель в этой книге (   Читать дальше...   )Жанр: Исторический романПродолжительность: 16:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B4946027D7A751B6BCF068F7441A6E425B8145
 ```
 
 https://mybot314.ru/tekegram_catalog/

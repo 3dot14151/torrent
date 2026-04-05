@@ -1,32 +1,3 @@
-###  Публикация: 1721302   (57432) от 06.05.2024
-
-Product University, Аркадий Морейнис, Алексей Черняк, Никита Наумов и др. | No-code. От идеи до продукта без программиста (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57432.jpg" />
-</div>
-
-
-###  Подробнее
-
-✅Для стартапов
-Быстро и дешево собирайте минимально жизнеспособные продукты, не тратя месяцы и сотни тысяч рублей на поиск и зарплату программиста.
-✅Для продуктовых менеджеров
-Качественнее, быстрее и дешевле проверяйте больше гипотез.(   Читать дальше...   )Производство: Product UniversityЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 24:23:15Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE9DA7057CFBF89D4A050673A17AA91B95D4F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721881   (57120) от 09.05.2024
 
 Udemy, Александр Малейко | Тестирование API (Postman) (2024) WEB-DL [RU]
@@ -35,7 +6,7 @@ Udemy, Александр Малейко | Тестирование API (Postman
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57120.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56635.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ ITVDN, Владимир Виноградов, Кирилл Чернега | C++ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56625.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ ITVDN, Руслан Ларионенко | Qt Framework (2019) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56595.jpg" />
 </div>
 
 
@@ -145,7 +116,7 @@ Nizamov.School, Илья Низамов | Telegram Web App 1С (2024) WEB-DL [AD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56198.jpg" />
 </div>
 
 
@@ -172,7 +143,7 @@ Udemy, Colt Steele | HTML & CSS Bootcamp - 2023 Edition (2023) WEB-DL [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56197.jpg" />
 </div>
 
 
@@ -199,7 +170,7 @@ Stepik | Терминал Linux. Основы работы в командной
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56192.jpg" />
 </div>
 
 
@@ -228,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56182.jpg" />
 </div>
 
 
@@ -256,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56088.jpg" />
 </div>
 
 
@@ -282,7 +253,7 @@ Josh W Comeau | CSS for JavaScript Developers (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55147.jpg" />
 </div>
 
 
@@ -311,7 +282,7 @@ Udemy, Алексей Леонтьев | Магия сводных таблиц 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55067.jpg" />
 </div>
 
 
@@ -338,7 +309,7 @@ Network for Everyone (NFE, N4E) | Open Shortest Path First (2024) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55050.jpg" />
 </div>
 
 
@@ -367,7 +338,7 @@ CORS Academy, Илья Отькало | Мини-курс «Начинающий
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54751.jpg" />
 </div>
 
 
@@ -395,7 +366,7 @@ Skillbox, Анастасия Полякова, Давид Медведик | А�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54745.jpg" />
 </div>
 
 
@@ -423,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54616.jpg" />
 </div>
 
 
@@ -452,7 +423,7 @@ Product University | Python и ИИ-технологии с нуля за 4 ме
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54425.jpg" />
 </div>
 
 
@@ -481,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54007.jpg" />
 </div>
 
 
@@ -507,7 +478,7 @@ Udemy, Vassilyi Gudomarov | Современный JavaScript: От новичк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52438.jpg" />
 </div>
 
 
@@ -535,7 +506,7 @@ Udemy, Vassilyi Gudomarov | HTML5 и CSS: Полный курс верстки �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52436.jpg" />
 </div>
 
 
@@ -564,7 +535,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52055.jpg" />
 </div>
 
 
@@ -593,7 +564,7 @@ Houdini-course.com, Christian Bohm | Houdini FX Course (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51367.jpg" />
 </div>
 
 
@@ -622,7 +593,7 @@ Mensh | Роутер FreeBSD 8 с билингом Nodeny [2010] VM Ware Rec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50205.jpg" />
 </div>
 
 
@@ -649,7 +620,7 @@ Udemy, Вадим Прокопчук | Верстка сайта c исполь�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50109.jpg" />
 </div>
 
 
@@ -676,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50103.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Stepik, Codemoon | Создаем корпоративного Telegram бота
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49371.jpg" />
 </div>
 
 
@@ -715,6 +686,35 @@ Stepik, Codemoon | Создаем корпоративного Telegram бота
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C981F0D17EC45CF21340F3782F9BF7825A8EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742087   (47401) от 09.08.2024
+
+Genius.Courses, Александр Сокирка | Клуб Genius.Courses. 13 курсов по PHP, GitHub Actions, WordPress, JS и др. Тариф Базовый (2024) WEB-DL [RU]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клуб Фрилансеров по Веб-Разработке! Мы предоставляем уникальную возможность стать востребованным веб-разработчиком и добиться успеха в мире фриланса. Наши подписчики имеют доступ к широкому выбору курсов и эксклюзивным ресурсам, которые помогут им стать экспертами в веб-разработке.
+
+13 курсов от Александра Сокирки:
+1. Секреты фриланса: Envato, UpWork, Fiverr и LinkedInПроизводство: Genius.CoursesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 325:33:41Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C086BD1D42C3D92EB523A58C3524ADFE18699CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

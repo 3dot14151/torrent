@@ -6,7 +6,7 @@ Katherine Penfold - Sweetest Thing (2019) [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282724.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Yusef Lateef - Yusef Lateef's Detroit: Latitude 42º 30' Longitude 83º (1969) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282682.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cecil Taylor - The Great Paris Concert (1966) 1999, Black Lion[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282606.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Art Blakey - Drums Around The Corner (1959) 2014, Universal[FLAC|tracks+.cue]<Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282602.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Blue Note Live At The Roxy Vol. 1 (Alphonse Mouzon, Ronnie Laws, Donald Byr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282423.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Paul Hardcastle - The Collection (2009) [FLAC|Tracks+cue]<Nu Jazz, Lounge, Chill
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282234.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Connee Boswell - Connee Boswell And The Original Memphis Five in Hi-Fi (1956) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281247.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ George Cables - Cables Vision (1979) 1992, Original Jazz Classics[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281124.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Acoustic Alchemy - Thirty Three and a Third (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281093.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jerome Cooper - In Concert. From There To Hear (2001) Mutable Music[APE|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281065.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - The Art Of Jazz: The Traditional & The Modern Sound (1991) 2CD, Jazz Life[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281054.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kenny Clarke - Bohemia After Dark (1955) 1992, Savoy[FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281036.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bill Evans Trio - Live At Ronnie Scott's: Letter To Evan & Turn Out The Stars (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281025.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Anthony Wonsey Trio - Anthonyology (1995) [FLAC|Lossless|tracks + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280955.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Oscar Peterson Trio - Live In Paris 1957-1962 (2017) 3CD, Fremeaux & Associe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280943.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Prince Lasha - Inside Story & Search For Tomorrow (1965/1974) 2001, Enja[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280932.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Stan Kenton - Adventures In Jazz (1961) 1999, Capitol [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280776.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Carola Grey - The Age of Illusions (1994) Jazzline [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280770.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Miles Davis Quintet - Freedom Jazz Dance (The Bootleg Series) Vol. 5 (2016) 3CD 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280744.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Franco D'Andrea - Solo 8: Classic Jazz (2002) Philology [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279579.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gil Evans - Priestess (1977) 1983, Antilles [APE|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279578.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jordi Sabatés amb Toti Soler - Jordi Sabatés amb Toti Soler (1973) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279577.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Norio Maeda & Jiro Inagaki - This Is Jazz-Rock (1968) 2008, Nippon Columbia [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279576.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Minoru Muraoka - Harlem Nocturne: Bamboo Flute Miracle Sounds (1967) 2012, Nippo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279575.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Allegra Levy - Looking At The Moon (2018) SteepleChase [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279256.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Gary Burton - Artist's Choice (1963 - 1967) 1987, Bluebird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279255.jpg" />
 </div>
 
 

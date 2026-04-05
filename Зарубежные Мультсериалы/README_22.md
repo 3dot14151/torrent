@@ -1,3 +1,56 @@
+###  Публикация: 1544366   (619782) от 16.04.2022
+
+Чип и Дейл спешат на помощь / Chip 'n' Dale Rescue Rangers (1989) BDRemux [H.264/1080p] (сезон 2, серии 1-47 из 47)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непоседы Чип и Дейл всегда знают, как оказаться в центре событий. Поиски пропавших драгоценностей, детективные расследования, погони и сражения с хитроумными злодеями — герои не боятся самых рискованных приключений! Взяв в свою «Команду Спасателей» изобретательницу Гаечку, здоровяка Рокфора и его юркого помощника Вжика, друзья смело бросают вызов преступникам.Производство: США, Disney Television AnimationЖанр: Рисованная анимация, Детский, Приключения, КомедияРежиссер: Джон Кимболл, Боб Дзамбони, Алан ЗасловАктеры: Тресс МакНилл, Кори Бертон, Питер Каллен, Джим Каммингс, Роб Полсен, Дэнни Гэнс, Питер Шрум, Дебора Уолли, Алан Оппенхаймер, Синди МакКейПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF612666C9CC32EE47EE4E48C5054AEC82306CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145514   (619309) от 26.06.2017
+
+Стражи Галактики / Marvel's Guardians of the Galaxy (2015-16) WEB-DL [H.264/720p-LQ] (сезон 1, серии 0-26 из 26) HamsterStudio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разные судьбы таких непохожих друг на друга членов одной команды из мультфильма «Стражи Галактики» не помешали им объединиться вместе, чтобы встать на защиту интересов огромной Галактики.
+Потерявшие семью или друзей, лишившиеся по «милости» беспощадных завоевателей дома и веры в будущее эти отчаявшиеся одиночки отныне – единственные Стражи всех обозримых миров. Но (   Читать дальше...   )Производство: США / Marvel Animation, Walt Disney Television AnimationЖанр: Мультсериал, Фантастика, Боевик, Приключения, ФэнтезиРежиссер: Лео Райли, Эрик Радомски, ...Актеры: Джонатан Адамс, Джефф Беннетт, Тревор Дивэлл, Уилл Фридел, Ванесса Маршалл, Джеймс С. Мэтис III, Ной Нельсон, Кевин Майкл Ричардсон, Дэвид Соболев, Кри СаммерПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: 00 - Екатерина Дмитрова, Евгений Леоно, 01-26 - Алексей Соловьёв, Анастасия Снегирева, Андрей ЖариковСубтитры: Английские, 01-26 серииПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48F30452AB3F64A5F82BE8E67EA6D8B7B0E0760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062909   (619289) от 26.06.2017
 
 Симпсоны / The Simpsons (2016) WEB-DL [H.264/720p-LQ] (сезон 28, серии 1-22 из 22) Vo-production
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619289.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618861.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618789.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618667.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618577.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617672.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616820.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616780.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616745.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616735.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615731.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615546.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615326.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613350.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612729.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611943.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611305.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611038.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611036.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607284.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606605.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606580.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606444.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606052.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E231F711615631EDD4871A4234096AEAA48785F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771026   (605774) от 17.07.2014
-
-Спецагент Арчер / Archer (2014) WEB-DLRip [720p] (5 сезон, серий 13 из 13) [18+] (NewStudio)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605774.jpg" />
-</div>
-
-
-###  Подробнее
-
-В международном шпионском агенстве ISIS любой мировой кризис - лишь предлог для высококлассных секретных агентов посоревноваться между собой в обмане и предательстве. Главным героем мультсериала является спецагент Стерлинг Арчер, известный также под кодовым именем «Герцогиня». На службе Арчеру приходится мириться со своей эксцентричной мамашей/начальницей - Мэлори, (   Читать дальше...   )Жанр: Анимационный мультсериал, шпионская комедия, для взрослых (ненормативная лексика)Режиссер: Адам Рид, Брайан ФордниПерсонажи: Х. Джон Бенжамин, Джуди Грир, Эмбер Нэш, Крис Парнелл, Аиша Тайлер, Джессика Уолтер, Адам РидПеревод: OpelОзвучка: Руслан Габидуллин, Константин Погодаев, Ольга Кравцова, Анна Тух (Кубик в кубе & Бяко Рекордс)Озвучка / Автор перевода: студия "NewStudio.TV"Продолжительность: каждая ~ 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E54C06503923381C99F0EB059F16AC2A7A279C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804389   (605750) от 17.07.2014
-
-Американский папаша / American Dad! (2012) WEB-DLRip (9 сезон, серии 1-13, 18, 20)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет мультсериала разворачивается вокруг семьи Смитов. Папа Стэн — агент ЦРУ и республиканец до мозга костей, силен телом, но глуп разумом. Имеет мужественнейший подбородок и всегда выглаженный костюм. Франсин — жена Стэна и мать детей. Типичная домохозяйка. В меру мудрая, в меру глупая. К тому же, не знает своих настоящих родителей. Сын — Стив. У него есть определенные (   Читать дальше...   )Жанр: Рисованная анимация, КомедияРежиссер: Сет МакФарлейнПерсонажи: Сет МакФарлейн, Уэнди Шаал, Ди Брэдли Бейкер, Скотт Граймз, Рэйчел МакФарлейн, Майк Баркер, Кертис Армстронг, Патрик Стюарт, Эдди Кэй Томас, Даизуке СузукиПеревод: Двуголосый закадровыйПродолжительность: 15 x 00:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556164FCFF0DA12D99828AB01BE68BEBC23CCA48
 ```
 
 https://mybot314.ru/tekegram_catalog/

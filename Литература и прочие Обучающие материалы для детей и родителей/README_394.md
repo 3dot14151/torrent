@@ -1,3 +1,57 @@
+###  Публикация: 1517040   (164428) от 13.12.2021
+
+Софья Прокофьева | Сказка о жадном мальчишке (1965) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как легко сделать человека жадным: вазочка конфет да кошелёк звонких монет. Но пересилит ли всё это, когда твоему другу требуется помощь?Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB706694D8D1F7C9B51F5B84301964996907106A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346322   (164424) от 18.12.2019
+
+Венди Моугел | Уроки голоса для родителей. Как превратить ваши природные «вокальные» данные в эффективный инструмент воспитания (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голос – сильнейший инструмент в воспитании ребенка. От того, как вы разговариваете со своим чадом, зависит его умение общаться, послушность и самое главное – чувства к вам. Но многие родители даже не подозревают, насколько важна роль голоса в воспитательном процессе.
+Человек – социальное существо. Ему жизненно необходимо общение, и оно должно быть правильным.
+В своей (   Читать дальше...   )Жанр: Воспитание детей, детская психологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21397021C8A1026E14CB4912FEAC41EA2CEE31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346245   (164408) от 18.12.2019
 
 Книжная серия | «Прикольный детектив» [17 книг] (2015-2019) [EPUB]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164408.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164342.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164336.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164331.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164242.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164204.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164125.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164118.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164104.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164060.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163771.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163729.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163721.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163666.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163618.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163611.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163554.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163546.jpg" />
 </div>
 
 
@@ -495,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163537.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163526.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163512.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163473.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163453.jpg" />
 </div>
 
 
@@ -630,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163442.jpg" />
 </div>
 
 
@@ -641,59 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D17AB58460BA4A6267C7D1CCEF1EE51930EA49C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517281   (163426) от 14.12.2021
-
-Меган Мак-Катчен | Прокачай самооценку. Как победить неуверенность в себе и жить свободно (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа, друзья, взрослые, соцсети очень часто влияют на то, каким ты себя видишь и что ощущаешь. В этом практическом руководстве представлены интересные творческие задания, которые помогут мыслить позитивно, избавиться от неуверенности и научиться любить себя. Более 50 упражнений (анкеты, тесты, чек-листы и многое другое) помогут научиться ставить цели и понимать, (   Читать дальше...   )Жанр: Педагогика/Воспитание детей/ПсихологияПеревод: Василия ГороховаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86C31CAF8DDBB3ECEBC170FBAB8A2216CD2F8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346560   (163383) от 19.12.2019
-
-Баррингтон Барбер | Перспектива и композиция (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это универсальное пособие научит вас основам построения перспективы и композиции, необходимым для передачи в рисунке движения и пространства.
-В этом небольшом руководстве в наглядных примерах и пошаговых инструкциях просто и доступно изложены основные правила перспективы. Вы узнаете о способах их использования в самых разных композициях – от панорамных ландшафтов (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7D62FA8E22C654F74F1EF0C3D4349C99DF3953
 ```
 
 https://mybot314.ru/tekegram_catalog/

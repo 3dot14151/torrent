@@ -1,3 +1,55 @@
+###  Публикация: 1078364   (301671) от 30.11.2016
+
+Deus Ex: Mankind Divided (2016) [Ru/Multi] (1.11.616.0/dlc) SteamRip R.G. Origins [Digital Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301671.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе 2029 год. Общество отвергло людей, установивших механические аугментации, и превратило их в совершенных изгоев. Став тайным агентом, Адам Дженсен вынужден действовать в мире, который презирает ему подобных. Используя обновленный арсенал современного оружия и аугментаций, он должен найти верных людей и подобрать к ним подход, чтобы раскрыть впечатляющий всемирный (   Читать дальше...   )Тип издания: SteamRipРазработчик: Eidos-Montréal, Nixxes Software BVЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd Person, StealthЯзык озвучки: Русский, Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E747981D7C0E69F9D1499C69271A7C8F9D53DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078313   (301669) от 30.11.2016
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.11.30 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF7B577849F7EC257366F72A6340BCFDBA53CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077902   (301663) от 30.11.2016
 
 Отряд самоубийц / Suicide Squad (2016) BDRip [H.264/1080p] [Extended Cut]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301663.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301661.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Assassin's Creed: Director's Cut Edition (2008) [Ru/Multi] (1.0.2.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301660.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301659.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Maxon CINEMA 4D Studio R23.110 build RB330286 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301514.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301478.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301477.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_300820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300820.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_300742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300742.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Adobe Photoshop CC 2018 (19.0.1) Special Edition x86/x64 RePack by Gosuto [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300657.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ F.E.A.R. (2005) [Ru] (1.08/dlc) Repack Other s [Platinum Collection]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300650.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300648.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_300594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300594.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300427.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Fallout 4 (2015) [Ru/Multi] (1.1.29.0.0) License PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300395.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300393.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300391.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300386.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru] (1.0.6
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300338.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ My Summer Car (2016) [En] (10.11.2018) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300327.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Windows 7 Firewall Control Plus 5.1.14.79 [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_299877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_299877.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ Far Cry 3 [Ru] (RePack/1.02) 2012 | Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299876.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_299874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_299874.jpg" />
 </div>
 
 
@@ -621,67 +673,13 @@ Gorky 17 / Горький-18: Мужская работа (1999) [Ru] (1.0) Unof
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299725.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Дело происходит где-то в дебрях Северного Кавказа, на территории секретного военного города Горький-18. В городе творится что-то страшное и непонятное, отдельные граждане пропадают без вести. И тогда на разведку засылаются специально обученные люди, способные решать любые задачи где угодно.Тип издания: UnofficialРазработчик: Metropolis Software HouseЖанр: СтратегияЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845516   (299032) от 03.12.2014
-
-LittleBigPlanet 3 / Little Big Planet 3 [PS3] [EUR] [Ru] [Multi 12] [4.65] (2014)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэкбой возвращается, да не один! На этот раз с ним его верные друзья – Тоггл, Оддсок и Свуп. Каждый из них обладает яркой индивидуальностью и, конечно, уникальными способностями.
-В Little Big Planet 3 Сэкбою и его товарищам предстоит отправиться на новую планету – настоящий рай для творчества, где сам воздух напоен креативными идеями. К сожалению, наш вязаный герой (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Sumo Digital , XDevЖанр: Arcade (Platform) / 3DЯзык озвучки: Русский/Multi 12Язык интерфейса: Русский/Multi 12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE9CEC03078AB9299D3F364CB1D7DDAFBD3662D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333432   (298467) от 27.10.2019
-
-В Минкомсвязи сочли изоляцию российского интернета "дорогим удовольствием"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298467.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Минкомсвязи заявили, что Рунет не будет развиваться по пути Китая
-Интернет в России не будет развиваться по китайскому пути, иначе рынок рискует потерять 150 миллионов пользователей, заявил замглавы Минкомсвязи РФ Алексей Волин. Чиновник также сомневается в экономической целесообразности изоляции Рунета, передает ТАСС.«Мы совершенно не уверены, что это экономически (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

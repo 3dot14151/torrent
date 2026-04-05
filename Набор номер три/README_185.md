@@ -1,3 +1,162 @@
+###  Публикация: 1369294   (795117) от 28.05.2020
+
+Макарошки, денежка и зая. Вам не стыдно использовать уменьшительные?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признаемся честно: мы (авторы подкаста о русском) иногда говорим слова "вкусняшка" и "одеялко" (ругая себя за это). Но почему полицейский просит показать "документики" (хотя вряд ли испытывает к нам ласку), продавец – пытается продать нам "телефончик", а начальник – называет "зайкой"? Может, пора искоренять уменьшительно-ласкательные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385741   (795081) от 28.05.2020
+
+Путин разрешил в России выборы через интернет
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Президент России Владимир Путин подписал ряд законов, связанных с дистанционным голосованием на цифровых избирательных участках и сборе электронных подписей на выборах.Цифровые избиратели
+Президент России Владимир Путин в субботу 23 мая 2020 г., подписал три закона, направленных на совершенствование процедуры проведения дистанционного голосования на выборах. Все (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386307   (795077) от 28.05.2020
+
+Проекты - Motion Array - Happy Birthday Opener 3 - 595077 [AEP]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Happy Birthday Opener - это фантастический шаблон After Effects.
+Вы ищете классный способ отпраздновать свой день рождения или другое предстоящее мероприятие? Тогда не ищите дальше ни чего, это шаблон AE для вас. Он элементарен в использовании, просто отредактируйте текст, перетащите ваши медиа в заполнители и нажмите кнопку рендеринг. Произведите впечатление на (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1D0250738156E9D819BB51646385426DC97160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284440   (795073) от 28.05.2020
+
+Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) Repack Other s [Gold Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795073.jpg" />
+</div>
+
+
+###  Подробнее
+
+2036 год. Прошло четверть века с тех пор, как ядерная война опустошила землю. Москва лежит в руинах, и несколько тысяч выживших вынуждены бороться за существование в тоннелях метро. Их не убила отравленная природа и мутировавшие чудовища, они пережили сверхъестественный кошмар и ужасы гражданской войны. Теперь в роли Артема вы должны покинуть метро и возглавить бойцов (   Читать дальше...   )Тип издания: RepackРазработчик: 4A GamesЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0AFDC9A7998E444CC7140F8628836493A19F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273498   (794777) от 05.01.2019
+
+Google отказалась от обязательного выпуска обновлений для смартфонов Android One. ОБНОВЛЕНО 03.01.2019
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794777.jpg" />
+</div>
+
+
+###  Подробнее
+
+С официальной страницы проекта Android One исчез пункт о гарантированном получении системных обновлений от Google в течение двух лет после выпуска устройства. На изменение обратил внимание один из пользователей форума Reddit.Google объявила о запуске инициативы Android One несколько лет назад. Изначально основной концепцией Android One было распространение недорогих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274087   (794773) от 05.01.2019
+
+Nvidia DriverPack Hotfix v.417.58 RePack by CUTA [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nvidia DriverPack - это единый пакет с драйверами для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
+Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9ECDEF7E7F75BDF9DE1D177B290E0394F12EE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508898   (794734) от 12.11.2021
 
 Работодателям в Португалии запретили беспокоить сотрудников в нерабочее время
@@ -6,7 +165,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_794734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794734.jpg" />
 </div>
 
 
@@ -33,7 +192,7 @@ Debian 9 Xfce Custom v3 2018.12.30 [amd64] 1xDVD
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794691.jpg" />
 </div>
 
 
@@ -62,7 +221,7 @@ CFW Rebug 4.82.3 REX LightRa1n MOD (2019) [PS3] [Repack] [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794690.jpg" />
 </div>
 
 
@@ -88,7 +247,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794687.jpg" />
 </div>
 
 
@@ -114,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794685.jpg" />
 </div>
 
 
@@ -140,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_794601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794601.jpg" />
 </div>
 
 
@@ -168,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_794598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794598.jpg" />
 </div>
 
 
@@ -194,7 +353,7 @@ Opera 50.0.2762.67 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794537.jpg" />
 </div>
 
 
@@ -220,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_794529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794529.jpg" />
 </div>
 
 
@@ -246,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794516.jpg" />
 </div>
 
 
@@ -274,7 +433,7 @@ GoodbyeDPI.0.1.6. Launcher-4.4 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794515.jpg" />
 </div>
 
 
@@ -303,7 +462,7 @@ Windows 10 Pro 21H1 19043.1288 x64 ru by SanLex [Ru] (2021.10.30)
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794511.jpg" />
 </div>
 
 
@@ -329,7 +488,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.405.2.0/dlc) License CODEX [Premium Edition
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794509.jpg" />
 </div>
 
 
@@ -355,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_794361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794361.jpg" />
 </div>
 
 
@@ -382,7 +541,7 @@ Acronis True Image 2016 19.0 Build 6569 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794291.jpg" />
 </div>
 
 
@@ -408,7 +567,7 @@ Final Fantasy IX (2016) [En/Multi] (1.0.20160426) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794281.jpg" />
 </div>
 
 
@@ -434,7 +593,7 @@ Delcam ArtCAM Pro 2012 SP2 build 359 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794280.jpg" />
 </div>
 
 
@@ -460,7 +619,7 @@ Fallout 4 Patch [Patch + Crack] (2016) (1.5.157)
 >>19
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794278.jpg" />
 </div>
 
 
@@ -487,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794214.jpg" />
 </div>
 
 
@@ -513,7 +672,7 @@ Metro Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.7.16/dlc) Repack xa
 >>48
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794213.jpg" />
 </div>
 
 
@@ -524,163 +683,6 @@ Metro Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.7.16/dlc) Repack xa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE80DE85BCFDCB04CAA21348EA07FEC15FBACD7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122136   (794176) от 05.04.2017
-
-Интернет-компании выступили против блокировки сайтов с нелицензионным кино
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_794176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российские интернет-компании высказались против предложения министра культуры Владимира Мединского упростить процедуру блокировки сайтов с нелицензионным контентом. Об этом пишет газета «Ведомости» со ссылкой на письмо Российской ассоциации электронных коммуникаций (РАЭК) спикеру Госдумы Вячеславу Володину.Из послания следует, что стремление защитить российское кино, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122350   (794144) от 05.04.2017
-
-FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794144.jpg" />
-</div>
-
-
-###  Подробнее
-
-FlatOut 4: Total Insanity - это очередная часть знаменитой гоночной аркадной серии, в которой игрокам позволено фактически все - в том числе и "стрелять" водителем автомобиля из лобового стекла, чтобы установить рекорд дальности полета. Подзаголовок Total Insanity немного неточен - полного безумия здесь нет. По крайней мере, в режиме карьеры, состоящем (   Читать дальше...   )Тип издания: LicenseРазработчик: Kylotonn Entertainment, Tiny Rebel GamesЖанр: Racing, Arcade, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E6E0545FC80E1DAC6A66866E64C689776375E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122209   (794143) от 05.04.2017
-
-Когда российское кино совсем "не заходит"
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_794143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Претензия
-Довожу до Вашего сведения, что мной 18 марта 2017 года был приобретен билет на просмотр фильма "Везучий случай".В кинозал я вошел в хорошем настроении. По заявлении кинотеатром и режиссером Самгиным фильм "Везучий случай" - комедия. Но заявленными характеристиками фильм не обладает. Шутки, которые используются в фильме уже были использованы (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122580   (794142) от 05.04.2017
-
-LEGO City Undercover (2017) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Чейзу! В игре LEGO® CITY Undercover вы примерите на себя роль Чейза Маккейна — офицера полиции, которому поручена операция под прикрытием по поиску преступника Рекса Фьюри. В совместном режиме для двух игроков можно исследовать открытый мир мегаполиса LEGO® City, состоящего из более чем 20 кварталов, в котором вас ждут расследования, угонщики, вождение (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Arcade, 3D, 3rd Person, Open WorldЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10321EDC579E4E08FA6FEEF102978F941D4DEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122607   (794140) от 05.04.2017
-
-Максим Дорофеев | Джедайские техники. Как воспитать свою обезьяну, опустошить инбокс и сберечь мыслетопливо (2017) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему, даже зная, как надо правильно работать, человек на практике делает все так, как привык… то есть плохо? Максим Дорофеев простым и доступным языком объясняет, почему так происходит. Прочитав его книгу, вы узнаете, как устроено ваше мышление и память; почему вы неэкономно тратите ресурсы своего мозга; как их сохранить, как правильно концентрироваться, формулировать (   Читать дальше...   )Жанр: Личностный рост, Самосовершенствование, Лайфхаки, Тренировка мышленияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65ABB3915C372DC3FDA15EAB64922F4832F6D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122369   (794137) от 05.04.2017
-
-Бессонная ночь / Sleepless (2017) WEB-DL [H.264/1080p-LQ] [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейские Винсент с напарником стали обладателями сумки с 25 килограммами кокаина. Но данный товар принадлежит одной крупной шишке и чтобы вернуть кокаин, у Винсента похищают его сына. Винсент идет возвращать своего сына.Производство: США, FilmNation Entertainment, Open Road Films (II), Riverstone Pictures, Vertigo EntertainmentЖанр: Боевик, ТриллерРежиссер: Баран бо ОдарАктеры: Мишель Монахэн, Гэбриэл Юнион, Дермот Малруни, Джейми Фокс, Скут МакНэри, Дэвид Харбор, Ти-Ай, Вероника МакКласки, Октавиус Дж. Джонсон, Тим КонноллиПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Озвучка / Автор перевода: BadBajoСубтитры: Английские (отключаемые)Продолжительность: 01:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4140119C65684E809F84198B74F729E84986F95F
 ```
 
 https://mybot314.ru/tekegram_catalog/

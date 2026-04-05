@@ -1,3 +1,83 @@
+###  Публикация: 1854633   (1057743) от 19.02.2026
+
+А.И. Островский | Начертательная геометрия в популярном изложении (1953) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал книги рассчитан на учащихся строительных техникумов и ВУЗов.Жанр: Технические наукиИздательство: Государственное издательство технико-теоретической литературыФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E057CCCB345D9A7DA9DD87D3092A4AA3794D8765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854636   (1057742) от 19.02.2026
+
+В.О. Гордон | Курс начертательной геометрии (1988) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Широко известное и очень популярное учебное пособие по начертательной геометрии. Соответствует программе, утвержденной Минвузом СССР для машиностроительных и приборостроительных специальностей втузов.
+
+В новом издании принята современная система обозначений, добавлен раздел «Начертательная геометрия и машинная графика».Жанр: Технические наукиИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16ECB8F2192A5C421CA46C34DBEBB045795157EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854641   (1057741) от 19.02.2026
+
+В.О. Гордон | Сборник задач по курсу начертательной геометрии (1971) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057741.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике подобраны задачи по начертательной геометрии применительно к программе для машиностроительных, приборостроительных и механико-технологических специальностей втузов. Сборник может служить учебным пособием для студентов всех форм обучения, особенно заочной, и будет очень полезен изучающим курс в их самостоятельной работе. В задачнике показан процесс решения (   Читать дальше...   )Жанр: Технические наукиИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E34419A80E0971BCF475F7F3F63F0037C4D69F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854697   (1057735) от 19.02.2026
 
 Х.А. Арустамов | Сборник задач по начертательной геометрии (1978) [DJVU]
@@ -6,7 +86,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057735.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057662.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Sylvie Pommier, Yves Berthaud | Mécanique Générale (2010) [PDF] [FR]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057446.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057411.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057337.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ André CHEVALIER | Guide du dessinateur industriel (2004) [PDF] [FR]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057199.jpg" />
 </div>
 
 
@@ -159,32 +239,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853675   (1056914) от 15.02.2026
-
-А.П. Бочкарев, Е.А. Захарова | Вооруженные силы иностранных государств (2026) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для лекционных занятий и самостоятельной работы студентов всех профилей и направлений подготовки РГАУ-МСХА имени К.А. Тимирязева по дисциплине Безопасность жизнедеятельности. Посвящено теме «Организация воинских частей и подразделений, вооружение, боевая техника вероятного противника» модуля «Основы военной подготовки».Жанр: Учебное пособиеИздательство: РГАУ-МСХАФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D31AE8B45C7C76C9B8F992A1B60FAE8A6B33221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853669   (1056913) от 15.02.2026
 
 М.И.Сканави (ред.) | Сборник конкурсных задач по математике для поступающих во втузы (1978) [DJVU]
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056913.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Jean-Louis FANCHON | Guide des SCIENCES ET TECHNOLOGIES INDUSTRIELLES (2026) [PD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056741.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055897.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055461.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055052.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055047.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055046.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055040.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054561.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054459.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053999.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052764.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052763.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052762.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052761.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051837.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051707.jpg" />
 </div>
 
 
@@ -630,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EDF23DEF4799010D2C1263D9D72E74E86B277A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846426   (1051462) от 08.01.2026
-
-М.Н. Мисюк | Основы медицинских знаний. Учебник и практикум [3-е издание] (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051462.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе освещаются теоретические основы, причины возникновения и развития основных заболеваний человека, их современная классификация, подходы к лечению и способы профилактики. Рассматриваются медико-гигиенические аспекты здорового образа жизни. Особое внимание уделяется комплексу профилактических мер по нераспространению инфекций в детском коллективе, предупреждению (   Читать дальше...   )Жанр: Учебная литератураИздательство: ЮрайтФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509FE02616A6C6A71EC31268A3F8A045DC788705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846081   (1051154) от 05.01.2026
-
-П.В. Кауров | Сопротивление материалов (2025) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие соответствует программам и учебным планам дисциплины «Сопротивление материалов» для студентов, обучающихся по направлению подготовки 15.03.02 «Технологические машины и оборудование».
-Учебное пособие содержит общие сведения по теории дисциплины «Сопротивление материалов». Представлен порядок самостоятельного расчета элементов конструкций на прочность (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ГУПТДФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00AAB934E106646C1A6B6F5CFB25AE8A9A4B71A
 ```
 
 https://mybot314.ru/tekegram_catalog/

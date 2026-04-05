@@ -1,3 +1,32 @@
+###  Публикация: 1328230   (365877) от 29.09.2019
+
+Volbeat - Rewind Replay Rebound (Japanese Edition) (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Day Under The Sun (4:48)
+02. Pelvis On Fire (3:05)
+03. Rewind The Exit (4:15)
+04. Die To Live (3:02)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Psychobilly, Rockabilly, Groove Metal, Rock and RollПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2177645E569EE0ED0B5A7B6C81DD652FE25362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328288   (365870) от 29.09.2019
 
 Lacuna Coil - Black Anima (2019) [MP3|320 Kbps] <Alternative Metal>
@@ -6,7 +35,7 @@ Lacuna Coil - Black Anima (2019) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365870.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Coldrain - Vena (2015) [FLAC|tracks+.cue]<Alternative Rock,Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365855.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015, It Sounds/ [FLAC|tracks+.c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365800.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bryan Adams - Get Up (2015) Japanese Edition [FLAC|image+.cue]<Classic Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365664.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365431.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Ureas - The Naked Truth (2006) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365409.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Tibetan Sky Burial - Lamenta (2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365407.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Everything In Slow Motion - Influence (2020) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365403.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Chaos Divine - Legacies (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365390.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ TIRDUS - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365388.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Gone are the Days - There (2019) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365384.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Pav - Behind The Black Stripe (2020) [FLAC|Lossless|WEB-DL] <Alternative Metal, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365382.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ The Beatles - Abbey Road (2019) The 50th Anniversary Edition, 3-CD [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365373.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365317.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ The Progressive Souls Collective - Sonic Birth (2020) [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365254.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365251.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ T. Rex - T. Rex FM Broadcast 1976 (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365250.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Moonlight Haze - Lunaris (2020) [FLAC|Lossless|image + .cue] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365243.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Rammstein - Rammstein (2019) Deluxe Edition [FLAC|Lossless|image + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365231.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365161.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365130.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365113.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Santana - FM Broadcast Santana Live (2014) [MP3|320 Kbps] <Rock, Indi Rock, Pop 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365108.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Hurricane - Slave To The Thrill (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365103.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Eagles - Live From The Forum MMXVIII (2020) [MP3|320 Kbps] <Classic Rock, Legend
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364967.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ Eagles - Live From The Forum MMXVIII (2020) [MP3|320 Kbps] <Classic Rock, Legend
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D23146CA756436D61E8DC7312B1E393B6F37AD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416652   (364958) от 17.10.2020
-
-Bruce Springsteen - Letter To You (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Minute You're Here [00:02:57]
-02. Letter To You [00:04:55]
-03. Burnin' Train [00:04:03]
-04. Janey Needs A Shooter [00:06:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FD95C14CFA21F3C9B4B3C0E9C179F42BD2F7E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

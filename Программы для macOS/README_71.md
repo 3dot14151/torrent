@@ -1,3 +1,57 @@
+###  Публикация: 1137753   (666777) от 27.05.2017
+
+SimBooster Premiun 2 2.9.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666777.jpg" />
+</div>
+
+
+###  Подробнее
+
+SimBooster представляет собой утилиту все-в-одном, которая включает в себя разнообразные системные инструменты, для оптимизации Вашего Mac.
+
+Для медленных компьютеров Mac, SimBooster может освободить оперативную память для увеличения рабочих скоростей. Для пользователей, которые страдают от небольшого пространства на жестком диске, SimBooster может очистить мусор, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2017Разработчик: FMX CO., LTD.Поддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD74BC0042F4EC2BF1118920C3CACBF0AC4262C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537678   (666761) от 17.03.2022
+
+KCNcrew Pack 03-15-22 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666761.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под macOS с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2022Разработчик: © 2005-2022 KCNcrewПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754E730922ACFF3834B57705C3B9D312392213FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137697   (666727) от 27.05.2017
 
 TryToMP3 4.0 [En]
@@ -6,7 +60,7 @@ TryToMP3 4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666727.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ PDFpenPro 9.0.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666720.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ MediaChance Dynamic Auto Painter PRO 5.21 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665833.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Mocks 2.6.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665642.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ TableEdit Pro v1.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665574.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ Aqua Data Studio 18.0.13 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665247.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ MP4Tools 3.7.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664408.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Paste 2.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664321.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ Schwartz v1.7.8 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664255.jpg" />
 </div>
 
 
@@ -252,7 +306,7 @@ Any DVD Ripper Pro v3.7.89 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664198.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ Any FLAC Converter v3.8.29 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664134.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ Colol 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663153.jpg" />
 </div>
 
 
@@ -334,7 +388,7 @@ Tipard Video Converter Ultimate v9.1.16 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663105.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ DNSCrypt 1.0.14 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663008.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ Simple Screen Shade 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662459.jpg" />
 </div>
 
 
@@ -415,7 +469,7 @@ Replay Converter 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662400.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ Replay Music 3.0.2 U2B 3.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662392.jpg" />
 </div>
 
 
@@ -469,7 +523,7 @@ Replay Media Catcher 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662306.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ Replay Video Capture 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662305.jpg" />
 </div>
 
 
@@ -523,7 +577,7 @@ Endurance 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662302.jpg" />
 </div>
 
 
@@ -550,7 +604,7 @@ Squeed 1.12.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662213.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ Forecast Bar 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662155.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ URL Extractor 4.5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661295.jpg" />
 </div>
 
 
@@ -636,7 +690,7 @@ Translator & Dictionary 1.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661198.jpg" />
 </div>
 
 
@@ -650,58 +704,6 @@ Ranslator & Dictionary, самый популярный инструмент д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CB50589EA82A42D0B1B9467B34E498BEC1AB34D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538947   (661183) от 22.03.2022
-
-Movavi Picverse Photo Editor 7.1 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Picverse предназначен как для начинающих, так и для опытных фотографов. Фоторедактор оснащен нейросетевыми функциями, которые помогут вам мгновенно получить профессиональный результат. Благодаря удобному, интуитивному интерфейсу на русском языке вы сможете сразу же начать работу в программе. Скачайте фоторедактор на компьютер и попробуйте прямо сейчас.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2022 Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2578C82B5F23D73C1E7D3F63D0EC425879D08F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538994   (660342) от 23.03.2022
-
-GlanceCal 1.6.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работайте на Mac более продуктивно с GlanceCal и никогда больше не пропустите встречу. Легко и быстро узнайте, какая встреча будет следующей, и получите общее представление о своем дне.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2019-2022 Henri BredtПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9FA72637460A36FBDB5B2B71D0EC65F2FCB82
 ```
 
 https://mybot314.ru/tekegram_catalog/

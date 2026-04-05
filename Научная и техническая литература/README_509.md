@@ -1,138 +1,3 @@
-###  Публикация: 618888   (225747) от 11.12.2018
-
-П.А. Судоплатов, А.П.Судоплатов | Ас разведки Павел Судоплатов [1996-2003] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка из пяти книг рассказывает о деятельности талантливого разведчика-нелегала Павла Анатольевича Судоплатова, человека с нелегкой судьбой, который несмотя на его громадные заслуги перед Родиной в 1953 году был арестован и 15 лет провел в заключении как "ближайший пособник Берии". Три книги являются воспоминаниями самого разведчика, а две написаны его (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4EAD5E02FFD59C0ADE40CB056F6DC17DB9897C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424707   (225692) от 18.11.2020
-
-П.Н. Врангель | Белый Крым. Мемуары Правителя и Главнокомандующего вооружёнными силами Юга России (2014) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со страниц этой книги к современному читателю обращается знаменитый русский военачальник, герой Русско-японской и Первой мировой войн, Георгиевский кавалер, один из главных руководителей Белого движения в годы Гражданской войны барон генерал Пётр Николаевич Врангель (1878-1928). Он принял руководство Русской Армией в обстановке, когда Белое дело было практически (   Читать дальше...   )Жанр: История. Биографии и мемуары. Военное дело. Документальная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6B5C31606E91918EAE59816BB53FAD1A9ECE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424654   (225553) от 18.11.2020
-
-И.Т. Глебов | Деревообрабатывающие станки. Схемы (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены понятия о схемах функциональных, кинематических, гидравлических, пневматических и электрических, показаны символы обозначений элементов схем, приведено понятие передаточного числа механизмов главного движения и подачи. Указано назначение станков, приведены технические характеристики станков лесопильных рам, ленточнопильных вертикальных и горизонтальных, (   Читать дальше...   )Жанр: Деревообработка, учебникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1000BDDA14BFC37D535424DF6D5731D76D5B8C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424967   (225546) от 18.11.2020
-
-А. Митрофанов | Корабли и история [4 книги] (2018) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга является первой из серии, посвященной малоизвестным большинству наших читателей страницам морской истории различных стран. Вы познакомитесь с историей подводного флота Испании и ее учебным парусником-ветераном «Хуаном Себастьяно де Элькано», чилийским броненосцем «Потемкиным» – линкором «Альмиранте Латорре», монитором «Уаскар», прославившимся в сражениях (   Читать дальше...   )Жанр: История, Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466D82038AC1915AAB9ED69C2A424638A018A833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585747   (225398) от 09.12.2012
-
-Подборка | Oxford University Press: Business Result [PDF, DOC, +AudioCD] [En]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс делового английского Business Result помогает учащимся развивать необходимые навыки делового общения быстро и эффективно. Это возможно благодаря программе, направленной на коммуникацию, мультимедийной поддержке, а также благодаря советам экспертов одной из лидирующих бизнес-школ мира.
-
-Ключевые характеристики:
-•Программа обеспечивает владение навыками делового общения в режиме «узнай и используй».
-•Случаи из деловой практики дают возможность аутентичного погружения в реалии делового англоязычного мира.
-•«Мнение эксперта» от Крэнфилдской школы Менеджмента предлагает авторитетный деловой комментарий по каждому случаю из практики.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794DE88B15BEFE42649BA79705E23A5F086C29CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268750   (225138) от 12.12.2018
 
 Ф. В. И. Шеллинг | Система трансцедентального идеализма (1936) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225138.jpg" />
 </div>
 
 
@@ -170,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225083.jpg" />
 </div>
 
 
@@ -196,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225080.jpg" />
 </div>
 
 
@@ -224,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225042.jpg" />
 </div>
 
 
@@ -251,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224995.jpg" />
 </div>
 
 
@@ -277,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224986.jpg" />
 </div>
 
 
@@ -303,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224983.jpg" />
 </div>
 
 
@@ -329,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224973.jpg" />
 </div>
 
 
@@ -358,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224629.jpg" />
 </div>
 
 
@@ -386,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224600.jpg" />
 </div>
 
 
@@ -413,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224586.jpg" />
 </div>
 
 
@@ -439,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224509.jpg" />
 </div>
 
 
@@ -466,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224504.jpg" />
 </div>
 
 
@@ -492,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224484.jpg" />
 </div>
 
 
@@ -519,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224466.jpg" />
 </div>
 
 
@@ -545,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224428.jpg" />
 </div>
 
 
@@ -572,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224342.jpg" />
 </div>
 
 
@@ -599,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224184.jpg" />
 </div>
 
 
@@ -625,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224112.jpg" />
 </div>
 
 
@@ -652,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224097.jpg" />
 </div>
 
 
@@ -678,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224061.jpg" />
 </div>
 
 
@@ -689,6 +554,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3420E717076C0266F277C9CB4F72832118C66667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587464   (224055) от 10.12.2012
+
+А.Д.Цыганок | Русский взгляд на израильские войны: Вторая Ливанская – 2006 и в секторе Газа – 2009 [2011] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224055.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются стратегия сторон, особенности действий войск и войсковых группировок при блокировании территории Ливана, воздушная, наземная и информационная фазы войны, операции специальных войск, формирований тыла в ходе войны, отличия войны в секторе Газа (2009) от Второй Ливанской войны (2006). Ее уроки и выводы важны не только для участниц вооруженной борьбы, но и для развития теории и практики военной сферы России.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCEDA75F2E79237A4B8F2FC3B5D706B8FB30CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965837   (223917) от 15.12.2015
+
+Сергей Соловьев, Геннадий Прашкевич | Толкин (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже много десятилетий в самых разных странах люди всех возрастов не только с наслаждением читают произведения Джона Р. Р. Толкина, но и собираются на лесных полянах, чтобы в свое удовольствие постучать мечами, опять и опять разыгрывая великую победу Добра над Злом. И все это придумал и создал почтенный оксфордский профессор, педант и домосед, благочестивый католик. (   Читать дальше...   )Жанр: Биографии и Мемуары, ЛитературоведениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4EF729AC70908582D2B86A558010673A0376C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425109   (223911) от 19.11.2020
+
+Кристи Фанк | Грудь. Руководство пользователя (2020) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли вы, что каждый день делаете выбор, который приближает вас к заболеваниям груди – или отдаляет вас от них? Что в большинстве случаев заболевания, в том числе и действительно страшные, не зависят от судьбы, и есть способы уменьшить ваши факторы риска до нуля? Что многие вещи, которые вы слышали о причинах возникновения рака молочной железы, являются ложными? (   Читать дальше...   )Жанр: Научная литература, МедицинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB4085BC6256177E2E4B1A1C51C7B075655F26C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425017   (223901) от 19.11.2020
+
+В.П. Корявов | Методы решения задач в общем курсе физики [6 книг] (2011 - 2013) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из 6 книг с разбором методов решения задач по всему курсу общей физики.Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE73D2D0F890EB4E828E8CC323537461D06F3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425218   (223893) от 19.11.2020
+
+Жюль Верн | Всеобщая история географических открытий (2020) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свой знаменитый труд «Всеобщая история географических открытий» известный французский писатель Жюль Верн (1828–1905) писал более десяти лет. Книга получила мировое признание, она переведена на многие языки и пользуется заслуженной славой одного из лучших изданий по истории освоения человечеством планеты Земля.
+В данном издании мы объединили все три книги: «Открытие (   Читать дальше...   )Жанр: Всемирная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FA2B7E16BF4F474609F309F7EC614819956770
 ```
 
 https://mybot314.ru/tekegram_catalog/

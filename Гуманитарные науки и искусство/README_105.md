@@ -1,83 +1,3 @@
-###  Публикация: 1269473   (217947) от 16.12.2018
-
-В.У. Громов | Вещественные улики и научно-уголовная техника [пособие для органов расследования] (1932) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собою повторное издание моей книги «Материальная истина и научно-уголовная техника».
-
-Наша криминалистическая литература еще весьма бедна книгами, дающими описание основных методов научно-уголовной техники, имеющих широкое применение в работе расследовательских органов. Между тем работниками расследования ощущается настоятельная потребность (   Читать дальше...   )Жанр: История, политология, науковедение, правоведение, криминалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845BB16420774BF007040DBB36BC587E988F0EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269889   (217273) от 16.12.2018
-
-П.П. Маслов | Наука о народном хозяйстве (1923) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание «Курса науки о народном хозяйстве» вызвано следующими соображениями. Во всех имеющихся учебниках или совсем нет отдела об экономических законах потребления, или, если имеется отдел о потреблении, то в него входит все, что угодно автору, только не законы потребления, которые экономической наукой очень мало выяснены. Между тем мировая война и связанные с ней (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAE0963399CA4625B934B3896ADF1127A7B839E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966795   (216895) от 19.12.2015
-
-Ф. Текеи | К теории общественных формаций: Проблемы анализа общественных форм в теоретическом наследии К. Маркса (1972) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ф. Текеи фактически высказывает мнение о том, что классики марксизма-ленинизма всегда исходили из "эмпирического индивида", и иллюстрирует его цитатами из работ К. Маркса и Ф. Энгельса. Однако он не всегда учитывает контекст, в котором употребляются приводимые им цитаты. Ф. Текеи не раскрывает смысл утверждения исходить - из "эмпирического, конкретного (   Читать дальше...   )Жанр: История, философия, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967DC7260235C7F1E7C831A869208D763F368B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343638   (216880) от 07.12.2019
 
 А. Н. Трайнин | Учение о составе преступления (1946) [DJVU, PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216880.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216762.jpg" />
 </div>
 
 
@@ -142,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216722.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216700.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216393.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216359.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216324.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216205.jpg" />
 </div>
 
 
@@ -301,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215914.jpg" />
 </div>
 
 
@@ -327,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215645.jpg" />
 </div>
 
 
@@ -353,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215571.jpg" />
 </div>
 
 
@@ -380,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215235.jpg" />
 </div>
 
 
@@ -406,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215000.jpg" />
 </div>
 
 
@@ -434,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214971.jpg" />
 </div>
 
 
@@ -460,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214828.jpg" />
 </div>
 
 
@@ -488,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214745.jpg" />
 </div>
 
 
@@ -514,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214541.jpg" />
 </div>
 
 
@@ -540,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214405.jpg" />
 </div>
 
 
@@ -566,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214105.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213595.jpg" />
 </div>
 
 
@@ -620,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213031.jpg" />
 </div>
 
 
@@ -647,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213024.jpg" />
 </div>
 
 
@@ -673,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213021.jpg" />
 </div>
 
 
@@ -686,6 +606,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DEA169567F73FCE92C207934DBA3EFB3B71C56E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584851   (211995) от 19.10.2022
+
+Стивен Найт | Острые козырьки. Иллюстрированная история создания (2022) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный путеводитель по съемочной площадке культового сериала, который позволит погрузиться в его непередаваемую атмосферу! Вы узнаете, какие реальные события легли в основу сюжета и почему создатели решили экранизировать именно эту историю; что думают о своих персонажах актеры; кто создавал костюмы и подбирал музыку и многое другое. Обо всем этом вам расскажут (   Читать дальше...   )Жанр: Культура. ИскусствоПеревод: И. МаксимоваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D55B924E7A8230B823D4C5FD8CF4410C8D68FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566455   (211662) от 29.07.2022
+
+Джови Меррил | Учимся рисовать акварелью с нуля. 25 пошаговых мастер-классов для начинающих (2022) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211662.jpg" />
+</div>
+
+
+###  Подробнее
+
+По понятным пошаговым мастер-классам и объяснениям профессионала вы научитесь создавать работы на популярные темы, а также освоите базовые акварельные техники и приемы, которые продвинут вас на новый уровень творчества!
+
+На страницах книги вас ждет:
+- разбор основных художественных понятий и техник;(   Читать дальше...   )Жанр: Живопись. Обучение искусству рисованияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB9A464D68D4E1E3A78B73BBBC620C5B716E0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586720   (211330) от 27.10.2022
+
+Марина Королёва | Чисто по-русски. Говорим и пишем без ошибок (2022) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Марины Королёвой «Чисто по-русски» выросла из знаменитых программ «Говорим по-русски» и «Как правильно», которые можно было в свое время услышать в эфире легендарной радиостанции «Эхо Москвы». Многие тексты публиковались и в еженедельных колонках автора в «Российской газете». Они рассказывают о самых интересных, трудных и спорных аспектах современного русского (   Читать дальше...   )Жанр: ЯзыкознаниеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320D77CE6F3DCB10E2126AB2C95C4A1B6A6B0901
 ```
 
 https://mybot314.ru/tekegram_catalog/

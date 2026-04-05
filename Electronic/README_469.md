@@ -1,3 +1,119 @@
+###  Публикация: 1697480   (118767) от 07.02.2024
+
+Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enemy On Earth (Vocoder Mix)
+02.  Land Of Nowhere
+03.  Fire On Ice
+04.  Hypermagic(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42A44BD66E077A2B7FD920869B2A4EABCD78373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697532   (118739) от 07.02.2024
+
+Laserdance - Fire On Earth (1994) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Under Fire
+02.  Pirates Of The Dark
+03.  The Asphyx
+04.  No Man`s Land(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CE0468EDA280C6E5A63DD518DD4DD14B863133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697287   (118652) от 08.02.2024
+
+Depeche Mode - Album Collection (1981-1990) German Press Intercord [APE|Lossless|image + .cue] <SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World In My Eyes (4:27)
+02. Sweetest Perfection (4:44)
+03. Personal Jesus (4:56)
+04. Halo (4:30)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 06:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B676C742DB472EF0B8716BA7EE9D90E21719A694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698286   (118583) от 08.02.2024
+
+Vintage Culture - Live @ Thunder Machine, Passio das Aguas, Goiania, Brazil (2023-11-24) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & Tube & Berger & Kyle Pearce - Come Come
+02. PACS - ID
+03. Mila Journée - Three
+04. Burlyaev & Godunov - Springy(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 06:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8260F23241BE4E11368B8C7EA14C2629EBF6F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698283   (118545) от 08.02.2024
 
 VA - Cooperation Trance Selection: Year of the Rabbit (2024) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA - Cooperation Trance Selection: Year of the Rabbit (2024) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118545.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Infected Mushroom - Re:born (2024) [MP3|320 Kbps] <Psy-Trance, Electro-House>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118320.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Fatboy Slim - Fatboy Slim Loves Carnival (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118302.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Laserdance - Force Of Order (2016) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118289.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Laserdance Orchestra - Volume 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Spaces
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118288.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Laserdance - Trans Space Express (2018) [OGG Vorbis|480 Kbps] <Electronic, Space
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118286.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Laserdance - Strikes Back (2000) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118281.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Winter Selection 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118269.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Armin van Buuren - A State Of Trance 1159 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118258.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Ash - Self-Discovery (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118255.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Keep It Trance Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118237.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Erotic Trap -  Bondage, BDSM, Role Play, Fetish, Domination, Rough Sex (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117977.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Nothing But... Trancetopia Vol. 12 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117973.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Deep Sexy Funky House (2024) [MP3|320 Kbps] <House, Funky House, Nu Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117956.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - The No.1 Electro Album (2012) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Elect
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117684.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Innellea - The Belonging (2024) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Progressi
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117638.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117583.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117571.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) 1st Austrian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117240.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117225.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Pet Shop Boys - Actually (1987) Holland Press [APE|Lossless|image + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117221.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Black Hole Trance Music 02-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117210.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Black Hole Trance Music 02-24 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CB06BA9CF13F7903F7A8DDF1A418B0CC2FE44A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700239   (117206) от 16.02.2024
-
-VA - Black Hole House Music 02-24 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - Flight 643 (KAAZE Extended Remix) [3:36]
-02. Emma Hewitt & ZOYA - HOLDING OUT FOR YOU (Extended Mix) [6:05]
-03. Robbie Rivera - The Warehouse (Club Mix) [5:46]
-04. PARAFRAME & Pavel Khvaleev - Move (Extended Mix) [5:30](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A3B3E097FAD2F6F7C7C808705327D613B90B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700141   (117205) от 16.02.2024
-
-Pet Shop Boys - Introspective (1988) 1st German Press / Holland Press [APE|Lossless|image + .cue] <SynthPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left To My Own Devices (8:17)
-02. I Want A Dog (6:16)
-03. Domino Dancing (7:41)
-04. I'm Not Scared (7:26)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F035E121995F1676DAA27FD32A660DC4EF5EF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700231   (117198) от 16.02.2024
-
-Стереополина - Песни для хорошего настроения (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117198.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ясно
-2. Никуда мы не пойдем
-3. Пластилин
-4. Вдвоём(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6585F22DF04574A3B8FB61319491CA8BF5F17547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699915   (117194) от 16.02.2024
-
-VA - The Best of 2023 from Sounemot Labels Group (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Fletcher & Ruslan Aschaulov - Lacrima (Victor Special Remix) [8:16]
-02. Iberian - Show Me (Vocal Mix) [5:46]
-03. Elgfrothi - Tomorrow Is Too Late (Original Mix) [8:18]
-04. Christian Westerhof - Smile Again (Original Mix) [5:54](   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB665CECE0CCC69BD4F2C053B63CE29221D1D2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

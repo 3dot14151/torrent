@@ -1,3 +1,84 @@
+###  Публикация: 1422278   (310808) от 08.11.2020
+
+Серия Кубков NASCAR 2020. Плей-офф. 35-й Этап. Мартинсвилл. Гонка / NASCAR Cup Series 2020. Playoffs. Round 35. Xfinity 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
+01 ноября 2020 года. Риджуэй (штат Вирджиния, США).
+35-й Этап. Мартинсвилл (Xfinity 500)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0DA4B9FC8B83A2E514FCF6B7E2E8EEE8207E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422447   (308683) от 09.11.2020
+
+Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Хоккенхаймринг, Гонка 1-2 / DTM. Hockenheimring, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Жанр: СпортПродолжительность: 01:45:09 + 01:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6E8792B1973BBD8F4C0ED6FE05212F1FD8AB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422450   (308682) от 09.11.2020
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Европы / MotoGP 2020. European GP (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308682.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFE49EC0432A95B5DA2420ECC5AADA974FCEA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422446   (308577) от 09.11.2020
 
 MotoGP. Этап 12. Гран-При Европы. Гонка. (08.11.2020) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +87,7 @@ MotoGP. Этап 12. Гран-При Европы. Гонка. (08.11.2020) WEBR
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308577.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304283.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302389.jpg" />
 </div>
 
 
@@ -91,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302385.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302209.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ MotoGP. Этап 17/19. Гран-При Австралии. Гонка. (27.10.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293026.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Гонка (16.11
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257568.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256707.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Спринт (15.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256706.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ MotoGP. Этап 03. Гран-при США. Спринт (15.04.2023) WEBRip [H
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255127.jpg" />
 </div>
 
 
@@ -275,7 +356,7 @@ MotoGP. Этап 03. Гран-при США. Гонка (16.04.2023) WEBRip [H.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255095.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Гонка (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252420.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252322.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Спринт 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252294.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ MotoGP. Этап 04. Гран-при Испании. Квалификация (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245931.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ MotoGP. Этап 04. Гран-при Испании. Спринт (29.04.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245907.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ MotoGP. Этап 02. Гран-при Аргентины. Спринт (01.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245882.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ MotoGP. Этап 04. Гран-при Испании. Гонка (30.04.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245656.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ MotoGP. Этап 05. Гран-при Франции. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243590.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ MotoGP. Этап 05. Гран-при Франции. Спринт (13.05.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243544.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243387.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ MotoGP. Этап 03. Гран-при Аргентины. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242649.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242000.jpg" />
 </div>
 
 
@@ -598,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45C064C7A61E7AA5E14EB88974C7BFB0C2B160F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460145   (241425) от 04.04.2021
-
-MotoGP. Этап 02. Гран-При Дохи. Квалификация. (03.04.2021) WEBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241425.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 апреля 2021, суббота. 20:00 МСК. Этап 2, Доха. Гран-при Дохи, Катар. КвалификацияЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325AC5A7352BCDBBBF68C69C24552B1488C1023D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411696   (240371) от 26.09.2020
-
-Формула-2. Сезон 2020. 10-й Этап. Гран-при России. Свободная практика (25.09.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240371.jpg" />
-</div>
-
-
-###  Подробнее
-
-4-й Чемпионат ФИА Формула-2. Сезон 2020 года
-25 сентября 2020, пятница.  09:35 МСК
-10-й Этап. Гран-при России. Сочи (Россия)
-Свободная практика(   Читать дальше...   )Телекомпания: Матч! СтранаЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CAAAD25F9A25626387E2549B5DBB9527968044A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621664   (239873) от 25.03.2023
-
-MotoGP. Этап 01. Гран-при Португалии. Квалификация (25.03.2023) WEBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239873.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 марта 2023, суббота. 13:50 МСК. Этап 1, Портимау. Гран-при Португалии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9F815104D02D2EC0AB747E9B8F6BBB99951F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

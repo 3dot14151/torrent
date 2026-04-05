@@ -1,3 +1,119 @@
+###  Публикация: 1652472   (217764) от 11.08.2023
+
+VA - Black Hole Trance Music 08-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XiJaro & Pitch & Ava Silver - Heart (Extended Mix) [7:35]
+02. Craig Connelly & HALIENE - Other Side Of The World (Extended Mix) [7:43]
+03. Richard Durand - Solar Express (Extended Mix) [5:33]
+04. BT - Godspeed (Maria Healy Extended Remix) [7:42](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E775ED397F36CF8989972228B1374220BE0B12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652436   (217759) от 11.08.2023
+
+Leaether Strip - Last Station (2023) [FLAC|Lossless|image + .cue] <EBM, Industrial, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Edged Sword (05:31)
+02. Dead Soldiers (04:46)
+03. Flammen Und Flusse (03:49)
+04. Last Station (06:31)(   Читать дальше...   )Жанр: EBM, Industrial, Synth-popПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E548079A4A90954E726C64C5F5864B4148CC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269979   (217730) от 16.12.2018
+
+VA - Buddha Bar: The Ultimate Chillout Lounge Collection (2018) [FLAC|Lossless|tracks] <Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Boy  (3:19)
+02. The Hunt  (1:20)
+03. Drunk Dopes  (3:40)
+04. Tiny Spiders  (4:54)(   Читать дальше...   )Релиз состоялся: 22 October 2018Жанр: Lounge, ChilloutПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A874BC36DB56102E3954353DDB3432B782BAD0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327789   (217650) от 22.11.2020
+
+The Higher Intelligence Agency (HIA, H.I.A.) - Discography 22 Releases (1993-2020) Beyond, Fax, Headphone [FLAC|Lossless|tracks+.cue, tracks] <Techno Ambient, Downtempo, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why (06:25)
+ 02. Selenite (07:02)
+ 03. Harmony Angel (05:42)
+ 04. Alien Mind (06:41)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno Ambient, Downtempo, Ambient •Продолжительность: 18:30:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3D991F7C7036A0AD0231CC38024E36BEBE5652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514501   (217607) от 03.12.2021
 
 GARRISON (Игорь Савосин) - 3 альбома (2017, 2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
@@ -6,7 +122,7 @@ GARRISON (Игорь Савосин) - 3 альбома (2017, 2021) [FLAC|Lossl
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217607.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Tineidae - Discography 17 Releases (2012-2020) CRL Studios, Tympanik Audo [FLAC|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217554.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ VA - Magic Boom, Pt. 2 (2018) [MP3|320 Kbps] <Psytrance, Psychedelic, Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217420.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ VA - Erotica Vol.4 Most Erotic Smooth Jazz and Chillout Music (2018) [FLAC|Lossl
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217388.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ Koto - Return Of The Dragon (2021) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217360.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ Schiller - Zeitreise - Das Beste Von Schiller (Limited Ultra Deluxe Edition) (20
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217354.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Fejka - Reunion (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216972.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Outsiders - Be As You Are (2019) [FLAC|Lossless|WEB|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216855.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ V.A. - Cafe Del Mar: Dreams XI (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216838.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ VA - Mojito Lounge Beats 2023: Best of Tropical & Deep House (2023) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216787.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - Summer Vibes 2023: Best of Deep Tropical House (2023) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216773.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ VA - Hot All Night Erotic Background Chill out Lounge Music for Lovers (2016) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216756.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ VA - 40 Top Downtempo & Ambient Chillout Hits 2016 (2015) [MP3|320 кб/с] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216747.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - Black Hole Trance Music 11-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216685.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Entheogenic - A Singularity Encoded (2015) [FLAC|Lossless|WEB-DL|tracks] <Psychi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216411.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ VA - X Mas Party Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216398.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Psytrance 2020: Top 100 Hits DJ Mix (2019) [MP3|320 Kbps] <PsyTrance, Psych
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216316.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Winterpearls 06 Chillout for a lovely cold breeze - Presented By Kolibri Mu
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216262.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Joey Fehrenbach - Discography 11 Releases (2006-2019) Delicate Recordings, DT Mu
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216202.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ ONUKA - Look EP (2014) [FLAC|Lossless]<Electronic, Downtempo, Electropop>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215999.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Erotic Piano Lounge Vol.1 - Sexy Chill out Moments for Couples in Love (201
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215856.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Blackbook - Confessions Of The Innocent (2022) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215687.jpg" />
 </div>
 
 
@@ -627,119 +743,6 @@ Blackbook - Confessions Of The Innocent (2022) [FLAC|Lossless|WEB-DL|tracks] <Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D926EE4AB68CD48225D90E955C93D8E32D3229F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514599   (215375) от 04.12.2021
-
-VA - Compilation of the Year (2021) [FLAC|Lossless|WEB-DL|tracks] <Pure Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Pure Progressive HouseПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB195A3618F2171AB94F91CE692AB8EF07275C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343569   (215322) от 07.12.2019
-
-VA - In Search Of Sunrise 15 (Mixed by Markus Schulz & Jerome Isma-Ae & Orkidea) (2019) [FLAC|Lossless|tracks + .cue] <Trance, Progressive House, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Bells Of Planaxis (6:50)
-02. Peppemansion & Angelo Di Franco - Mariposa (4:01)
-03. Andretta - North Star (3:44)
-04. Kamilo Sanclemente, Dabeat - Spiral Patterns (Andre Sobota Remix) (4:28)(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC66BE816CDFF8B8583321D2CD4617888691A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586517   (215287) от 27.10.2022
-
-Krasa Rosa - Solnce EP (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Русская Народная>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solnce
-02. Kukushka
-03. U Okna
-04. Solnce (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Русская НароднаяПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE96EB63483338753B2C966CC1267AE7D4EFEC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514648   (215278) от 04.12.2021
-
-Koto - Return of the Dragon (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive (6:23)
-02. Sputnik (6:15)
-03. Forbidden Planet (6:01)
-04. Bionic Brain (6:45)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55649468BF906B61F52761A475F8822AFA07355
 ```
 
 https://mybot314.ru/tekegram_catalog/

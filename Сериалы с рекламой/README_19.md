@@ -1,3 +1,55 @@
+###  Публикация: 1559310   (524131) от 25.06.2022
+
+Бумажный дом: Корея / Jongiui jip: gongdonggyeongjeguyeok / Money Heist: Korea - Joint Economic Area (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 12) LakeFilms (обновляемая) [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Север и Юг объединились и выпустили единую валюту, но обещанное правительством экономическое процветание оказалось не для всех. Преступник-комбинатор по прозвищу Профессор планирует украсть 4 триллиона вон и берёт в команду недовольных текущей ситуацией подельников. Идеальный план летит коту под хвост, когда грабителям приходится взять заложников.Производство: Южная Корея, BH Entertainment Co. Ltd., BH Entertainment, Zium ContentЖанр: Криминал, драмаРежиссер: Ким Хон-сонАктеры: Ю Джи-тхэ, Ким Юн-джин, Пак Хэ-су, Чон Джон-со, Ли Вон-джон, Пак Мён-хун, Ким Сон-о, Ким Джи-хун, Чан Юн-джу, Ли Джу-бинПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~01:18:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E39F8A6A5E72D17300B08FF084828235CF9B598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240734   (523463) от 13.08.2018
+
+Телефонистки / Las chicas del cable (2017) WEBRip (сезон 2, серии 1-8 из 8) Jaskier [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523463.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о нескольких девушках, работающих в крупной телефонной компании, первой в своем роде. О тех, кто сокращает расстояния, делая людей ближе друг к другу.Производство: Испания / Bambu ProduccionesЖанр: драмаРежиссер: Давид Пинильос, Карлос Седес, Антонио ЭрнандесАктеры: Бланка Суарес, Мэгги Сивантос, Анхела Кремонте, Надя Де Сантьяго, Iria del Río, Ана Фернандез, Йон Гонсалес, Борха Луна, Серхио Мур, Ана Мария Польвороса и др.Перевод: Многоголосый закадровый, профессиональный - JaskierПродолжительность: ~00:50:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685AE0774C2BEA0D08A2B78BF6AC942182ED425F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313478   (522725) от 10.07.2019
 
 Очень странные дела / Загадочные события / Stranger Things (2019) WEBRip [H.264/720p-LQ] (сезон 3, серии 1-8 из 8) AMS [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522725.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522666.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522007.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521969.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521802.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520952.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520735.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520678.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519867.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514900.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514726.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513929.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513686.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512899.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510690.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508617.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506115.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499665.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499595.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495646.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494567.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492777.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492774.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491819.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FE752233C60E0CC5F7B1F0E5E950C3F4987DBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558316   (491817) от 24.07.2022
-
-Старик / The Old Man (2022) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-7 из 7) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Чейз — старик с тёмным прошлым. Однажды на пороге его дома появляется группа убийц, присланных устранить Чейза, он понимает, что прошлое вновь напомнило о себе. Чтобы сохранить своё будущее, Чейз должен опять взяться за оружие.Производство: США / 20th Television, Fox 21 Television Studios, Fresh Bacon MediaЖанр: боевик, триллер, драмаРежиссер: Джон Уоттс, Джет Уилкинсон, Зетна ФуэнтесАктеры: Джефф Бриджес, Педж Вахдат, Джон Литгоу, Алиа Шокат, Э.Дж. Бонилья, Noor Razooky, Билл Хек, Гбенга Акиннагбе, Фаран Таир, Этан Рэйнс и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228CE1D6340C94795F3639FAAEEA291EC9779FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339324   (491803) от 24.07.2022
-
-Темные начала / His Dark Materials (2019) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8) Kerob [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лира Белаква живёт в мире, где существуют ведьмы и бронированные медведи, а у людей есть деймоны — существа, составляющие неотъемлемую часть их личностей. Опекун девочки, исследователь лорд Азриэл, находит способ передвигаться между параллельными землями, благодаря чему Лира знакомится с мальчиком Уиллом, который живёт в мире, лишённом магии.Производство: Великобритания, США / Bad Wolf, British Broadcasting Corporation (BBC), Home Box Office (HBO)Жанр: фэнтези, драма, приключения, семейныйРежиссер: Джейми Чайлдс, Уильям МакГрегор, Отто БатхёрстАктеры: Дафни Кин, Джеймс МакЭвой, Рут Уилсон, Лин-Мануэль Миранда, Кларк Питерс, Дэвид Суше, Иэн Гелдер, Уилл Кин, Эрион Бакаре, Рута Гедминтас, Энн-Мэри ДаффПеревод: Многоголосый любительский (Kerob)Субтитры: отсутствуютПродолжительность: ~00:56:00 серияРеклама: присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904D0164BAFE7DCD50DA673139B7D58AB36B90C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1311866   (130229) от 19.01.2022
+
+Книжная серия | Наши там [284 книги] (2010-2022) [FB2] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши там - очень неплохая серия фантастики, которая объединяет циклы произведений российских авторов.
+В этих книгах главные герои - наши современники, и находятся они - там. Где это там? А в прошлом: в каменном веке, в объятиях дикой природы прибайкальской тайги XXVII века, в средневековье параллельного мира...
+***
+Есть ли жизнь после смерти? Этим вопросом Олег Крайнов (   Читать дальше...   )Жанр: Боевая фантастика, Боевое фэнтези, Альтернативная история, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E644CC2080F4BDB9774F5325891E7AB5317D9655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491211   (130172) от 02.05.2012
+
+Суд запретил Microsoft продавать Windows 7 и Xbox 360 в Германии
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130172.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Суд в Мангейме предписал убрать с немецкого рынка ряд продуктов Microsoft, включая игровые консоли Xbox 360 и операционную систему Windows 7, сообщает Reuters.Эти продукты нарушают принадлежащие компании Motorola Mobility патенты, постановил судья Хольгер Кирхер (Holger Kircher). Патенты касаются алгоритмов сжатия видео и беспроводного подключения к интернету.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490925   (130065) от 02.05.2012
 
 Fallout: New Vegas Ultimate Edition [Ru/En] (RePack/1.4.0.525) 2012 | R.G. UniGamers
@@ -6,7 +63,7 @@ Fallout: New Vegas Ultimate Edition [Ru/En] (RePack/1.4.0.525) 2012 | R.G. UniGa
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130065.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130060.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_130056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_130056.jpg" />
 </div>
 
 
@@ -89,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_129917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_129917.jpg" />
 </div>
 
 
@@ -115,7 +172,7 @@ Kaspersky Security Cloud 21.3.10.391 (f) Repack by LcHNextGen (17.01.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129897.jpg" />
 </div>
 
 
@@ -143,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129868.jpg" />
 </div>
 
 
@@ -169,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129441.jpg" />
 </div>
 
 
@@ -195,7 +252,7 @@ Windows 8.1 6.3 (Build 9600.20246) (24in2) x86/x64 by Sergei Strelec [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129431.jpg" />
 </div>
 
 
@@ -222,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129426.jpg" />
 </div>
 
 
@@ -253,7 +310,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5266.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129084.jpg" />
 </div>
 
 
@@ -279,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129071.jpg" />
 </div>
 
 
@@ -305,7 +362,7 @@ Kaspersky Free 21.3.10.391 Repack by LcHNextGen (21.01.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129027.jpg" />
 </div>
 
 
@@ -331,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128863.jpg" />
 </div>
 
 
@@ -358,7 +415,7 @@ Google запустил режим ИИ для поиска в России и �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_128559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_128559.jpg" />
 </div>
 
 
@@ -385,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128487.jpg" />
 </div>
 
 
@@ -411,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128329.jpg" />
 </div>
 
 
@@ -437,7 +494,7 @@ IBM представила новый квантовый процессор с �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128044.jpg" />
 </div>
 
 
@@ -463,7 +520,7 @@ Need for Speed: Porsche Unleashed (2000) [Ru] (3.6) Repack/Mod Финиган
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127928.jpg" />
 </div>
 
 
@@ -489,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127744.jpg" />
 </div>
 
 
@@ -515,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127742.jpg" />
 </div>
 
 
@@ -541,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127740.jpg" />
 </div>
 
 
@@ -567,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127707.jpg" />
 </div>
 
 
@@ -593,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127519.jpg" />
 </div>
 
 
@@ -619,7 +676,7 @@ Amazon испытал лазерный спутниковый интернет
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127506.jpg" />
 </div>
 
 
@@ -631,60 +688,6 @@ Amazon в рамках проекта Kuiper протестировала на �
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682477   (127332) от 18.12.2023
-
-Windows 7 (3in1) x64 by Updated Edition (07.12.2023) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на базе оригинальных образов:ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774.iso
-ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671.iso
-ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoИнтегрированы обновления по 15.11.2023г. с помощью UpdatePack7R2 от Simplix, версия 23.11.15. Присутствует поддержка NVMe и USB3. Присутствует поддержка (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92567E2231DE82A23C529D28EA4C6013EFC134C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684683   (127330) от 18.12.2023
-
-Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Морган очень разноплановый: преданный муж, любящий отец, успешный продавец автомобилей. А еще он бывший наемный убийца. Когда его настигает прошлое, он вынужден взять ничего не подозревающую семью в уникальное путешествие.Производство: США / Apple Original Films, Skydance MediaЖанр: боевик, комедияРежиссер: Саймон Селлан ДжонсАктеры: Мишель Монахэн, Марк Уолберг, Мэгги Кью, Киран Хайндс, Зои Маргарет Коллетти, Джонатан Койн, Фелиция Пирсон, Саид Тагмауи, Аниса Ниэлл Джонсон, Майлз ДолеакПеревод: Многоголосый профессиональный (NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Украинские, Английские (Forced, Full, SDH), multisubsПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D7B753F5CAA10EED73B91504590ADC2D80BF9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

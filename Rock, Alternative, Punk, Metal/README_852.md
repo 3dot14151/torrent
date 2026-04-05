@@ -1,3 +1,32 @@
+###  Публикация: 1623329   (238713) от 01.04.2023
+
+Dark Sarah - The Golden Moth (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Rose
+02. Trespasser
+03. Wheel
+04. My Beautiful Enemy(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AAA8BB5A1FC32F8E2E780DC8FD660E99D7497F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578865   (238712) от 26.09.2022
 
 Abscess - Horrorhammer (2007) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +35,7 @@ Abscess - Horrorhammer (2007) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238712.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Preludium Fury - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238705.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Attack Attack! - Dark Waves (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238703.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ohtar - Euthanasia of Existence (2016) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238698.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Rammstein - Zeit (2022) [MP3|320 Kbps] <NDH, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238697.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Florence + The Machine - Dance Fever (2023) Complete Edition [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238694.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Lewis Capaldi - Broken By Desire To Be Heavenly Sent (2023) [FLAC 24/48|Lossless
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238693.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Skreen 6 - Rockin' Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238692.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Def Leppard - High 'N' Dry (1981) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238690.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Forge the Sun - Heart of the Sunrise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238684.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Evolution Eden - Sonic Cinema (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238683.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Dark At Dawn - Of Decay And Desire (2003) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238680.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The Murlocs - Calm Ya Farm (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238676.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Aggression - Fragmented Spirit Devils (2016) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238674.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Bravo Delta - Chrysalis (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238667.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Godflesh - Purge (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Experim
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238665.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Sinshrift - Sinshrift (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238658.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Prey - Knights of the Revolution (2009) [WavPack|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238651.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Condemned-AD - Follow a Failing Leader (2022) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238644.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Magnolia Black - Magnolia Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238643.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Corvo - Calamidade (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238639.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Sick Dogs in Trouble - Dead Lovers (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238638.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Beggars Opera - 10 Albums, 12CD (1970-2012) [FLAC|Lossless|image + .cue] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238635.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Da Vinci - Ambition Rocks (2017) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238633.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Various Artists - Hard and Heavy Massive Hits (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238632.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Various Artists - Hard and Heavy Massive Hits (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7566AA0253C8488304C6262D89D0E758C8EC2A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639085   (238631) от 11.06.2023
-
-Heathen Kings - Fealty to None (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Hall Of The Kings (Album Mix) (03:40)
-02. Fealty To None (04:10)
-03. I Am The Hammer (04:05)
-04. England Expects (05:10)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6600DEB8BC03810352A4668748911473B9107DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1143655   (634661) от 18.06.2017
-
-Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brother Louie (New Version 2017)  3:21
-02.  You're My Heart You're My Soul (New Version 2017)  3:33
-03.  Cheri Cheri Lady (New Version 2017)  3:41
-04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 350372   (626891) от 14.06.2011
 
 VA - The Best Of Eurodance 90 (2011) 3CD [MP3|320 kbps] <Pop, Eurodance>
@@ -35,7 +6,7 @@ VA - The Best Of Eurodance 90 (2011) 3CD [MP3|320 kbps] <Pop, Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626891.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - ZYX Club 2020/1 (2020) 2CD, Compilation [MP3|320 Kbps] <Dance, House, Techn
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593904.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Die 90er Live (2018) 2CD [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592956.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Dance Classics (2CD Compilation) (1997) [MP3|320 кб/с]<Eurodance, House,
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592253.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Ibiza Summer Workout Mix Vol. 2 (2017) [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557979.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Workout Remix Factory - Best of the Best - Dance Running Workout 2017 [MP3|320 K
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557972.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Первый танцевальный, Vol. 17 (Летний) (2019) [MP3|3
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556037.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Daddy DJ - /Folder (2015) Deluxe Version [MP3|320 Kbps] <EuroDance, Euro-House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553285.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Daddy DJ - Let Your Body Talk (2001) [MP3|320 Kbps] <Euro-House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553282.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Hit Explosion - Latin Workout (2016) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550818.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Sin With Sebastian - Golden Boy (1995) [MP3|320 Kbps] <Eurodance, Euro-House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530702.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Dr. Alban - 13 альбомов + 57 синглов (1990- 2015) [MP3|192-320 kb
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524689.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - 5 Years Legacy Festival: Anniversary Edition (2018) 5CD [MP3|320 Kbps] <Eur
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523584.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Ibiza House Anthems: The Summer 2018 (2018) [MP3|320 Kbps] <Euro Dance, Pop
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516998.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Best Radio Tracks, Vol. 17 (2019) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513721.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Die 2000er: The Biggest Dance Tracks (2 CD) (2018) [MP3|320 Kbps] <Euro Hou
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495909.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - La Maquina Del Tiempo (1993) vol 1, 2 [MP3|320 Kbps] <Electronic, Techno, E
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492045.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Top 50 Drops Summer '18 (Part 1) (2018) [MP3|320 Kbps] <Euro Dance, Pop Dan
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477951.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - After Work Party (2016) [MP3|320 Kbps] < Indie Dance, Funky, Club>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470568.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Best Radio Tracks, Vol. 20 (2020) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459945.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Corona - The Rhythm Of The Night (1995) [OGG|485 Kbps] <Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455714.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - EFFECTIVE COVERS, Vol. 3 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453657.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Haddaway - The Album (1993) Vinyl-rip [OGG|485 Kbps] <Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445096.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Dr. Alban - One Love (The Album) (1992) Vinyl-rip [OGG|485 Kbps] <Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438055.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Love Dancing (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437148.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Love Dancing (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4E0EEEAC9C032919A61B42338CBF6153B815552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570347   (436051) от 20.08.2022
+
+2 Unlimited - No Limits! (1993) [OGG|485 Kbps] <Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Limit	3:44
+02. Tribal Dance	4:31
+03. Mysterious	4:23
+04. Faces	3:48(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1584B008E813C70CCCFAAC48E539AEFC2AFCF578
 ```
 
 https://mybot314.ru/tekegram_catalog/

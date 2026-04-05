@@ -1,55 +1,3 @@
-###  Публикация: 1279205   (765318) от 30.01.2019
-
-Анон / Anon (2018) BDRip [RUS Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальное общество будущего: режим тотального надзора, отсутствие личной жизни, приватных территорий и гражданских прав. Казалось бы, в полностью контролируемом государстве нет места ошибкам и правонарушениям. Но однажды детектив Сол Фриленд знакомится с девушкой, которая не числится в базах данных. Перед копом приоткрывается дверь преступного мира новой эры…Производство: Германия, США, K5 Film, K5 International, K5 Media GroupЖанр: Фантастика, Триллер, Криминал, ДетективРежиссер: Эндрю НикколАктеры: Клайв Оуэн, Аманда Сайфред, Колм Фиор, Соня Уолгер, Марк О`Брайэн, Джо Пинг, Иддо Голдберг, Себастьян Пижотт, Рэйчел Робертс (I), Этан ТаваресПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B108CEB07817F971F7024EAC112C5EB44A2CE71B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126016   (765290) от 18.04.2017
-
-Забирай своё сам / Выбирай свое сам / You Bury Your Own (2015) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилла, Джон и Эйден Райаны - не образцовая семья. Их прошлое покрыто тёмными тайнами. Уилла пытается вырваться из порочного круга, но когда умирает Эйден, она вынуждена объединиться с Джоном, чтобы найти, кому их брат мог перейти дорогу.Производство: СШАЖанр: ТриллерРежиссер: Роберт УилсонАктеры: Дэн Эбельс, Франсуа Баттисте, Пеппер Бинкли, Джереми Дэвидсон, Кристиан Фрэзиер, Джон Гловер, Сальваторе Инзерилло, Джон Манчини, Марк МарголисПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57E40867B9A4CC275B28544ECF8DA40D2051088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393950   (765282) от 03.07.2020
 
 Закон противоположностей / Canone inverso - Making Love (2000) DVDRip [H.264] [PR]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765282.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765157.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765061.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765054.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765051.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765044.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765035.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764961.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764941.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764812.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764785.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764782.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764775.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764751.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764270.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764249.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764217.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764214.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764203.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764185.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764171.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764167.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764129.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764115.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A25746C9A5136B9C4C59E93605CF0B2653A623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521725   (764107) от 03.01.2022
+
+Заложники Марса / Settlers (2021) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764107.jpg" />
+</div>
+
+
+###  Подробнее
+
+2078 год. Жизнь на Марсе стала реальностью. Ремми родилась на этой планете и никогда не была на Земле. Её семья живёт в изолированной колонии, ограниченной кислородным куполом. Но когда на их дом нападают вооруженные захватчики, Ремми вынуждена столкнуться с тем, от чего её уберегали родители, и узнать, что на самом деле скрывает Марс.Производство: Великобритания, ЮАР / Brittle-Star Pictures, Film Constellation, Jericho Motion PicturesЖанр: Фантастика, триллер, драмаРежиссер: Уайатт РокфеллерАктеры: София Бутелла, Джонни Ли Миллер, Нелл Тайгер Фри, Бруклин Принс, Исмаэль Круз, Натали Уолш, Мэттью Ван ЛеевеПеревод: Дублированный ( iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), АнглийскиеПродолжительность: 01:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C39A845DAF24768FFF503231E7841E88FDBD595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521694   (764103) от 03.01.2022
+
+Заложники Марса / Settlers (2021) BDRip [H.265]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764103.jpg" />
+</div>
+
+
+###  Подробнее
+
+2078 год. Жизнь на Марсе стала реальностью. Ремми родилась на этой планете и никогда не была на Земле. Её семья живёт в изолированной колонии, ограниченной кислородным куполом. Но когда на их дом нападают вооруженные захватчики, Ремми вынуждена столкнуться с тем, от чего её уберегали родители, и узнать, что на самом деле скрывает Марс.Производство: Великобритания / Brittle-Star Pictures, Film Constellation, Jericho Motion PicturesЖанр: Фантастика, триллер, драмаРежиссер: Уайатт РокфеллерАктеры: София Бутелла, Джонни Ли Миллер, Нелл Тайгер Фри, Бруклин Принс, Исмаэль Круз, Натали Уолш, Мэттью Ван ЛеевеПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C308AF526AB0BF5CD96B47C84D2D6769766AF7F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

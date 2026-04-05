@@ -1,3 +1,55 @@
+###  Публикация: 1057804   (436483) от 15.10.2016
+
+Труп моего врага / Le corps de mon ennemi (1976) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отсидев семь лет в тюрьме по ложному обвинению, Франсуа Леклер возвращается в родной городок. Он не может простить своих обидчиков, из-за которых потерял несколько лет жизни: Франсуа объявляет войну своей бывшей возлюбленной и ее отцу.Производство: Франция / Andrea Films, Cerito FilmsЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Анри ВернёйАктеры: Жан-Поль Бельмондо, Бернар Блие, Мари-Франс Пизье, Шарль Жерар, Даниэль Ивернель, Клод Броссе, Мишель Бон, Франсуа Перро, Рене Лефевр, Николь ГарсияПеревод: Многоголосый закадровый (Останкино)Продолжительность: 02:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDD0413EDF3E10780F0D007B1AE05BDAFFD5E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943668   (435829) от 09.10.2015
+
+Красная гора / Red Mountain (1951) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435829.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце Гражданской войны капитан мятежников бежит в Колорадо, чтобы присоединиться к армии генерала Куантрелла, задумавшего захватить федеральные территории при помощи индейцев и обеспечить Югу победу в войне. Судьба сталкивает капитана с золотоискателем, скрывающимся от линчевателей, и его девушкой, которых он вынужден взять в плен. Все меняется когда он влюбляется (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Вестерн, ДрамаРежиссер: Уильям Дитерле, Джон ФэрроуАктеры: Алан Лэдд, Лизабет Скотт, Артур Кеннеди, Джон Айрленд, Джефф Кори, Джеймс Белл, Берт Фрид, Уолтер Сэнд, Невилл Брэнд, Карлтон ЯнгПеревод: Одноголосый закадровый (erogg)Субтитры: ОтсутствуютПродолжительность: 01:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3DA5D8D03E519CA4C7AA422D219D8468300EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875739   (435336) от 20.08.2022
 
 Собачье сердце / Cuore di Cane (1975) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435336.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435067.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434674.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434390.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434257.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433741.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433566.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433108.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433004.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432129.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431244.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431088.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430717.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430521.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430309.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430194.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429354.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428730.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428632.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428314.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_427873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_427873.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_427784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_427784.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427577.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427221.jpg" />
 </div>
 
 
@@ -625,64 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD88E86AD58EF61C4D9BA869092505E87D0DF9EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944274   (426683) от 13.10.2015
-
-Голдфингер / Goldfinger (1964) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426683.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Джеймс Бонд борется со злом в лице международного преступника Голдфингера. Негодяй планирует уничтожить золотой запас США, и таким образом ввергнуть в пучину хаоса все капиталистическое общество.
-Помешать этим дерзким планам может только один человек. При помощи нескольких прекрасных женщин и множества хитроумных приспособлений агент 007 обезвреживает (   Читать дальше...   )Производство: Великобритания / Eon Productions Ltd.Жанр: Боевик, Триллер, ПриключенияРежиссер: Гай ХэмилтонАктеры: Шон Коннери, Онор Блэкман, Герт Фрёбе, Ширли Итон, Таня Мале, Харольд Саката, Бернард Ли, Мартин Бенсон, Сек Линдер, Остин УиллисПеревод: Дублированный, многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE59D18237984B29A9010DC30B51B0C4EC9A9FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195036   (426671) от 13.10.2015
-
-Вокруг света за 80 дней / Around the World in Eighty Days (1956) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обогнуть земной шар всего в 80 дней? Смешно! Даже лучшие паровые
-корабли Ее Величества Виктории не смогут сделать это. Но точный
-и пунктуальный Филеас Фогг заявил, что сможет. А когда члены
-лондонского престижного Реформ-Клуба попросят Фогга подкрепить(   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Майкл АндерсонПеревод: Профессиональный (многоголосый, закадровый) + Оригинальная дорожкаСубтитры: русские, английские (вшитые)
-
-ФайлФормат: MP4Продолжительность: 02:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18082A5F65E7DD204055F60412BFDB80D91DA8C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

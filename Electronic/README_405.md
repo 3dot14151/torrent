@@ -1,3 +1,119 @@
+###  Публикация: 1623273   (238587) от 01.04.2023
+
+VA - Seaside Serenade: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weber & Weber - Close to Nature (5:08)
+02. Lounge Groove Avenue - On the Other Side (2:53)
+03. Digby Jones - Chameleon (Original Mix) (3:45)
+04. Lounge Groove Avenue - Westside (3:49)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB427DCD7EC6E0E7512547D9ED92199DB2C8C398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628205   (238563) от 23.04.2023
+
+Tiesto - DRIVE (2023) EXPLICIT [MP3|320 Kbps] <House, Electropop, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - All Nighter (2:14)
+02. Tiesto, Ava Max - The Motto (2:44)
+03. Tiesto, Tate McRae - 1035 (2:52)
+04. Tiesto - The Business (2:44)(   Читать дальше...   )Жанр: House, Electropop, Progressive HouseПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242192C9527D7F9518F7FDD59B640DDEB7F94C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637063   (238404) от 03.06.2023
+
+VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane feat. C-Systems & Hanna Finsen – Let The Universe Surround You (Extended Mix) (Modena)
+02. Trending Track: DJ Misjah & DJ Tim – Access (Joris Voorn Remix) (Armada)
+03. KASIA – Universal Nation (Sezer Uysal Remix) (Armada Electronic Elements)
+04. Armin Van Buuren & The Stickmen Project – No Fun (Goom Gum Remix) (Armada)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E9A0F2B7CF05F8D9E9F4D641EE02604D7D1276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637089   (238388) от 03.06.2023
+
+VA - Best Vocal Tracks Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keistep - Guardians Of Light (Original Mix) [6:29]
+02. Eddy Tango & Sundrej Zohar - The Space (Original Mix) [7:12]
+03. Marco De Nor - Passing Lights (Original Mix) [6:07]
+04. George Ledakis - Girl From Nowhere (Original Mix) [6:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C389ECD7AE924A74777F92C8FE1C419ABB2AEABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629304   (238374) от 26.04.2023
 
 VA - Trance Anthems Vol. 19 (2023) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA - Trance Anthems Vol. 19 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238374.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Deep Ibiza Opening Party (2023) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238363.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Trance 2023 Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238350.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Cathode Ray Tube - Anabasis (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238313.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Fokuz Recap 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238297.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Newt - Phaseshifting (1998) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Drum 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238287.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238281.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Newt - 37 °C (1999) Flatline Records [FLAC|Lossless|tracks+.cue] <IDM, Drum n B
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238271.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - This Is Deep House 2023 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238266.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Fokuz Recordings - 2017 Recap (2017) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238262.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Night Grooves (House Edition), Vol. 2 (2023) [MP3|320 Kbps] <House, Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238256.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238213.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Gacha Bakradze - Obscure Languages (2021) Lapsus Records [FLAC|Lossless|WEB-DL|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237999.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sangam - Until (2016) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Ambient, Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237910.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Tim Schaufert - Our Wreckage (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237903.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ VA - Nothing But... Trancetopia, Vol. 01 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237722.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ VA - Armin van Buuren - A State Of Trance 1125 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237633.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ VA - 10 Years Of Suanda Music - Mixed by Michael Milov (2023) [MP3|320 Kbps] <Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237616.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - Ultimate Club Tunes (2023) [MP3|320 Kbps] <Euro House, Club, Progressive, T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237545.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ VA - Deep Trance Showcase I (2023) [MP3|320 Kbps] <Trance, Progressive, Electron
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237434.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Poborsk - Plus Minus (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Experi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237393.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237338.jpg" />
 </div>
 
 
@@ -626,120 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73DD5CE2FB85E06E2DEBAF7A14FFAC0D8D6F438D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451066   (237326) от 28.02.2021
-
-Shen - Outlines (2006) Native State Records [FLAC|Lossless|tracks+.cue] <Dub, IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Springs (06:34)
- 02. Causation (04:08)
- 03. Symbol Range (07:25)
- 04. Cold Bones (07:54)(   Читать дальше...   )Жанр: Dub, IDM, Downtempo, AmbientПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9675DBF88C2959C23AFB682BA713E5416F7C34C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450979   (237313) от 28.02.2021
-
-Daniel[i] - Terra Amica I (2020) Pyramid Blood Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disconnect (19:44)
- 02. Reconnect (19:22)Жанр: Ambient, Drone, Dub TechnoПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1B80A3D6837E0F328DB97A3D16E2E38E2F8188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360290   (237281) от 15.02.2020
-
-Elite Force - Modern Primitive (2006) [MP3|320 Kbps] <House, Downtempo, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern:Primitive (0:46)
-02. Coming Back For More (6:44)
-03. My Generation (6:43)
-04. You (5:45)(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6812C5D58A90D63A59B892AB7EE4E32B53B6FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640511   (237264) от 18.06.2023
-
-VA - We Love Summer Vol. 2 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful, Deep Groove>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga - Autumn (Dj Malte of Real Xs Mexican Club Mix)
-02. Mad Meyer - Diggi Dang
-03. Lounge Groove Avenue - It Ain't Right
-04. Mo'jardo - I Am Fashion(   Читать дальше...   )Жанр: Deep House, Deep Tech, Soulful, Deep GrooveПродолжительность: 02:29:48 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFEE26032F3133A77787A6CD740CC0BC7F8EF7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

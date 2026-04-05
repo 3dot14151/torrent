@@ -1,3 +1,29 @@
+###  Публикация: 761574   (846690) от 27.03.2014
+
+Холодное сердце / Frozen (2013) BDRip [1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда древнее предсказание сбывается и королевство погружается в объятия вечной зимы, трое бесстрашных героев — принцесса Анна, отважный Кристофф и его верный олень Свен — отправляются в горы, чтобы найти сестру Анны, Эльзу, которая может снять со страны леденящее заклятие. По пути их ждет множество увлекательных сюрпризов и захватывающих приключений: встреча с мистическими (   Читать дальше...   )Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, мюзикл, фэнтези, комедия, мелодрама, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиАктеры: Кристен Белл, Идина Мензел, Джонатан Грофф, Джош Гад, Сантино Фонтана, Алан Тьюдик, Киаран Хайндс, Крис Уильямс, Стивен Дж. Андерсон, Майа УилсонПеревод: Дублированный (CЕE)Язык субтитров: Русский (CЕE), Русский (нотабеноид) , АнглийскийПродолжительность: 01:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB0368AAC518A05F4C9CF0E16C85426FF8CBE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002600   (846208) от 01.04.2016
 
 Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) Blu-ray [H.264/1080p]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846208.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846198.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Resident Evil / Biohazard HD Remaster (2015) [Ru/Multi] (1.0) Repack R.G. Мех
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846193.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846191.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846188.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Mozilla Firefox 52.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846149.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_846129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_846129.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ V Центурия. В поисках зачарованных сокровищ 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846106.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_846019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_846019.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Pink Floyd - Meddle (2016) 1971 [DTS 5.1 CD-DA|44.1/16|image+cue|BD-Audio] <Prog
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846013.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.004) License FAIRLIGHT
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845597.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845595.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845124.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845089.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844892.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844570.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844351.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ DAEMON Tools Ultra 4.1.0.0489 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844350.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ CrossOver Linux 15.1.0 [x86-x64] (deb, rpm, bin)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844348.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844337.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Windows 10 PE (x64) v.4.5.1 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844336.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844258.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844212.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_844130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_844130.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ CyberLink PowerDVD Ultra 2020 v20.0.1519.62 repack activated by Anonymous [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844008.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ CyberLink PowerDVD — новейшая версия популярного пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7FF904795EAA93C840D3C80B18658FD5C6506E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704977   (843996) от 26.04.2020
-
-Мотыльки (2013) [1080p] HDTV (серии 1-4 из 4)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843996.jpg" />
-</div>
-
-
-###  Подробнее
-
-История любви выпускницы старших классов Али и солдата срочной службы Паши, которая разворачивается на фоне одной из самых масштабных техногенных катастроф XX века, Чернобыльской аварии. Им суждено было встретиться в конце апреля 1986 года в городе Припять. Словно мотыльки, стремящиеся к огню, они летели навстречу своим чувствам, не замечая ничего вокруг...Производство: "Film.ua", УкраинаЖанр: ДрамаРежиссер: Виталий ВоробьёвАктеры: Юрий Борисов, Мария Поезжаева, Евгения Лоза, Андрей Казаков, Юрий Назаров, Юлия Рутберг, Артём Ткаченко, Максим Заусалин, Тимур Боканча, Олег Примогенов, Станислав Щёкин, Семен Штейнберг, Наталья Васько, Александр Игнатуша, Евгений Ефремов, Азамат Нигманов, Евгений Сангаджиев, Дарья ПитероваПродолжительность: 4 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F3E5D23C54CB8833E9DED80DAC4D08C02D3631
 ```
 
 https://mybot314.ru/tekegram_catalog/

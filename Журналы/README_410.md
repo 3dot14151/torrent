@@ -1,3 +1,133 @@
+###  Публикация: 580267   (345885) от 24.11.2012
+
+Журнал | Добрые советы №12 [декабрь 2012] [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345885.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Добрые советы» – это ежемесячный журнал для женщин. Его главные темы – секреты привлекательности, хорошего самочувствия, домашнего уюта и гармонии в отношениях с близкими. Каждый номер журнала открывает интервью со звездой – о ее личной жизни, профессиональных успехах, о доме, семье и детях.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AE57092E016915602C10E2D2FCB75538197FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580283   (345766) от 24.11.2012
+
+Журнал | Вязание модно и просто №11С Жаккардовые узоры [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спецвыпуск журнала по вязанию спицами представляет коллекцию одежды для взрослых и детей с не выходящими из моды жаккардовыми узорами. 30 моделей от финских дизайнеров: свитеры, пуловеры, жилеты, жакеты, туники, пончо, шапочки, шарфы, варежки – с норвежскими звездами и оленями, этническими мотивами, модной красочной геометрией.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C2A69511719DDB30D52931BEB0590E0AA28B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073628   (345717) от 16.11.2016
+
+Журнал | Цветы в саду и дома №11 (ноябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание является приложением к журналу "Приусадебное хозяйство". Каждый номер журнала посвящен либо одному виду растений/кустарников (выбор места посадки, почвосмеси, уход), либо одному виду работ (обрезка), либо элементам садового дизайна.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D20B22B5A01AB0F4CDC85F52301CFC850E896F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073666   (345714) от 16.11.2016
+
+Журнал | Цветок. Спецвыпуск №4 (28) (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно одному из преданий, фиалки выросли на том месте, куда упали слезы первого человека — Адама, изгнанного из рая за свои грехи и позднее получившего прощение. У многих народов они были символом целомудрия, ими устилали ложе невесты. В Европе в День святого Валентина цветки виолы обязательно посылали возлюбленным...Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27AC4F8565DAAC4579EB939C99525658D723C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256022   (345650) от 26.10.2018
+
+Подшивка журналов | Woodcraft Magazine (2014) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Woodcraft Magazine — журнал, посвящённый столярному делу, в каждом номере предлагает обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража. Все изделия, модели и поделки представлены понятными схемами и чертежами, практически не требующими глубокого (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A737B80185EE8C139DE38A255F416A1C706DA21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073623   (345549) от 16.11.2016
 
 Журнал | Школа кулинара №12 (ноябрь 2016) [PDF]
@@ -6,7 +136,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345549.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345548.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345296.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344571.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344569.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344568.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344563.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344505.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344263.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344224.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344175.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344060.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344013.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343889.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343875.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343802.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343663.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343636.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343431.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343393.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343385.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D468B54001F633B9E87CE6E8BB6A6553245E83EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725875   (343291) от 23.11.2013
-
-Подшивка журналов | Добрые советы №11, 12 (ноябрь, декабрь 2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный журнал для женщин. Его главные темы — секреты привлекательности, хорошего самочувствия, домашнего уюта и гармонии в отношениях с близкими. Каждый номер журнала открывает интервью со звездой — о ее личной жизни, профессиональных успехах, о доме, семье и детях, рассказывает обо всем, что интересует современную женщину.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DCFD9FB719397D8071DAA85E427795D4B4F9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578805   (343235) от 24.09.2022
-
-Журнал | Делаем сами №18 (сентябрь 2022) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343235.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53C0C384A718AC187B9D04B194AD87096AB80B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580542   (343143) от 25.11.2012
-
-Подборка журналов | Вязание для взрослых. Спицы/Крючок №№1 - 10 +Спецвыпуски [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_343143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российско-аргентинский журнал по вязанию крючком и спицами. Это ежемесячный журнал по вязанию. Изделия проиллюстрированы фотографиями, подробными описаниями по выполнению работы, точными выкройками и схемами узоров.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073868   (343047) от 17.11.2016
-
-Журнал | Сад. Огород. Цветник. Спецвыпуск №7 (11) (октябрь-ноябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спецвыпуск Сад огород цветник - тема номера цветы. Ноябрь - время, когда последние садовые цветы уже занесены снегом. Грустно, что следующих цветов ждать придётся ещё, как минимум, пять месяцев. Так хочется задержать их красоту хотя бы ненадолго... Но уже давно завял последний садовый букет. О буйстве ярких красок, которое окружало нас весной, летом и осенью, остались (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB773DE07C4E5FBF16C331E6F74C049EEAE1B301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839395   (343028) от 09.11.2014
-
-Газета | Сезон у дачи №22 (172) (Ноябрь 2014) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446DEE6A962F4176DBE7878D0CF950346C486E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 1852838   (1056537) от 12.02.2026
-
-Д.Ю. Петров, Е. Окорокова | Японский язык. 16 уроков. Базовый курс (2024) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это серия самоучителей от знаменитого полиглота и синхронного переводчика Дмитрия Петрова. Он уверен: чтобы заговорить на иностранном языке, совсем не обязательно посвящать его изучению десятилетия. Гораздо важнее освоить базовые алгоритмы плюс минимально необходимый для общения запас слов.
-И все это вполне возможно сделать за 16 уроков, что сам Дмитрий Петров много (   Читать дальше...   )Жанр: Языки, самоучителиИздательство: ЭксмоФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441A193D0DDF22722F1B5967F8EA311816DFE166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852837   (1056536) от 12.02.2026
-
-Р.А. Гонсалес, Р.Р. Алимова | Испанский на все случаи жизни. Полезный самоучитель (2017) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056536.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в предельно доступной форме объясняется все самое необходимое из лексики и грамматики испанского языка. Ко всем словам и выражениям дается транскрипция русскими буквами, что позволяет использовать это пособие еще и как разговорник. Самоучитель содержит языковые подсказки, в которых объясняются основные элементы грамматики. Кроме того, приводятся списки полезных (   Читать дальше...   )Жанр: Языки, самоучителиИздательство: АСТФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C119A55AFDF2865790B74321E7BC03971E69F734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852815   (1056526) от 12.02.2026
-
-А.И. Колпакиди, С.В. Чертопруд | СМЕРШ. От Александра I до Сталина (2025) [PDF, FB2, DOCX, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Александра Колпакиди и Сергея Чертопруд «СМЕРШ. От Александра I до Сталина» представляет собой историческое исследование, прослеживающее развитие российской военной контрразведки с 1812 года до 1946 года. Авторы детально описывают историю спецслужб, включая создание «Высшей» или «Воинской полиции» при Александре I и структуру «СМЕРШ» (ГУ КР «СМЕРШ», УК «СМЕРШ» (   Читать дальше...   )Жанр: Публицистика, архивные материалы, военное дело / спецслужбыИздательство: ООО "Издательство Родина"Формат: PDF, FB2, DOCX, EPUBКачество: Обработанный скан, Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BFC847279DA2E2E3B78F0CB72E453697153037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852908   (1056329) от 10.02.2026
 
 З. Шпаусус | Путешествие в мир химии (1959) [DJVU]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056329.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056328.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056322.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056321.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056319.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056292.jpg" />
 </div>
 
 
@@ -247,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056291.jpg" />
 </div>
 
 
@@ -265,35 +186,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852796   (1056288) от 10.02.2026
-
-Михаил Андреевич Первов | Русские беспилотники или концерт для дрона с оркестром (2025) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056288.jpg" />
-</div>
-
-
-###  Подробнее
-
-«…Сеча  была  знатная.  По  всему  ратному  полю  стоял  сплошной
-дронозвон. От страшных ударов друг о друга трещали дроны. К закату
-солнца все поле битвы было усеяно растерзанными беспилотниками…»
-Так ли страшен дрон, как его малюют?(   Читать дальше...   )Жанр: робототехника, БПЛА, вооружениеИздательство: Столичная энциклопедияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C17667FB92F6A0C3F268A58BA9FE892254A9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852706   (1056135) от 09.02.2026
 
 Сергей Демидов | Самые громкие преступления последних веков. XVI-XXI вв. (2016) [FB2]
@@ -302,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056135.jpg" />
 </div>
 
 
@@ -328,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055924.jpg" />
 </div>
 
 
@@ -354,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055923.jpg" />
 </div>
 
 
@@ -380,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055914.jpg" />
 </div>
 
 
@@ -406,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055906.jpg" />
 </div>
 
 
@@ -432,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055905.jpg" />
 </div>
 
 
@@ -458,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055900.jpg" />
 </div>
 
 
@@ -484,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055897.jpg" />
 </div>
 
 
@@ -510,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055818.jpg" />
 </div>
 
 
@@ -539,7 +431,7 @@ Stephen Corda | Introduction to Aerospace Engineering with a Flight Test Perspec
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055688.jpg" />
 </div>
 
 
@@ -567,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055619.jpg" />
 </div>
 
 
@@ -593,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055616.jpg" />
 </div>
 
 
@@ -619,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055615.jpg" />
 </div>
 
 
@@ -646,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055461.jpg" />
 </div>
 
 
@@ -674,7 +566,7 @@ P. Grohs, M. Holler, A. Weinmann | Handbook of Variational Methods for Nonlinear
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055303.jpg" />
 </div>
 
 
@@ -685,6 +577,116 @@ P. Grohs, M. Holler, A. Weinmann | Handbook of Variational Methods for Nonlinear
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31C5C309378FED9BE253E2FDB2FB629295CD8638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851217   (1055063) от 01.02.2026
+
+Анна Цыбина | Нейросеть. Помощник в изучении английского языка. И не только (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузимся в практику, переосмыслив развитие языковых навыков — от грамматики и чтения до создания своих учебных материалов — всё через ИИ.
+Основные темы книги:
+5 стратегий промптинга для эффективного взаимодействия с ИИ.
+Пошаговые методики развития всех языковых навыков: от аудирования до письма.(   Читать дальше...   )Жанр: Английский язык, Искусственный интеллектИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917E85D18C79C65BFE65FDB784F388D17EB3884B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851218   (1055062) от 01.02.2026
+
+А.Н. Сыщикова | Японский язык для начинающих (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александра Сыщикова - дипломированный специалист по японскому языку и литературе, автор учебных и справочных пособий.
+Перед вами практическое пособие для тех, кто начинает изучение японского языка с нуля. Здесь представлена базовая грамматика, а также основные сведения о японской письменности, чтении и произношении.
+Пособие подходит для самостоятельных занятий и (   Читать дальше...   )Жанр: Языки, обучениеИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C002261A1B28D9EDB546F987756211CE198D38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851219   (1055061) от 01.02.2026
+
+Н. Крнета, Н. Румак | Японский язык. Полная грамматика в схемах и таблицах (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наталия Крнета - преподаватель японского языка в ИСАА МГУ со стажем работы более 20 лет, кандидат филологических наук, автор многочисленных исследований в области языкознания, справочных и учебных пособий. Наталья Григорьевна Румак - преподаватель японского языка в ИСАА МГУ, кандидат филологических наук, переводчик художественной литературы и автор множества учебных (   Читать дальше...   )Жанр: Языки, пособиеИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607B3FA075456D8AEBFDF28C72AB82C2521A3BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851220   (1055060) от 01.02.2026
+
+Чун Ин Сун, А.В. Погадаева | Корейский язык. Полная грамматика в схемах и таблицах (2020) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие разработано признанными специалистами в области корееведения в России Чун Ин Сун и Анастасией Викторовной Погадаевой и включает подробное описание самой важной грамматики корейского языка.
+В пособии представлены подробные таблицы и схемы, емко и наглядно иллюстрирующие даже самые сложные и непонятные грамматические правила корейского языка. (   Читать дальше...   )Жанр: Языки, справочникИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1CA3304D86861DD2223E75611DC374D6DBF11C
 ```
 
 https://mybot314.ru/tekegram_catalog/

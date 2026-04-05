@@ -1,3 +1,61 @@
+###  Публикация: 1109800   (1005550) от 24.07.2021
+
+Ambidextrous - Discography 20 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Ambient, Downtempo, Electro>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pros and Contras (07:20)
+ 02. Detour De Force (07:53)
+ 03. Fozamo (05:15)
+ 04. Bipolar Lights (08:52)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Leftfield, Ambient, Downtempo, Electro •Продолжительность: 19:54:49 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0B045AA352EA5DFCA138E54FFBB5CFE9E7DD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485485   (1005464) от 25.07.2021
+
+Electrypnose - Crooked House (2021) [FLAC|Lossless|WEB-DL|tracks] <PsyTech House, Techno, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Winter Sunday
+02. More Than I Give Them
+03. The Sun Winking at the Moon
+04. Crooked House(   Читать дальше...   )Жанр: PsyTech House, Techno, ProgressiveПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09490AA9A764F4DB01C317836928B0B7B0DA462D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484784   (1005349) от 26.07.2021
 
 Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Techno, Deep Techno>
@@ -6,7 +64,7 @@ Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005349.jpg" />
 </div>
 
 
@@ -33,7 +91,7 @@ Anika - Change (2021) [MP3|320 Kbps] <Electronic, Post-Punk, Experimental Pop>
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005289.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ William Fields - Bokuseki (2021) Evel Records [FLAC|Lossless|WEB-DL|tracks] <Exp
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005224.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ Oxia - Speicher 34 (2006) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005223.jpg" />
 </div>
 
 
@@ -118,7 +176,7 @@ C-Land - Contactee’s Journal (2021) Microcosmos Records [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005218.jpg" />
 </div>
 
 
@@ -147,7 +205,7 @@ Aviv Stern - Half Mind (2021) Point Source Electronic Arts [FLAC 2.0|44.1/24|tra
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005216.jpg" />
 </div>
 
 
@@ -176,7 +234,7 @@ Underwater Sleep Orchestra - The Night and Other Sunken Dreams (2021) Cryo Chamb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005213.jpg" />
 </div>
 
 
@@ -205,7 +263,7 @@ Komarebi - Nebulous (2021) Ping Disc [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Brea
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005209.jpg" />
 </div>
 
 
@@ -234,7 +292,7 @@ bvdub - Hard Times, Hard Hearts (2021) AY [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005199.jpg" />
 </div>
 
 
@@ -263,7 +321,7 @@ Komarebi - After Effects (2020) Touched Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005197.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ Tentura - Theme Patcher (Remixes) (2014) Uxmal Records [FLAC|Lossless|WEB-DL|tra
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005100.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ Wagon Christ - Lovely (1998) Virgin [FLAC|Lossless|tracks+.cue] <Breakbeat, IDM,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005002.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ Solar Quest (SolarQuest, Entropica) - Discography 19 Releases (1994-2020) [FLAC|
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004811.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Cult48 - Underground Signals From An Unknown Place (2021) C48 [FLAC|Lossless|WEB
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004760.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004749.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ SEX-O-RAMA - Collection (1998-2011) 2альбома [MP3|320 Kbps] <Lounge, Rock
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004734.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Poemme & Stereoscenic Label-Pack - 63 Releases (2014-2021) [FLAC|Lossless|WEB-DL
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004499.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ VA - 2020 Workout Starts Now [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004493.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004492.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Space Odyssey – Trip Six: New Year's Voyage 2020 (2020) 2CD, Compilation,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004395.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ VA - A​.​M Study Session 1-4 (2020-2021) Lofi Girl / ChilledCow Records [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004328.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Kaskade - Live @ Marquee New York, United States 2019-12-31 [MP3|~245 Kbps (V0)]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004312.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Hardwell - Hardwell On Air Yearmix 2019 (2019) [MP3|~245 Kbps (V0)] <Electro Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004305.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Andrew Rayel - Find Your Harmony Radioshow Yearmix 2019 (2020-01-01) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004299.jpg" />
 </div>
 
 
@@ -681,62 +739,6 @@ Andrew Rayel - Find Your Harmony Radioshow Yearmix 2019 (2020-01-01) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADB9C206CB32D8C758CD1F10ACA9BEF0522BA758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349552   (1004219) от 02.01.2020
-
-Нейромонах Феофан - Я готов (2019) Single [MP3|320 Kbps] <Drum & Bass, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004219.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я готов
-2. МирЖанр: Drum & Bass, ElectronicПродолжительность: 00:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E4CB72C436BAF06CAB7F78115B589678F8508B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487163   (1004147) от 03.08.2021
-
-Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1.16699016 x 10^-8 hertz (Niklas Paschburg Remix) (4:12)
- 02. Wherever You Are (Tinlicker Remix) (5:48)
- 03. The Clouds Silver Lining (Joachim Pastor Remix) (6:50)
- 04. Once in a Blue Moon (Eightfold Remix) (5:56)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FB16C9E8FBE4D553EC66DE693996CB368F12F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

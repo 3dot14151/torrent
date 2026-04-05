@@ -1,3 +1,59 @@
+###  Публикация: 1104377   (881483) от 14.02.2017
+
+Александр Солодков, Елена Сологуб | Физиология человека. Общая. Спортивная. Возрастная (2017) [FB2]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник подготовлен в соответствии с новой программой по физиологии для вузов физической культуры и требованиями Государственного стандарта высшего профессионального образования.
+
+Для студентов, аспирантов, научных сотрудников, преподавателей, тренеров и врачей, работающих в области физической культуры.Жанр: Биология, Учебная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EBCE71BC8E2C29585B8B82C1C9C49814129CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104231   (881346) от 14.02.2017
+
+Г.Н. Попова, С.Ю. Алексеев | Машиностроительное черчение. Справочник. 5-е изд. (2011) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит материалы, необходимые для оформления машиностроительных чертежей и схем в соответствии со стандартами ЕСКД.Приведены таблицы по допускам и посадкам, резьбам, крепежным изделиям, показаны условные обозначения на чертежах.
+ В пятом издании (1-е изд. 1986 г.) учтены изменения и дополнения в государственных стандартах на 01.09.2007.
+ Справочник предназначен (   Читать дальше...   )Жанр: ЧерчениеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF19DE59EC9F44CC748C4D938D6A47A985979D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373358   (880148) от 06.04.2020
 
 Наталья Викторовна Макарычева | Профилактика жадности, лжи, лени и хвастовства: Коррекционно-развивающая программа для детей 5-8 лет (2010) [PDF]
@@ -6,7 +62,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880148.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879735.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876458.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876414.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876342.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875582.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875019.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ RCA | Basic Alcohol Tutorial (Руководство для барменов) (2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874984.jpg" />
 </div>
 
 
@@ -220,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874874.jpg" />
 </div>
 
 
@@ -246,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873569.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873374.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873283.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873228.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873217.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873039.jpg" />
 </div>
 
 
@@ -405,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871462.jpg" />
 </div>
 
 
@@ -431,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871222.jpg" />
 </div>
 
 
@@ -457,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871214.jpg" />
 </div>
 
 
@@ -483,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870595.jpg" />
 </div>
 
 
@@ -509,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870512.jpg" />
 </div>
 
 
@@ -535,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870060.jpg" />
 </div>
 
 
@@ -562,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868434.jpg" />
 </div>
 
 
@@ -588,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868319.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866232.jpg" />
 </div>
 
 
@@ -627,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD2CC0E6A8CFDA3D3EB95ABB03EE69DD146C8336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107746   (866228) от 23.02.2017
-
-А.В. Росляков | Оконечное оборудование сети ISDN (2008) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Систематизированы сведения по оконечному оборудованию цифровых сетей с интеграцией служб (ISDN). Рассмотрены основные функциональные устройства базового и первичного доступов ISDN: сетевые окончания, терминальные устройства, терминальные адаптеры, оборудование видео-конференцсвязи и передачи данных.
-Для студентов высших учебных заведений, обучающихся по направлению (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7267A4379925164C1EECFC0508823178492CE36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107708   (866101) от 23.02.2017
-
-Г.Н. Музалевская | Инженерные сети городов и населенных пунктов (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866101.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены вопросы, возникающие при проектировании систем водоснабжения, теплоснабжения, газоснабжения, газоснабжения. Приведен пример расчета водоснабжения города, состоящего из двух районов, систем теплоснабжения, систем газоснабжения и электроснабжения. Рассмотрены принципы размещения подземных сетей в городах и микрорайонах, размещения подземных (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6915FDF8CC21BE94C15CB323A2ED53EE0CCAEFF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

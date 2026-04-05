@@ -1,3 +1,133 @@
+###  Публикация: 1645840   (232520) от 11.07.2023
+
+Стэн Лорел. Недоделанный / Half a Man (1925) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уинчел МакСвини - очень просто и беззаботный молодой человек, ну ОЧЕНЬ ПРОСТОЙ. Отец его разорился, и ему приходится уйти из дома, чтобы самому зарабатывать на жизнь. Его неудержимо тянет к морю, он попадает на корабль, где много девушек-матросов, почти как в нашем фильме "Берегите женщин". Но наш герой, в отличие от героя отечественного фильма, получил (   Читать дальше...   )Производство: США, Joe Rock Comedies (I), Standard Photoplay CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Джо Рок, Гарри СвитАктеры: Стэн Лорел, Туи Боу, Джули Леонард, Бланш Пейсон, Мюррэй РокПеревод: немой с интертитрами (bankolya)Субтитры: русские (интертитры) / английские (интертитры), русские отдельным файломПродолжительность: ~00:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1717682DEBD030CBA83E30684867523701E6A39D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645944   (232403) от 12.07.2023
+
+Школьные друзья / Compagni di scuola (1988) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то они были лучшими друзьями-одноклассниками, но потом жизнь развела их по разные стороны баррикад. Сейчас Фредерике 35 лет, и недавно её бросил богатый любовник. Недолго думая, женщина решает устроить встречу с бывшими друзьями. Так она надеется развеять свою грусть. После школы они не виделись более 15 лет. Само собой, за это время у всех накопилось немало (   Читать дальше...   )Производство: Италия, Cecchi Gori Group Tiger CinematograficaЖанр: драма, мелодрама, комедияРежиссер: Карло ВердонеАктеры: Карло Вердоне, Алессандро Бенвенути, Анджело Бернабуччи, Нэнси Брилли, Джузи Катальдо, Атина Ченчи, Маурицио Феррини, Иза Галлинелли, Массимо Гини, Элеонора ДжорджиПеревод: любительский одноголосыйЯзык озвучки: русский, итальянскийСубтитры: русские (Александр Герусов), английские, итальянскиеКачество: BDRipПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E2E1EC61F18D6BA99DCF9E673D3FB009E43294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646258   (232359) от 13.07.2023
+
+Друг стенографистки / The Stenographer's Friend (1910) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное название этого фильма - "Друг стенографистки; Или чего добился бизнес-фонограф Эдисона", А кинокомпания-производитель этого фильма это "Edison Manufacturing Company". Жанр понятен? ;) Видимо это один из самых первых промофильмов. Ну, а вы что думали, рекламу придумали лет 20-30 назад? Нет, несколько раньше.Производство: США, Edison Manufacturing CompanyЖанр: короткометражный, немое киноРежиссер: нет сведенийАктеры: Джон Р. Кампсон, Этель Джютт, Марк МакДермоттПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC1A5F565A55ED5D64FC58F174990D50B06A284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635638   (232308) от 26.05.2023
+
+Стэн Лорел. Подручный / The Handy Man (1923) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стэн работает подручным при доме Стиллвеллов. А кухарка у них - пышная женщина, с которой у Стэна роман. Но смотритель дома узнает в этой пышной женщине пропавшую наследницу, разыскиваемую через газету.Производство: США, Quality Film ProductionsЖанр: комедия, короткометражный, немое киноРежиссер: Роберт П. КеррАктеры: Стэн Лорел, Мерта Стерлинг, Отто Фрайс, Гарри Манн, Бэйб Лондон, Матильда КомонПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5617D3F7F5F17BCDB10A5D162F94DA515876A6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646257   (232304) от 13.07.2023
+
+Стэн Лорел. Гуляй, пока молодой / Get 'Em Young (1926) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орвид Джой находится в плавании, там же с ним и его дворецкий (Стэн). Случайно Орвид знакомится на корабле с девушкой, влюбляется и там же женится на ней. В это время ему по завещанию достается миллион долларов, но при условии, что он представит свою жену к оговоренному сроку. Где завещание - там и стряпчий, и ему (стряпчему) самому хочется получить кусочек из этого (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Фред Гиол, Стэн ЛорелАктеры: Гарри Майерс, Евгения Гилберт, Стэн Лорел, Макс Дэвидсон, Шарлотта Мино, Фред Малатеста, Эрнест ВудПеревод: немой с интертитрами (bankolya)Субтитры: русские (интертитры)Продолжительность: 00:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A47C7CB1A6EDA437E2C1EE56A0E4E817141306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645047   (232250) от 07.07.2023
 
 Стэн Лорел. Снежный ястреб / The Snow Hawk (1925) WEBRip
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232250.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232233.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232225.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232218.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232204.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232037.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232035.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232022.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232007.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231949.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231912.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231897.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231820.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231769.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231713.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231650.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231624.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231489.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231308.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231302.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231237.jpg" />
 </div>
 
 
@@ -539,138 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBEBE5ED97F5C50FB7930949DE31417CBF8AA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637255   (230980) от 03.06.2023
-
-Мы не состаримся вместе / Nous ne vieillirons pas ensemble (1972) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже шесть лет Жан и Катрин — любовники. Жан не хочет разводиться и живет с женой. Катрин живет у своих родителей. Они видятся в отелях, машинах, во время отпусков и уикэндов.
-Они любят друг друга, ссорятся, затем мирятся. Но чувства постепенно угасают, а Жан становится все агрессивнее...Производство: Франция, Италия / Empire Films, Lido FilmsЖанр: драмаРежиссер: Морис ПиалаАктеры: Марлен Жобер, Жан Янн, Кристина Фабрега, Патриция Пьеранджели, Жак Галлан, Морис Риш, Гарри-Макс, Мюзе Лальбре, Маша МерильПеревод: Одноголосый любительский, Денис СтроевЯзык озвучки: Русский, французскийСубтитры: Русские, французские, английскиеПродолжительность: 01:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFCFB6CDCBA105A4EAE9AC4C1B4019B087C6993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556121   (230762) от 07.06.2022
-
-Муж парикмахерши / Le mari de la coiffeuse (1990) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230762.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Антуан очень любил ходить в парикмахерскую. Как-то раз мальчик сказал родителям, что обязательно женится на парикмахерше, и тут же получил от отца оплеуху. Но желание мальчика не исчезло.
-Прошли годы. В маленьком городке, где жил Антуан, появилась парикмахерша Матильда. И при первой же встрече Антуан сделал ей предложение…Производство: Франция / Centre National de la Cinématographie (CNC), Investimage 2, Investimage 3, Lambart Productions, TF1 Films ProductionЖанр: Драма, Мелодрама, КомедияРежиссер: Патрис ЛеконтАктеры: Жан Рошфор, Анна Гальена, Ролан Бертен, Морис Шевит, Филипп Клевено, Жак Мату, Клод Офор, Альбер Дельпи, Генри Хокинг, Тикки ОльгадоПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047D33375942F0A5BA9E3B84F17DBA71B16A16B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648938   (230754) от 25.07.2023
-
-Два лица доктора Джекила / The Two Faces of Dr. Jekyll (1960) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм ужасов по повести Роберта Льюиса Стивенсона «Странная история доктора Джекила и мистера Хайда». Лондонскому врачу доктору Джекилу удаётся открыть сыворотку, которая заставит Злое в человеке преобладать над Добрым... После укола сыворотки в образе мистера Хайда он исполняет свои заветные мечты: в качестве возлюбленной берёт себе танцовщицу Марию, сближается (   Читать дальше...   )Производство: Великобритания, Hammer Film ProductionsЖанр: ужасыРежиссер: Теренс ФишерАктеры: Пол Мэсси, Доун Аддамс, Кристофер Ли, Дэвид Кософф, Френсис Де Фолфф, Норма Марла, Магда Миллер, Оливер Рид, Уильям Кендалл, Хелен ГоссПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Александр Герусов), английскиеКачество: BDRipПродолжительность: 01:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48197F8D4DF259691C0C2FF3CC680CBBD02D1529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637554   (230742) от 04.06.2023
-
-Стэн Лорел. Белые крылья / White Wings (1923) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энергичный молодой человек пытается найти свое место в жизни. С переменный успехом. Это же Стэн Лорел. У него вечно так.Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джордж ДжескеАктеры: Стэн Лорел, Джеймс Финлейсон, Marvin Loback, Кэтерин Грант, Марк Джонс, Джордж Роу, Уильям Гиллеспи, Вера УайтПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9656AEE3555CC52E04C22CC59A3CC14498E44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637705   (230496) от 06.06.2023
-
-Стэн Лорел. Меж двух огней / Under Two Jags (1923) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немного дурацкая комедия Стэна Лорела (как и многие его ранние комедии). Стэн оказывается в какой-то экзотической стране. И даже попадает в экспедиционный корпус. Но как военный он оказался совершенно несостоятельным. Почему "меж двух огней"? Да потому что он умудрился обратить на себя внимание сразу двух женщин. А это, сами понимаете, прежде всего рисковано (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джордж ДжескеАктеры: Стэн Лорел, Кэтерин Грант, Мэй Лорел, Сэмми Брукс, Чарльз Стивенсон, Уильям Гиллеспи, Эдди Бэйкер, Рой Брукс, Джордж РоуПеревод: немойСубтитры: ОтсутствуютПродолжительность: 00:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A093C7806640E9EAC9BB7CCF9874F8A9844BC0E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Chill Out Perfection, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166267.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165609.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Nature Lovers (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165516.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Chill out Mood, Vol. 3 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165506.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Chill out Mood, Vol. 4 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165490.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165486.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Nu Cool Covers 2: Pop Classics ReStyled (2018) [AAC|~323 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165475.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165457.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Winter Lounge 2021 (2021) [AAC|~330 Kbps] <Lo-Fi, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165430.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Ely Bruna, Papik - In Sweet Harmony (2021) [AAC|~303 Kbps] <Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165421.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Nu Cool Covers 4: Pop Classics ReStyled (2021) [AAC|~315 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165414.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Erotica, Vol. 3 (2018) [AAC|~325 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165408.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Nu Cool Covers 3: Pop Classics ReStyled (2020) [AAC|~328 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165396.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Erotica, Vol. 2 (2016) [AAC|~331 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165391.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Erotica, Vol. 4 (2018) [AAC|~313 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165388.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Erotica, Vol. 1 (2014) [AAC|~326 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165383.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Erotica, Vol. 5 (2020) [AAC|~314 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165371.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Nu Cool Covers 1: Pop Classics ReStyled (2017) [AAC|~337 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165328.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Erotica, Vol. 6 (2021) [AAC|~322 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165289.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ The Baylor Project - Generations (2021) [AAC|~343 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165240.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164962.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164895.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Chillout King Ibiza: Aperitivo Del Mar (2018) [AAC|~334 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164559.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Chillout King Ibiza: Chill Around the World (2017) [AAC|~323 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164546.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Chillout King Ibiza: The Relax Smoothie (2016) [AAC|~326 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164530.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ VA - Chillout King Ibiza: Club Del Mar (2015) [AAC|~342 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164518.jpg" />
 </div>
 
 

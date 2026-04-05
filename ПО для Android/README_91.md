@@ -1,3 +1,107 @@
+###  Публикация: 1665219   (175052) от 10.10.2023
+
+Simple Gallery v6.28.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое приложение для просмотра изображений и видеозаписей. Отображаемые файлы могут быть отсортированы как по возрастанию, так и по убыванию даты, размера или имени. Фотографии можно масштабировать. В зависимости от размера экрана, медиафайлы располагаются в несколько столбцов, можно изменять число столбцов щипком двумя пальцами. Можно переименовывать, удалять, (   Читать дальше...   )Тип издания: Pro PaidРелиз состоялся: 09.10.2023Разработчик: Simple Mobile ToolsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8182F6DFDBEDC55CB649A2C17D2DE65EDF2759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668299   (174582) от 11.10.2023
+
+PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 24.09.2023Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1BAD2F69DF33E7DC30A1F7696C0C6BB99B330C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668305   (174482) от 11.10.2023
+
+ВК Видео Мастер v5.3 Mod by Alex.Strannik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое и удобное приложение для скачивания видео и фотографий с ВКонтакте с поддержкой загрузки мультимедиа высокого качества. В наличии встроенный браузер для удобства поиска материалов для скачивания. В наличии возможность загрузки видео посредством отправки ссылки в сие приложение.Тип издания: ProРелиз состоялся: 17/08/2023Разработчик: MobiAV.comПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D53F55273BEBF4DFFC7D16ED6352BD0EDB2B6A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668548   (173693) от 12.10.2023
+
+Билеты ПДД 2023 и экзамен ПДД v9.14 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173693.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателей ПДД24 при сотрудничестве с ГИБДД и автошколами России. Всегда самые последние изменения в билетах и правилах дорожного движения. Перед тем как купить автомобиль. Билеты ПДД 2023 от ГИБДД ABM/CD. С новыми правила сдачи ПДД экзамена в 2023 году(+5 доп. вопросов за ошибку). Экзаменационные билеты ПДД 2023/2024 России категории АВM/CD(СД) и подкатегорий (   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 28.09.2023Разработчик: ПДД РоссииПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8537BD1AE2E07A442CECC5BC09834859D30F0AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668542   (173629) от 12.10.2023
 
 Породы кошек - идентификатор v1.0.28.122 Mod by vedserega [Ru/Multi]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173629.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ Photo Retouch v2.3.4 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173338.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ SD Maid v5.6.2 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173333.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173168.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ VN - Video Editor / VN - Видеоредактор v2.1.6 Mod by Alien [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173164.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172979.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ AGContacts v13.10.14.31819 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172956.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172937.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Double Tap v1.8.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172792.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Melon VPN - Secure Proxy VPN 7.9.511 Mod By AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172787.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ tvQuickActions Pro 3.3.0 Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172772.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Moovit v5.128.0.596 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172761.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ PowerDirector – Video Editor v12.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172646.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ AndroVid Pro Video Editor v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172634.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172588.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172269.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ SnapEdit - AI photo editor 4.9.1 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172259.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172242.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172152.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ Enhance it v4.1.7 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172049.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171888.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ Moon+ Reader Pro v8.5 (build 805000) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171859.jpg" />
 </div>
 
 
@@ -572,111 +676,6 @@ Moon+reader относится к категории универсальных 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2510A61667AF32075FFF9CF37B16C44A10E3D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670860   (171724) от 22.10.2023
-
-Породы лошадей с фото v1.0.25.126 Mod by vedserega [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый полный справочник "Породы лошадей с фото". В справочнике вы сможете найти подробное описание: Ахалтекинская лошадь, Арабская лошадь, Орловский рысак, Перуанский пасо, Першерон, Пиндос (порода лошадей), Пинцгауская лошадь, Полукровная лошадь, Польский коник, Пони, Породы лошадей, Породы лошадей по странам, Русская верховая лошадь, Русский рысак, Русский (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.10.2023Разработчик: Anna VoronichПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2AE04FBBE659E610FF1825E58D382F47B61F64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670851   (171698) от 22.10.2023
-
-Measure map v1.2.62 Mod by Alien, derrin [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Measure Map - это приложение, поддерживающее калькулятор расстояний, позволяющее определить расстояние между двумя или более точками в любой точке Земли. Другими словами, расстояние между A и B. Щелкните один раз на карте, чтобы разместить первый маркер, а затем щелкните еще раз, чтобы разместить второй маркер. Затем отобразится расстояние между точками. Вы также (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.10.2023Разработчик: Have a nice dayПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AFC5EBD1A01A7B3015F765125EC03780FD7BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670902   (171673) от 22.10.2023
-
-Яндекс.Погода v23.10.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171673.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 12.10.2023Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01AF8FE7D711BE654220D9A955AF48D3CA345F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670859   (171666) от 22.10.2023
-
-Танки v1.0.27.122 Mod by 0x7D [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ищете исчерпывающее руководство по танкам и их истории? Обратите внимание на приложение "Танки" - идеальный справочник для любителей военной истории, студентов и преподавателей, ветеранов и действующих военнослужащих, геймеров, инженеров и конструкторов, а также любителей истории.
-Благодаря подробной информации о различных типах танков, включая их историю, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.10.2023Разработчик: Anna VoronichПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B144E4F97105C118BDF72CD5C27467CA7B7905E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1419546   (339221) от 28.10.2020
+
+Вольница | Супер Сила 2: Школа моушен дизайна (2019) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339221.jpg" />
+</div>
+
+
+###  Подробнее
+
+О чем Супер Сила?
+Мы не заучиваем параметры плагинов и эффектов, мы развиваем чувство стиля. Превращаем сложное в простое и наоборот из простых форм создаём визуально наполненные композиции. Развиваем арт-директорское чутье, учимся срезать углы по канонам Северного стиля.Производство: ВольницаЖанр: Создание эффектовПродолжительность: 17:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D582027747104A835543F63423546550F777C888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419406   (339197) от 28.10.2020
 
 [Skillbox] Павел Булавин и др. | Аналитик данных с нуля (2020) PCRec
@@ -6,7 +33,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339197.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Profileschool | Мастер-класс МК Концертная фотогра
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339067.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338972.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338347.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337468.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Profileschool | Мастер-класс Репортаж на заказ. Ком
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336702.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Innopolis University, Олег Игонин | Введение в разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335956.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ Udemy, Joakim Tornhill | Become a Material Guru in Blender 2.8 (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335954.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Innopolis University, Иван Кривов | Основы Frontend-разраб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335952.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335950.jpg" />
 </div>
 
 
@@ -283,7 +310,7 @@ TRX TV | TRX - Endurance (2011) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335219.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335085.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335057.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ Daily Burn | Cardio Sculpt (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334943.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334907.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334720.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334674.jpg" />
 </div>
 
 
@@ -471,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334667.jpg" />
 </div>
 
 
@@ -498,7 +525,7 @@ lynda.com | Visual Studio 2010 Essential Training [2010] [EN] PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334248.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ Stepik, Михаил Непомнящий | TypeScript для современн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334093.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333574.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333564.jpg" />
 </div>
 
 
@@ -605,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333561.jpg" />
 </div>
 
 
@@ -631,7 +658,7 @@ Duckademy | Освоение SQL-инъекций / Mastering SQL injection (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333406.jpg" />
 </div>
 
 
@@ -659,7 +686,7 @@ Broadcast Design School | Remastered Records (2015-2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333396.jpg" />
 </div>
 
 
@@ -672,32 +699,6 @@ Broadcast Design School | Remastered Records (2015-2020) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1586B3C899B4F3DA368F8DBCA9A0FE83D45A0785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420345   (333373) от 31.10.2020
-
-[Udemy] YouAccel Training | NGINX, Apache, SSL Encryption - Сертификационный Курс / NGINX, Apache, SSL Encryption - Certification Course (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на наш новый курс, который проведет вас через процесс установки, защиты и настройки NGINX или Apache на веб-сервере Ubuntu. Вы также научитесь шифровать весь веб-трафик с помощью бесплатного SSL-сертификата от Let’s Encrypt.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83293B7BDDC245094A4449FAEBE0555EA23B6EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

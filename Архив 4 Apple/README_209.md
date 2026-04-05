@@ -6,7 +6,7 @@ Carbon Copy Cloner 5 v5.1.19 (build 6027) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780974.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ PDF Expert 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780863.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ iTubeDownloader 6.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780860.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ ChronoSync 4.8.4 & ChronoAgent 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780603.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ CodeKit 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780586.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Macgo Mac Blu-ray Player Pro 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780577.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Carbon Copy Cloner 5.0.9 (5267) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780500.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Adobe Photoshop CC 2018 v19.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780446.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ PeakHour 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780276.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ iMazing 2.5.4 (8418) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780264.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ SuperDuper! 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780249.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Wirecast Pro 8.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780195.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Craft The World v.1.4.014/dlc (2014) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780143.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Things 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780091.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Movavi Photo Editor 5 v5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780088.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780085.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ HD Video Converter Movavi 5.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780062.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ TinkerTool System 5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779984.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Debookee 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779973.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Navicat Premium 12.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779788.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ TG Pro (Temperature Gauge Pro) 2.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779762.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Keyboard Maestro 8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779753.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Big Mean Folder Machine 2 v2.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779664.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PowerPhotos 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779663.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Be Focused Pro 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779651.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Movavi Video Editor 5 Plus 5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779523.jpg" />
 </div>
 
 

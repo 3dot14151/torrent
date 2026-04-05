@@ -1,32 +1,3 @@
-###  Публикация: 1771897   (71796) от 08.01.2025
-
-Guy Verlinde & Tom Eylenbosch - Promised Land Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heaven Inside My Head (3:08)
-02.  Tears over Gaza (3:10)
-03.  A Worried Man Blues (3:41)
-04.  I've Got You (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DF7F31E36478F196DA04A01E6093805372D78C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772072   (71791) от 09.01.2025
 
 Asphyx - Studio Albums (10 releases) (1991-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal>
@@ -35,7 +6,7 @@ Asphyx - Studio Albums (10 releases) (1991-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71791.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Beriedir - Liminal Spaces (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71789.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ The Smoothies - Winter Chill (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71780.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Eguana - Destiny, Vol. 4 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient |
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71779.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Vampires Everywhere - The Devil Made Me Do It (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71769.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Magnum - Live At KK's Steel Mill (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71768.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Masque of Art - Masquerade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71767.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Elyose - Évidence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71763.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ The Smoothies - Head to Christmas: A Soulful Christmas (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71762.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Paper Lace - The Best Of Paper Lace (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71761.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ GTO Trio featuring Gadi Lehavi, Tal Mashiach and Ofri Nehemya - GTO TRIO: Within
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71743.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Diogo M. Jr. - Rock com Maestria (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71740.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ Kemas - Deus X Machina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71739.jpg" />
 </div>
 
 
@@ -407,7 +378,7 @@ Olivia Rox - Super Cool Songs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71730.jpg" />
 </div>
 
 
@@ -436,7 +407,7 @@ Starchilde - Jupiter Brain (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progres
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71726.jpg" />
 </div>
 
 
@@ -465,7 +436,7 @@ Aldo Farias with Mario Nappi, Tommaso Scannapieco & Pietro Iodice - Worlds (2025
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71717.jpg" />
 </div>
 
 
@@ -494,7 +465,7 @@ Crimson Storm - Livin' on the Bad Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71716.jpg" />
 </div>
 
 
@@ -523,7 +494,7 @@ Jeff Krause & Brokedown Gramophone - Tears for My Friends (2025) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71713.jpg" />
 </div>
 
 
@@ -552,7 +523,7 @@ Brian Grilli - Great Big Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71712.jpg" />
 </div>
 
 
@@ -581,7 +552,7 @@ Gareth Huggett - Modern Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71711.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ AARA - Eiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Atmosphe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71706.jpg" />
 </div>
 
 
@@ -639,7 +610,7 @@ Epysode - Studio Albums (2 releases) (2011-2013) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71691.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71667.jpg" />
 </div>
 
 
@@ -695,7 +666,7 @@ Osvaldo Di Dio - Blues For Pino (2025) [FLAC 24-Bit/44.1 kHz|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71618.jpg" />
 </div>
 
 
@@ -724,7 +695,7 @@ TesseracT - War Of Being (2025) Tour Edition [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71614.jpg" />
 </div>
 
 
@@ -738,6 +709,35 @@ TesseracT - War Of Being (2025) Tour Edition [FLAC 24/44.1|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:939864962B4E97F61659670A28C62A3DD3B135B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773553   (71613) от 18.01.2025
+
+Rigor Samsa - Severance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plague [00:04:34]
+02. Yage [00:06:44]
+03. Solivagant [00:04:22]
+04. Fertile [00:07:51](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DEFABB2C48F1DC48DC98E85E19DA45660D236D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1303304   (572728) от 21.05.2019
-
-Алексей Варламов | Шукшин (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба Василия Макаровича Шукшина (1929–1974) вобрала в себя все валеты и провалы русского XX века. Сын расстрелянного по ложному обвинению алтайского крестьянина, он сумел благодаря огромному природному дару и необычайной воле пробиться на самый верх советской общественной жизни, не утратив корневого национального чувства. Крестьянин, рабочий, интеллигент, актер, (   Читать дальше...   )Жанр: ЖЗЛПродолжительность: 18:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6B36B898425A9D9EDA2D2B90A90D98D1C17DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303309   (572184) от 21.05.2019
-
-Ричард Шеперд | Неестественные причины. Записки судмедэксперта: громкие убийства, ужасающие теракты и запутанные дела (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тело человека – это безмолвный свидетель случившейся смерти, оно ничего не скрывает и всегда несет в себе правду. Когда смерть внезапна и необъяснима, доктор Ричард Шеперд обязательно выясняет ее причину. Каждое вскрытие – это отдельная детективная история, и автор с помощью проницательности разрешает головоломку, чтобы ответить на самый насущный вопрос: как этот (   Читать дальше...   )Жанр: Истории из жизниПродолжительность: 13:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E680330893F3D5B6236D083ED0135CA021DBEFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043228   (570923) от 17.08.2016
 
 Сергей Утченко | Юлий Цезарь (2016) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570923.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568931.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568810.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567275.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566951.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563603.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563403.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562114.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561666.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559923.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559819.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559780.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559776.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559689.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558034.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558027.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557985.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557967.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557936.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556131.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554877.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554870.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554850.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554416.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6DFB75EF824D23615430FA7C321B1FB62DF21F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308920   (553508) от 16.06.2019
+
+Евгений Чириков | Зверь из бездны (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553508.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Зверь из бездны» – необыкновенно чувственный роман одного из самых замечательных писателей русского Серебряного века Евгения Чирикова, проза которого, пережив годы полного забвения в России (по причине политической эмиграции автора) возвращается к русскому читателю уже в наши дни. Роман является эпической панорамой массового озверения, метафорой пришествия апокалиптического (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 18:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8047C48F4AB1BF9ED46507FF2D8B63579F34D71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046085   (552847) от 26.08.2016
+
+Семён Скляренко | Владимир (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Семена Скляренко - о нашей истории, о прошлом нашего народа. Автор пишет о Киевской Руси - колыбели трех славянских народов - русского, украинского и белорусского. В романе последовательно и широко отображается решительная политика князя Владимира, отстаивавшего твердую государственную власть и единство Руси.Жанр: Исторический романПродолжительность: 25:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC3751C37DF9921A8E81123979FB762917C2106
 ```
 
 https://mybot314.ru/tekegram_catalog/

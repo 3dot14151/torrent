@@ -1,3 +1,29 @@
+###  Публикация: 1286271   (712600) от 02.03.2019
+
+Алексей Кондратьев | Курс эффективной визуализации экстерьера в Coronapic (2018) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс нацелен на максимально эффективную работу. Мы не собираемся копировать картинки из журналов, как это делают на других курсах. Мы будем работать только с реальными проектами.Производство: Ravelin SchoolЖанр: Обучающее видеоПродолжительность: 12:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D587D97E12E902A4E570956E12A3A9A054197C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286427   (712402) от 02.03.2019
 
 PHP Academy | Курс PHP Developer (2017) PCRec [H.264/720p-LQ]
@@ -6,7 +32,7 @@ PHP Academy | Курс PHP Developer (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712402.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Stephen Wells | Physics Pile In 3ds Max / Создание груды косте
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712100.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Michael Raphaelovich | Mastering Color Correction in Premiere Pro [Rus] (2015) P
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712092.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712089.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712015.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711432.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ ProfIT | T4: быстрый вход в мир современных фрейм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711193.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711107.jpg" />
 </div>
 
 
@@ -230,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710853.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710688.jpg" />
 </div>
 
 
@@ -288,7 +314,7 @@ Adam Epstein | Cutting Edge Post-Production Training (2014) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710230.jpg" />
 </div>
 
 
@@ -317,7 +343,7 @@ Patrick Inhofer | DaVinci Resolve 12 Essential Training (2016) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710210.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710207.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709479.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Delta Discovery Group | Обучение от Елены Калашниково�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709313.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ studyboom | Профессия: Дизайнер мобильных прилож
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709189.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ NizamovStudio | Разработка мобильного приложения B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708922.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708830.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ VFX Grace | Jaguar Grooming Workflow - Blender Case Study (2020) PCRec [EN / EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708504.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708267.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Allan McKay | FX Technical Director Transformation Module 10 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707406.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Allan McKay | FX Technical Director Transformation Module 8 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707400.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707395.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706840.jpg" />
 </div>
 
 
@@ -674,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706796.jpg" />
 </div>
 
 
@@ -687,32 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A63C4FFF2814BD03AF0E8CE6AE035FF4659EDE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287092   (706783) от 05.03.2019
-
-Джама Джурабаев | Введение в 3D концепт дизайн / Intro to 3D Concept Design (2016) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концепт-дизайнер и мэтт-пэйнтер Джама Джурабаев научит вас, как создавать потрясающе сложные концепт проекты с помощью множества техник. Учитесь вместе с профессиональными учениками Джамы, развивая различные 2D и 3D навыки для создания финальных рендеров профессионального уровня.Производство: Learn SquaredЖанр: 3D концепт дизайн, Photoshop, 3D-Coat, KeyShot, MarmosetПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 56:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2971DC12BAAAD2C4052E69439471AC2845488F59
 ```
 
 https://mybot314.ru/tekegram_catalog/

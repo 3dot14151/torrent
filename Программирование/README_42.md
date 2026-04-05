@@ -1,82 +1,3 @@
-###  Публикация: 1655704   (204135) от 27.08.2023
-
-Shantanu Baruah, Shaurya Baruah | App Development Using iOS iCloud (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сначала вы построите базовый, функциональный UX-экран. Затем вы подключите iCloud с CloudKit для сохранения данных и частных, публичных и общих баз данных. Здесь ваш дизайн пользовательского интерфейса, основанный на коде, расширится до разработки профессионально выглядящих экранов с анимацией. Вы также научитесь работать с блоками напоминаний и уведомлений, обмениваться (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E720D6F984D16FC4E835FF334E50ED7B7C16EB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604044   (204132) от 12.01.2023
-
-С.Е. Иванов | Прикладные алгоритмы на языке ООП C# (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие включает лабораторные работы, выполняемые в рамках курса «Объектно-ориентированное программирование». Представлено описание, блок-схемы реализация различных прикладных алгоритмов на языке ООП C#Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C92B6BDA00E4FB77E65B52CE2457C573E520E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605947   (203802) от 20.01.2023
-
-Mark J. Price | C# 11 and .NET 7 – Modern Cross-Platform Development Fundamentals, 7th Edition (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Extensively revised to accommodate the latest features that come with C# 11 and .NET 7, this latest edition of our guide will get you coding in C# with confidence.
-You'll learn object-oriented programming, writing, testing, and debugging functions, implementing interfaces, and inheriting classes. Next, you'll take on .NET APIs for performing tasks like managing and (   Читать дальше...   )Жанр: ПрограммированиеЯзык: EnglishФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9502F4E946EF1683348C4CA582F76E031923E088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607906   (203430) от 28.01.2023
 
 Артем Груздев | Предварительная подготовка данных в Python [2 тома] (2023) [PDF]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203430.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203359.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203147.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203080.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203020.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202719.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202685.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202615.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202337.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202333.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202325.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201993.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ Sandeep Rawat | CI/CD Pipeline with Docker and Jenkins (2023) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201690.jpg" />
 </div>
 
 
@@ -431,7 +352,7 @@ Nanik Tolaram, Nick Glynn | Full-Stack Web Development with Go (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201551.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201427.jpg" />
 </div>
 
 
@@ -484,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201425.jpg" />
 </div>
 
 
@@ -512,7 +433,7 @@ Sourabh Mishra | Practical Highcharts with Angular, 2nd Edition (2023) [PDF] [EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201416.jpg" />
 </div>
 
 
@@ -540,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201390.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201373.jpg" />
 </div>
 
 
@@ -593,7 +514,7 @@ Maxwell Flitton | Rust Web Programming - Second Edition (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201340.jpg" />
 </div>
 
 
@@ -622,7 +543,7 @@ Alex Nuijten,  Patrick Barel | Modern Oracle Database Programming (2023) [PDF] [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201193.jpg" />
 </div>
 
 
@@ -648,7 +569,7 @@ Kolawole Mangabo | Full Stack Django and React (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201121.jpg" />
 </div>
 
 
@@ -674,7 +595,7 @@ Sarah Guthals | GitHub For Dummies, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201075.jpg" />
 </div>
 
 
@@ -685,6 +606,84 @@ Sarah Guthals | GitHub For Dummies, 2nd Edition (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D1BE2FB81B368C518C56B2B29CB1D04C62D6D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620711   (200940) от 21.03.2023
+
+Blaine Bateman | The Pandas Workshop (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга научит вас более продуктивно работать с данными и генерировать реальные бизнес-понятия для принятия решений. Вас проведут через реальные проблемы науки о данных и покажут, как применять ключевые методы в контексте реалистичных примеров и упражнений. Увлекательные задания помогут вам применить свои новые навыки таким образом, чтобы подготовиться к реальным (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8B27250F6082F7C3566F92D9B12A13308ABF13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620790   (200894) от 22.03.2023
+
+Шоу Энтони | Внутри CPython: гид по интерпретатору Python (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200894.jpg" />
+</div>
+
+
+###  Подробнее
+
+CPython, самая популярная реализация Python, абстрагируется от сложностей ОС и предоставляет платформу для создания масштабируемых и высокопроизводительных приложений. Каждому python-разработчику на какой-то стадии необходимо будет узнать, как работает CPython. Это позволит в полной мере использовать его мощь и оптимизировать приложения. Вы разберетесь с основными (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е. МатвеевФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F871CF6C147E0B7522379DFB4BC51E2EF2FE21F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621480   (200819) от 26.03.2023
+
+Victor G Brusca | Advanced Unity Game Development (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните свой путь в разработке игр на Unity с подробного обзора полной, профессионально созданной игры с использованием Unity, C# и Visual Studio. Приобретите бесценный опыт работы со структурой кода, структурой проекта, централизацией данных о состоянии игры, контролируемой инициализацией компонентов сценария, искусственным интеллектом противников, несколькими источниками (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE5B3FD00DD0E8B3613112497CA0691A5DCEADB
 ```
 
 https://mybot314.ru/tekegram_catalog/

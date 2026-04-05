@@ -1,3 +1,57 @@
+###  Публикация: 1307630   (136705) от 16.10.2025
+
+Те странные случаи (Такая странная эротика) / Quelle strane occasioni (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм состоит из трех коротких, забавных, поучительных историй: Итальянский супермен, Шведская лошадка, Лифт. В первой новелле, обладающий внушительных размером органом, герой Паоло Вилладжио вынужден продавать каштановые пироги на улице. Но однажды ему выпадает шанс круто изменить свою судьбу… Во второй рассказывается о немолодом уже архитекторе, жена которого вмести (   Читать дальше...   )Производство: Италия / Rizzoli Film S.p.a.Жанр: КомедияРежиссер: Луиджи Коменчини, Нанни Лой, Луиджи МаньиАктеры: Нино Манфреди, Стефания Сандрелли, Альберто Сорди, Паоло Вилладжо, Ларс Блох, Флавио Буччи, Джованнелла Грифео, Ольга Карлатос, Беба Лончар, Валерия МорикониПеревод: Двуголосый профессиональный, НТВ+Субтитры: ОтсутствуютПродолжительность: 01:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E3BAFB9F61A4BA32596AA835497212B53ADED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824709   (136686) от 17.10.2025
+
+Сладкоежка / Candy (1968) DVDRip [MVO+ АVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка по имени Кэнди, восхищаясь талантами или доблестями своих поклонников, неизменно оказывается в их постели. Она нравится всем без исключения, и они ее вожделеют.
+
+Однако из-за этого всеобщего помешательства сначала в маленьком заштатном городке, а затем и в Нью-Йорке творятся странные вещи и даже трагедии. Там, где ступает очаровательная ножка Кэнди, (   Читать дальше...   )Производство: Италия, Франция, США / American Broadcasting Company (ABC), Dear Film ProduzioneЖанр: фэнтези, комедия, приключенияРежиссер: Кристиан МарканАктеры: Ева Аулин, Шарль Азнавур, Марлон Брандо, Ричард Бёртон, Джеймс Коберн, Джон Хьюстон, Уолтер Мэттау, Ринго Старр, Джон Эстин, Эльза МартинеллиПеревод: Многоголосый профессиональный, авторский (Михаил Иванов)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA47B5398348271BDA161E92A2C7C9928C8E161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590086   (136401) от 19.12.2012
 
 Приключения на берегах Онтарио / Die Lederstrumpferzahlungen (1968) DVDRip
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136401.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136124.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136090.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135795.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134795.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134774.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134772.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134736.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134533.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134142.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134105.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133747.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132988.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132386.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131337.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131238.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130430.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130011.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129368.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128186.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127749.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127125.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126949.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126939.jpg" />
 </div>
 
 
@@ -619,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8E436EBDC8F6C5BBC5AF80000B962D196A17A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682467   (126638) от 22.12.2023
-
-Жизнь с отцом / Life with Father (1947) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126638.jpg" />
-</div>
-
-
-###  Подробнее
-
-В довольно забавном семействе, проживающем в конце 19 века в Нью-Йорке, происходят очень комедийные ситуации, которые возникают между четырьмя рыжеволосыми братьями, их сестрой, хитрой супругой и слишком уж упрямым главой семьи.Производство: США / Warner Bros.Жанр: комедияРежиссер: Майкл КёртицАктеры: Уильям Пауэлл, Айрин Данн, Элизабет Тейлор, Эдмунд Гвенн, Сейзу Питтс, Джимми Лайдон, Эмма Данн, Морони Олсен, Элизабет Рисдон, Дерек СкоттПеревод: Многоголосый профессиональный, двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52431C4268F85796DB9EDFA42611D6E02C451EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683251   (125603) от 26.12.2023
-
-Двойная дверь / Double Door (1934) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктория Ван Бретт - ожесточенная, властная старая дева, которая живет уединенной жизнью со своей сводной сестрой Кэролайн в роскошном особняке, построенном их покойным отцом-промышленником. Виктория держит дом закрытым и редко выходит, контролируя работу резиденции, а также повседневную жизнь Кэролайн. Младший сводный брат сестер, Рип, возвращается домой, чтобы (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: ужасы, драма, детективРежиссер: Чарльз ВидорАктеры: Эвелин Венейбл, Мэри Моррис, Энн Ревер, Кент Тейлор, Гай Стэндинг, Колин Тэпли, Вирджиния Хауэлл, Хэллиуэлл Хоббс, Фрэнк Доусон, Хелен ШипманПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD87B11A8EDCBAAF998031D8273B00AD92C594BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

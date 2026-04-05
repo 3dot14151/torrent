@@ -1,3 +1,55 @@
+###  Публикация: 902973   (658689) от 30.05.2015
+
+Ромашка / Daisy (2006) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амстердам, наши дни. Молодая художница готовится к первой выставке, а по выходным рисует на площади портреты всех, кто готов заплатить. Однажды к ней подсаживается соотечественник, странный мужчина вполне респектабельного вида, и просит нарисовать свой портрет. Девушке он вроде нравится, но смущает то, что он всегда смотрит куда-то за нее… Она еще не знает, что этот (   Читать дальше...   )Производство: Корея Южная, ГонконгЖанр: ДрамаРежиссер: Вэй Кеунг ЛауАктеры: Джианна Чон, Чон У Сон, Ли Сон Джэ, Сара Бернардо Айрес, Дэвид Чианг, Чхон Хо Чжин, Дион Лам, Мэн Ланг, Морис Нэйтан ВиртПеревод: Двуголосый закадровыйЯзык субтитров: РусскийПродолжительность: 02:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30B92BDAB159463B51ADE110686FA084A1D9569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139775   (658660) от 03.06.2017
+
+Исчезающее время / Garyeojin shigan (2016) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцатилетние подростки Сон Мин и Су Рин вместе с друзьями отправляются в горы навстречу приключениям. И как это не парадоксально, они их находят. Да такие, что из этого путешествия возвращается живой лишь только одна Су Рин... Спустя пару дней возвращается и Сон Мин. Вот только он уже не тот тринадцатилетний мальчик, что ушел в горы....Производство: Корея ЮжнаяЖанр: мелодрама, драма, фентези, фантастикаРежиссер: Ом Тхэ-хваАктеры: Щин Ын-су, Кан Дон-вон, Ли Хё-джэ, Ким Хи-вон, Квон Хэ-хё, Ким Дан-юль, Чон У-джин, Ом Тхэ-гу, Пак Чон-хван, Пак Чин-у ...Перевод: Любительский одноголосый (Олег Воротилин)Субтитры: Русские srt, ass (внешние)Продолжительность: 02:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A73B1FFF92BEC5184C6101BE01CF1F45332F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539370   (658118) от 25.03.2022
 
 Вторжение динозавра / Gwoemul / The Host (2006) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658118.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658093.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657615.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656086.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654556.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649862.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_649750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649750.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647122.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646878.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646481.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646425.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646347.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645295.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643562.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640647.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640528.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638713.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637652.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633324.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633282.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632779.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630040.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629268.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628451.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94C501DF66ADD6C269A798307C71E8D85AEA733F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543670   (627728) от 12.04.2022
-
-Висячий сад / Kuchu teien (2005) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная японская семья: папа работает в офисе; мама работает официанткой т занимается своим садом; сын и дочь учатся, и ещё есть бабушка, которая лежит в больнице (много курит – рак). Главное правило в семье: "Никаких секретов друг от друга!". С виду вроде бы очень счастливая такая семья, но это только с виду...Производство: Япония, Asahi National Broadcasting Company, Asmik Ace Entertainment, Culture Publishers Inc. (CP),...Жанр: драмаРежиссер: Тосиаки ТоёдаАктеры: Кёко Коидзуми, Аннэ Судзуки, Ицудзи Итао, Масахиро Хирота, Дзюн Кунимура, Эйта, Асами Имадзюку, Рё Кацудзи, Соним, Хироми НагасакуПеревод: любительский одноголосый (Олег Воротилин)Субтитры: русские (umilenie), английскиеПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F7159EAB3B241A2D1FEA1E773FFDE2555E8D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144539   (627243) от 22.06.2017
-
-S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крутой гонконгский полицейский по имени Кит загоняет в угол крупного гангстера, но тот поворачивает все в свою сторону — главный свидетель Кита исчез. Более того, Кита отправляют в тайскую тюрьму, снабдив фальшивым списком преступлений. Тюремный охранник Чай следит за тем, чтобы Кит не сбежал — дочь Чая страдает от редкой формы лейкемии, и только Кит может стать (   Читать дальше...   )Производство: Китай, Гонконг / 1618 Action Limited, Abba Movies Co. Ltd.Жанр: боевик, драма, криминалРежиссер: Чин Поу-соиАктеры: Тони Джа, Энди Он, Ву Джин, Саймон Ям, Луис Ку, Кики Енг, Кен Ло, Френсис Нг, Эндрю Ын, Чжан ДжинПеревод: Авторский (одноголосый, закадровый) (Ю. Живов); Любительский двухголосый (den904 & DeadSno)Субтитры: АнглийскиеПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B800BDDEC811C2FC077F47B47158D4B6AAB5864E
 ```
 
 https://mybot314.ru/tekegram_catalog/

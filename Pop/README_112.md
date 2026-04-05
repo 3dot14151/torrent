@@ -1,177 +1,3 @@
-###  Публикация: 1284323   (728961) от 21.02.2019
-
-The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love The Sun
-02. Love Is In Your Eyes
-03. Everything I Want To Know
-04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284445   (728957) от 21.02.2019
-
-Zebra Crossing - Zebra Crossing (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Going Places (4:47)
-02. Just Another Day (4:58)
-03. Gipsy Boy (3:28)
-04. Flim Flam (4:49)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2653199781768A39C7766B4BBC14651ECDD3A1B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284438   (728903) от 21.02.2019
-
-VA - I Can See Clearly Now - Top-Oldies Cover-Versions Vol. 2 (1994) 2 CD [MP3|320 Kbps] <Rock, Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728903.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1.	Here Come My Baby–The Tremeloes
-2.	Love Me Tonight–Joe Dolan
-3.	Remember Then–Sha-na-na(   Читать дальше...   )Жанр: Rock, Pop, CoverПродолжительность: 01:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743165575BD18DCB867A1CD7C5FAD585282FEC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284274   (728897) от 21.02.2019
-
-Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superstar
-02. Thank You
-03. See It in a Boy's Eyes
-04. Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022598   (728824) от 02.06.2016
-
-Queen Samantha - The Letter (The Best Of) (1994) [MP3|320 кб/с] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Letter   (7:29)
-02. Give Me Action   (5:31)
-03. What's In Your Mind   (5:10)
-04. Get Back (Boogie Dance)   (3:15)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB76D5D4EBD423FF0EB11A0AC40B16F7BAC4BB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530551   (728801) от 11.02.2022
-
-VA - Созвездие хитов-киношлягеры vol.1 (2004) [MP3|320 Kbps] <Soundtrack>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестр Ленинградской Гос. Филармонии - Увертюра
-( к/ф Приключения Шерлока Холмса и Доктора Ватсона )
-02. А. Ведищева - Песня о медведях
-( к/ф Кавказкая пленница )(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B20BEEE28E6705F658FF1C753B6F38E66F4B918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022494   (728710) от 02.06.2016
 
 Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, RnB>
@@ -180,7 +6,7 @@ Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728710.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ VA - Созвездие хитов. Застольные песни 1 (2004) [MP
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728694.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728672.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728661.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ Mozgi - На белом (2017) [MP3|320 Kbps] <Pop, Dance-Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728435.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Roxette - Good Karma (2016) [MP3|320 кб/с] <Pop Rock, Soft Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728335.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ The Soul Affair Orchestra - 2 Albums (1976) LP [MP3|320 Kbps] <Funk Soul, Instru
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727729.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727444.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Roxette - Good Karma (2016) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727361.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Roxette - Good Karma (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727243.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Vanessa Daou - Make You Love (2000) [FLAC|Lossless|tracks + .cue] <Electronic, J
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726701.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ David Christie - The Best Of (1994) [MP3|320 кб/с] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726689.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ VA - The Partytime-Singers - Party-Time (1997) Box Set  3CD [MP3|320 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726576.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ The Splash Band - The Music Of John Carpenter (1984) Reissue CD, 2015, ZYX Music
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726555.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ Mariah Carey - MTV Unplugged (1992) EP [FLAC|Lossless|image + .cue] <Hip Hop, So
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726542.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ VA - New Italian Disco (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726447.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726367.jpg" />
 </div>
 
 
@@ -673,7 +499,7 @@ The Crosslines - Singles Collection (2013) [MP3|320 кб/с]<ItaloDisco, EuroDis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726343.jpg" />
 </div>
 
 
@@ -704,7 +530,7 @@ Gipsy Kings - The Real... Gipsy Kings (2014) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726254.jpg" />
 </div>
 
 
@@ -733,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726250.jpg" />
 </div>
 
 
@@ -747,6 +573,180 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A6F4A5B58D7D07EB51EB93C449AFAA1F0DBB67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284936   (726246) от 23.02.2019
+
+Voggue - 2 Albums (1981, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love To Dance (5:02)
+02. Loverboy (5:25)
+03. Heart On The Line (2:42)
+04. Presto Changeo (4:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023290   (726205) от 04.06.2016
+
+Белый Орел - Как упоительны в России вечера (2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как упоительны в России вечера [03:56]
+02. Потому что нельзя быть красивой такой [04:45]
+03. С высоких гор [03:44]
+04. Без тебя [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6E27B3218F3278BC6D198E1D2BE4E11194DA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023074   (725849) от 04.06.2016
+
+Градусы - Градус 100 (2016) EP [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. #Валигуляй
+2. Градус 100
+3. Хочется
+4. Я не был дома(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CD6688C3E3D153F13888BCBFDB0E55951862D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668016   (725436) от 14.06.2013
+
+Modern Talking - The Final Album (The Ultimate Best Of) (2003) [FLAC|Lossless]<Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 You're My Heart, You're My Soul 	(4:02)
+02 You Can Win If You Want 	(3:42)
+03 Cheri, Cheri Lady 	(3:36)
+04 Brother Louie 	(4:02)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:13:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399908   (725081) от 02.08.2020
+
+Blue Talking - Forever Fantasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Fantasy (3:59)
+02. Dance With Me (4:51)
+03. Fools Cry (4:07)
+04. Calling Out For Love (4:02)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C96F3B8493C782A2D7E4B06EDF3FFE7984D738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399911   (725072) от 02.08.2020
+
+Dario Silver (Mirko Hirsch) - Electric Heartbeat (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Tonight (Extended Version) (4:37)
+02. Electric Heartbeat (6:36)
+03. Computer Girl (5:34)
+04. Disco Delirio (5:25)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B756B5044504A829CFECBAA409A97FC57C9B5D30
 ```
 
 https://mybot314.ru/tekegram_catalog/

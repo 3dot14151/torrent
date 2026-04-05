@@ -7,7 +7,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack dixen18 [Ultim
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061992.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dragon Ball FighterZ (2018) [Ru/Multi] (1.42/dlc) Scene Rune [Legendary Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061557.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ S.E.M.I.: Side Effects May Include... (2025) [Ru/Multi] (1.0.ebcf741ea) Repack F
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061091.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hoverflow (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060795.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Big Hops (2026) [Ru/Multi] (21207) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060140.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Boat Together (2025) [Ru/Multi] (1.2.2) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060133.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FRONT MISSION 3 Remake (2026) [Multi] (0.0.13) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059802.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Gatekeeper (2024) [Ru/Multi] (1.2.0.00/dlc) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059540.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Harry Potter - Anthology / Гарри Поттер - Антология (2001-20
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059385.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.8.0-118300/dlc) Repack Let's
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058695.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brotato (2022) [Ru/Multi] (1.1.14.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058686.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Driftwood (2023) [Ru/Multi] (1.0.6-h1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058545.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2017) [Ru/Multi] (1.02) Repack Let
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058489.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Bud Spencer & Terence Hill - Slaps And Beans 2 (2023) [Ru/Multi] (1.2.2024011511
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058414.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.8.139834.0/dlc) Repack FitGirl [C
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056658.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Donna: The Canine Quest (2025) [En] (1.0.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055966.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Sky Force Reloaded (2017) [Ru/Multi] (build 3397294) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055963.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Cozy Caravan (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055828.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.3.0.0/dlc) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055337.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.19.1031/dlc) Repack Necros [The One Who 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055261.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.18.1029/dlc) Repack Wanterlude [The One 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054960.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack Pioneer [Pilgrim Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053917.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack FitGirl [The One Who 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053915.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.980/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053692.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053691.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) Repack FitGirl [Black Razor Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053418.jpg" />
 </div>
 
 

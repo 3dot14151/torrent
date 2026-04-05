@@ -1,32 +1,3 @@
-###  Публикация: 1651765   (26195) от 28.02.2025
-
-Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тобиас Заммет (нем. Tobias Sammet, 21 ноября 1977) — немецкий музыкант, лидер и вокалист немецких пауэр-метал-групп Edguy и Avantasia.1997 - Kingdom Of Madness
-1998 - Vain Glory Opera
-1999 - Theater Of Salvation
-2000 - The Savage PoetryЖанр: Power MetalПродолжительность: 25:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0416D70E041545A2709C58E38683D5FE96630B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782482   (26047) от 01.03.2025
 
 Lisa - Alter Ego (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop>
@@ -35,7 +6,7 @@ Lisa - Alter Ego (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26047.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Thundermother (& The Gems) - Studio Albums (7 releases) (2014-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25749.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Medusian - Library (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extreme Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25734.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Monika Hauff & Klaus-Dieter Henkler - Моника Хуфф и Клаус-Дит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25729.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Destruction - Studio albums (21 releases) (1984-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25556.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Jethro Tull - Curious Ruminant (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25521.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ serpentwithfeet - GRIP SEQUEL (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25516.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Lady Gaga - Mayhem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25504.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25441.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Scorpions - Gold Ballads (1992) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25145.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Spiritbox - Studio Albums (6 releases) (2017-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25142.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Disturbed - The Sickness (2000) 25th Anniversary Deluxe Edition, 2025, Reprise [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25106.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Lights Of Skadi - A Cinematic Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24998.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Machinedrum - 3RMX82 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bass, Drum & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24995.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Lacrimosa - Dark is this Night (2025) Maxi-Single [FLAC 16,24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24994.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Sasami - Blood On The Silver Screen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24990.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Zopa - Diamond Vehicle (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24786.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Iron Maiden - Collection 1980-1982 (1993) Compilation, Unofficial Release [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24773.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24595.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24573.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24508.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24398.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Lacrimosa - Studio Albums (11 releases) (1997-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24319.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ VA - Музыкальный калейдоскоп (10   выпусков) (1964
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24247.jpg" />
 </div>
 
 
@@ -725,7 +696,7 @@ Moby - Everything Is Wrong Non-Stop Dj Mix By Evil Ninja Moby (1996) digital re-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24178.jpg" />
 </div>
 
 
@@ -739,6 +710,35 @@ Hard Techno · Joyous Anthems · Quiet Ambience
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BDEE906C5F8A63F783D18A468A880181A676FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786589   (23948) от 21.03.2025
+
+Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Black Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Live Deliciously [5:33]
+02 - Demagoguery [6:17]
+03 - The Trinity Of Shadows [6:23]
+04 - Non Omnis Moriar [5:06](   Читать дальше...   )Жанр: Gothic Metal, Black Metal, Symphonic MetalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634BBEE815A61160A58D7D25E5C50018BBB0A410
 ```
 
 https://mybot314.ru/tekegram_catalog/

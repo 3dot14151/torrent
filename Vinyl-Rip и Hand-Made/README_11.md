@@ -1,3 +1,33 @@
+###  Публикация: 1108388   (864034) от 24.02.2017
+
+Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864034.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧЕРРОНЕ ЖАН-МАРК (Cerrone Jean Marc) (р. в 1952, Сен-Мишель, Франция), французский композитор, продюсер и барабанщик.
+     Хотя слушателю 1990-х годов это имя едва ли говорит о многом, два десятилетия назад, во времена диско-бума конца 70-х, он был одним из самых продуктивных и изобретательных творцов европейской танцевальной музыки: как композитор, продюсер и барабанщик (   Читать дальше...   )Альбомы:
+1976 - Love In C Minor
+1977 - Cerrone's Paradise
+1977 - Cerrone III - SupernatureЖанр: DiscoПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497401   (862975) от 23.09.2021
 
 VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
@@ -6,7 +36,7 @@ VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862975.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862972.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ Laid Back - Hole In The Sky (1990) Unofficial Release [FLAC 2.0|48/24|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862971.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ VA - Любимой Женщине 3. Сборник медленных комп
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862870.jpg" />
 </div>
 
 
@@ -122,7 +152,7 @@ Electric Light Orchestra - Time (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857180.jpg" />
 </div>
 
 
@@ -151,7 +181,7 @@ VA - RETROспектива, часть XIII. Мелодии и песни из �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855326.jpg" />
 </div>
 
 
@@ -180,7 +210,7 @@ Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853604.jpg" />
 </div>
 
 
@@ -210,7 +240,7 @@ VA - The Great Singers Of The Jazz/Големите Вокалисти На Дж
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852186.jpg" />
 </div>
 
 
@@ -239,7 +269,7 @@ Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851754.jpg" />
 </div>
 
 
@@ -268,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851019.jpg" />
 </div>
 
 
@@ -294,7 +324,7 @@ Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850179.jpg" />
 </div>
 
 
@@ -323,7 +353,7 @@ Electric Light Orchestra - Discovery (1979)  [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850127.jpg" />
 </div>
 
 
@@ -352,7 +382,7 @@ Frank Sinatra - Portrait Of Sinatra: Forty Songs From The Life Of A Man (1977) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849794.jpg" />
 </div>
 
 
@@ -381,7 +411,7 @@ Fleetwood Mac - Rumours (1977) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849033.jpg" />
 </div>
 
 
@@ -410,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848601.jpg" />
 </div>
 
 
@@ -439,7 +469,7 @@ Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847826.jpg" />
 </div>
 
 
@@ -468,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846917.jpg" />
 </div>
 
 
@@ -497,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845110.jpg" />
 </div>
 
 
@@ -526,7 +556,7 @@ Manfred Mann's Earth Band With Chris Thompson - Criminal Tango (1986) [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844772.jpg" />
 </div>
 
 
@@ -555,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842350.jpg" />
 </div>
 
 
@@ -584,7 +614,7 @@ Cinderella - Легенды Зарубежного Рока (2000) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841290.jpg" />
 </div>
 
 
@@ -613,7 +643,7 @@ Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841272.jpg" />
 </div>
 
 
@@ -642,7 +672,7 @@ Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839899.jpg" />
 </div>
 
 
@@ -671,7 +701,7 @@ VA - RETROспектива, часть XIV. Мелодии и песни из к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839546.jpg" />
 </div>
 
 
@@ -700,7 +730,7 @@ Rainbow - Легенды Зарубежного Рока (2000) Unofficial Relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837869.jpg" />
 </div>
 
 
@@ -714,35 +744,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29620E8B9A76C9B386E26505472F6641882AB606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879054   (835414) от 19.03.2015
-
-Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio-DVD (BD-Audio)] <Rock, Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835414.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 2014 Stereo Remaster
-
-01 Funeral For A Friend/ Love Lies Bleeding (2014 Remaster) 11:10
-02 Candle In The Wind (2014 Remaster) 3:49(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:19 + 00:13:11 (4 bonus tracks)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
 ```
 
 https://mybot314.ru/tekegram_catalog/

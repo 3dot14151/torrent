@@ -1,3 +1,32 @@
+###  Публикация: 1265775   (273064) от 29.11.2018
+
+Lake of Tears - Greatest Tears Vol. II (2004) Compilation [FLAC|Lossless|image + .cue] <Doom Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil's Diner (3:42)
+02. Headstones (5:16)
+03. Netherworld (3:36)
+04. So Fell Autumn Rain (5:24)(   Читать дальше...   )Жанр: Doom Metal, Gothic RockПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F89EA1A6F73BBD9E04A4C3210559FEE3DEF188A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265774   (273060) от 29.11.2018
 
 Lake of Tears - Greatest Tears Vol. I (2004) Compilation [FLAC|Lossless|image + .cue] <Doom Metal, Gothic Rock>
@@ -6,7 +35,7 @@ Lake of Tears - Greatest Tears Vol. I (2004) Compilation [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273060.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Streetlight Manifesto - Somewhere in the Between (2007) [FLAC|Lossless]<Ska-Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272967.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272922.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272731.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Panphage - Jord (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272706.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Cirith Gorgor - Cirith Gorgor (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272540.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Elite - Bifrost (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272539.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Elite - Kampen (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272538.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Cirith Gorgor - Der Untergang (2014) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272537.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ God Forbid - Earthsblood (2009) [FLAC|Lossless|image + .cue] <Thrash Metal, Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272534.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Cirith Gorgor - Firestorm Apocalypse (2003) [APE|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272532.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Somephoenics - Product: Life (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272479.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Elite - We Own The Mountains (2008) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272478.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Elm Street - Barbed Wire Metal (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272472.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Der Weg einer Freiheit - Finisterre (2017) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272462.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Hell in the Club - Devil on My Shoulder (2015) Japan [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272459.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Coldplay - Everyday Life (2СD) (2019) [MP3|320 Kbps] <Indie Rock, Britpop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272458.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Alchemy X - A Delicate Balance (1999) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272456.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Jezabel - A Todo O Nada (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272452.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Forefather - Legends Untold (2000) [FLAC|Lossless|image + .cue] <Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272450.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Elegy - Supremacy (1994) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272447.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Elegy - Forbidden Fruit (2000) Japan [FLAC|Lossless|image + .cue] <Progressive P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272443.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Elegy - Principles of Pain (2002) 2009, Reissue digpack [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272441.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Alchemy X - 11.59.59 (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272437.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Blind Petition - No Prisoners (2004) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272433.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Blind Petition - No Prisoners (2004) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D695EC3452B6EFF2A6F46E5B32AF2FBFBEDE8228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188535   (272430) от 04.12.2017
-
-Jag Panzer - The Deviant Chord (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born of the Flame
-02. Far Beyond All Fear
-03. The Deviant Chord
-04. Blacklist(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1A0477A8722F580B86E0CBDA20BC5682657353
 ```
 
 https://mybot314.ru/tekegram_catalog/

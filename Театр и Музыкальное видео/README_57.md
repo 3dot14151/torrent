@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676563.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676544.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676508.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676363.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Rammstein: Paris (2017) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676342.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Leonard Cohen - Live in Dublin '2013 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674142.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673941.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [h.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673915.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Foreigner - With The 21st Century Symphony Orchestra & Chorus (2017) 2xDVD5 [cus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673191.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672568.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672117.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671002.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670921.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Millenium Extended (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670648.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Rammstein - Paris (2017) BDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670625.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670309.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668571.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668565.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Golden Earring - Five Zero At The Ziggo Dome (2016) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668500.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667962.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Adam by Eve: Анимационный концерт / Adam by Eve: A live in An
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667719.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667212.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Kiss - Rocks Vegas (2016) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666394.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Deep Purple - California Jam (1974/2016) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666315.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ David Gilmour - Rattle That Lock (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666309.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665981.jpg" />
 </div>
 
 

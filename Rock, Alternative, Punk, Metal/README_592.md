@@ -1,3 +1,32 @@
+###  Публикация: 1056024   (483445) от 24.09.2016
+
+Mike Oldfield - Discovery (Deluxe Edition) (2016) Remastered 2CD[FLAC|Lossless|image + .cue] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Oldfield - To France (Remastered 2015 / The 1984 Suite Version) (04:47)
+02. Mike Oldfield - The Lake (Remastered 2015 / The 1984 Suite Version) (13:43)
+03. Mike Oldfield - The Killing Fields (Remastered 2015 / The 1984 Suite Version) (02:44)
+04. Mike Oldfield - Etude (Remastered 2015 / The 1984 Suite Version) (04:38)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABA601DAC73E9EE028960A2ABF42A8346B0EF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822126   (483410) от 16.09.2014
 
 Король и Шут - Лучшее (2013) 2CD [MP3|320 кб/с]<Punk-Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483410.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Otto Dix - Автократор (2020) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483377.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483370.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ King Crimson - Radical Action (To Unseat The Hold Of Monkey Mind) (2016) 3CD [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483299.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483219.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Black Country Communion - Black Country (2010) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483046.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Evanescence - Fallen (2003) [APE|Lossless|tracks] <Alternative, Nu Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482726.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Uriah Heep - You Can't Keep A Good Band Down (2001/1970-1986) 7 Albums Box Set [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482671.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ Sting - Discography (1985-2010) [MP3|320 kbps]<Rock / Soft-rock / Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482534.jpg" />
 </div>
 
 
@@ -286,7 +315,7 @@ WarWolf - Necropolis (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482437.jpg" />
 </div>
 
 
@@ -315,7 +344,7 @@ Trinity - Memories of the Ancient Presence (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482435.jpg" />
 </div>
 
 
@@ -344,7 +373,7 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482429.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482424.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Freddie Mercury and Montserrat Caballe - Barcelona [Special Edition 3 CD] (2012)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482412.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ White Spirit - Right Or Wrong (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482336.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Heathen - Breaking the Silence (1987) Remaster, 1999, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482202.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Pomegranate Tiger - Boundless (2015) [MP3|320 кб/с]<Experimental Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482112.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Faust - Excerpts From The Rock Ballet (1996) [FLAC|image +.cue]<Melodic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482088.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ U.D.O. - Steelfactory (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482037.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ U.D.O. - Stееlfасtоrу (2018) Limited Editiоn [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482034.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Mike + The Mechanics - Silent Running: The Masters Collection (2018) 2CD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482022.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ The Blue Hawaiians - Savage Night (1999) [FLAC|image +.cue]<Surf Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481966.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Leaves' Eyes - King Of Kings (2015) Deluxe Edition [FLAC|image+.cue]<Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481952.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Chemia - Let Me (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481947.jpg" />
 </div>
 
 
@@ -732,7 +761,7 @@ Seven - Shattered (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481889.jpg" />
 </div>
 
 
@@ -746,35 +775,6 @@ Seven - Shattered (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D7FA5FA3E424EF369BAC4D666EEE57A2E49339A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938412   (481825) от 18.09.2015
-
-Crossfaith – XENO (2015) Deluxe Edition [FLAC|Lossless]<Alt. Metal | Metalcore | Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Xeno
-03. Raise Your Voice
-04. Devil's Party(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Metalcore | ElectronicПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2EC4EE4230F1A32D66B328392299388996B42E
 ```
 
 https://mybot314.ru/tekegram_catalog/

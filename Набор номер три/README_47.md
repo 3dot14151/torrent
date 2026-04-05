@@ -1,3 +1,160 @@
+###  Публикация: 1350080   (1003080) от 06.01.2020
+
+В Microsoft прокомментировали прекращение поддержки Windows 7
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нас вынуждают стать пиратами — рунет о прекращении поддержки Windows 7
+Компания Microsoft прекратит поддержку операционной системы Windows 7 14 января. Об этом говорится в сообщении на сайте компании.В сообщении отмечается, что после этой даты Microsoft прекратит техническую поддержку системы по любым вопросам, обновление программного обеспечения, а также обновление (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974255   (1003077) от 06.01.2020
+
+Секретные материалы / The X-Files (1993-2016) HDRip,WEBRip [H.264] (Сезон 1-10, серии 1-208 из 208) ОРТ, ТВ3, РЕН ТВ [MP4|960x540]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пропадает без вести сотрудница ФБР, и последней надеждой её коллег становятся Фокс Малдер и Дана Скалли, бывшие специальные агенты, вынужденно, хотя и по разным причинам, оставившие службу. Единственным человеком, дающим следствию хоть какую-то информацию, является престарелый Джозеф Криссман, в прошлом священник, отбывший наказание за совращение малолетних, который (   Читать дальше...   )Производство: США, КанадаЖанр: ужасы, фантастика, триллерРежиссер: Крис КартерАктеры: Дэвид Духовны, Джиллиан Андерсон, Аманда Пит, Билли Коннолли, Иксзибит, Митч Пилледжи, Каллум Кит Ренни, Адам Годли, Алекс Дьякун, Никки ЭйкоксПеревод: дублированныйСубтитры: русские, английскиеПродолжительность: 01:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B055CA0D361A2DD64C82613DF2501E46C394D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487594   (1003031) от 07.08.2021
+
+В 2021 году услуги VPN будут расти из-за ограничений Роскомнадзора и роста спроса
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно опросу «Коммерсанта», проведенному среди производителей VPN-продуктов, спрос на услуги такого рода в этом году будет расти. В первую очередь это связано с ростом спроса, а также блокировкой Роскомнадзором нескольких VPN-программ.В компании Navicon ожидают роста цен на 5–12 %, в Red Shield VPN — на 10–15 %. При этом в последней отметили, что за последний (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487503   (1002974) от 07.08.2021
+
+Apple собирается искать запрещённые фото на iPhone пользователей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщило издание 9to5mac.com, компания Apple планирует в скором времени анонсировать систему сканирования фотографий, сохранённых в памяти смартфона. Система предназначена для обнаружения изображений жестокого обращения с детьми. В основе решения лежит алгоритм хеширования.С целью сохранности личных данных сканирование изображений будет производится локально, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350458   (1002867) от 07.01.2020
+
+Ford против Ferrari / Ford v Ferrari (2019) DVDScr [H.264/1080p-LQ] [MVO] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взаимоотношениях американского автомобильного конструктора Кэрролла Шелби и отважного британского гонщика Кена Майлза, которые вместе бросили вызов корпорациям и собственным демонам, чтобы создать абсолютно новый спорткар, который смог конкурировать с Ferrari на чемпионате мира, прошедшем во Франции в середине 1960-х.Производство: США, Франция, 20th Century Fox Film Corporation, ...Жанр: Биография, Спорт, Драма, БоевикРежиссер: Джеймс МэнголдАктеры: Кристиан Бэйл, Мэтт Дэймон, Катрина Балф, Трэйси Леттс, Джон Бернтал, Ноа Джуп, Джош Лукас, Ремо Джироне, Рэй Маккиннон, Джей Джей ФилдПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BE3169BB6B6C9B63347CFBD6D9808294398166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350129   (1002863) от 07.01.2020
+
+Пользователи считают Windows 95 намного понятнее, чем Windows 10.
+
+>>3
+>>21
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002863.jpg" />
+</div>
+
+
+###  Подробнее
+
+На известном американском форуме Reddit разгораются дебаты относительно того, что Windows 10 потеряла в процессе эволюции графического интерфейса. Многие сходятся в том, что потеряла она, пожалуй, одну из самых главных своих черт — наглядность.В доказательство приводится скриншот Windows 95 и тех ее элементов, которых в Windows 10 больше нет, но которые были бы очень (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907681   (1002860) от 07.01.2020
 
 Stand Up (2013-2019) SATRip/WEB-DLRip [Выпуски 1-156] (Обновляемая)
@@ -6,7 +163,7 @@ Stand Up (2013-2019) SATRip/WEB-DLRip [Выпуски 1-156] (Обновляем
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002860.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Autodesk AutoCAD 2022 (+ offline help, SPDS) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002688.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ SpaceX вывела на орбиту 60 спутников
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002623.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Nvidia DriverPack v.441.87 RePack by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002614.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ Camera360 VIP 9.7.5 (Mod) [Ru] - Камера со множеством эффе
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002609.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ MUROMEC67® USB Reanimator Multiboot 2020 32Gb [Ru] (авторская разд
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002606.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002605.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ Tension / The Void / Тургор / Тургор: Голос цвета (2008-20
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002604.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002603.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002444.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002383.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002338.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ mini10PE 20.1 [Ru] [x64] (авторская раздача)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002334.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002333.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002194.jpg" />
 </div>
 
 
@@ -397,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002128.jpg" />
 </div>
 
 
@@ -423,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002121.jpg" />
 </div>
 
 
@@ -449,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002102.jpg" />
 </div>
 
 
@@ -475,7 +632,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (Build 4073014/dlc) Repack
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002091.jpg" />
 </div>
 
 
@@ -501,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002088.jpg" />
 </div>
 
 
@@ -512,163 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31A0084F429D86B562AEB2D0814E8D87832B4B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348599   (1002087) от 10.01.2020
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.12.28 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932C4CAEA2EAFA01F531747ABDC412EB758F13E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488310   (1001942) от 11.08.2021
-
-Туркменских интернет пользователей заставляют отказываться от VPN и давать клятву на Коране
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Власти в Туркменистане с первых лет независимости ввели требования к гражданам страны приносить клятву верности родине. Теперь практика клятвоприношения используется в целях ограничения пользования Интернетом.Туркменское правительство, которое для ограничения доступа к Интернету собственных граждан до сих пор секретно сотрудничало с иностранными технологическими (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369225   (1001926) от 11.08.2021
-
-Grand Theft Auto V (2015) [Ru/Multi] (1.0.2372/1.57) RockstarRip =nemos=
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лос-Сантос – город солнца, старлеток и вышедших в тираж звезд. Некогда предмет зависти всего западного мира, ныне это пристанище дрянных реалити-шоу, задыхающееся в тисках экономических проблем. В центре всей заварухи – троица совершенно разных преступников, отчаянно пытающихся ухватить удачу за хвост в непрекращающейся борьбе за место под солнцем. Бывший член уличной (   Читать дальше...   )Тип издания: RockstarRipРазработчик: Rockstar NorthЖанр: Action (Shooter), Racing (Cars), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51200CE90EB2B9025C5279916217CB9F1385011C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351345   (1001836) от 11.01.2020
-
-Micron пообещала, что новые DDR5 будут на 85% быстрее предшественника
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001836.jpg" />
-</div>
-
-
-###  Подробнее
-
-На днях Micron объявила о том, что стартовало производство тестовых образцов регистровых модулей оперативной памяти DDR5 для использования в серверах. Они будут построены на микросхемах 10-нм класса (1Znm) и, как заявили в компании, обеспечат прирост производительности подсистемы памяти более чем на 85% по сравнению с существующими DDR4.
-Ожидается, что DDR5 будут (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189326   (1001809) от 11.01.2020
-
-Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010, TV,  12 серий] HDTV 720p raw
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной альтернативный мир слияния магии и высоких технологий – вовсе не идиллия. Не так давно могучий темный маг собрал войско демонов и чуть не уничтожил существующий порядок. От отступника смогли избавиться, но его именем до сих пор пугают детей. Впрочем, жить с тех пор стало легче, и вот Акуто Сай, талантливый сирота, выросший в церковном приюте, поступает (   Читать дальше...   )Жанр: приключения, комедияПродолжительность: ТВ (12 эп.), 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E882C6D51D69AC4AFAFDAAE71BE6FC6E6136BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351691   (1001808) от 11.01.2020
-
-Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/En] (Build 4073014/dlc) UplayRip =nemos= [Ultimate Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001808.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем прекрасная Боливия, живописный уголок Южной Америки, становится крупнейшим в мире производителем кокаина. Наркокартель Санта-Бланка подчинил себе правительство этой страны, в которой отныне процветает беззаконие, а жителей преследует постоянный страх.Тип издания: UplayRipРазработчик: Ubisoft ParisЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E66361B2441F9CADB423487ADF1092047720F8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

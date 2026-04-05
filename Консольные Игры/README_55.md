@@ -6,7 +6,7 @@ Rise of the Argonauts (2008) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221744.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Eat Lead: The Return of Matt Hazard (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221737.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Tony Hawk's Pro Skater 5 (2015) [Xbox360] [RegionFree] FreeBoot [License] [En] |
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221581.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hyrule Warriors: Age of Calamity (2020) [Switch] [USA] 10.2.0 [NSZ / 1.0.1] [Lic
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221385.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tony Hawk's Pro Skater 5 (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [P
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219535.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ghostrunner (2020) [Switch] [USA] 10.2.0  [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219531.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FIFA 23 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218563.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Assassins Creed Odyssey (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.56 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218551.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MultiMan Singstar X-Mas Edition (2015) [PS3] 4.xx [Repack] [Ru/En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217315.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Persona 5 Royal (2022) [Switch] [EUR] 14.1.2 [eShop] [Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216227.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Assassins Creed The Rebel Collection (2019) [Switch] [USA] 9.0.1 [NSZ] [License 
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215700.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BIT.TRIP RUNNER 2: Future Legend of Rhythm Alien (2013) [Xbox360] [RegionFree] F
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215386.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NieR:Automata The End of YoRHa Edition (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215073.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MorphX / Симбионт (2010) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214928.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Need For Speed: Carbon (2006) [Xbox360] [Region Free] FreeBoot [License / 13 DLC
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214677.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Spider-Man: The Movie (2002) [PS2] [NTSC] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214591.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Alan Wake Remastered (2022) [Switch] [EUR] 14.1.2 [eShop / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214239.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Far Cry Classic (2014) [PS3] [USA] 4.21 [PSN]  [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213983.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Aragami 2 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213290.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Conan Exiles (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.78 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213269.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ LEGO The Hobbit (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213106.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Project CARS 2 (2017) [PS4] [EUR] 6.72 [HEN] [License / 7.10] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213055.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [PS4] [EUR] 9.
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212950.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ CROSS✝CHANNEL ～For all people～ (2014) [PS3] [JAP] 4.55 [Cobra ODE / E3 ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212841.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ GRID Legends (2022) [PS4] [USA] 5.05 [HEN] [License / 3.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212650.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Farming Simulator 22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.10 / DLC] [Ru/Mu
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212468.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 937147   (490187) от 14.09.2015
+
+Владимир Благов | Сезон несбывшихся желаний (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Ключников – талантливый предприниматель – организует в школе клуб изучения истории Древнего Египта. Его подходы к предмету неожиданны и нетрадиционны. Он мечтает увлечь подростков свежими идеями и стать для них другом. Но его инициатива встречает непонимание и активное противодействие со стороны родителей и директора школы. Взрослые не хотят замечать, что дети (   Читать дальше...   )Жанр: Детская проза, Детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E1484EA04B07218E30200D7C0B49881EBB0CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937167   (490178) от 14.09.2015
+
+Владимир Благов | Повелитель крылатого диска (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490178.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе приключенческого романа «Повелитель крылатого диска» лежит современная гипотеза о том, что все сооружения Древнего Египта построены не фараонами, а исчезнувшей цивилизацией Атлантиды.
+Тринадцатилетний школьник Иван Жуков получает от своего деда, профессора-египтолога, приглашение отправиться в Прошлое, ко двору фараона Тутмоса Завоевателя. Вместе с Иваном (   Читать дальше...   )Жанр: Детская фантастика, Детские приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEA7ABBCC55C382ECF71CD00C6E673BF1407EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937119   (490082) от 14.09.2015
 
 Константин Бобошко | Интересно знать (1963) [FB2]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490082.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490073.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489907.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489898.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489712.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489567.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489554.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489439.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489395.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489371.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489250.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489085.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488986.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488867.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488739.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488734.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488627.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488577.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488575.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488422.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488393.jpg" />
 </div>
 
 
@@ -570,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488353.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488328.jpg" />
 </div>
 
 
@@ -624,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488327.jpg" />
 </div>
 
 
@@ -635,62 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6691A1B43124D47183280D46809A642AF707A120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243387   (488280) от 29.08.2018
-
-Марта Гумилевская | Как открывали мир (1977) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488280.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о путешествиях древних мореплавателей и о некоторых великих географических открытиях, благодаря которым на карте мира появились новые, неизвестные раньше материки и океаны и была найдена наконец неуловимая, таинственная, Неизвестная Южная Земля - Антарктида, - открытая русскими моряками сто пятьдесят лет назад!
-
-Также смотрите Марта Гумилевская (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC3012259ECB00721C15976BF7952D771057980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055304   (488275) от 22.09.2016
-
-Лев Успенский, Всеволод Успенский | Двенадцать подвигов Геракла (1993) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488275.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны легенды глубокой древности.
-Сложены они древними греками ещё в те далёкие времена, когда люди только начинали изучать окружающий их мир, только приступали к его исследованию и объяснению.
-Соединяя правду и вымысел, придумывали они и рассказывали удивительные истории. Так сложилось множество преданий о богах, героях и фантастических существах- (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222F50617DCE28FA49216897E58DC95D31507CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,173 +1,3 @@
-###  Публикация: 1280977   (756831) от 05.02.2019
-
-Елена Темникова - TEMNIKOVA 4 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756831.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Бабочки
-3. Садится батарея
-4. Говорила(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B94A270302E65A7AB43E8BA3A951C9D1863256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215700   (756733) от 27.03.2018
-
-Mary Chapin Carpenter (Мэри Чапин Карпентер) - Hometown Girl (1987) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри Чапин Карпентер - американская кантри певица, автор песен и актриса. Певица в молодости никогда не представляла себя на профессиональной сцене. Дебютное выступление Мэри состоялось в местном баре, куда её привел отец. В 1981 году будущая певица получила высшее образование. Она стала выпускницей университета «Браун». Главной встречей в её карьере стало знакомство (   Читать дальше...   )01. A Lot Like Me 4:37
-02. Other Streets And Other Towns 5:01
-03. Hometown Girl 4:54
-04. Downtown Train 4:11(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, Indie, Soft RockПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8061C7B283FC62277F71D6A95B66794614D8EDD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215789   (756728) от 27.03.2018
-
-Mary Chapin Carpenter (Мэри Чапин Карпентер) - State Of The Heart (1989) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри Чапин Карпентер - американская кантри певица, автор песен и актриса. Певица в молодости никогда не представляла себя на профессиональной сцене. Дебютное выступление Мэри состоялось в местном баре, куда её привел отец. В 1981 году будущая певица получила высшее образование. Она стала выпускницей университета «Браун». Главной встречей в её карьере стало знакомство (   Читать дальше...   )01. How Do 2:13
-02. Something of a Dreamer 3:01
-03. Never Had it So Good 4:08
-04. Read My Lips 3:09(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, Indie, Soft RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC965D55EF67A35736655621EFE1B067A9215C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215811   (756601) от 27.03.2018
-
-Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whiter Shade Of Pale (14:23)
-02. A Woman In Black (5:00)
-03. Hot Summer Night (7:17)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53B7B74AA71D620261A0F1B9A8377890D742AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662885   (756235) от 30.05.2013
-
-Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bros. [FLAC|Lossless|image + .cue] <Pop, Dance, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ElectronicПродолжительность: 00:56:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662927   (756234) от 30.05.2013
-
-VA - Суперхиты дискотеки 90-х... продолжение (2011) [FLAC|Lossless]<Pop, EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East 17 - It's Alright (4:43)
-02. E-Type - Set the World on Fire (3:46)
-03. Captain Hollywood - Over and Over (3:47)
-04. DJ BoBo - Take Control (3:48)(   Читать дальше...   )Жанр: Pop, EuroDanceПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395498   (755568) от 10.07.2020
 
 Alan Sorrenti - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Pop, Pop Rock, Disco>
@@ -176,7 +6,7 @@ Alan Sorrenti - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Pop, Pop Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755568.jpg" />
 </div>
 
 
@@ -205,7 +35,7 @@ Edgar Winter - The Edgar Winter Album (1979) LP [MP3|320 Kbps] <Electronic, Prog
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755295.jpg" />
 </div>
 
 
@@ -234,7 +64,7 @@ Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754840.jpg" />
 </div>
 
 
@@ -263,7 +93,7 @@ Umberto Tozzi - 26 Albums (1976-2019) Collection [MP3|320 Kbps] <Pop, Pop Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754815.jpg" />
 </div>
 
 
@@ -292,7 +122,7 @@ Soultans - 2 Albums (1997-1998) [MP3|320 Kbps] <Pop, Soul, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754776.jpg" />
 </div>
 
 
@@ -321,7 +151,7 @@ Jason Mraz - Look For The Good (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753797.jpg" />
 </div>
 
 
@@ -350,7 +180,7 @@ VA - The Yellow Collection (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753633.jpg" />
 </div>
 
 
@@ -379,7 +209,7 @@ The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753482.jpg" />
 </div>
 
 
@@ -408,7 +238,7 @@ VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Editio
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753362.jpg" />
 </div>
 
 
@@ -437,7 +267,7 @@ Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752171.jpg" />
 </div>
 
 
@@ -466,7 +296,7 @@ Curacao - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Synt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751955.jpg" />
 </div>
 
 
@@ -495,7 +325,7 @@ Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751617.jpg" />
 </div>
 
 
@@ -524,7 +354,7 @@ Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751608.jpg" />
 </div>
 
 
@@ -553,7 +383,7 @@ Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, So
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751544.jpg" />
 </div>
 
 
@@ -582,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751505.jpg" />
 </div>
 
 
@@ -611,7 +441,7 @@ Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751360.jpg" />
 </div>
 
 
@@ -640,7 +470,7 @@ Steps - Tears on the Dancefloor (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Europ
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751348.jpg" />
 </div>
 
 
@@ -669,7 +499,7 @@ Peter Kent - 2 Albums, 1 Singles & EPs (1979-1982) Vinyl [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751346.jpg" />
 </div>
 
 
@@ -698,7 +528,7 @@ VA - Abbamania (1999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751344.jpg" />
 </div>
 
 
@@ -727,7 +557,7 @@ Peggy March - Electrifying (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751244.jpg" />
 </div>
 
 
@@ -741,6 +571,181 @@ Peggy March - Electrifying (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBE0398A86D4183A7373F717BFED07439E0F6AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216278   (750932) от 30.03.2018
+
+VA - Q-Music Top 500 Van 90's (2015) 6CD [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750932.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Топ-500» 90-х годов - это ежегодный список хитов, который транслируется на Vlaamse радиоканале Q-music в феврале. Список впервые транслировался в 2013 году.01. DJ Paul Elstak - Rainbow In The Sky [1995] (3:30)
+02. Michael Jackson - Earth Song [1995] (5:01)
+03. Backstreet Boys - Everybody (Backstreet's Back) [1996] (3:46)
+04. Robbie Williams - Let Me Entertain You [1997] (4:24)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 07:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E42A226B191B402D25EA20ED62E1CF17AF18AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281166   (750139) от 09.02.2019
+
+VA - Hacienda Dance, Vol. 1 (2019) [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pasdee - Aga (Radio Edit)
+02. Vincent Price - The Groove (Vocal Radio Cut)
+03. Markii - Shatter (Radio Edit)
+04. Cedric Lass - P.M.R. (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB496C091ACB21D6332A6BA9CEF7BBC3D299E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281734   (750021) от 09.02.2019
+
+Rena Mason - Cherchez La Femme (1979) Reissue CD, 2013, EMI Electrola [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Know I Need You So Bad (5:46)
+02. Showdown (4:37)
+03. Cherchez La Femme (6:40)
+04. Don't Stop The Music (4:01)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BADF97E261D326924500844C4350CE853A4A2B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523648   (749890) от 12.01.2022
+
+VA - Venti Compilation 7 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission - Do You Wanna Dance (6:29)
+02. Torrevado - Heartbreaker (Disco Mix) (6:42)
+03. Love Kills - Touch Me (Special Remix) (6:16)
+04. Robert Camero - Autumn Love (Vocal Remix) (6:39)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi-NRGПродолжительность: 02:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32782E8577484666B5CCB398E7272D059C5F318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281801   (749826) от 09.02.2019
+
+Dua Lipa - Dua Lipa (2017) 2018, Reissue, 2CD, Complete Edition [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749826.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Genesis (3:27)
+ 02. Lost in Your Light (3:24)
+ 03. Hotter Than Hell (3:10)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: CD1 - 00:57:07
+CD2 - 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE65DF8EC5A93BFB63526783F9A93EE9743D7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281713   (749816) от 09.02.2019
+
+Юрий Антонов - Юрий Антонов (1981) LP [MP3|320 Kbps] <Pop, Pop Rock, Chanson, Vocal>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Вспоминаю (Sjecam Se) (5:44)
+02. Моё Богатство (Moje Bogatstvo) (2:34)
+03. Зеркало (Ogledalo) (3:38)
+04. Золотая Лестница (Zlatne Stepenice) (2:46)(   Читать дальше...   )Жанр: Pop, Pop Rock, Chanson, VocalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A361A1F0F6792550B43C9714C2E61906FB53A5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

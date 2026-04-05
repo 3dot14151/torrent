@@ -1,3 +1,31 @@
+###  Публикация: 1393406   (766898) от 01.07.2020
+
+М. Фалин и др. (сост.) | Ленин и Сталин о профсоюзах (1939) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник произведений Ленина и Сталина должен помочь профсоюзному активу овладеть великим учением Ленина и Сталина о профсоюзах.
+
+Материал сборника расположен в исторической последовательности. Это даст возможность проследить, какие задачи Ленин и Сталин выдвигали перед профсоюзами на всех этапах борьбы рабочего класса за диктатуру пролетариата, за построение (   Читать дальше...   )Жанр: История, политология, социология, искусство, психология, педагогикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BACC50D7326E1EBC9D2BB5585720C9F86A6494A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213962   (766592) от 19.03.2018
 
 С. Смирнов (ред.) | Рабочие и крестьяне капиталистической каторги о нас и о себе (1933) [PDF]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766592.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766067.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765481.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764629.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764556.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764469.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764374.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764150.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763741.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763686.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763657.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763656.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763649.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763530.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763324.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762507.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762439.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759923.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759198.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758645.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758514.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757464.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753557.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751350.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749934.jpg" />
 </div>
 
 
@@ -652,35 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEACE64A49F71548006A7742F07381753AB50F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396074   (749933) от 13.07.2020
-
-Захар Прилепин | Имя рек. 40 причин поспорить о главном (2020) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749933.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Быть может, у меня ничего не получилось, но я так не думаю.
-Перед вами – итоги моих болезненных размышлений о нашем с вами Отечестве.
-Чтоб понять, кто мы и зачем, нужно было заново пересобрать все представления, и я бережно, с тщанием ребёнка, пересобрал.
-В какой точке бытия находимся мы и куда следуем. Что есть Родина. Какое отношение мы имеем к Древней Руси. Насколько (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B249EC0BD94EE05646B68EBB6A7FCB617DE9107B
 ```
 
 https://mybot314.ru/tekegram_catalog/

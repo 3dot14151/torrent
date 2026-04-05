@@ -1,3 +1,32 @@
+###  Публикация: 1634001   (242767) от 19.05.2023
+
+Гюлли Чохели - Поет Гюлли Чохели (1971) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тополиный Пух
+A2 На Свидании
+A3 Уже
+A4 Манана(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B81F9591649B7234310FAA2F989D966510BBA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634351   (242599) от 20.05.2023
 
 Rebellion - Studio Albums (9 releases) (2002-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power Metal>
@@ -6,7 +35,7 @@ Rebellion - Studio Albums (9 releases) (2002-2021) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242599.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Twins - A Wild Romance (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242461.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242453.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dire Straits - Love Over Gold (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242217.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242193.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ System of a Down - Studio Albums (6 releases) (1998 - 2020) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242025.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241973.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241857.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241807.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241806.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electron
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241702.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241674.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The Buggles - The Age Of Plastic (1980)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241666.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Secret Service - Jupiter Sign (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241189.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241158.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Blood Sweat & Tears - Nuclear Blues (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241130.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241112.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241108.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241081.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Orchestra Caravelli - Оркестр Каравелли (1985) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240900.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240885.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Пулсиращи Ноти 1 (1984) [APE 2.0 24/96|image+.cue (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240263.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Девочка Моя Синеглазая - Песни В. Дорохин�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240202.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ DIO - Легенды Зарубежного Рока (2001) Compilation, Unoffic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240023.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239963.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ A4 Maybe I'm Dreaming 4:23(   Читать дальше...   )Жанр: Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8A61895B0FC82BA45E281A48A90FCF017F2724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626980   (239947) от 16.04.2023
-
-Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239947.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Desire 3:47
-A2 Vicious Games 4:18
-A3 Oh Yeah 3:05
-A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156038.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155631.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155568.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Расследования Авиакатастроф / Спецвыпуск
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155565.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155421.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155373.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Загадка Кероса / Keros: The mystery of the broken figurines (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155030.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154962.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154871.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153378.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG: Суперсооружения: Саграда Фамилья / Megastructur
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153324.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NG: Доисторические монстры Гитлера / Hitler's Jurass
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153250.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NG: Дикая природа России / Wild Russia (2009) HDTVRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152773.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152735.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Animal Planet: Беловежская пуща: первозданный лес 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152642.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152360.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152218.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Animal Planet: Летающие челюсти. Прогулка с белыми
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152151.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151871.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151630.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NG: Службы безопасности портов: Гамбург / Port Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151507.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NGW: Дикая Аляска: Арктическое лето / Wild Alaska. Arc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151460.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NG: История Эмиратов / History of the Emirates (2019) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151334.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151247.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Discovery: Мятеж: / Mutiny: Survival On The Oceans (2017) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151185.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151177.jpg" />
 </div>
 
 

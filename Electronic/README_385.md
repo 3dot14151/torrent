@@ -1,3 +1,119 @@
+###  Публикация: 1190048   (267141) от 10.12.2017
+
+VA - Suanda Music: Track Of The Week - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roxanne Emery & Roman Messer  -  Lullaby (Original Mix)  3:56
+02.  Harry Square  -  Ricochet (Original Mix)  3:23
+03.  Sean Truby, Solis & Stine Grove feat. Ultimate  -  Your Dawn (DRYM Remix)  5:47
+04.  Photographer  -  Infinity (Roman Messer Radio Edit)  3:29(   Читать дальше...   )Жанр: Trance, Uplifting Trance, VocalПродолжительность: 02:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4482186CF0C53EE058C1F76C34E3657C3908E399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190031   (267140) от 10.12.2017
+
+VA - Tech Trance Essentials Vol.10 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Etamin  -  Covenant (Smith & Brown Radio Edit)  3:21
+02.  Rafa Montejo  -  Showcase (Original Mix)  6:07
+03.  Franco Landriel  -  Quimera (Radio Edit)  4:02
+04.  ReDrive & Patrick Blanes  -  End Transmission (Original Mix)  7:16(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDA122B9AE8DB87A6463F1F204B8950040518D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190457   (267136) от 10.12.2017
+
+VA - Offline Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tauon  -  Blessed (Original Mix)  4:07
+02.  Der Waldlaufer  -  Klare Wasser (Original Mix)  4:29
+03.  Thomas Lemmer  -  Cycle Of Life (Original Mix)  4:32
+04.  Sine  -  Flying (Firas Tarhini Remix)  3:48(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA8FE762DAE8A7EB148C2BD905F17AE76027526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190325   (267134) от 10.12.2017
+
+VA - The Best Of Chill Out: December (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enviado Vida  -  160914 (Original Mix)  2:29
+02.  Aumcraft  -  Oversoul (Original Mix)  8:12
+03.  Jama & Mininome  -  Dyhaniem (Original Mix)  4:34
+04.  Anturage  -  Raindrops (Original Mix)  4:22(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7EC81C7F9878DFB07670FEDFC9710BF0341EC10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190320   (267130) от 10.12.2017
 
 VA - Inner Balance: Chillout Your Soul 4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
@@ -6,7 +122,7 @@ VA - Inner Balance: Chillout Your Soul 4 (2017) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267130.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Baltra - No Regrets (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267129.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ DEADLIFE - Rebel Nights (2019) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267113.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - EDM Dance 2018 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267105.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Dance Hits 2018 (2017) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267051.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Christmas Chill Lounge: Winter Moments For The X-Mas Time (2017) [MP3|320 K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267041.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Magic Island - Music For Balearic People Vol. 9 (Mixed by Roger Shah) (2019
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267013.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Markus Schulz & Dakota - The Nine Skies (2017) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_266990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266990.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ New Order - Singles (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266915.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Cosmic Cubes - A Cosmic Trance Compilation Vol. 1-6 (1994-1997) 6x2CD, Comp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266728.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Paul Van Dyk - Music Rescues Me (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266650.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Cosmic Cubes - A Cosmic Trance Compilation Vol. 1-6 (1994-1997) 6x2CD, Comp
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266578.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Chill Out Pearls, Vol. 2 (Lazy Chill Out Tunes) (2019) [MP3|320 Kbps] <Elec
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266157.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - The Verse Uplifting Trance Journey 2016-2017 (Mixed by Philip Langham) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266034.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Ori Uplift - Uplifting Only 252 (incl. Maratone Guestmix) (2017) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266033.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Infrasonic Best Of (Mixed by Solis & Sean Truby) (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266032.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ M. Geddes Gengras - Light Pipe (2018) Room40 [FLAC|Lossless|tracks+.cue] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265814.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ subtractiveLAD - Within And Without (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265810.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265797.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Dictaphone - Discography 6 Releases (2002-2018) City Centre Offices, Denovali Re
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_265730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_265730.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Goa 2018 Vol.4 (2018) [MP3|320 Kbps] <Psytrance, Psychedelic Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265717.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Techno Trance 2019: Top 40 Hits Deep House (2018) [MP3|320 Kbps] <Techno Tr
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265638.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Techno Trance 2019: Top 40 Hits Deep House (2018) [MP3|320 Kbps] <Techno Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B149AAD48F3095B78C4961944B4DF759E5E7F837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267675   (265485) от 07.12.2018
-
-VA - Best Of EDM Party 2019 (2018) [MP3|320 Kbps] <House, Electro House, BigRoom>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teknova - Rhythm Is A Dancer 2K19 (Melbourne Bounce Mix) 3:36
-02. Turbotronic - Animal (Original Mix) 4:15
-03. Turbotronic - Gimme Gimme (Original Mix) 4:28
-04. MaxRiven - The Riddle (Original Mix) 3:15(   Читать дальше...   )Жанр: House, Electro House, BigRoom, EDM, DanceПродолжительность: 03:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFB97087CF46F25755315812E93B29DA1869B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267819   (265135) от 08.12.2018
-
-Floating Machine - Nowhere (2017) Arctic Dub Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arctic Wind (06:21)
- 02. Nowhere (07:12)
- 03. Unresolv (07:21)
- 04. Nowhere (Existente Remix) (06:00)Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E89A52D417C246F31B50FE3C5D24429508F8FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191250   (265087) от 12.12.2017
-
-VA - UKF Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilkinson & Dimension - Rush (04:31)
- 02. 1991 - Mayk Yu Myne? (03:55)
- 03. Loadstar - I Need The Night (04:14)
- 04. Friction feat. Doctor - Mad In The Jungle (02:53)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A135BC9C2E9FEFF43B8BF293FA1FF2E73A6F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267937   (265067) от 08.12.2018
-
-Steve Brian - Wanderlust (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yamakhosi (Original Mix)                                        [03:40]
-02. In Your Eyes (Original Mix)                                     [03:06]
-03. Reverie (Original Mix)                                          [02:58]
-04. Wait For Me (Original Mix)                                      [03:37](   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDD4E9BEDCCE7E8D586A664648196AE0183CDF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

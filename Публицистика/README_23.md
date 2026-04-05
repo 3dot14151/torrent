@@ -1,3 +1,29 @@
+###  Публикация: 1387161   (792473) от 31.05.2020
+
+Павел Вощанов | Ельцин как наваждение. Записки политического проходимца (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист Павел Вощанов познакомился и сблизился с Борисом Ельциным в начале 1988 года, когда экс-руководитель Московского горкома КПСС был сослан на «аппаратное перевоспитание» в Госстрой СССР. Спустя год, когда будущий первый президент России ушел в большую политику, Вощанов начал исполнять обязанности пресс-секретаря Ельцина; во время августовского путча 1991 (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C0DE5C8F0AE499810B0CF5F5731F98318ACB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387162   (792441) от 31.05.2020
 
 Валерий Шамбаров | Гибель советской империи (2018) [EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792441.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791629.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791627.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791623.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791298.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791253.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791216.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791203.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790473.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790080.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789904.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789900.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789848.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789086.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788642.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788212.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788162.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787115.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786877.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786845.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786841.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786730.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786726.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785450.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785449.jpg" />
 </div>
 
 
@@ -652,34 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AD2D4404A8B0434F75362A7EC5158DE67F29084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277312   (785419) от 20.01.2019
-
-Х. Рейхель | Русские придут наверняка: Антикоммунистические вымыслы и фальсификации (1987) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785419.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге прогрессивного западногерманского публициста рассказывается о том, как западные спецслужбы и средства массовой информации фабрикуют и активно используют фальшивки о «советской угрозе». Временные рамки книги охватывают период с 20-х гг. по настоящее время.
-
-Показаны укрывательство и использование нацистских преступников и изменников Родины для борьбы против (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, психологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D871A8E699EED07B0EDD34F8F124C249B12B9CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

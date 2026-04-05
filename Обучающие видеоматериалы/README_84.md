@@ -1,3 +1,29 @@
+###  Публикация: 1499241   (849526) от 01.10.2021
+
+kalachevaschool, Светлана Плакасова | Синий ирис (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849526.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Китае ирис обозначает уважение, доверие и верность. Синий — цвет сосредоточенности, помогающей вершить великие дела. Цветок символизирует лето. Специалисты по фэншуй считают ирис символом жизни, не знающей старости, символом веры и надежды.Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61238F259DCEFFDF44097290355B2A1DFA2D59A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376335   (849468) от 23.04.2020
 
 ITProTV | Cisco CCNP Enterprise ENCOR (350-401) (2020) PCRec [H.264/1080p-LQ] [En]
@@ -6,7 +32,7 @@ ITProTV | Cisco CCNP Enterprise ENCOR (350-401) (2020) PCRec [H.264/1080p-LQ] [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849468.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ kalachevaschool, Светлана Плакасова | Лиловая глици
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849425.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ kalachevaschool, Александра Балашова | Героини сказ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849420.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ kalachevaschool, Александра Балашова | Волшебные су
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849414.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ kalachevaschool, Александра Балашова | Мужские перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849407.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849363.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Motion Design School | Cinema 4D Journey (2019) PCRec [H.264/1080p-LQ] (урок
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849352.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ kalachevaschool, Анна Михеева | Ювелирные украшения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849296.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Yandex  Speech Kit, Энтони Роббинс | Деньги. Мастер и�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849262.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ ProfIT | Правильный деплой приложений на PHP (2015) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848312.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848100.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ FlippedNormals | Скульптинг инопланетянина в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847924.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847909.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Max Twain, Katy Joker | KIARA (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845820.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Max Twain, Many Wayne | IDOL (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845818.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Max Twain, Stan Air | QUEENY (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845809.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ CG Cookie | Введение в видеоэффекты в Blender 2.63 / Intro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844638.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Udemy | Симуляция жидкости с помощью Mantaflow в Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844633.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844631.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Udemy | Создание видеоэффектов с помощью продв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844551.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844459.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844408.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Udemy, Josh Gambrell | Недеструктивное твёрдотельное
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844401.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844399.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844367.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:123FD14796BDC03F4B7010C03F08B08912732508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003172   (844361) от 02.04.2016
-
-Андрей Журавлев. | Ask a Pro. На что способен Photoshop? (2014) WEBRip [H.264/1080p]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись онлайн занятия, на котором Андрей Журавлев ответил на более, чем 70 реальных вопросов, которые волнуют графическое сообщество! На многие вопросы эксперт раскрыл проблему под новым ракурсом и дал детальный и понятный способ ее решения. Андрей Журавлев обладает богатым практическим опытом обработки изображений, теоретическими знаними и интересными идеями, а (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 05:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD617F2B3C2D6BAB6C3789612FCFF17BF1A6F1C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

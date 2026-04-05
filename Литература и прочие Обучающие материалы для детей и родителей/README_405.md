@@ -1,3 +1,59 @@
+###  Публикация: 1435039   (148214) от 26.12.2020
+
+Алексей Почивалов, Юлия Сергеева | Новогодняя сказка из пластилина. Как Дед Мороз подарки искал (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сделать не только сам праздник, но и ожидание Нового года незабываемым для ребенка? Предложить ему занятие, которое он любит, но с новогодним смыслом и колоритом! Все дети обожают лепить из пластилина! Кроме того, это невероятно полезно для развития их креативности, вкуса и мелкой моторики пальцев. Так почему бы вам вместе не слепить новогоднюю сказку?
+Простые (   Читать дальше...   )Жанр: Детские поделки/Досуг/ТворчествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05FEE961C1C5A4E65B71CBE9294FA71B2C0E1342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589590   (148196) от 15.12.2012
+
+Газета | Юный ленинец № 3 (184) [22 января 1927] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная всеукраинская газета детской коммунистической организации юных пионеров им. Ленина, Орган Центрального и Харьковского Окрбюро по детдвижению при ЦК ЛКСМУ.
+Номер, находящийся в раздаче, посвящён трехлетней годовщине со дня смерти В. И. Ленина.
+
+В газете 6 страниц, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF74FEA659582319351D2040E4CE678856A35C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435041   (148084) от 26.12.2020
 
 Олег Рой | Новогодний дневник агента «Сказочного патруля» (2018) [PDF]
@@ -6,7 +62,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148084.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148076.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148014.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147841.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147791.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147782.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147778.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147687.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147684.jpg" />
 </div>
 
 
@@ -243,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147668.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147666.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147647.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147642.jpg" />
 </div>
 
 
@@ -350,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147639.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147631.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147627.jpg" />
 </div>
 
 
@@ -431,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147602.jpg" />
 </div>
 
 
@@ -457,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147500.jpg" />
 </div>
 
 
@@ -483,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147495.jpg" />
 </div>
 
 
@@ -509,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147422.jpg" />
 </div>
 
 
@@ -538,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147391.jpg" />
 </div>
 
 
@@ -567,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147382.jpg" />
 </div>
 
 
@@ -593,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147373.jpg" />
 </div>
 
 
@@ -619,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147365.jpg" />
 </div>
 
 
@@ -630,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AA51FF0ED80666EA665575E3BFB55EA44380431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347907   (147337) от 25.12.2019
-
-Л.В. Доманская | Найди, узнай, покажи. Техника и транспорт (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами не просто книга "Техника и транспорт", а познавательная игра. Именно во время игры ребенок знакомится с окружающим миром, развивает фантазию, тренирует память и проявляет свои творческие способности. На каждом развороте его ждут красочные иллюстрации, которые логически объединены одним сюжетом. Малыш увидит, какие бытовые приборы есть в каждом (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E457F6BCCE1344819C15614181983298E8AD9453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347903   (147301) от 25.12.2019
-
-Л.В. Доманская | Найди, узнай, покажи. Все страны и континенты (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами не просто книга "Все страны и континенты", а познавательная игра. Именно во время игры ребёнок знакомится с окружающим миром, развивает фантазию, тренирует память и проявляет свои творческие способности. На каждом развороте его ждут красочные иллюстрации, которые логически объединены общим сюжетом. Малыш познакомится с континентами, узнает особенности (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE30EDC01027886B683E1DDF085C553DB44C8018
 ```
 
 https://mybot314.ru/tekegram_catalog/

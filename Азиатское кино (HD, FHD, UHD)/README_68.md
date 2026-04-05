@@ -1,3 +1,159 @@
+###  Публикация: 1429738   (174741) от 08.12.2020
+
+Большой куш / Твари, цепляющиеся за соломинки / Jipuragirado japgo sipeun jimseungdeul (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работник бани находит в шкафчике забытую посетителем сумку, которая оказывается набита деньгами. Он относит её на склад забытых вещей, но поскольку мужчине нечем заплатить за обучение дочери, да ещё пожилая мать страдает деменцией и изводит невестку, он всё чаще думает забрать деньги себе. Сотрудник портовой таможни пытается договориться с коллекторами об отсрочке, (   Читать дальше...   )Производство: Корея Южная / BA Entertainment, Megabox Plus MЖанр: триллер, криминал, драмаРежиссер: Ким Ён-хунАктеры: Чон До-ён, Чон У-сон, Пэ Сон-у, Юн Ё-джон, Чон Ман-щик, Щин Хён-бин, Чон Га-рам, Чин Гён, Пак Чи-хван, Ким Джун-ханПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51959949CF28923D61C60E445EECC296DAA99295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595520   (174696) от 06.12.2022
+
+Пришельцы. Часть 1 / Oegye+in 1bu / Alienoid (2022) BDRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174696.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих веков инопланетная раса содержит своих преступников в человеческих телах, а люди об этом даже не догадываются. Способные перемещаться во времени с помощью энергетического кинжала Охранник с роботом-помощником поставлены следить, чтобы заключённые не пришли в себя и не сбежали. В 1380 году они ловят очередного проснувшегося преступника, но у его (   Читать дальше...   )Производство: Южная Корея / Caper Film, CJ EntertainmentЖанр: фантастика, боевик, приключения, фэнтезиРежиссер: Чхве Дон-хунАктеры: Рю Джун-ёль, Ким Тхэ-ри, Ким У-бин, Чо У-джин, Ём Джон-а, Со Джи-соп, Ю Джэ-мён, Ким И-сон, Юн Бён-хи, Ли ХаниПеревод: Многоголосый профессиональный (Jaskier)Субтитры: Английские (Forced, Full)Продолжительность: 02:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20CA9913364CA07926688B55C3DFA50CD425B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430323   (174256) от 09.12.2020
+
+Хиросима / Hiroshima (1953) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174256.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 августа 1945 г. произошло страшное, бесчеловечное, расистское преступление — мгновенное уничтожение стотысячного города. Испытание ядерного оружия на живых людях. Для «чистоты эксперимента» сначала был сделан ложный налет. А затем, когда все жители покинули бомбоубежища и были уверены, что опасность миновала, появился одинокий самолет. И что думал командир экипажа, (   Читать дальше...   )Производство: Япония / Japan's Teacher's Union, East WestЖанр: драма, военныйРежиссер: Хидэо СэкигаваАктеры: Эйдзи Окада, Юмэдзи Цукиока, Ёси Като, Такаси Канда, Исудзу Ямада, Токуэ Ханадзава, Кэндзо Каварадзаки, Сидзуэ Каварадзаки, Хатаэ Киси, Эйтаро МацуямаПеревод: Дублированный (к/с им. М. Горького)Субтитры: нетПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC665A3586082640D5A46B7895B72673C812342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430260   (174127) от 09.12.2020
+
+Мечник / Geomgaek / The Swordsman (2020) WEBRip [H.264/1080p-LQ] [DVO] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чосон, 1623 год. После свержения монарха Кванхэ-гуна страна погружается в хаос. Через несколько лет солдаты империи Цин забирают крестьян на чужой территории в рабы, их предводитель ищет достойного соперника для поединка на мечах, а простая девушка пытается найти лекарство для слепнущего отца.Производство: Южная Корея / ISU Venture Capital, KTH, Opus PicturesЖанр: История, БоевикРежиссер: Чхве Джэ-хунАктеры: Чан Хёк, Ким Хён-су, Джо Таслим, Чон Ман-щик, Ли На-гён, Ли Мин-хёк, Чхве Джин-хо, Чи Сын-хён, Чи Гон-у, Кон Сан-аПеревод: Двухголосый любительский (Zozya & Numinel "Amazing Dubbing")Язык озвучки: Русский, корейскийСубтитры: Русские (АрхиАзия), корейские (неотключаемые в некоторых местах)Продолжительность: 01:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77EC71E55B42A8B4E05CC66D9D16592D128E3418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430094   (174107) от 09.12.2020
+
+Большой куш / Твари, цепляющиеся за соломинки / Jipuragirado japgo sipeun jimseungdeul (2020) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работник бани находит в шкафчике забытую посетителем сумку, которая оказывается набита деньгами. Он относит её на склад забытых вещей, но поскольку мужчине нечем заплатить за обучение дочери, да ещё пожилая мать страдает деменцией и изводит невестку, он всё чаще подумывает забрать деньги себе. Сотрудник портовой таможни пытается договориться с коллекторами об отсрочке, (   Читать дальше...   )Производство: Корея Южная / BA Entertainment, Megabox Plus MЖанр: Триллер, криминал, драмаРежиссер: Ким Ён-хунАктеры: Чон До-ён, Чон У-сон, Пэ Сон-у, Юн Ё-джон, Чон Ман-щик, Чин Гён, Щин Хён-бин, Чон Га-рам, Пак Чи-хван, Ким Джун-ханПеревод: Профессиональный (многоголосый закадровый) (iTunes)Субтитры: Русские (Focs), Английские(Full)Продолжительность: 01:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167F6F9E668753B12312EEC38C806782263EA306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668568   (173526) от 12.10.2023
+
+Балерина / Ballerina (2023) WEB-DLRip [H.264/1080p] [MVO] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ок Джу раньше работала телохранителем. Она сильна, владеет боевыми искусствами, фехтованием, стрельбой. Однажды её подруга и балерина Мин Хи просит её отомстить мужчине по имени Чхвэ Про, но сама умирает. Переживая потерю Ок Джу решает исполнить последнее желание лучшей подруги, которую ей не удалось защитить. Месть так сладка...Производство: Корея Южная, Netflix, Climax StudioЖанр: боевик, криминалРежиссер: Ли Чхун-хёнАктеры: Чон Джон-со, Ким Джи-хун, Пак Ю-рим, Щин Сэ-хви, Пак Хён-су, Ким Му-ёль, Чан Юн-джу, Ким Ён-ок, Чу Хён, Пак Кын-джонПеревод: Многоголосый любительский (Синема Ус)Язык озвучки: русский, английскийСубтитры: русские, английские, украинскиеПродолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DEBC187E277823CF68FDD61BA715690A3C642C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668728   (173294) от 13.10.2023
 
 В коже моей матери / In My Mother’s Skin (2023) WEBRip [H.264/720p] [DVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173294.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173194.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173145.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172807.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172603.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172453.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171703.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171630.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170997.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170805.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170764.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170097.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170059.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170053.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169917.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169754.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168633.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168114.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167869.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167826.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38FE5168B0762620EF5B95743E25DA33C518854C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597139   (167490) от 13.12.2022
-
-Великий Будда+ / The Great Buddha+ (2017) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Притча о «маленьких людях». «Маленькие люди» — традиционное обозначение слоёв, занимающих самый низ социальной лестницы на Тайване. К ним не обращаются по имени, только по прозвищу. Пупок — мусорщик. Работает на свалке, живёт на свалке, выживает за счёт свалки. Огурчик — сторож на небольшом литейном заводике, где льют бронзовые статуи на заказ. Хозяин фабрики Кевин, (   Читать дальше...   )Производство: Тайвань, A-Yao Film, Cream Film Production, Mandarin Vision, Ocean Deep Films, Triple Film HouseЖанр: драма, комедия, криминалРежиссер: Хуан СиньяоАктеры: Крес Чуан, Бамбу Чэнь, Леон Дай, Майкл Чан, Чэнь Ивэнь, На До, Тин Колинь, Ли Юн Фон, Юэ-Синь Чу, Ж.К. ЛейПеревод: любительский многоголосый (Head Pack Films по субтитрам студии FOCS), любительский двухголосый (ТО Храм тысячи струн по субтитрам Alfar Ljos-Dokk, с ненормативной лексикой)Субтитры: русские (FOCS; Alfar Ljos-Dokk, с ненормативной лексикой), английскиеПродолжительность: 01:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8341E99505F91354366E3549D5D39398E4C4D35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597173   (167192) от 13.12.2022
-
-Чжун Куй: Снежная дева и тёмный кристалл / Zhong Kui fu mo: Xue yao mo ling / Snow Girl and the Dark Crystal (2015) BDRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек Чжун Куй — в поздней китайской мифологии повелитель демонов, а к началу эпохи Тан Чжун Куй превратился из божества, оберегающего от злых сил, в божество, усмиряющее и истребляющее демонов — наделённый таинственными силами вынужден сражаться с духами Неба, Земли и Ада ради спасения своих соотечественников и любимой женщины…Производство: Китай, Гонконг, США / Desen International Media, Enlight PicturesЖанр: фэнтези, приключенияРежиссер: Питер Пау, Чжао ТяньюйАктеры: Чэнь Кунь, Ли Бинбин, Уинстон Чао, Ян Цзышань, Бао Бэйэр, Джайк Цзюньи, Хуан Хуань, Вэньбо Ло, Иди Хоу, Мадина МеметПеревод: Любительский многоголосый, закадровый (GREEN TEA)Субтитры: Русские (forced), английскиеПродолжительность: 01:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F5D9F716EDBD1BDDBD35E369CC97B45BED2A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345289   (167134) от 14.12.2019
-
-Тихая семья / Joyonghan gajok / The Quiet Family (1998) BDRip [H.265/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилая пара с тремя взрослыми детьми и братом мужа приобрела большой дом рядом с горой в надежде на перспективный доход от туристов и строящуюся рядом дорогу. Время идёт, туристов нет. Но вот появляется первый клиент — платит, отправляется в свой номер, а на следующее утро хозяева находят его мёртвым. Бедолага покончил с собой, и чтобы не портить репутацию гостинице, (   Читать дальше...   )Производство: Корея Южная / Myung Film Company Ltd.Жанр: Комедия, КриминалРежиссер: Ким Джи-унАктеры: Пак Ин-хван, На Мун-хи, Сон Кан-хо, Чхве Мин-сик, Ко Хо-гён, Ли Юн-сон, Чхве Чхоль-хо, Ки Джу-бон, Чан Га-хён, Чон Джэ-ёнПеревод: Одноголосый любительский x2Субтитры: английские (хардсаб)Продолжительность: 01:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652572B726378FD08FBDC61BE036053B318208CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516214   (166760) от 10.12.2021
-
-Холодная рыба / Tsumetai nettaigyo (2010) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за того что дочь попалась на магазинной краже, тихому владельцу магазина аквариумных рыбок Нобуюки Сямото приходится наладить контакт с владельцем другого такого же магазина - Юкио Муратой. Сначала общение вполне складывается, они дружат семьями, но вскоре Мурата начинает медленно, но верно переходить границы вежливого и оказывать давление на нового знакомого (   Читать дальше...   )Производство: Япония, Nikkatsu Corporation, Stairway, Toho CompanyЖанр: драма, криминал, триллерРежиссер: Сион СоноАктеры: Мицуру Фукикоси, Дэндэн, Асука Куросава, Мэгуми Кагурадзака, Хикари Кадзивара, Тэцу Ватанабэ, Макото Асикава, Лорена Кото, Масаки Миура, Дзёнмён ПеПеревод: любительский одноголосый (den904)Субтитры: русские (morning), английскиеПродолжительность: 02:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E97D76C0182EE2E60D0E501F5F23C13B4CB674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431542   (166747) от 14.12.2020
-
-47 преданных ронинов (Тюсингура) / Chushingura / The Loyal 47 Ronin (1958) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история произошла в царствование 5-го сёгуна из династии Токугава. В 1701 году даймё Асано Наганори из города Ако был назначен для приёма двух императорских послов во дворец сёгуна. Перед церемонией Асано Наганори должен был получить наставления у Киры Ёсинака, чиновника, который являлся потомственным знатоком церемоний высшего ранга. Тот имел славу мздоимца (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: ДрамаРежиссер: Кунио ВатанабэАктеры: Кадзуо Хасэгава, Синтаро Кацу, Кодзи Цурута, Раидзо Итикава, Матико Кё, Фудзико Ямамото, Митиё Когурэ, Тикагэ Авасима, Аяко Вакао, Осаму ТакидзаваПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские (дед_сто_лет©), английскиеПродолжительность: 02:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7CBAACF1CDA836CF03A3E8E409A075827C67F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431566   (166702) от 14.12.2020
-
-Вихрь (Водоворот) / Ting er zou xian / Vortex (2019) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место действия – город Чунцин, в котором живёт простой автомеханик и один его знакомый, занимающийся продажей подержанных автомобилей. Их афера с угоном уже кому-то проданной машины для её следующей продажи неожиданно оборачивается ещё и похищением ребёнка. Поэтому, кроме машины теперь можно поживиться и немаленьким выкупом. Но потерявшие только что купленный автомобиль (   Читать дальше...   )Производство: Китай, Hei Ma Yi (Shanghai) Pictures, Hehe (Shanghai) Pictures, Shannan Enlight PicturesЖанр: Драма, криминал, триллерРежиссер: Джеки ГаньАктеры: Да Пэн, Охо Оу, Ли Мэн, Цао Бинкунь, Ша Баолян, Цао Вэйюй, Одри До, Чжан Нинцзян, Ся Энь, Ли ШэнъПеревод: Одноголосый любительский (Franek Monk)Субтитры: АнглийскиеПродолжительность: 01:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DE5E5C66E9B3499DCEF3FE80ABFA07C466A0C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

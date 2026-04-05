@@ -6,7 +6,7 @@ The Thirty-Nine Steps (The 39 Steps) (2013) [En] [OS X WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746111.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Final Station v.1.5/dlc (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741704.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Captain v1.0.10.1 (2021) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735805.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Clunky Hero v.0.92 (2021) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734933.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Figment v1.1.8 [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728654.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Creaks v1.0.10 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727405.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Evoland Legendary Edition (2019) [Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722577.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ RED COMRADES TRILOGY / Петька и Василий Иванович Трил�
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720651.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Reverie Knights Tactics v.1.02 (2022) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720410.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Craft The World v.1.9.006.1 (2014) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720409.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Event[0] (2016) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718810.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ CHUCHEL  v2.0.0 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718273.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Oxenfree v2.7.1 (2016) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716667.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Octodad: Dadliest Catch (2014) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714997.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Black Book v.1.0.44 (2021) [En/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710327.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Shantae: Half-Genie Hero (2017) [En] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709857.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Guns, Gore & Cannoli v.1.0 (2015) [Ru/Multi] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708810.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Objects in Space (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705058.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Overcooked! 2 DLC v48.662097 (2018) [Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703138.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Cypress Inheritance: The Beginning v.1.0 (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697302.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Trine 2 Complete Story v. 2.1.0.9 (2013) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696977.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Trüberbrook (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693915.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Subnautica v65786 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691808.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ HIVESWAP: Act 1 (2017) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689313.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Jurassic Park: The Game [Native]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682746.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ West of Loathing [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680933.jpg" />
 </div>
 
 

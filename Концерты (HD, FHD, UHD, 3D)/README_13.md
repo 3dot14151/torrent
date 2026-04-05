@@ -6,7 +6,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767559.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767327.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766748.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766735.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766670.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Alestorm - Концерт в Тилбурге / Alestorm - Live in Tilburg (2021
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766104.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Karnivool - Концерт в театре Хита Леджера / Karnivool -
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765140.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Epica - Концертное шоу Omega Alive / Epica - Omega Alive (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765088.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765080.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765062.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764572.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764265.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763225.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ A MusiCares' Tribute to Paul McCartney (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762377.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Mylene Farmer - Avant que l'ombre... A Bercy (2006) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760571.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760321.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760311.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ A MusiCares Tribute to Barbra Streisand (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758984.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758862.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758628.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Alcatrazz - Parole Denied - Tokyo 2017 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756832.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ MTV Europe Music Awards - London (2017) UHDTV [H.265/2160p] [4K, SDR, 10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756014.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Metallica: Français pour une nuit 1080(2009) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755711.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754599.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Tina Turner - One Last Time Live in Concert & Celebrate! (2000/1999) SD Blu-Ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753916.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752812.jpg" />
 </div>
 
 

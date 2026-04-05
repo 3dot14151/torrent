@@ -1,4 +1,136 @@
 https://t.me/izofen
+###  Публикация: 1863429   (1063891) от 
+
+О моём перерождении в слизь [ТВ-4, часть 1] | Tensei shitara Slime Datta Ken 4th Season Part 1 | That Time I Got Reincarnated as a Slime 4th Season Part 1 [2026, TV, 1 из 24] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063891.jpg" />
+</div>
+
+
+###  Подробнее
+
+После триумфального фестиваля Федерация Джура становится главным экономическим центром мира, но процветание порождает опасную зависть. Пока Римуру укрепляет дипломатические связи, из тени нападают те, кто привык тайно править человечеством — могущественный род Россо.
+В этом противостоянии мечи уступят место коварным финансовым интригам и политическим заговорам. Мариабель (   Читать дальше...   )Производство: Япония / Студия 8bitЖанр: приключения, комедия, фэнтезиРежиссер: Цуда НаокацуЯзык озвучки: Русский (DEEP), (AniStar), (Anilib); ЯпонскийСубтитры: Русские (надписи и полные) / Английские (полные) CrunchyrollПродолжительность: 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D24B20882B6C0A527BD0214DE8769A1EDE08FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862180   (1063383) от 
+
+Не называй это любовью! | Koi to Yobu ni wa Kimochi Warui | Koikimo [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рё Амакуса не только красивый, выдающийся молодой человек, но ещё и блестящий бизнесмен. Казалось бы, у него не должно быть отбоя от прекрасных дам, но вот только есть одна проблема — наш герой полный ноль в амурных делах. Однако от прекрасных чувств всё же не убежать, и вскоре Рё влюбляется. Его избранницей становится лучшая подруга младшей сестры — Итика Арима. (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Накаяма НаомиЯзык озвучки: Японский; Русский закадровый Wozwald, Abe, Flower, NitzСубтитры: Русские полные CrunchyrollПродолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30329BBE6BEBA94AD84EF66BD315A04614510336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862178   (1063382) от 
+
+Секретарь гильдии | Guild no Uketsukejou Desu ga, Zangyou wa Iya nano de Boss o Solo Toubatsu Shiyou to Omoimasu [2025, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алина Кловер устраивается секретарём в гильдию искателей приключений с полной уверенностью, что эта спокойная, но прибыльная должность станет её заветным билетиком в счастливую размеренную жизнь.
+Но, к сожалению для девушки, всё оказывается не так просто. При рассмотрении вакансий Алина не учла следующее: если искатели приключений неожиданно застревают в подземелье, (   Читать дальше...   )Производство: Япония / Студия CloverWorks, BoundaryЖанр: комедия, приключения, фэнтези, экшенРежиссер: Нагасава ЦуёсиЯзык озвучки: Японский; Русский трёхголосый закадровый - Amikiri, Anzen, HoopoeСубтитры: Русские полные/надписи -Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8003F32382E2426388DB922BE21D8D65C55C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862173   (1063381) от 
+
+Перерождение: Монстр | Re:Monster [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умерев насильственной смертью, Томокуи Каната, который при жизни обладал сверхъестественными способностями, переродился в другом мире как гоблин — представитель низшей, самой слабой расы. Однако память о прошлой жизни и человеческий разум всё ещё при нём, так что не всё так печально и бесперспективно. Понемногу развиваясь и адаптируясь к новым условиям, новоиспечённый (   Читать дальше...   )Производство: Япония / Студия Studio DeenЖанр: приключения, фэнтезиРежиссер: Инагаки ТакаюкиЯзык озвучки: Японский; Русский двухголосый закадровый Jam, EstherСубтитры: Полные и надписи - Сrunchyroll | RUS (ext)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D10814EB0A5C38922846FD30109F83FE42681B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862164   (1063380) от 
+
+Hitoribocchi no Isekai Kouryaku | Нападение одиночки на иной мир [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время мирного школьного обеда поднялся страшный переполох, когда ученики увидели, что на полу класса образовывается магический круг призыва. Старшеклассники отреагировали по-разному, а вот Харука, до этого спокойно читавший мангу, попытался унести ноги подальше. Он, прочитавший кучу новелл на тему перемещения в иной мир, лучше всех понимал, что ничего хорошего (   Читать дальше...   )Производство: Passione, Hayabusa FilmЖанр: приключения, фэнтези, комедияРежиссер: Кадзуми ЁсиоЯзык озвучки: Японский; Русский многоголосый закадровый Ditaro, Gomer, Itashi, ZozyaСубтитры: Полные и надписи - AniLibria | RUS (ext) dream_minseok, Keitaro, NekoNisПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4C604E68BBAE43C11C576019652BFA1A5E6ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861271   (1062560) от 
 
 Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У меня нет любовницы! (А, может, и есть?!) [2025, TV, 12 эп.] BDRip HEVC 10-bit 1080p raw+rus
@@ -7,7 +139,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062560.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Seihou Bukyou Outlaw Star | Outlaw Star | Звёздные рыцари с Во�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061525.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061107.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059742.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058504.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058503.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ Kamui no Ken | The Dagger of Kamui | Кинжал Камуи [1985, Movie] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058339.jpg" />
 </div>
 
 
@@ -191,7 +323,7 @@ Guilty Crown / Корона греха [2011, TV, 22 ep] BDRip Hi10p 720p Raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057149.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056847.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055922.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055391.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055390.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ Slayers Gorgeous | Великолепные Рубаки [1998, Movie] BDRip 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055389.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ Slayers | Рубаки [1995, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055388.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ Slayers Next | Рубаки Next [1996, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055387.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ Slayers Try | Рубаки Try [1997, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055386.jpg" />
 </div>
 
 
@@ -425,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055362.jpg" />
 </div>
 
 
@@ -451,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055233.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054898.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054897.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ Seikai no Senki Tokubetsu Hen | Banner of the Stars Movie | Звёздный ф�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054563.jpg" />
 </div>
 
 
@@ -540,139 +672,6 @@ Seikai no Senki Tokubetsu Hen | Banner of the Stars Movie | Звёздный ф�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3986C2B0436D5EE70B45F6ED13B7D010B7A208D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850481   (1054562) от 28.01.2026
-
-Seikai no Monshou Tokubetsu Hen | Crest of the Stars Movie | Звёздный герб (компиляция) [2000, Special] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обобщение первого сезона - Seikai no Monshou с некоторыми дополнительными сценами и диалогами.Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Продолжительность: 1 час 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7636B994C9BB9A8E4C6D4A45783ABB296DB7775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850484   (1054560) от 28.01.2026
-
-Seikai no Senki II | Banner of the Stars II | Звёздный флаг 2 [2001, TV, 10 эп.] DVDRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря сокрушительному успеху флота Abh под командованием братьев Бибос Империя за короткий промежуток времени захватывает множество обитаемых миров и сталкивается с проблемой нехватки наместников для новых территорий. Лафиль назначают на должность Наместника Планеты Лобнасс II.Прибыв на планету, Лафиль с Дзинто обнаруживают, что Объединенное человечество использовало (   Читать дальше...   )Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Субтитры: ASS (Русский, Надписи)Продолжительность: ТВ, 10 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAC2A03D3CD559B5E918AD0A7FCE6DEACCCAB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850485   (1054559) от 28.01.2026
-
-Seikai no Senki III | Banner of the Stars III | Звёздный флаг 3 [2005, OVA, 2 эп.] DVDRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завершают сагу Seikai no Monshou две серии о возвращении Дзинто в родные владения, в звездную систему Хайд. Там все еще сильны сепаратистские настроения и неприязнь к Империи. Одновременно с поездкой Дзинто и Лафиль Abh отправляют на учения в Хайд только что сформированный "Первый флот разрушения", укомплектованный новейшими боевыми кораблями Империи...Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Субтитры: ASS (Русский, Надписи)Продолжительность: OVA, 2 серии по 30 и 45 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0056AF078AEA31D2526E28EB6C42A75FA342F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849897   (1054118) от 25.01.2026
-
-Nanatsu no Taizai OVA | The Seven Deadly Sins OVA | Семь смертных грехов OVA [2015, OVA, 2 эп.] DVDRip 576p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два дополнительных эпизода, вышедшие вместе с пятнадцатым и шестнадцатым томами оригинальной манги.
-
-Бан — главный герой первой истории — отправился в Лес фей ради того, чтобы завладеть Фонтаном молодости, но столкнулся с Элейн, защитницей леса и самого источника бессмертия. Но как же теперь поступит Бан?
-(   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: приключения, фэнтези, сверхъестественное, сёнен, экшенЯзык озвучки: Русский закадровый (AniLibria - Cleo-chan, Kari, Kona_chan, Nuts)Продолжительность: OVA, 2 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED072FEC92F44D7236608C7A6A73CBFFB5D893D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849895   (1054116) от 25.01.2026
-
-Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехов [2014, TV, 24 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054116.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, подобному европейскому средневековью, почитаемые, но вселяющие страх Священные Рыцари Британии своими могущественными силами защищают Британию и её королевства. Но некоторые рыцари предали свою родину и пошли с оружием против своих товарищей в попытке устроить государственный переворот. Предатели были повержены Священными Рыцарями, но слухи о том, что те (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: приключения, фэнтези, сверхъестественное, сёнен, экшенРежиссер: Окамура ТэнсайЯзык озвучки: Русский закадровый (AniLibria - Kari, Lamia)Продолжительность: ТВ, 24 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C90AA9DEC3DF911C7A956AFD5B35F905BD2AD92
 ```
 
 https://mybot314.ru/tekegram_catalog/

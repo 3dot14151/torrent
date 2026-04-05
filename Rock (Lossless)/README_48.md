@@ -1,3 +1,120 @@
+###  Публикация: 1014600   (776169) от 08.05.2016
+
+Aunt Mary - NewDawn (2016) [FLAC|Lossless|tracks] <Rock, Classical Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slave Parade (03:49)
+02. Unconditional Love (03:35)
+03. Hopelessly Lost (03:10)
+04. Happily Ever After (04:53)(   Читать дальше...   )Жанр: Rock, Classical Rock, Progressive RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84362BF9F7944F03DF7C46CA37FF3F957001674C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212412   (775813) от 12.03.2018
+
+Riverside - Reality Dream Trilogy (2011) 6CD Box-Set [FLAC|Lossless|image + .cue] <Progressive Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind The Eyelids (6:18)
+02. Lucid Dream IV (4:33)
+03. 02 Panic Room (Remix) (3:24)
+04. Rainbow Trip (O2 Panic Room Single) (6:13)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 05:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49463F37CAD195D3BA93D365FC6C95A52CCA607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277563   (775642) от 21.01.2019
+
+Kansas - The Classic Albums Collection 1974-1983 (11CD Box Set) (2011) [FLAC|Lossless|image + .cue] <Symphonic Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kansas — американская рок-группа, образовавшаяся в 1970 году в городе Топика, Канзас. Kansas, исполнявшие прогрессив-/арт-рок, вошли в историю как одна из первых и ведущих групп «стадионного рока», а наивысших позиций в чартах достигли с хит-синглами «Dust in the Wind» (#11, США) и «Carry On My Wayward Son» (#6)Список альбомов:
+1974 | Kansas
+1975 | Song for America
+1975 | Masque(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Prog Rock, Symphonic Rock, Hard Rock, Religious |Продолжительность: 09:43:57 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727F2CEDCFB811F106B20AFCEC56264F835B8DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659314   (775329) от 22.05.2013
+
+Iron Butterfly - 10 альбомов (1968-1993) Различные издания [FLAC|Lossless]<Rock,  Hard Rock, Prog Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Само название группы избавляет меня от необходимости пространного описания. Четыре альбома группы поднимались в первую двадцатку Billboard 200, альбом In-A-Gadda-Da-Vida (#4, US, 1968) разошёлся общим тиражом более 25 миллионов экземпляров.
+Хотелось пояснить, что In-A-Gadda-Da-Vida представлена здесь в двух вариантах (первый - это японская реплика винила, второй (   Читать дальше...   )Список альбомов:
+1968 - Fillmore East (Live)(2011 ARC RHM2 526745 Rem.)
+1968 - Heavy (1993 Rhino WEA 71521 Rem.)
+1968 - In-A-Gadda-Da-Vida (2006 VICW-60002 Japan Rem.)(   Читать дальше...   )Жанр: Rock,  Hard Rock, Prog Rock, Classic RockПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015024   (775069) от 10.05.2016
 
 Jоhn Illslеу - Теsting Тhе Wаtеr (2014) [FLAC|Lossless|tracks] <Rock, Blues Rock, Folk Rock>
@@ -6,7 +123,7 @@ Jоhn Illslеу - Теsting Тhе Wаtеr (2014) [FLAC|Lossless|tracks] <Rock, B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775069.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ Yo5 и Андрей Макаревич - Yo5 (2018) [WavPack|Lossless|wv.iso] <J
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775000.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ Joe Cocker - No Ordinary World (1999) [APE|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774932.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ The 69 Eyes - Devils (2004) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774304.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ Creedence Clearwater Revival - 6 альбомов (1968 - 1986) 6CD, 24 Karat Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773937.jpg" />
 </div>
 
 
@@ -151,7 +268,7 @@ Blueneck - Discography 12 Releases (2006-2018) Don't Touch, Denovali Records [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773353.jpg" />
 </div>
 
 
@@ -180,7 +297,7 @@ Missy Higgins - 18 Releases (2003-2018) Коллекция [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773169.jpg" />
 </div>
 
 
@@ -209,7 +326,7 @@ John Carpenter - Lost Themes II (2016) [FLAC|Lossless|WEB-DL|tracks] <Cinematic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772823.jpg" />
 </div>
 
 
@@ -238,7 +355,7 @@ Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771992.jpg" />
 </div>
 
 
@@ -267,7 +384,7 @@ Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769686.jpg" />
 </div>
 
 
@@ -296,7 +413,7 @@ Joe Cocker - Unchain My Heart (1987) [APE|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769634.jpg" />
 </div>
 
 
@@ -325,7 +442,7 @@ Joe Cocker - Cocker (1986) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769632.jpg" />
 </div>
 
 
@@ -354,7 +471,7 @@ Joe Cocker - One Night Of Sin (1989) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769629.jpg" />
 </div>
 
 
@@ -383,7 +500,7 @@ Joe Cocker - Night Calls (1991) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769564.jpg" />
 </div>
 
 
@@ -412,7 +529,7 @@ Status Quo - Aquostic Stripped Bare (2014) [FLAC|Lossless|tracks] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769562.jpg" />
 </div>
 
 
@@ -441,7 +558,7 @@ John Mayer - The Search For Everything (2017) [FLAC|Lossless|tracks] <Rock, Soul
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768754.jpg" />
 </div>
 
 
@@ -470,7 +587,7 @@ Richie Kotzen - Salting Earth (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768054.jpg" />
 </div>
 
 
@@ -499,7 +616,7 @@ Ace of Cups - Ace of Cups (2018) 2CD [FLAC|Lossless|tracks + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767791.jpg" />
 </div>
 
 
@@ -528,7 +645,7 @@ Rival Sons - Feral Roots (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767779.jpg" />
 </div>
 
 
@@ -557,7 +674,7 @@ Lebowski - Galactica (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767727.jpg" />
 </div>
 
 
@@ -586,7 +703,7 @@ VA - Message of Love: Rock Love Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767686.jpg" />
 </div>
 
 
@@ -615,7 +732,7 @@ Santana - In Search Of Mona Lisa (2019) EP, Scene [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767673.jpg" />
 </div>
 
 
@@ -629,123 +746,6 @@ Santana - In Search Of Mona Lisa (2019) EP, Scene [FLAC|Lossless|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73AFB2187538830A7AA65999952225AEE5FE5E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125910   (767146) от 16.04.2017
-
-Кеnnу Сhеsnеу - Соsmiс Наllеlujаh (2016) [FLAC|Lossless|image + .cue] <Country, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trip Around The Sun (2:55)
-02. All The Pretty Girls (3:33)
-03. Setting The World On Fire (With Pink) (3:39)
-04. Noise (3:26)(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858725FEC22B816791191CCB3EF94DB5D36008EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279136   (766917) от 28.01.2019
-
-Little Richard - Greatest Hit (1993) [FLAC|Lossless|image + .cue] <Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Golly, Miss Molly
-02. Lucille
-03. Long Tall Sally
-04. Tutti Frutti(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4346723C7C610D2DDFC423846363586ABB5BF485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279145   (766644) от 28.01.2019
-
-Pink Floyd - Animals, The High Resolution Remasters (2017) The Archives Records & Tapes [FLAC|Lossless|tracks+.cue] <Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sheep (11:15)
- 02. Pigs On The Wing Part 1 (02:14)
- 03. Dogs (18:31)
- 04. Pigs On The Wing Part 2 (02:27)(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock •Продолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA8A285511D2A8A6EA8295A6349AE0DB44728D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126012   (766284) от 17.04.2017
-
-Retrospective - Re:Search (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была образована в 2005 году Robert Kusik (ударные) и Maciej Klimek (гитара) и вначале называлась “Hollow”.
-В 2006 году еще четверо музыкантов присоединились к Hollow: Alan Szczepaniak (гитара), Łukasz Marszałek (бас), Beata Łagoda (клавишные) and Jakub Roszak (вокал). В том же году они записали свое первое демо, в котором прослеживалась склонность (   Читать дальше...   )01. Rest Another Time (5:04)
-02. Right Way (4:51)
-03. The End Of Their World (4:49)
-04. Roller Coaster (5:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886AA2D968089375C55D930500EB002A91747C69
 ```
 
 https://mybot314.ru/tekegram_catalog/

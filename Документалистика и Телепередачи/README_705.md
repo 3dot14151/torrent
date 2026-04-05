@@ -1,3 +1,159 @@
+###  Публикация: 1347874   (146075) от 26.12.2019
+
+Тайная жизнь сов / The Secret Life of Owls (2017) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запоминающиеся ночные крики великой рогатой совы, виргинского филина, вызывают восхищение у всех, кому довелось их слышать. От самых северных частей Аляски и Канады и вплоть до южного бассейна Амазонки вы найдете этих величественных птиц Америки. Тем не менее, их редко можно увидеть своими глазами. Авторы фильма позволяют взглянуть на этого удивительного хищника, (   Читать дальше...   )Производство: Канада / Make Believe MediaЖанр: Документальный, ФаунаРежиссер: Jeffery MoralesПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9E96E15FC26349F440DFC8B7B24759265D6021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348032   (146059) от 26.12.2019
+
+Невидимая Вселенная / Invisible Universe (2015) IPTVRip [H.264] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш мир - мир высоких скоростей, слишком быстрый для наших органов чувств. Из-за страха что-либо упустить мы постоянно стремимся вперед. Но нас не покидает тяга к волшебному. В спешке повседневной жизни мы стремимся остановить время так, как это удавалось нам в детские годы. Мы видим только часть происходящего, как будто в замедленной съёмке. То, что быстрее, ускользает (   Читать дальше...   )Производство: ZDFЖанр: ДокументальныйРежиссер: Luise Wagner, Andreas Geyer, Andreas OrthПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 4 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641DCFE4ADA355DFE4CE6B7BC0D567554D09F27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498431   (146013) от 25.12.2021
+
+Битва экстрасенсов (2021) SATRip (сезон 22, выпуски 1-14 из 14)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146013.jpg" />
+</div>
+
+
+###  Подробнее
+
+В проекте «Битва экстрасенсов» участвуют люди, обладающими необычными способностями. Ведьмы и колдуны, эзотерики, маги, целители, гадатели и многие другие соревнуются за победу и звание лучшего экстрасенса сезона. «Битва экстрасенсов» – культовый проект и знаковое шоу в истории ТНТ. Каждый год люди, которые называют себя экстрасенсами, доказывают свои способности (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: ~01:30:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105D53EAE47D5993DB7E40D91CA5E4B7C00BDBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348084   (145994) от 26.12.2019
+
+Тайная история человеческой эволюции / The Secret History of our Evolution (2018) HDTVRip [H.264/1080p-LQ] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день мы пользуемся органами, которым сотни миллионов лет, но ничего не знаем об их истории… Новые технологии научной визуализации позволяют по новому взглянуть на нашу анатомию!Производство: Mona Lisa Production, La metonymieЖанр: ДокументальныйРежиссер: Pierre-Francois GaudryПеревод: Двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 2 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6EC307A72BB2806C0C597A8F752F3E9696F9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519994   (145822) от 26.12.2021
+
+Сто к одному (26.12.2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E721D075ABABBC297B3FE08429AA2F4B8EEBF405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 105671   (145802) от 27.12.2016
+
+Секреты инквизиции / The Secret Inquisition (2002) DVDRip (6 частей)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы приглашаем Вас в путешествие по средневековой Европе, ставшей местом действия кровавых и шокирующих своими масштабами расправ, а также узнаем историю ведьм, как явление, уходящее своими корнями в глубокую древность, всё это в цикле Секреты Инквизиции. Ещё до её появления, в XI веке, тёмный невежественный люд содрогался при одном упоминании о демонизме, колдовстве (   Читать дальше...   )Производство: Vision FilmЖанр: ДокументальныйРежиссер: Ян ПетерАктеры: Сильвестр Грот, Дитер Манн, Оливер СтернПеревод: ДублированныйПродолжительность: 6 x ~53 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769A11578B684D6ECA6E2D21F9BAA549F8DF8EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969921   (145779) от 28.12.2015
 
 Право голоса. "Итоги года" (28.12.2015) SATRip
@@ -6,7 +162,7 @@
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145779.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145777.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145739.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145707.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145677.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145665.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145514.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145495.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145489.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145472.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145456.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145404.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145387.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145367.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145347.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145324.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145305.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145302.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145255.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145180.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45D9B98082B18D7E25CB0677855A4A9821CD1C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969732   (145154) от 28.12.2015
-
-Военная приемка. Удар главным «Калибром» (08.12.2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы узнаем как ведутся ракетные войны в Сирии: чем Россия наносит удары по позициям ИГИЛ и какими средствами защищается от ракет противника. Вместе со съемочной группой программы зрители впервые попадут на малые ракетные корабли проекта «Буян-М», где установлена система «Калибр» - именно этими ракетами ведется обстрел позиций боевиков с моря. Мы расскажем о прототипах (   Читать дальше...   )Еженедельная программа "Военная приемка" расскажет зрителю обо всех новинках российского оборонного комплекса. Кроме этого, особое внимание будет уделено такой важной профессии, как военный представитель - офицер, который несет перед государством ответственность за качество выпускаемой военной техники.Телекомпания: ЗвездаЖанр: ТелепередачаПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B6F9B2CB5BA5D8A5A0DB4598FD956C217A36A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678466   (145145) от 21.11.2023
-
-Самые красивые места планеты Земля (Удивительная дикая природа. Настоящая земля) / Real land (2023) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красота — понятие субъективное, однако, глядя на завораживающе красивые места на Земле, созданные самой природой, приходит осознание того, что красота — вокруг нас, и не воспринимать её невозможно. Традиционные туристические маршруты зачастую не охватывают и малой части того, что создано тандемом самых талантливых «архитекторов» — времени и природы. Обзор удивительных (   Читать дальше...   )Производство: США, Doclights, NDR NaturFilm, Nature Relaxation FilmsЖанр: документальный, видовойРежиссер: Роберт ХофмейрПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812A3BA1E97609708AD93AB3AE08319AADC8DE8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087581   (145131) от 28.12.2016
-
-Вечерний Ургант (2016.12.27) SATRip (cезон 10, выпуск 75)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82408E3B3BE27DF78F48D251DC3BE0BE836ED78B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492165   (145010) от 26.12.2021
-
-Стратегия и тактика – Константин Душенов, Андрей Фефелов (2016-2021) WEBRip (выпуски 1-333 из ??) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жаркое, бескомпромиссное, глубокое, насыщенное фактами, аналитикой и конструктивными предложениями обсуждение в контексте православно-патриотического мировоззрения актуальных общественно-политических событий в Российской Федерации и мире блестящими публицистами и полемистами: директором агентства аналитической информации «Русь Православная» Константином Душеновым (   Читать дальше...   )Телекомпания: Агентство аналитической информации «Русь Православная»Жанр: Ток-шоу, Документальный, Политика, НовостиПродолжительность: выпуски ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B398E6A1B20B75025BFA896D1F19D81E5F676F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589654   (145008) от 16.12.2012
-
-Полигон / Мост за час (2012) WEB-DLRip [H.264]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Построить мост через Дон длиной 500 метров за час! Эта задача кажется невыполнимой. Но только не для ведущего программы и команды из двухсот солдат. А еще на помощь "строителям" придет колонна огромных грузовиков, несущих части моста, и пара катеров.Жанр: ДокументальныйПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91118FDC6EA927F543F569351BF26AFD6B00C112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348400   (144948) от 27.12.2019
-
-Гонка против погоды / The Weather: The Race to Forecast (2018) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погода способна на поражающую воображение ярость. От неё то и дело жди бедствий в виде циклонов и проливных дождей по весне, иссушающей жары летом, ураганов осенью и снежных буранов долгими зимами. От этих бедствий и ужасающих последствий не скрыться нигде на Земле. А ввиду продолжающихся изменений климата, все эти явления становятся всё более необузданными и регулярными. (   Читать дальше...   )Производство: ZED, France Televisions, Planete +Жанр: ДокументальныйРежиссер: Stephane BegoinПеревод: Двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D80EDDB67832F0C9F483B85C1FB6CBB103D76A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

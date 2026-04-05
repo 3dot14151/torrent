@@ -1,3 +1,29 @@
+###  Публикация: 1757841   (38857) от 30.10.2024
+
+Moon Mystery (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon Mystery приглашает игроков в космическую одиссею исследований и интриг. Этот шутер от первого лица отказывается от типичных земных конфликтов и отправляет вас в неизведанные глубины космоса. Луна - это отправная точка, небесный трамплин для повествования, выходящего за рамки человеческих ограничений. Это не просто адвенчура о взрывах инопланетян. Конечно, тут (   Читать дальше...   )Тип издания: SceneРазработчик: CosmoscoutsЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA90CF2C87834186BB5D6B84A1D8E3909A90692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758004   (38761) от 31.10.2024
 
 Riot Operator (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +32,7 @@ Riot Operator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38761.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.9.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38728.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38547.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38536.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Harvest Moon: The Winds of Anthos (2023) [Multi] (1.42/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38467.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.1.88) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38465.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ The Lost Village (2024) [Multi] (1.2.8/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38457.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Political Machine 2024 (2024) [En] (1.16/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38447.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38440.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ House Builder (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38348.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38325.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38311.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Alchemist: The Potion Monger (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38293.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack LetsPlay [Game of the Year Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38232.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37962.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37958.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Techtonica (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37918.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37833.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (1.37.15252.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37811.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (build 16167669/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37753.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.0.5/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37717.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37710.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Bus Simulator 21 Next Stop (2021) [Ru/Multi] (2.34) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37707.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Dystopika (2024) [Ru/Multi] (1.1.3+504) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37697.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Dystopika, градостроитель, разработанный студие
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11AF1946F89E8720A791AEF38C4C3311E44BF57B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760137   (37490) от 12.11.2024
-
-Farming Simulator 25 (2024) [En] (1.2.1.0) Scene Rune
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра «Симулятор фермы 25» приглашает в приятную сельскую жизнь. Станете ли вы обустраивать всё в одиночку или с товарищами в совместной игре, ферма получится такой, как вам хочется. Стройте ферму у петляющих рек и исторических зерновых элеваторов в Северной Америке; в окружении прудов в Центральной Европе; или близ неонового порта, среди пышной восточноазиатской (   Читать дальше...   )Тип издания: SceneРазработчик: Giants SoftwareЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A379D5206E22099BEF47A4B17CB4F19C25F0A36
 ```
 
 https://mybot314.ru/tekegram_catalog/

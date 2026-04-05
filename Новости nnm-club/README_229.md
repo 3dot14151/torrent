@@ -1,3 +1,56 @@
+###  Публикация: 1596389   (247540) от 16.06.2023
+
+Udemy, Антон Ларичев | JavaScript с нуля - основы языка и практика для начинающих (2022) WEB-DL [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247540.jpg" />
+</div>
+
+
+###  Подробнее
+
+JavaScript является самым популярным языком программирования в мире. На нём работают все веб приложения в мире, а так же множество мобильных и desktop приложений. Вы можете создать на нём полноценное fullstack приложение с backend написанным там же на JavaScript.
+Этот курс является первой частью курсов по JavaScript, которая направлена на детальное изучение основ (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2278279A06ACD284BA360D3E3D29E019F658C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640018   (247537) от 16.06.2023
+
+Все страхи Бо / Beau Is Afraid (2023) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бо боится всего на свете и старается не выходить из дома. И правильно делает - мир полон опасностей, а улицы кишат сумасшедшими. Но однажды, несмотря на страхи, он решается на путешествие в родной город. Теперь его ждёт невообразимо странное приключение, выходящее за рамки пространства и времени.Производство: Канада, Финляндия, США, A24, Access Entertainment, IPR.VCЖанр: Ужасы, драма, комедияРежиссер: Ари АстерАктеры: Хоакин Феникс, Патти ЛюПон, Эми Райан, Натан Лэйн, Кайли Роджерс, Дени Меноше, Паркер Поузи, Зои Листер Джонс, Армен Нахапетян, Джулия АнтонеллиПеревод: Дублированный (Mосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: английские, испанскиеПродолжительность: 02:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10ED3A72BD245913C0721516BF94690E552A7B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502711   (247521) от 17.06.2023
 
 Иваново счастье (2021) WEBRip [H.264/1080p]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247521.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Microsoft® Windows® 7 Максимальная Ru x86-x64 w.BootMenu by OVGors
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247519.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247509.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247500.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247481.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247478.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_247435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_247435.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Windows 10 Professional 20H2 x64 Game OS 1.4 by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247424.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247400.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack dixen18
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247358.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ Adobe Photoshop v.24.6 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247344.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247341.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247260.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247253.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ Microsoft® Windows® 11 x64 Ru 22H2 4in1 Upd 06.2023 by OVGorskiy
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247243.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247197.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ Windows 10 22H2 Professional [19045.3086] x64 Mod 8 (03.07.2023) by bulygin-dima
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247179.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247157.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247141.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ Star Control: Origins (2018) [Ru/En] (1.62.9/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247138.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247047.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247022.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247018.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246982.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1DEC4CB856599CE55DA21F5363A77161F3AADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646315   (246970) от 15.07.2023
-
-Переустановка больше не проблема: Windows 11 теперь можно легко восстанавливать с помощью Windows Update
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переустановка ОС Windows считается универсальным лекарством от большинства программных проблем и сбоев. Однако очень немногим пользователям нравится переустанавливать Windows и восстанавливать все свои приложения, игры, файлы, настройки и многое другое. Несмотря на то, что Microsoft работает над тем, чтобы сделать резервное копирование Windows более удобным и простым, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582298   (246961) от 15.07.2023
-
-СССР. Знак качества с Иваном Охлобыстиным (2021-2023) WEBRip (выпуски 1-75 из ??) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский Союз - это не только серп и молот, первые полёты в космос, «МИР! ТРУД! МАЙ!» или гонка вооружения. Для многих это - время молодости. Лучший период в жизни каждого человека, когда мы учились любить, дружить, справляться с поражениями, не терять голову от побед и не беспокоились о завтрашнем дне… Ведущий программы «СССР. Знак качества», найденные им артефакты, (   Читать дальше...   )Производство: Россия, ООО «Студия-А» по заказу ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: документальный, телепередача, история, хроникаРежиссер: Евгений КривцовУчастники: Иван ОхлобыстинЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6777E916A1BC7E9812995CFC97E3B0AE9A9CFAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

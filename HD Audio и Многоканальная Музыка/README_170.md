@@ -1,32 +1,3 @@
-###  Публикация: 1765618   (101398) от 13.12.2024
-
-Reviver - Carnival of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Wind of Destiny (0:58)
-02. What's In Thy Command (3:54)
-03. Along the Crusade (3:57)
-04. Carnival of Chaos (4:09)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7594CF980A2C24C9CF90FFE0DD779EE41DB9D56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765635   (101397) от 13.12.2024
 
 After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
@@ -35,7 +6,7 @@ After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101397.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Blue Oyster Cult - 50th Anniversary Live - Third Night (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101396.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Violet - Mysteria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101394.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101393.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Electric Wizard - Black Magic Rituals & Perversions Vol. 1 (Live Walpurgisnacht 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101353.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World_ Troxy London MMXXIV 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101345.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Mörk Gryning - Fasornas Tid (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101336.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Stevie And The Amayumi Band - I Like Your Style (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101335.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Illusion Force - Halfana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101334.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Letdown. - Be OK (Continued) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101333.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Roberta Flack - Chapter Two (1970) 50th Anniversary Edition, Remaster, 2021, Rhi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101329.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Rival Sons - Pair of Aces, Pt. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101328.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Purple Disco Machine - Club Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101316.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Mr Mountain - Mr Mountain (Remixed & Remastered 2024) (2024) [FLAC 24/192|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101309.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Ultraboss - Slow Motion Rider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101302.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101297.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Deep South - Entering Deep (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101288.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Godless men - Awakened by the wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101287.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101286.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Effie Zilch - Multitudes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101285.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Jason Craig Wilkins - Find Me Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101284.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Johnson's Bridge - Line of Sight (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101283.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Beware Of Darkness - Lose Your Mind, Gain Your Soul (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101282.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Bayou Boogie House - Blues on Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101280.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Vexovoid - Studio Albums (2 releases) (2014-2017) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101277.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Vexovoid - трэш-метал группа из Италии, основана 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58D90C878DFF334AFF0581DC5160FA7BD6670DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766061   (101276) от 16.12.2024
+
+Nate Gross Band - A Ride With The Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen to The Rock n Roll (4:10)
+02. Ride with The Devil (4:55)
+03. Washington (3:59)
+04. Watch Yourself (4:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645045E92EF76A55652F953EC9E0A3B5EFABA64E
 ```
 
 https://mybot314.ru/tekegram_catalog/

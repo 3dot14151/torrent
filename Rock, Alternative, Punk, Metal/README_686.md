@@ -1,3 +1,32 @@
+###  Публикация: 1069837   (371188) от 05.11.2016
+
+Sir Rod Stewart - And Some Of His Early Faces (2016) 2CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond Joe
+02. Engine 4444
+03. Maggie May
+04. Stay with Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF9A9AF4607AA9816425703BD42F3EE0BB9F599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069972   (371169) от 05.11.2016
 
 Attila - Chaos (2016) [MP3|320 Kbps] <Deathcore, Rapcore, Metalcore>
@@ -6,7 +35,7 @@ Attila - Chaos (2016) [MP3|320 Kbps] <Deathcore, Rapcore, Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371169.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Band - Discography (1968..2005) [MP3|320 kbps]<Country / Roots / Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371078.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Billy Idol - Whiplash Smile (1986) [FLAC|Lossless|image + .cue] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371067.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Myrsky - Tuonelalle (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370968.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Pneuma Hagion - Demiurge (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370966.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Noussommes - Noussommes (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370964.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Nurez - Nachtlied (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370962.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Tortured Saint - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370957.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Necroplanet - Negative Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370955.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Phrenesy - Fears Apocalypse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370953.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Mordor - Prayer To... (1993) Reissue, 1996, Arctic Serenades [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370951.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Phrenesy - The Power Comes From The Beer (2014) [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370949.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Magical Colors - A Procesion das Bestas (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370948.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Arctic Octopus - Rise of the Octopus (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370947.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Mordor - Darkness... (2018) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370941.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Aaron Lewis - The Road [Deluxe Version] (2012) [MP3|320 кб/с]<Alt.Rock | Coun
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370900.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Kid Rock - Rebel Soul (2012) [MP3|320 кб/с]<Rock, Country, Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370894.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ Denny Laine With Paul McCartney And Friends - Lovers Light (2012) [FLAC (tracks+
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_370887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_370887.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ T.REX - Get It On: The Collection (2011) [APE|Lossless|image + .cue]<Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370878.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ Blackment - Plains Of Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370846.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ Kadavar - For the Dead Travel Fast (2019) [FLAC|Lossless|tracks + .cue] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370843.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ Stratovarius - Intermission (2001) 2CD, Compilation [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370829.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ Black Pearl - Black Pearl (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370699.jpg" />
 </div>
 
 
@@ -688,7 +717,7 @@ Leningrad Cowboys - Buena Vodka Social Club (2011) [MP3|192-320 kbps]<Rock'N'Rol
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370648.jpg" />
 </div>
 
 
@@ -723,7 +752,7 @@ Joe Cocker - Fire It Up (2012) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370399.jpg" />
 </div>
 
 
@@ -743,35 +772,6 @@ Joe Cocker - Fire It Up (2012) [MP3|320 кб/с]<Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA8ABCECA7F7FC99E4BECAE577F22158747F4783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254971   (370374) от 15.10.2018
-
-Evanescence - Synthesis Live (2018) Japanese Edition [FLAC|lossless|image + .cue] <Alternative Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture / Never Go Back (06:03)
-02. Lacrymosa (03:40)
-03. End of the Dream (04:58)
-04. My Heart is Broken (04:40)(   Читать дальше...   )Жанр: Alternative Metal, Gothic MetalПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AE4F522DE214F0B9FC846DB83684DEB32758E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,136 +1,3 @@
-###  Публикация: 1728499   (54040) от 07.06.2024
-
-Christine C.M. Goh, Anne Burns | Teaching Speaking (2012) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54040.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book provides theoretical and pedagogical perspectives on teaching speaking within a coherent methodological framework. Teaching Speaking A Holistic Approach brings together theoretical and pedagogical perspectives on teaching speaking within a coherent methodological framework. The framework combines understandings derived from several areas of speaking research (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEA239124294D738EFB83FEFE42AF614F6ADF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727451   (54011) от 08.06.2024
-
-ЕШКО | Программирование на Python для начинающих (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решили освоить язык Python, но не знаете, с чего начать? Тогда Вам подойдет наш курс «Программирование на Python для начинающих». Для обучения не потребуются ни специальные знания, ни техническое образование. Погружение в язык программирования «Питон» будет несложным и последовательным: от базовых основ до тонкостей разработки и оптимизации кода.
-Старт в Python, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЕШКОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E4848D4BD51FFB5BDA0D36D2242B6AF197944E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728797   (53991) от 08.06.2024
-
-В.М. Рошаль | Символы и знаки от А до Я (2018) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всех известных культурах мы находим следы всеобъемлющего знания, зашифрованного в символах: мы встречаем символы выбитыми на полуразрушенных камнях древних храмов, в ритуалах всех Посвящений, во всех Священных Писаниях, в странных эмблемах старинных алхимических книг, мы видим их запечатленными в таинственных формах сфинксов Ассирии и Египта, скрытыми в ошеломляющих (   Читать дальше...   )Жанр: Словари, энциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774351C925C8C934884BF881E3F083736E0E5CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728680   (53982) от 08.06.2024
-
-Julie Lachance | Practice Makes Perfect: Basic English. Premium Fourth Edition (2023) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everything you need to master first-year English language essentials—clear explanations, tons of practice exercises, and NEW audio to improve your speaking and listening skills
-The most effective way to learn any new language is to practice, practice, and practice some more—and no other workbooks put as much emphasis on this as the Practice Makes Perfect series. (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B55074EB223F0C25423348FD2295E98BC832B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728693   (53969) от 08.06.2024
-
-С.Н. Тихонов | Радиотехника для начинающих (1976) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена основы радиотехники. Главное внимание в ней уделено объяснению физической сущности явлений, происходящих в электрических схемах. Основные законы радиотехники излагаются в популярной форме. Математический аппарат использован в объеме средней школы.
-Иллюстрации и примеры, приведенные в книге, помогут читателям в изучении радиотехнической аппаратуры.Жанр: ЭлектроникаИздательство: Военное издательство министерства обороны Союза ССРФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73A60E1B277964D541F239BA6B9637A7B00D51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728813   (53953) от 08.06.2024
 
 Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
@@ -139,7 +6,7 @@ Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53953.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ Collins Dictionaries | English Visual Dictionary (2020) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53869.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ Oxford University | Oxford Writing Tutor (2010) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53846.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ Dorling Kindersley, Aja Raden, Smithsonian Institution (соавтор) | Gem. T
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53746.jpg" />
 </div>
 
 
@@ -248,7 +115,7 @@ Bruce Stirling | Pre-TOEFL Guide. Academic English Practice (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53740.jpg" />
 </div>
 
 
@@ -275,7 +142,7 @@ U.O. Alday | Colloquial Spanish: The Complete Course for Beginners (2010) [PDF] 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53716.jpg" />
 </div>
 
 
@@ -302,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53685.jpg" />
 </div>
 
 
@@ -329,7 +196,7 @@ Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53667.jpg" />
 </div>
 
 
@@ -357,7 +224,7 @@ Carol Fehringer | German Grammar in Context. Third edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53636.jpg" />
 </div>
 
 
@@ -384,7 +251,7 @@ Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53522.jpg" />
 </div>
 
 
@@ -413,7 +280,7 @@ Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53517.jpg" />
 </div>
 
 
@@ -441,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53515.jpg" />
 </div>
 
 
@@ -468,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53509.jpg" />
 </div>
 
 
@@ -495,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53508.jpg" />
 </div>
 
 
@@ -522,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53449.jpg" />
 </div>
 
 
@@ -548,7 +415,7 @@ Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53447.jpg" />
 </div>
 
 
@@ -577,7 +444,7 @@ Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53429.jpg" />
 </div>
 
 
@@ -604,7 +471,7 @@ Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um cu
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53425.jpg" />
 </div>
 
 
@@ -630,7 +497,7 @@ Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53344.jpg" />
 </div>
 
 
@@ -656,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53340.jpg" />
 </div>
 
 
@@ -682,7 +549,7 @@ Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53300.jpg" />
 </div>
 
 
@@ -694,6 +561,140 @@ The Bible Book explores the ideas and beliefs key to the teachings of the most w
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730336   (53231) от 15.06.2024
+
+Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to-use English phrases to help you navigate your way through social and business situations. There are phrases for talking with friends, offering opinions, collaborating with co-workers, addressing misunderstandings, and more. The book also includes common slang expressions you can use (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730355   (53196) от 15.06.2024
+
+Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth edition (2019) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53196.jpg" />
+</div>
+
+
+###  Подробнее
+
+The concise clarity of this book makes it a handy reference for anyone interested in good writing-as well as a quick and ideal guide for freshman composition courses, writing courses across the disciplines, and as a supporting text in courses that require clear and direct writing. Style: The Basics covers the elemental principles of writing that will help students (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730316   (53194) от 15.06.2024
+
+Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (2018) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comprehensive subject review for every section of the exam
+Valuable practice with complex reading comprehension passages and higher-level math problems
+7 full-length practice tests (4 in the book, 3 online) with detailed answer explanations
+Drills for each test section—Reading, Writing and Language, and Math(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Princeton ReviewФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730590   (53115) от 16.06.2024
+
+Р.А. Сапожников и др. | Основы технической кибернетики (1970) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53115.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основные положения теории информации, общие принципы построения систем автоматического управления, математический аппарат для описания непрерывных и дискретных сигналов, проблема устойчивости, надежность систем автоматического регулирования и другие вопросы технической кибернетики. По теоретическим темам приведены расчетные примеры. В книге приводятся (   Читать дальше...   )Жанр: Технические наукиИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31E50DD86868AE0BD433AD1F6D1B5396606A833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730568   (53105) от 16.06.2024
+
+Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (2021) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53105.jpg" />
+</div>
+
+
+###  Подробнее
+
+French Conversation is the go-to guide for expanding conversational fluency. Organized into 11 units, it presents realistic everyday dialogues, followed by helpful instruction on correct syntax and word usage, as well as lots of conversation-ready phrases.
+Inside... you'll learn how to Engage in dialogues that illustrate practical conversations. Expand your French (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

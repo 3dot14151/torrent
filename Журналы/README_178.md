@@ -1,3 +1,107 @@
+###  Публикация: 889117   (751903) от 16.04.2015
+
+Газета | Наша кухня №4 (230) (апрель 2015) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа каждого номера журнала — проверенные рецепты блюд с фотографиями. С помощью «Нашей кухни» можно без труда составить меню как на каждый день, так и для праздничного стола. Процесс приготовления блюд превратится в удовольствие!Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E921D127C41EA2B3221B77FE5E703D3D0D66BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 889118   (751897) от 16.04.2015
+
+Журнал | Еда на ура! №4 (2015) [DJVU]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751897.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Еда на Ура!" - это рецепты мясных и рыбных блюд, салатов и закусок, десертов и пирогов, напитков и коктейлей.Жанр: КулинарияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C2D7D999F8BD58BDD313694DEA13EE051EF45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281633   (751856) от 08.02.2019
+
+Журнал | Вопросы кибербезопасности №4 (28) (2018) [PDF] [Ru, En]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751856.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вопросы кибербезопасности» - это научный, периодический, информационно-методический журнал с базовой специализацией в области информационной безопасности. На страницах журнала печатаются статьи российских и иностранных ученых в области информационной безопасности и информационного противоборства, в первую очередь материал по кибербезопасности, безопасности приложений, (   Читать дальше...   )Жанр: КибербезопасностьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D5AB43DA1B304ED8BE166EE0A99F4D4D000EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888928   (751792) от 16.04.2015
+
+Журнал | Любимая дача №5 (май 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751792.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Любимая дача» - это популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным; полезные советы о нахождении на садовом участке и за его пределами; информация о том, как выращивать овощи и фрукты на дачном участке и что делать с урожаем. А также из журнала можно узнать, как чувствуют себя на даче артисты, художники, музыканты, (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA54CF9F0F8C3CF891E4F3812A3EB2EE6E8AB704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 888925   (751785) от 16.04.2015
 
 Журнал | Мой любимый дом №5 (май 2015) [PDF]
@@ -6,7 +110,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751785.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751782.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751778.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751528.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751355.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751353.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751211.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751078.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751076.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750836.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750551.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750349.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750290.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750286.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750264.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750263.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750262.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750211.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750204.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750203.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750187.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750181.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A7F6531677608B670A22AC2892C7B6DB2516EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019300   (750173) от 23.05.2016
-
-Журнал | Электронные компоненты и системы №1 (213) (Январь-март 2016) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежеквартальный журнал предназначен для разработчиков и производителей аппаратуры электронной и электротехнической промышленности, средств телекоммуникаций, компьютерных управляющих систем, промышленной, транспортной и бытовой электроники. На страницах журнала публикуются статьи о новых электронных компонентах и их применении, новых технологиях, даются обзоры новинок (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8F9E45AEF558ACA7BC709F8402CC329E46DD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889373   (750133) от 17.04.2015
-
-Журнал | Conde Nast Traveller [Россия] №4 (апрель 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750133.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Conde Nast Traveller" - журнал о путешествиях, своего рода практическое пособие для путешественников. Содержит массу полезной и актуальной информации для каждого, кто хочет отправиться в путешествие: материалы о ресторанах, отелях, авиакомпаниях, курортах. Главными героями и авторами журнала являются знаменитые путешественники, известные люди мирового (   Читать дальше...   )Жанр: Журнал о путешествияхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729EF55AF78B2963B17A47E8E1E86547395D4B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889370   (750131) от 17.04.2015
-
-Журнал | Мой уютный дом №5 (май 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто высоко ценит комфорт, хочет сделать свой дом красивым, находится в постоянном поиске свежих интерьерных идей и решений. Оборудование дома и квартиры, практические советы по оформлению гостиной, спальни, кухни, ванной и детской комнат. Модные тенденции в дизайне интерьера. Эксклюзивные репортажи. Мебельные новинки со всего света. Интересные и стильные функциональные решения для небольших жилых помещений. Полезные советы, как читатели собственными руками могут с максимальным эффектом и минимальными (   Читать дальше...   )Жанр: Мир строительства и дизайнаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD9C01A0B039884FFCA449DDF5D423ADCABDAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019210   (750091) от 23.05.2016
-
-Подшивка журналов | Электронные компоненты (2015) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750091.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Электронные компоненты» — журнал издается с 1995 года, и уже более 15 лет является авторитетным источником профессиональной информации для разработчиков электронной аппаратуры, технического руководства предприятий отрасли, директоров по снабжению и надежным маркетинговым партнером для производителей и дистрибьюторов электронных компонентовЖанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81C20D50ACD5A51729F36B452DDA90D1CD3E5E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

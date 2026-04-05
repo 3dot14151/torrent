@@ -6,7 +6,7 @@ Dumbo Station - Tirana Cafe (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789905.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Franco Ambrosetti Band - Lost Within You (2021) Unit Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789866.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stephanie Nakasian with The Harris Simon Trio - Show Me The Way To Get Out Of Th
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789857.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chaka Khan and Rufus - Street Player (1994) 1978, MCAD [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789504.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jimmie Noone - 1934 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789492.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ David "Fathead" Newman - Mr. Gentle, Mr. Cool: A Tribute to Duke Ellington (1994
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789469.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jamie Lancaster - Duets (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789450.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Phil Woods With Strings - The Thrill Is Gone (2003) Venus Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789376.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Marina & The Kats - Different (2021) [FLAC|Lossless|image + .cue] <Swing Jazz, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789369.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stan Getz & Laurindo Almeida - Stan Getz with Guest Artist Laurindo Almeida (196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789298.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adele - 30 (2021) Target Exclusive [FLAC|Lossless|tracks + .cue] <Pop-Jazz, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789177.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jamaaladeen Tacuma - Jukebox (1988) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789082.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Terence Blanchard - A Tale Of God's Will: A Requiem for Katrina (2007) Blue Note
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789077.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Electronic Dreams - Freedom - Live at Budapest Jazz Klub (2011) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789076.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ John Di Martino's Romantic Jazz Trio - The Sweetest Sound (2004) Venus Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788944.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eric Alexander Quartet - Blues At Midnight (2013) Venus Records [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788780.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Philippe Mall - Hydra (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788681.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ David "Fathead" Newman - Under A Woodstock Moon (1996) Kokopelli [APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788678.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Les Doigts De L'Homme - Dans Le Monde (2003) DropStudio [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788624.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Esther Phillips - Capricorn Princess (1976) Expanded Edition, SoulMusic Records,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788616.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Esther Kaiser - Songs of Courage (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788611.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dinah Shore - Private Collection (1994) Metacom [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788415.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Freddy  Johnson  And  His  Orchestra - 1933 - 1939 (1995) Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788240.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mike LeDonne - The Groover (2010) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788235.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788225.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788220.jpg" />
 </div>
 
 

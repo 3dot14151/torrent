@@ -1,137 +1,3 @@
-###  Публикация: 976755   (966754) от 20.01.2016
-
-С.К Терновой, А.Б. Абдураимов | Что нужно знать о диагностике и лечении рака молочной железы [пособие для женщин] (2010) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие поможет женщинам получить представление о современных методах обследования молочной железы (от простейших до компьютерной и магнитно-резонансной томографии), позволяющих распознать рак на ранних стадиях.
-Также читательницы смогут узнать о существующих методах лечения и об их возможных осложнениях.Жанр: МедицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE9E4A80D052A1AEA19035A690E9FCD1F7EFFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977455   (966742) от 20.01.2016
-
-Максим Коломиец | Танки в Зимней войне [1939-1940] (2001) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый вниманию читателей выпуск «Фронтовой иллюстрации» посвящен использованию танковых частей в ходе зимней войны.
-
-Эта работа написана на основе многолетней работы в архивах и изучения документов как советской, так и финской стороны.Жанр: Военная история, Военная техника и вооружениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15BFC06A96D884712BB06043957EC1BC3DB9B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976867   (966500) от 20.01.2016
-
-Эдвард Денисон (ред.) | Архитектура за 30 секунд (2013) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966500.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Архитектура за 30 секунд» – фундамент знаний об архитектуре. В этой книге любая идея, независимо от сложности, объясняется коротко и на примере одной иллюстрации; все это легко усвоить всего лишь за полминуты. Перед нашими экспертами стоит задача дать определение и описание применяемым архитекторами принципам и стилям, в которых эти принципы реализуются. Хотите (   Читать дальше...   )Жанр: АрхитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7145D7EDDD410A89F7223D625BA5D23771C45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980783   (966137) от 10.02.2020
-
-Ю. В. Ключников (ред.) | Конституции буржуазных стран [II, IV том] (1936) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предпринятое Соцэкгизом издание «Конституции буржуазных стран» вышло за первоначально намеченные рамки и разрослось до пяти томов. Первый том, вышедший осенью 1935 г., содержит, как известно, конституции великих держав и западных соседей СССР. Во II том вошли конституции всех средних и малых европейских стран; в III томе будут даны конституции государств Азии, Африки (   Читать дальше...   )Жанр: История, политология, правоведение, дипломатия, социология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129AABA1B87976F06349EC5F39F88FCA3CA9231D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359193   (966129) от 10.02.2020
-
-Бертран Рассел, Альберт Эйнштейн | Этот безумный мир. «Сумасшедший я или все вокруг меня?» [сборник] (2020) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы этой книги – всемирно известные ученые, лауреаты Нобелевской премии. Бертран Рассел – британский ученый, внесший неоценимый вклад в математическую логику, историю философии и теорию познания. Рассел считается одним из основателей английского неореализма, а также неопозитивизма.
-Альберт Эйнштейн, помимо своих выдающихся работ по физике, много писал о проблемах (   Читать дальше...   )Жанр: Философские науки, СоциологияПеревод: А. Сазыкин, Ю. Данилов, А. Чичерина, К. Федченко, В. Иванов, А. Любина, С. Суворов, А. Френк, Т. Казавчинская, Н. ЦиркунФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CBCE07139A6FE417DED3C4720C81E731A269CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359042   (966127) от 10.02.2020
 
 Стивен Хэйне | ДНК – не приговор. Удивительная связь между вами и вашими генами (2019) [FB2]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966127.jpg" />
 </div>
 
 
@@ -168,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966077.jpg" />
 </div>
 
 
@@ -194,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966064.jpg" />
 </div>
 
 
@@ -225,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966024.jpg" />
 </div>
 
 
@@ -252,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966021.jpg" />
 </div>
 
 
@@ -278,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966008.jpg" />
 </div>
 
 
@@ -306,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965966.jpg" />
 </div>
 
 
@@ -333,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965951.jpg" />
 </div>
 
 
@@ -360,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965766.jpg" />
 </div>
 
 
@@ -386,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965370.jpg" />
 </div>
 
 
@@ -412,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965113.jpg" />
 </div>
 
 
@@ -438,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965111.jpg" />
 </div>
 
 
@@ -465,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965063.jpg" />
 </div>
 
 
@@ -492,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965058.jpg" />
 </div>
 
 
@@ -518,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965055.jpg" />
 </div>
 
 
@@ -544,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965007.jpg" />
 </div>
 
 
@@ -571,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964791.jpg" />
 </div>
 
 
@@ -597,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964711.jpg" />
 </div>
 
 
@@ -623,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964710.jpg" />
 </div>
 
 
@@ -649,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964706.jpg" />
 </div>
 
 
@@ -677,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964667.jpg" />
 </div>
 
 
@@ -688,6 +554,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F80DF5BCB7173AC04D11259BFE938475404913B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977710   (964653) от 22.01.2016
+
+А. Т. Степанищев | Методика преподавания и изучения истории [2 книги] (2002) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое учебное пособие органично входит в круг учебных книг,  предназначенных для студентов педагогических вузов.
+
+Пособие содержит концептуальные составляющие обучения истории, теоретические, организационные и методические основы учебных  занятий (уроков), общие и видовые методы преподавания и изучения  истории, рекомендации по основным формам (   Читать дальше...   )Жанр: История, политология, педагогикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CF3CFE3F0A415E86D3AD2C88F7C5FE9E0A1AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977910   (964651) от 22.01.2016
+
+Максим Коломиец, Михаил Макаров | Реактивная артиллерия Красной Армии [1941-1945] (2005) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964651.jpg" />
+</div>
+
+
+###  Подробнее
+
+История создания, развития и боевого применения гвардейских минометных частей в период Великой Отечественной войны.Жанр: Военная история, Военная техника и вооружениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E640FA95B7E226C0C55C16C4F53D4E7714BC79B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977353   (964608) от 22.01.2016
+
+И. С. Шкловский | Звезды: их рождение, жизнь и смерть (1984) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена центральной проблеме астрономии - физике звезд. Заключительный этап звездной эволюции представляет особенно большой интерес, так как он имеет прямое отношение к таким интереснейшим объектам современной астрономии, как пульсары, рентгеновские звезды и черные дыры. Проблемы, связанные с этими объектами, пока далеки от решения. Поэтому автор стремился (   Читать дальше...   )Жанр: История, физика, науковедение, астрономия, естествознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC52DDC6752EF0E71692B91AA350D49C532A93D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977387   (964603) от 22.01.2016
+
+Г. В. Ф. Гегель | Эстетика (1968-1973) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964603.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Лекции по эстетике" Гегеля (тома 1-3) являют собой классический и во многих отношениях непревзойденный образец философской эстетики как философии искусства. Будучи необходимым компонентом философской системы великого диалектика и историко-философского процесса, они на протяжении длительного времени привлекали внимание широких кругов интеллигентной публики, (   Читать дальше...   )Жанр: История, философия, эстетика, искусство, музыка, поэзия, науковедение, живописьФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C4B2B4523EE8310756BFA7B96D142D2C5171A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977757   (964582) от 22.01.2016
+
+М.И. Ботов и др. | Введение в теорию радиолокационных систем (2012) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография предназначена для научных работников, преподавателей, аспирантов и магистрантов, исследующих актуальные проблемы теории и методологии радиолокационных систем и радиолокационной системотехники. Может быть полезна студентам вузов, обучающимся по укрупненным группам направлений подготовки специальностей «Электронная техника, радиотехника и связь» и «Аэронавигация». (   Читать дальше...   )Жанр: РадиолокацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC48380D532D64CED2D1F9BB0736AD2F52D07E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

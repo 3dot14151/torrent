@@ -1,3 +1,56 @@
+###  Публикация: 1527031   (737337) от 27.01.2022
+
+Дороговцев А.Я. | Математический анализ. Справочное пособие (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит краткое и вместе с тем достаточно полное по охвату материала изложение современного курса математического анализа. Она рассчитана в первую очередь на студентов университетов и технических вузов и предназначена для первоначального изучения курса. Приведено модернизированное изложение ряда разделов: функции многих переменных, кратные интегралы, интегралы (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17F08462CB2F637FC43FDDB80098111EFA42C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527033   (737325) от 27.01.2022
+
+Ефимов А.В. и др.| Математический анализ (специальные разделы) [2 книги] (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737325.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части пособия излагаются основные понятия комплексных чисел; теории функций комплексной переменной; числовые, общие функциональные и степенные ряды в комплексной области; общие ортогональные и тригонометрические ряды Фурье; теория вычетов и операционное исчисление.
+Во второй части пособия рассматриваются основы векторного анализа, вариационного исчисления, (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CDEE9A4A6FA242087B1E02151F21C22E791B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527274   (736843) от 28.01.2022
 
 Л.Д.Кудрявцев | Курс математического анализа [3 книги] (1988 - 1989) [DJVU]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736843.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734929.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732081.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731624.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731578.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731461.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730847.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730004.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729955.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726270.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725189.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724085.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723964.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723480.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722682.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722298.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721585.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721554.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721277.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721273.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720553.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720549.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720509.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720450.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE9005C78E9CFB8F3CA87CE3DB52D93E386419DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129703   (720448) от 29.04.2017
-
-С.Я. Казанцев, Н.М. Дубинина (ред.) | Информатика и математика для юристов (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматривается аппаратное и программное обеспечение современной информационной технологии применительно к юридической деятельности. Освещены современные компьютерные и информационные технологии, используемые в правоприменительной деятельности. Показаны роль и место математики в ней. Представлены необходимые для юриста понятия и методы математической логики, теории (   Читать дальше...   )Жанр: Математика, информатикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD61BC7CF2B3B7F59038211AFC4A257A33A6328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129558   (720445) от 29.04.2017
-
-А.Н. Попов и др. | Датчики технологических машин (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задачей представленного лабораторного практикума является исследование технических характеристик датчиков с целью их правильного и обоснованного применения. Помимо этого практикум знакомит  с принципами действия и конструкции датчиков, правилами встраивания их в измерительные цепи технических устройств; включает работы, направленные на получение практических навыков (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D514A7AC698AA102D1760571B607FA8903E559DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

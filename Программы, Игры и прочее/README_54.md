@@ -1,3 +1,110 @@
+###  Публикация: 1523626   (749670) от 12.01.2022
+
+MeMeteo: прогноз погоды v4.1.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749670.jpg" />
+</div>
+
+
+###  Подробнее
+
+MeMeteo - ваш метео эксперт и повседневный помощник.Тип издания: Пиратка (Full)Релиз состоялся: 1 октября 2021 г.Разработчик: MeMeteoПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C09F841F297E2835DE7777AB37B762EA541DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019130   (749611) от 23.05.2016
+
+Assassins Creed Identity 2.5.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь у вас есть возможность попробовать первую игру жанра ACTION RPG в известнейшей серии ASSASSINS CREED.
+Изучайте ЭПОХУ ИТАЛЬЯНСКОГО ВОЗРОЖДЕНИЯ, смотря на нее глазами СОЗДАННОГО ВАМИ АССАСИНА, и выполняйте десятки заданий, чтобы в итоге раскрыть невероятную тайну загадочных Воронов.
+
+**ASSASSINS CREED** одна из самых популярных серий за всю историю видеоигр. (   Читать дальше...   )Тип издания: FreeРазработчик: Ubisoft Blue ByteПоддерживаемая ОС: Android 4.1+Жанр: Action (Экшен), RPG — Role Playing Game (РПГ, Ролевая игра)Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1EEBA035CAA95D3F1022CBA1A375F111AD75CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523688   (749553) от 12.01.2022
+
+aTorrent - Torrent Downloader v3093 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749553.jpg" />
+</div>
+
+
+###  Подробнее
+
+aTorrent - торрент (битторрент)клиент. Качайте торрент файлы прямо на ваш телефон или планшет! Поддерживаются Magnet ссылки!Тип издания: Пиратка (Pro)Релиз состоялся: 20 сентября 2021 г.Разработчик: Mobilityflow TorrentsПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67AB606996C187B41ABAD2C99F0612983F393816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282064   (747948) от 10.02.2019
+
+Все правила по русскому языку v2.3 AdFree [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение включает в себя все правила по разделам: правописание и пунктуация! С удобным поиском нужного правила.Тип издания: Пиратка (удалена реклама и всякий мусор)Релиз состоялся: 10.07.2016Разработчик: Vad0k & CabjectПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBA433623B140C2225252351B28ED2D47E23F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524136   (746512) от 14.01.2022
 
 VirusTotal Mobile v2.3.9 Mod by papasha55 [Ru]
@@ -6,7 +113,7 @@ VirusTotal Mobile v2.3.9 Mod by papasha55 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746512.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746248.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Subway Surfers 1.38.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745876.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ Greenify v4.7.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744994.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744985.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ IELTS Practice Pro v4.9.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744962.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744924.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744674.jpg" />
 </div>
 
 
@@ -220,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744444.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744263.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ Video Converter Android 2 v3.2.5 Premium [En/Rus] - видео и аудио к�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743019.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ Track24.ru 1.95 (Lite Mod) [Ru/Eng]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742630.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ RepliGo PDF Reader v4.2.9 - многофункциональный вьювер 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742284.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ Lichess 5.5.0 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741613.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ NumoTrend (NUM + KinoTrend) v2.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741176.jpg" />
 </div>
 
 
@@ -402,7 +509,7 @@ KidsControl / Cемейный GPS трекер v5.2.14 [Ru/Multi] (обновл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740310.jpg" />
 </div>
 
 
@@ -428,7 +535,7 @@ Easy Poser v1.3.20 Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739437.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ USSDDualWidgetPro v1.0.31 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739040.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ nzb360 - Sonarr / Radarr / SAB / Torrents and more v15.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739032.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ GuitarTab - Tabs and chords v3.8.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738748.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737761.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ MotoScan для BMW мотоциклов v1.83 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737343.jpg" />
 </div>
 
 
@@ -573,111 +680,6 @@ MotoScan обеспечивает профессиональную диагно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51B5B6DF2507784A0F6A9DC72997CAA23882673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527263   (737292) от 27.01.2022
-
-AlfaOBD v2.2.5.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение AlfaOBD для диагностики автомобилей производства FCA: Alfa-Romeo, Fiat, Lancia, Dodge, RAM, Chrysler, Jeep. Peugeot (Boxer), Citroen (Jumper) также покрыты. Хотя программное обеспечение в первую очередь предназначено для владельцев автомобилей, оно предоставляет функции профессиональных сканеров. Доступны многие процедуры диагностики и настройки (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 9 декабря 2021 г.Разработчик: AlfaOBD SoftПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B171EF5D7701E6E9F30F455F6BFF4687D6B75FC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527240   (736885) от 28.01.2022
-
-bimmer-tool expert v3.2.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736885.jpg" />
-</div>
-
-
-###  Подробнее
-
-bimmer-tool позволяет читать и удалять коды неисправностей, восстанавливать DPF, считывать параметры двигателя и многое другое в автомобилях BMW.Тип издания: Пиратка (Paid)Релиз состоялся: 25 января 2022 г.Разработчик: bimmer-toolПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDEA0CB192425B1BCF35F03F821F4CE426D5D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398084   (736491) от 24.07.2020
-
-TorrServe v1.1.83_4/ v1.1.76_9 (клиент+сервер) [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736491.jpg" />
-</div>
-
-
-###  Подробнее
-
-TorrServe — приложение для скачивания торрентов. Программа для просмотра торрент (фильма) онлайн или скачивать другие торрент файлы как http файл. Подключение к торренту идет локально, если ваш провайдер блокирует торренты, будьте осторожны. Кэш хранится в оперативной памяти, по этому не портится внутренняя память. Программа состоит из двух частей, клиент и сервер, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.04.2020Разработчик: YouROKПоддерживаемая ОС: Android 5.0+ / Mod 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB8479A9DC095D3D97B03C0153249E43923822F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527864   (735832) от 30.01.2022
-
-KitchenTimer v4.5.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таймер в два касания, первым устанавливаете время, вторым запускаете.
-Можно быстро запустить таймеры по-умолчанию или создать множество пресетов и виджетов.Тип издания: ПираткаРелиз состоялся: 26.01.2022Разработчик: Maxim KablukaПоддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39ECB7190BF988FE1043D015350BB922400CA8DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

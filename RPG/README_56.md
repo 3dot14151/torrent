@@ -1,3 +1,55 @@
+###  Публикация: 1735006   (50860) от 06.07.2024
+
+The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атмосферное приключение парня по имени Наюта, мечтающем заниматься исследованиями родного острова. Однажды повстречав фею Ной, герой узнает жуткую правду о злодейских заговорах одной группы лиц, с которой предстоит разобраться. Отправляясь на опасную авантюру, пользователь сможет взять под управление протагониста и отряд других персонажей, желающих присоединиться (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom, PH3 GmbHЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FA3502B8D6EAB58704EFF4B8A1015F2D92D2F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735225   (50811) от 07.07.2024
+
+Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимайся на борт, салага, мы плывем навстречу приключениям по северным морям на своем верном драккаре! Выбери одного из харизматичных персонажей, найми бойцов и окунись с головой в кровавые сражения! Персонаж путешествует по большому миру, который основан на скандинавской и славянской мифологиях. Взаимодействуй с миром! Торгуй, нанимай добровольцев, продавай пленных (   Читать дальше...   )Тип издания: SceneРазработчик: SiBear GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969240A97A710B5C1CB49A03E0A93983D63FA5CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735219   (50806) от 07.07.2024
 
 Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
@@ -6,7 +58,7 @@ Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50806.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50720.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Islands of the Caliph (2023) [En] (1.2.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50709.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.1.4/dlc) Scene Tenoke [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50702.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (2.01.31.01) Scene DINOByTES
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50420.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50372.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50367.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50297.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0.2/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50286.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Clash II (2) (2022) [Multi] (497) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50208.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dark Envoy (2023) [Ru/Multi] (1.5.2.73561) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49975.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49665.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Thaumaturge (2024) [Ru/Multi] (73424/dlc) License GOG [Digital Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49477.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.52-267364) Repack Other s [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49450.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49437.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Dragon Chronicles: Black Tears (2024) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49419.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Stories from the Outbreak (2024) [En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49361.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ USC: Counterforce (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49326.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Serpent in the Staglands (2015) [En] (19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49268.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Riviera: The Promised Land (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48894.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ The Legend of Heroes: Trails through Daybreak (2023) [Multi] (1.3.5/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48728.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Dungeons of Hinterberg (2024) [Multi] (1.0.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48710.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Esports Godfather (2024) [Multi] (1.3.21) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48694.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48680.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99765897F51701D3798D277B2617D2BDA8ADD360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717911   (48679) от 27.07.2024
-
-Our Adventurer Guild (2024) [En] (1.24) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Our Adventurer Guild - ролевая игра, где вы переместитесь в фэнтезийный мир в весьма необычной роли. Возглавьте Гильдию искателей приключений и проявите себя в качестве мудрого лидера, которому под силу объединить распадающуюся на части общину или стать началом ее конца. Привлекайте отважных героев, обеспечивайте их необходимым снаряжением и сопровождайте в путешествиях, (   Читать дальше...   )Тип издания: SceneРазработчик: GreenGuyЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E670606A25DCEADDF3E5614B7BCC3F0741D8E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739272   (48663) от 27.07.2024
-
-Weko The Mask Gatherer (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Weko The Mask Gatherer - это не обычная прогулка по парку. Конечно, вы играете за Уэко, искателя приключений, склонного к необычным головным уборам, но этот 3D экшен-адвенчура бросает вас с головой в мир, полный тайн и опасностей. Забудьте о солнышке и леденцах - Уэко выполняет миссию по сбору семи могущественных Первозданных масок, и путь к ним чреват опасностями. (   Читать дальше...   )Тип издания: SceneРазработчик: SIRO GAMES SarlЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Французский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB2F735C36D560B2B8C406822D0DCDEAA4A7B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

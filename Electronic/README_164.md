@@ -1,3 +1,61 @@
+###  Публикация: 1278803   (767678) от 27.01.2019
+
+Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreamin' (Tek-House Single) (3:34)
+02. California Dreamin' (Clubhouse Single) (3:29)
+03. California Dreamin' (Tek-House Extended) (4:46)
+04. California Dreamin' (Clubhouse Extended) (5:01)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00: 21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F2FD11F3BB39B059D777D8431E51AFC5A633EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393443   (767646) от 30.06.2020
+
+VA - Balkan Connection Summer 2020 (2020) [MP3|320 Kbps] <Progressive-House, Deep-House, Melodic-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volkan Erman & Ugur Pato - Memories (Rick Pier O'Neil & Anthony G Remix) 6:58
+02. GMJ - Oranai (DJ San Remix) 7:05
+03. B Selekt - Raum (Original Mix) 9:17
+04. Mangata & Gabriel Filip - Elicit Spirit (Fabri Lopez Remix) 8:44(   Читать дальше...   )Жанр: Progressive-House, Deep-House, Melodic-HouseПродолжительность: 09:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7D174042CCF55C99DFA3A25DF28A26670C8B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 780422   (767614) от 27.01.2019
 
 Jeff Dodson (Defrag, Defragmentation) - Discography 5 Releases (2002-2015) Hymen Records [FLAC|Lossless|tracks+.cue, tracks]<Breakcore, IDM, Dubstep, Breakbeat, Experimental>
@@ -6,7 +64,7 @@ Jeff Dodson (Defrag, Defragmentation) - Discography 5 Releases (2002-2015) Hymen
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767614.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Ori Uplift & Smirro - Uplifting Only 266 (2018) [MP3|320 Kbps] <Trance,Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767401.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Unicum - Spa & Yoga Harmony (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767368.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Markus Schulz & Cosmic Gate - Global DJ Broadcast (2018) [MP3|320 Kbps] <Tr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767365.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Running Beats Vol.16 - Musik Zum Laufen (Inkl. 5 KM & 10 KM Mix) (2018) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767360.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Chill Out In Montecarlo Vol.4 (Luxury Compilation) (2017) [MP3|320 Kbps] <C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767192.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Lakeside Chill Sounds Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767144.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ TC - Atlantic Treasure (2016) [MP3|320 Kbps] <Ambient, Modern Classical>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767140.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Lovely Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767130.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Sangam - You Make Me (2019) Kudatah [FLAC|Lossless|WEB-DL|tracks] <Ambient, Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766983.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Space Odyssey. First Human In Space (2017) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766967.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Kyau & Albert - Anjunabeats Worldwide 681 (2020-06-22) [MP3|320 Kbps] <Trance, P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766952.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Powerwalk 2020 [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766945.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ V.A. - Best Of Del Mar Vol.9: Beautiful Chill Sound (2020) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766903.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Depeche Mode - LiVE SPiRiTS SOUNDTRACK (2020) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766852.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Depeche Mode - Live Spirits Soundtrack (2020) 2CD [FLAC|Lossless|tracks + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766835.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Mira Calix - Discography 21 Releases (1996-2019) Warp Records [FLAC|Lossless|tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766798.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Silent Shore Selections Top 20: Winter (2018) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766597.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Levitated Radio Top 25: Winter 2018 (Selected by Manuel Rocca) (2018) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766594.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Audub - Discography 4 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766593.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Redux Miami Selection (Mixed by Brent Rix) (2018) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766591.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Best Of Trance Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766583.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766393.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766383.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126294   (766329) от 17.04.2017
-
-VA - Recline Music: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicco (ND) - It's Over (Oxia remix) (07:50)
-02. Nicco (ND) - It's Over (Timid Boy remix) (09:22)
-03. Mirco Violi - Gil's Jazz Theory (Anonym's Ass Music mix) (07:13)
-04. Nick Detti - I Do It Good (Mic Newman remix) (07:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302A601880D2E8F3B9D6973689687F07555890D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393784   (766302) от 02.07.2020
-
-Michael E - I Had the Strangest Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Strangest Dream
-02. Lucid Dreaming (feat. Tim Gelo)
-03. Beautiful Dreamer
-04. While I Was Dreaming (feat. Ashley Slater)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5F9D28CE6D9FD9C2549F3843104C2564448819
 ```
 
 https://mybot314.ru/tekegram_catalog/

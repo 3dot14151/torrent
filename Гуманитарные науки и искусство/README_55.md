@@ -1,84 +1,3 @@
-###  Публикация: 1229598   (624354) от 07.06.2018
-
-А. Я. Вышинский и др. (ред.) | Криминалистика: учебник для слушателей правовых вузов [2 книги] (1935-1936) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник по криминалистике, подготовленный Научно-исследовательским институтом уголовной политики, является основным учебным пособием по курсу криминалистики для слушателей правовых вузов и практическим пособием для органов расследования и судебно-прокурорских работников.
-
-Учебник издается в двух книгах:
-(   Читать дальше...   )Жанр: История, политология, правоведение, криминалистика, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB745A8C7BBB35CA0105683DAF2F6800E896490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909394   (624323) от 19.06.2015
-
-К. Г. Левыкин | Памятью сердца в минувшее… (2004) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624323.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой читателю книге автор продолжает свою повесть воспоминаниями о том, как он стал москвичом, как непросто приходилось его родителям устраиваться в новой московской жизни покинув родной дом в деревне в конце двадцатых годов. Она начиналась по временной прописке в Протопоповском переулке и на Третьей Мещанской улице, в квартирах коренных московских обывателей, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226FF9F3C1BDFC4E3ACCF30C4F00D34BC2F755DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909326   (624321) от 19.06.2015
-
-М. Тугушева | Под знаком четырех (1991) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624321.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге живо и увлекательно рассказывается о судьбе произведений Э. По, А. К. Дойла, А. Кристи, Ж. Сименона. Читатель познакомится с историей создания детективов, встретится с любимыми литературными персонажами — О. Дюпеном, Шерлоком Холмсом, Пуаро, Мегрэ.Жанр: ЛитературоведениеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E537F932F041F2EA63AFBEA653337DC4CB09FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909413   (624248) от 19.06.2015
 
 С. И. Кочкуркина | Сокровища древних вепсов (1990) [PDF]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624248.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624246.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624212.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624119.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624118.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624085.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624064.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623951.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623930.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623844.jpg" />
 </div>
 
 
@@ -353,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622383.jpg" />
 </div>
 
 
@@ -380,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622234.jpg" />
 </div>
 
 
@@ -408,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622227.jpg" />
 </div>
 
 
@@ -434,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622223.jpg" />
 </div>
 
 
@@ -460,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622220.jpg" />
 </div>
 
 
@@ -486,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622219.jpg" />
 </div>
 
 
@@ -512,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622131.jpg" />
 </div>
 
 
@@ -538,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622130.jpg" />
 </div>
 
 
@@ -564,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622126.jpg" />
 </div>
 
 
@@ -590,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622119.jpg" />
 </div>
 
 
@@ -617,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622012.jpg" />
 </div>
 
 
@@ -643,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621908.jpg" />
 </div>
 
 
@@ -669,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621904.jpg" />
 </div>
 
 
@@ -682,6 +601,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3029C28013C6244D4F5526C8BCE6B14CAC3EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909618   (621667) от 20.06.2015
+
+Э. В. Ртвеладзе, Ш. Р. Пидаев | Каталог древних монет Южного Узбекистана (1981) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии дается подробное описание монет, найденных при раскопках древних поселений Сурхандарьинской области. Этот большой нумизматический материал позволяет осветить многие вопросы товарно-денежных отношений, политической истории и экономики юга Узбекистана в греко-бактрнйское и кушанское время (III в. до и. э.—IV в. н. э.). Прослеживаются экономические и культурные (   Читать дальше...   )Жанр: НумизматикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C79EE4025F20339DE92D0EB8BAE1E5376DA726D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909597   (621663) от 20.06.2015
+
+А. Ф. Медведев | Ручное метательное оружие. Лук и стрелы, самострел VIII-XIV вв. [Выпуск E1-36] (1966) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказана история возникновения и развития ручного метательного оружия древней Руси. Описано его устройство, процесс изготовления. Подробно рассмотрены многочисленные варианты наконечников.
+В работе использованы чрезвычайно ценные этнографические данные о луке и стрелах, многочисленные статьи и общие труды по истории оружия и военного искусства, а главное - археологические (   Читать дальше...   )Жанр: АрхеологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD1480C5AA4C93FDC8DE37746D4A95A7F829936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295480   (620766) от 12.04.2019
+
+В. А. Карпушин (отв. ред.) | Традиция в истории культуры (1978) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит статьи теоретического и исторического характера. В теоретических статьях рассматривается понятие «традиции», роль и место традиции в истории культуры, ее социальная обусловленность, функционирование традиции в антагонистическом обществе и в социалистической культуре; ставятся проблемы традиции и традиционности, традиции и новаторства. Большая часть (   Читать дальше...   )Жанр: История, культурология, литературоведение, искусство, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2E6852547E1086B2244D0CC52F5ACB93ADC7F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

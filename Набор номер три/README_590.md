@@ -1,3 +1,212 @@
+###  Публикация: 840870   (171098) от 25.10.2023
+
+Counter-Strike: Global Offensive (2012) [Ru/Multi] (1.38.8.1) Repack SE7EN
+
+>>3
+>>61
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Counter-Strike: Global Offensive - командный тактический шутер с видом от первого лица. Игрок принимает участие в конфликте между террористами и полицейскими. Counter-Strike: Global Offensive – призван углубить и усовершенствовать ту самую командную игровую механику «пять на пять», за которую все и полюбили Counter-Strike.Тип издания: RepackРазработчик: Valve Corporation, Hidden Path EntertainmentЖанр: MMO Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Русский и другиеЯзык интерфейса: Английский, Русский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C74B593455CC1C53A50E15AAD8130E8AE9E00F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343576   (170871) от 09.12.2019
+
+Евросоюз не разрешил использование стабильных криптовалют на своей территории
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евросоюз не разрешил использование на своей территории стабильных криптовалют (криптовалют, обеспеченных материальными ценностями). Об этом говорится в утвержденном в четверг заявлении Совета ЕС на уровне министров по экономике и финансам (ЭКОФИН)."Никакие глобальные стабильные криптовалюты не должны начать легально использоваться на территории ЕС до тех пор, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692163   (170727) от 09.12.2019
+
+Битва за Москву (1985) DVDRip [H.264] [Реставрация]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киноэпопея в двух фильмах.
+В фильме "Агрессия" показаны события, происходившие в Европе, на территории СССР накануне и в начале Второй мировой войны. Интереснейшая картина смотрится захватывающе. С первых дней войны столица СССР начала готовиться к обороне. Были эвакуированы учереждения и заводы, посольства и министерства. В Москву из Ленинграда, чтобы (   Читать дальше...   )Производство: СССР, Чехословакия, Германия (ГДР), Вьетнам / Мосфильм, Deutsche Film (DEFA), Filmové studio Barrandov, Defa, Favim VRЖанр: Военный, ДрамаРежиссер: Юрий ОзеровАктеры: Яков Трипольский, Михаил Ульянов, Александр Голобородько, Бруно Фрейндлих, Николай Засухин, Анатолий Никитин, Владимир Трошин, Степан Микоян, Вячеслав Езепов, Юозас БудрайтисПродолжительность: 4 серии - 05:38:05 (01:17:52 + 01:28:17 + 01:23:05 + 01:28:51)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A176FDBCFD13CF8BE1F3A700FE057E8ACCA8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070624   (170723) от 09.12.2019
+
+City Car Driving (2016) [Ru/Multi] (1.5.9) Repack Other s [Home Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170723.jpg" />
+</div>
+
+
+###  Подробнее
+
+City Car Driving – реалистичный симулятор вождения автомобиля, который поможет вам освоить базовые навыки управления машиной в различных дорожных условиях, с погружением в среду, максимально приближенную к реальной. "Умный" трафик, непредсказуемые пешеходы и внезапные опасные ситуации не дадут расслабиться и будут поддерживать атмосферу реальной дорожной (   Читать дальше...   )Тип издания: RepackРазработчик: Forward Development, Ltd.Жанр: Simulator (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF6F4FCDF54E1E5B26CAAF08000E00356206D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794   (170641) от 05.12.2021
+
+Tom Clancy's Splinter Cell: Double Agent (2006) [En] (1.02) License
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовьтесь спасать мир, Сэм Фишер снова в работе! Четвёртая часть знаменитой серии Tom Clancy`s Splinter CellTM предлагает Вам принципиально новый геймплей - захватывающий, насыщенный и напряженный. Сэм Фишер вернулся, но никогда ещё ветеран спецслужб не оказывался в столь сложной ситуации: лицом к лицу с опасным, умным и жестоким врагом. На этот раз агент сверхсекретного (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft Shanghai, Ubisoft Annecy и Ubisoft MilanЖанр: Action (Shooter), 3D, 1st Person, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0423A423AA0135F005E4CB24AC09C8128E2F1442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596052   (170619) от 08.12.2022
+
+Сердце пармы (2022) WEBRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский князь Михаил и юная Тиче — дети разных народов, разных миров и разных богов. Любовь молодого воителя и ведьмы-ламии кажется невозможной, но преодолевает все запреты, запуская маховик рока. Отныне только от Михаила зависит будущее родной пармы, древних суровых земель, напоенных чудодейственной мощью кровавых языческих богов. Здесь сталкиваются герои и призраки, (   Читать дальше...   )Производство: Россия, Профит, Star MediaЖанр: драма, фэнтезиРежиссер: Антон МегердичевАктеры: Александр Кузнецов, Елена Ербакова, Сергей Пускепалис, Евгений Миронов, Виталий Кищенко, Фёдор Бондарчук, Владимир Свирский, Роза Хайруллина, Елена Панова, Александр ГорбатовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95416C869CFB2FCFB62EEB5AD4E3E9F9048A36BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595682   (170614) от 08.12.2022
+
+Бесплатная лицензия Steganos VPN Online Shield Premium – безлимитный трафик на 1 год
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите бесплатную лицензию Steganos VPN Online Shield на 1 год (Premium с безлимитным трафиком) для 1 устройства. VPN-сервис для Windows, MacOS, Android и iOS защищает ваши личные данные, используя шифрование Интернет-соединения(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671441   (170606) от 26.10.2023
+
+В США открылись десятки автостоянок для тех, кто живет в авто
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170606.jpg" />
+</div>
+
+
+###  Подробнее
+
+NYT рассказывает историю женщины по имени Одет. Ей 49 лет, она получает более $72.000 в год, работая социальным работником в Департаменте социального обеспечения и здравоохранения штата Вашингтон. Но сочетание невезения, плохих долгов и плохой кредитной истории вынудило её покинуть квартиру в Белвью. Теперь она живёт в машине.Автомобиль, ее самая большая инвестиция, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519964   (170605) от 08.12.2022
 
 Microsoft Office 2021 Professional/ProPlus + Visio Standard/Pro + Project Standard/Pro 16.0.14326.20454 (x86/x64) Retail - Оригинальные образы от Microsoft [Ru]
@@ -6,7 +215,7 @@ Microsoft Office 2021 Professional/ProPlus + Visio Standard/Pro + Project Standa
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170605.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170568.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ The Lord of the Rings: Return to Moria (2023) [Ru/Multi] (1.0.0.112055) Repack O
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170554.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_170254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170254.jpg" />
 </div>
 
 
@@ -110,7 +319,7 @@ Cloudflare, Apple и Fastly объявили о создании нового п
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_170236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170236.jpg" />
 </div>
 
 
@@ -136,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_170171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170171.jpg" />
 </div>
 
 
@@ -162,7 +371,7 @@ Windows 10 Professional 20H2 x64 Game OS 1.1 by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170109.jpg" />
 </div>
 
 
@@ -189,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170100.jpg" />
 </div>
 
 
@@ -215,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170096.jpg" />
 </div>
 
 
@@ -241,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_170066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170066.jpg" />
 </div>
 
 
@@ -267,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_169842.jpg" />
 </div>
 
 
@@ -293,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169788.jpg" />
 </div>
 
 
@@ -321,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_169730.jpg" />
 </div>
 
 
@@ -347,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_169429.jpg" />
 </div>
 
 
@@ -375,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169424.jpg" />
 </div>
 
 
@@ -401,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169412.jpg" />
 </div>
 
 
@@ -427,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169406.jpg" />
 </div>
 
 
@@ -453,7 +662,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.06 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169402.jpg" />
 </div>
 
 
@@ -464,215 +673,6 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.06 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF89EC088FC856DC73AD0F2BE46A24AC6D08A6C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343867   (169398) от 11.12.2019
-
-Rolls-Royce полагается на малые ядерные реакторы для выпуска синтетического топлива
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rolls-Royce Holdings продвигает ядерные реакторы в качестве наиболее эффективного способа обеспечения производства синтетического авиационного топлива с нейтральным уровнем выбросов углерода без значительной нагрузки на глобальные электрические сети.По словам гендиректора Уоррена Иста, созданные на основе технологий, разработанных для атомных подводных лодок, малые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343341   (169291) от 11.12.2019
-
-Студент разгадал столетнюю физическую загадку
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физическую головоломку, которую ученые не могли объяснить на протяжении 100 лет разгадал студент-бакалавр из Федеральной политехнической школы Лозанны (Швейцария) Васим Дауади. Об этом пишет Neue Züricher Zeitung.Физики не могли понять, почему пузырек воздуха в вертикальной узкой трубке с жидкостью не поднимается наверх, как это происходит при открытии бутылки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344692   (169261) от 11.12.2019
-
-Nvidia DriverPack v.441.66 RePack by CUTA [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nvidia DriverPack - это единый пакет с драйверами GeForce Game Ready, для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
-Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E351FCA6753C327886544F71AD703DFCE2CB7BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344512   (169240) от 11.12.2019
-
-Adobe Photoshop 2020 21.0.2.57 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA72CEE4B52558F86320F440D0E72B71C602AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430475   (169142) от 11.12.2020
-
-Эпичный полет и взрыв прототипа Starship SpaceX
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169142.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ракета SpaceX в очередной раз взорвалась" сегодня напишут в некоторых СМИ, скромно спрятав под кат факт успешного испытания всех этапов её полета.Гигантская ракета, 9 метров в диаметре и 50 метров в высоту, смогла подняться на 12 км используя три кислород-метановых двигателя Raptor. На высоте ракетные двигатели поочередно отключились, а газовые двигатели (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408880   (169120) от 11.12.2020
-
-Wink ATV Ultimate v1.16.1 (ревизия 2.7) Mod [Ru] (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mod известного приложения Wink для TV приставок, Smart TV Android: более 500 каналов, меню слева + другие улучшения функционала и интерфейса.Тип издания: Пиратка (Mod)Релиз состоялся: 11.12.2020Разработчик: PJSC "Rostelecom"Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C777C8F107E0544D57C605567C94BB348E0437B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515366   (168889) от 07.12.2021
-
-У части российских пользователей по-прежнему не работает Tor
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_168889.jpg" />
-</div>
-
-
-###  Подробнее
-
-У части российских пользователей по-прежнему не работает Tor, в основном на мобильных операторах и в основном в Москве, но не только. При этом по данным OONI Explorer (это такая система измерения блокировок), у кучи пользователей в России Tor продолжает работать. А по статистике Tor, количество пользователей сети из России напрямую (без мостов) за неделю не изменилось.Tor (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515376   (168856) от 07.12.2021
-
-Рухнули цены на облигации «Роснано»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_168856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цены на облигации «Роснано» рухнули после возобновления торгов на МосбиржеВ Банке России объяснили приостановку торговли облигациями «Роснано» появлением информации о реструктуризации долгаВ пятницу, 19 ноября, Мосбиржа прекратила торги облигациями «Роснано» на 70 миллиардов рублей по предписанию Центробанка. В понедельник продажа бумаг возобновилась, при этом облигации (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

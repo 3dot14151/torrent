@@ -1,3 +1,55 @@
+###  Публикация: 1728005   (53901) от 09.06.2024
+
+Акулы в Париже / Sous la Seine / Under Paris (2024) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53901.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Сене появляется гигантская акула. Чтобы спасти Париж и гостей города от кровавой бани, пережившая утрату ученая вынуждена обратиться к своему трагическому прошлому.Производство: Франция / Let Me Be, Netflix FranceЖанр: ужасы, боевик, триллер, драма, спортРежиссер: Ксавье ЖансАктеры: Беренис Бежо, Нассим Льес, Анаис Парельо, Иньяки Лартиг, Леа Левиан, Жюльен Жаку, Хосе Антонио Педроса МореноПеревод: Дублированный (Videofilm Int.)Язык озвучки: Русский, французский, украинскийСубтитры: Русские (Forced, 2x Full), английские (SDH), французские (Forced, SDH), украинские (Forced, 2x Full) и др.Продолжительность: 01:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E645AEE8480AE9A9A518D5E89DE3A97F5DEE59CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728601   (53896) от 09.06.2024
+
+Япония готовится запустить первый в мире деревянный спутник LignoSat в сентябре
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киотский университет (Kyoto University) и японская лесозаготовительная компания Sumitomo Forestry совместно разработали экспериментальный спутник LignoSat, запуск которого на МКС запланирован на сентябрь этого года.LignoSat представляет собой небольшой кубсат со стороной 10 сантиметров и весом около 0,9 килограмма. Он изготовлен с использованием традиционных японских (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728884   (53880) от 09.06.2024
 
 В работе Telegram произошел глобальный сбой, спустя более часа простоя сервис заработал снова
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53880.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53695.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Doom: The Dark Ages официально анонсирована — со щи�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53606.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53600.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53590.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Microsoft остановила развёртывание катастрофич
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53489.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53486.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53386.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53174.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53076.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52968.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52861.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ CorelDRAW Graphics Suite 2024 25.1.0.269 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52751.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ MultiUSB-3.0+UEFI 24-05 x86 x64 [RU/EN] (авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52747.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52643.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52623.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52534.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Intel передаст TSMC выпуск 3-нм процессоров Intel Cor
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52529.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52434.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ SpaceX показала компактную спутниковую антенн
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52413.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52328.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52309.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/Multi] (1.190/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52172.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52151.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128075   (51877) от 27.06.2024
-
-Фарго / Fargo (2017) WEBRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий том знаменитой антологии человеческих глупостей и их бесчеловечных последствий открывается сценой в Восточном Берлине в 1988 году. За столом пустой комнаты сидит офицер «Штази», а за окном идёт снег, и жирные чёрные тени от него нарисованы так, чтобы зритель сразу провёл параллели с пеплом из концлагерей. На допрос приводят испуганного человека, который клянётся, (   Читать дальше...   )Производство: США, 26 Keys Productions, FX Productions, MGM TelevisionЖанр: триллер, драма, криминалРежиссер: Ной Хоули, Майкл Аппендаль, Джон Камерон, Дирбла УолшАктеры: Юэн Макгрегор, Кэрри Кун, Мэри Элизабет Уинстэд, Дэвид Тьюлис, Джим Гэффиган, Майкл Сталберг, Скут Макнэйри, Ши Уигхэм, Каран Сони, Фред Меламед, Томас Манн и др.Перевод: многоголосый профессиональный - NewStudioЯзык озвучки: Русский, английскийСубтитры: английскиеПродолжительность: ~01:06:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AC8B93B787E792C1EDD4804D7384C7AAFF599A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732552   (51782) от 28.06.2024
-
-Фуриоса: Хроники Безумного Макса / Furiosa: A Mad Max Saga (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51782.jpg" />
-</div>
-
-
-###  Подробнее
-
-История похищения юной воительницы Фуриосы из Зелёных Земель, в результате которого девушка попадает в руки орды байкеров под предводительством Военачальника Дементуса. Пробираясь через Пустошь, они натыкаются на Цитадель, которой управляет Бессмертный Джо, и пока два тирана борются за господство, Фуриосе предстоит пережить множество испытаний, пытаясь найти путь (   Читать дальше...   )Производство: Австралия /  Warner Bros., Kennedy Miller MitchellЖанр: фантастика, боевикРежиссер: Джордж МиллерАктеры: Крис Хемсворт, Аня Тейлор-Джой, Алила Браун, Том Бёрк, Нэйтан Джонс, Джош Хелман, Чарли Фрейзер, Лейчи Халм, Джон Ховард, Джордж ШевцовПеревод: дублированный (Movie Dubbing / Bravo Records), авторский (М.Яроцкий)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские, корейские, испанские, норвежскиеПродолжительность: 02:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB3212DA4BA9C34052DA87BA770807F9FB6B012
 ```
 
 https://mybot314.ru/tekegram_catalog/

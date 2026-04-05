@@ -1,3 +1,119 @@
+###  Публикация: 1818917   (1990) от 19.09.2025
+
+VA - Magic Deep-House, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sharkhuman - Pureza (Radio Edit) 02:37
+02. Keyklova - Party On Sunset (Extended Mix) 06:13
+03. Seumas Norv - Archeodromo (Afro Edit) 02:42
+04. Chris Le Blanc, Miss Luna & Karmaloft - The Age Of Transformation (Blue & Smallz Remix Radio Edit) 04:08(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE545BE7A2BD308436A7F2E3338D531C5E88EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818860   (1959) от 19.09.2025
+
+VA - Armin van Buuren - A State Of Trance 1243 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELYKAST & LOEK – Angels
+02. Kasablanca – Audio Machina
+03. MRPHLNDR – Love Code 101
+04. Miss Monique ft. Poppy Baskcomb – Rain(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C595DC2B04C88FA3FE65696A243D0BFD49C1ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818795   (1956) от 19.09.2025
+
+VA - Dancefloor Sessions, Vol. 04 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wgnr & Wegner - Step By Step 02:53
+02. Mbnn - Neon Skies (Extended Mix) 05:16
+03. One Man Sound & Brooke Lee - Don't Stop The Music (Extended Mix) 04:47
+04. The Man With The Oranges Eyes - Can You Feel It? (Retro Festival Mix) 03:18(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E76956000444E21C93C8F8667D9A7C5514F1417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818866   (1949) от 19.09.2025
+
+VA - Ori Uplift - Uplifting Only Episode 658 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Paul - Aurora (Intro Mix)
+02. Sergey Nevone & Simon O'Shine - Apprehension (Orchestral Uplifting Classic)
+03. Trance Classics & Esmee Bor Stotijn - Heaven Is A Place Inside
+04. Tycoos & Mike Zaloxx with Sharon Valerona - Dive Into You(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A14F71DE7168BEC2771643ECAC994AC7FB3417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819071   (1809) от 20.09.2025
 
 VA - 50 DJ Tracks Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -6,7 +122,7 @@ VA - 50 DJ Tracks Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1809.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - 100% Ibiza (The Beach Club Closings 2025) (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1792.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1777.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - 25 Years Of Anjuna Mixed by Elevven (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1423.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Deep Currents (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1282.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Uplifting Only Top 15: September 2025 (Extended Mixes) (2025) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1280.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Meute - Jubel (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_974.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - A State of Trance - Classics Top 10, Vol. 8 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_966.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Igorrr - Сollection (2006 - 2025) 8 CD [FLAC|Lossless|tracks + .cue] <IDM, Brea
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_845.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Trancendence, Vol. 04 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_779.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Summer Sunset (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_775.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Armin van Buuren - A State Of Trance 1244 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_761.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Ori Uplift - Uplifting Only Episode 659 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_742.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 3 (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_252.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Talla 2XLC pres. Trance Forever (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17.jpg" />
 </div>
 
 

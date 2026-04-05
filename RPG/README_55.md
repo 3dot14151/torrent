@@ -1,3 +1,55 @@
+###  Публикация: 1669588   (53381) от 14.06.2024
+
+Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wizard with a Gun - это кооперативная онлайн-игра в жанре «песочница» с элементами выживания. Ее действие происходит в волшебной пустыне, полной загадок и опасных существ. Путешествуйте в одиночку или с другом, собирайте ресурсы, создавайте оружие и снаряжайте своего волшебника по своему вкусу для исследования неизведанного. Тщательно продумайте дизайн оружия, пуль (   Читать дальше...   )Тип издания: SceneРазработчик: Galvanic GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C47067E765493A020D88E24E50BC49C5F3EECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730087   (53361) от 14.06.2024
+
+Potty Knight Saga (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Potty Knight Saga бросает вас с головой в сложное приключение в жанре платформера. Сами разработчики описывают ее как зверски сложную, несмотря на обманчиво милую внешность и простое управление. Подумайте о "Dark Souls и Mario" - именно в такой неумолимый мир вы попадете. Вас ожидают длинные отрезки темноты, постоянные опасности и множество возможностей (   Читать дальше...   )Тип издания: RepackРазработчик: PLAY MephistowaltzЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE57072E4BB75F1E84909956045DC8CD8C1FB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696664   (53358) от 14.06.2024
 
 SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
@@ -6,7 +58,7 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53358.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53339.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53287.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53135.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Freedom Force (2002) [En] (1.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53117.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52755.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52591.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52495.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52480.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52432.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52402.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Tower Song (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52396.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52180.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52110.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Dungeon Drafters (2023) [Ru/Multi] (1.1.1.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51880.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Russian Village Simulator / Симулятор русской деревни (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51720.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51714.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Ludus Mortis (2024) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51355.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51215.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51156.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51055.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51044.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50916.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50872.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74A7C9D2C08F2FD586FF3D633F74493811257A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735006   (50860) от 06.07.2024
-
-The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атмосферное приключение парня по имени Наюта, мечтающем заниматься исследованиями родного острова. Однажды повстречав фею Ной, герой узнает жуткую правду о злодейских заговорах одной группы лиц, с которой предстоит разобраться. Отправляясь на опасную авантюру, пользователь сможет взять под управление протагониста и отряд других персонажей, желающих присоединиться (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom, PH3 GmbHЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FA3502B8D6EAB58704EFF4B8A1015F2D92D2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735225   (50811) от 07.07.2024
-
-Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимайся на борт, салага, мы плывем навстречу приключениям по северным морям на своем верном драккаре! Выбери одного из харизматичных персонажей, найми бойцов и окунись с головой в кровавые сражения! Персонаж путешествует по большому миру, который основан на скандинавской и славянской мифологиях. Взаимодействуй с миром! Торгуй, нанимай добровольцев, продавай пленных (   Читать дальше...   )Тип издания: SceneРазработчик: SiBear GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969240A97A710B5C1CB49A03E0A93983D63FA5CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

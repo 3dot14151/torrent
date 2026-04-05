@@ -6,7 +6,7 @@ VA - Free As A Bird: Southern Fried Rock, Blues & Boogie (2012) [MP3|320 кб/с
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817951.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wild Turkey - Battle Hymn (1971) Reissue, 1991, Edsel Records [MP3|320 Kbps] <Cl
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817716.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Wild Turkey - Turkey (1972) Reissue, 1995, Edsel Records [MP3|320 Kbps] <Classic
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817710.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ April Wine - Harder.....Faster (1979) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816035.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Kelly Family - We Got Love (2017) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, S
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815047.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Coloured Balls - Ball Power (1973) Reissue, 2006, Aztec Music [MP3|320 Kbps] <Ha
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813922.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bahroma - Дом (2017) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813917.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Le Systeme Crapoutchik - Le Systeme Crapoutchik (1975) Vinyl, LP, Album [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813739.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Eric Clapton & Friends - The Breeze: An Appreciation of JJ Cale (2014) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813677.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Rolling Stones - Tattoo You (1981) 40th Anniversary, Super Deluxe Edition, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812210.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The 69 Eyes - Universal Monsters (2016) [MP3|320 кб/с] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809785.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Rock Hearts Collection (2011) 4CD, Box Set [MP3|320 кб/с]<Rock ballads>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809754.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Crack The Sky - Animal Notes / Safety In Numbers (1976-1977) Reissue, 1989, Life
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808401.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Amy Lee - Recover, Vol. 1 (2016) EP [MP3|320 Kbps] <Rock, Synth-Pop, Electronic>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808395.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Black Rebel Motorcycle Club - Wrong Creatures (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808299.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Joe Satriani - What Happens Next (2018) [MP3|320 Kbps] <Instrumental Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807861.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Electric Light Orchestra - Flashback (box set compilation) (2000) [MP3|320 kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807004.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Galahad Electric Company - Soul Therapy (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806523.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Little Gerard L'Her (ex. Rockets) - A Perfect World (2008) CD [MP3|320 Kbps] <El
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806511.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Unreverse - Atomic Race (2011) [MP3|320 Kbps] <Electronic, Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806398.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Rockets LBM Project - Universe One (2019) CD [MP3|320 Kbps] <Electronic, Space R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806388.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Taurus 5 - Taurus 5 (1980) LP [MP3|320 Kbps] <Hard Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806352.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805851.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Rock And Roll Music! The Songs Of Chuck Berry (2017) [MP3|320 Kbps] <Rock-n
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805377.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - The Best Air Guitar  Vol.1-3+The Best Of The Best Air Guitar (2001-2005) [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805046.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Awesome 80's Volumes One, Two & Three (2004) 3CD, Compilation [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804413.jpg" />
 </div>
 
 

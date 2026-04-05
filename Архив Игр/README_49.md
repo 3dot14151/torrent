@@ -1,3 +1,57 @@
+###  Публикация: 549001   (462003) от 20.09.2012
+
+F1 2012 [En] (P) 2012 | FAIRLIGHT
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462003.jpg" />
+</div>
+
+
+###  Подробнее
+
+F1 2012 — это новая часть всемирно известной серии гоночных симуляторов. В этой игре каждый игрок сможет почувствовать себя настоящим гонщиком Formula 1. Вам предстоит не только участвовать в гонках, но и давать интервью репортерам, совершенствовать свой болид, налаживать отношения со своей командой и делать все, чтобы стать гонщиком номер один!
+В режиме чемпионов вас встретят настоящие гонщики — Кими Райкконен, Льюис Хэмилтон, Дженсон Баттон, Фернандо Алонсо, Себастьян Феттель и Михаэль Шумахер. Обойдя каждого в напряженной схватке, вы сможете доказать свое превосходство и стать обладателем титула чемпиона.
+В игре присутствуют все официальные команды, гонщики и трассы из чемпионата Formula 1 2012-го года.(   Читать дальше...   )Тип издания: ПираткаЖанр: Racing / Simulator / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D59AC8504D9CBD9D90997D7FE309243232408C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548947   (461883) от 20.09.2012
+
+Pro Evolution Soccer 2013 [Ru/Multi6] (L) (2012) | SKIDROW
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Evolution Soccer 2013 – продолжение знаменитой серии симуляторов футбола от японской компании Konami. Игра предложит полную свободу контроля над мячом, полностью ручные пассы и удары, пониженную скорость дриблинга, больше контроля над вратарями, а также улучшенный искусственные интеллект.(   Читать дальше...   )Тип издания: ЛиценияЖанр: Sport (Soccer) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Шведский, Голландский, Турецкий, Арабский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69AFAAA4FBA6FFC099EEC1F4A6EA0599545DFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549157   (461741) от 20.09.2012
 
 Pro Evolution Soccer 2013 [Ru/En] (RePack/1.0) 2012 | Audioslave
@@ -6,7 +60,7 @@ Pro Evolution Soccer 2013 [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461741.jpg" />
 </div>
 
 
@@ -36,7 +90,7 @@ Torchlight II [En] (L) 2012 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461658.jpg" />
 </div>
 
 
@@ -64,7 +118,7 @@ F1 2012 [Ru] (Repack/1.0) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460154.jpg" />
 </div>
 
 
@@ -92,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459721.jpg" />
 </div>
 
 
@@ -118,7 +172,7 @@ Dead Rising 2 [En/Ru] (RePack) 2010 | LoL2xD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459720.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ F1 2012 [Ru] (Lossless RePack/1.0) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459509.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ Torchlight 2 [En] (RePack/1.9.5.1) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459508.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ Party Hard (2015) [En] (1.0/upd2) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459454.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ F1 2012 [Ru] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459420.jpg" />
 </div>
 
 
@@ -254,7 +308,7 @@ Torchlight II/2 [En] (P) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459417.jpg" />
 </div>
 
 
@@ -282,7 +336,7 @@ Torchlight 2/II [En] (RePack/1.9.5.1) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459338.jpg" />
 </div>
 
 
@@ -310,7 +364,7 @@ Rocket League (2015) [Ru/Multi] (1.24/dlc) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459288.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ Them & Us (2018) [En] (1.0.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458829.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ Tony Hawk's Pro Skater HD [En] (Repack/1.0.8788.0) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458124.jpg" />
 </div>
 
 
@@ -392,7 +446,7 @@ Xotic (L) [En] 2011 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457717.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ Brave: The Video Game [Ru] (RePack/1.0.0.3) 2012 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457274.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ Borderlands 2 [Muilti6/-] (RePack) 2012 | Dumu4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457258.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ Starpoint Gemini 2 (2014) [Ru/En] (1.8000/dlc) Repack alexalsp
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457187.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457095.jpg" />
 </div>
 
 
@@ -522,7 +576,7 @@ RimWorld (2014) [Ru/Multi] (Alpha 0.12.914) Repack NIK220V
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457078.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ Pro Evolution Soccer 2013 [Ru/En/Multi6] (Lossless RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457033.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456960.jpg" />
 </div>
 
 
@@ -604,7 +658,7 @@ Street Fighter x Tekken [PS3] [PAL] [RUS] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456870.jpg" />
 </div>
 
 
@@ -632,7 +686,7 @@ Takt of Magic [Wii] [NTSC-J] [JPN] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455524.jpg" />
 </div>
 
 
@@ -644,62 +698,6 @@ Takt of Magic  это красочная игра, которая сочетае
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DAF31117EEBDD30398425361DE766989B941777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550836   (455068) от 23.09.2012
-
-Tony Hawk's Pro Skater HD [En] (Repack/1.0) 2012 | R.G. Element Arts
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы наверняка слышали это имя - Tony Hawk's. Да, это тот самый парень, который 43 года крутит indie 900 и является живой легендой в мире скейтбординга. Вы должны также знать, что симуляторы под маркой Tony Hawk's является одной из самых продаваемых в мире. Pro Skater HD это реинкарнация сразу двух первых частей. Лучшие уровни, лучшие трюки, лучшая музыка и новая доработанная HD обертка. Игра открывает традиционно для Microsoft акцию - Лето аркад. Кто знаком с оригиналом, мгновенно признает старую добрую классику, достаточно прокатиться на знаменитом уровне "Ангар", где ценится Grind, разбивание стекол и прыжки. Вызывают ностальгию и разбросанные буквы из которых можно составить слово Skate, а отсутствие некоторых современных приемчиков вроде Revert, который появился в третьей части воспринимается с улыбкой. Здесь и без этого полно фана.
-
-Акцент как и раньше, сделан на двухминутные заезды и выполнения небольших заданий. Например просят собрать слово Skate или найти спрятанные DVD, а в предыдущих частях игры необходимо было искать кассеты. Само собой есть испытания на очки, баллы даются за непрерывное комбо и за всевозможные трюки.
-
-Крутые финты вам придется приобретать в специальном магазине, там же улучшаются характеристики скейтеров. В качестве валюты - доллары. Их можно заработать выполнив карьерные задания. Кроме карьеры, есть свободное катание без ограничения времени, а также мультиплеер.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Sport (Extreme sports) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AC905AEA5B0D166F60FBF3DBD84692A82609EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942218   (454996) от 30.09.2015
-
-Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [En] (1.0) License CODEX
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет Героев VII повествует о кровавой войне, которая привела к смене правящей династии Священной Империи. После смерти императрицы страна полыхает в пламени раздора: многочисленные противники сражаются за трон. В это время герцог Иван созывает шесть доверенных советников. Этот совет призван помочь ему выбрать правильный путь, чтобы положить конец войне за престолонаследие. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Limbic EntertainmentЖанр: Strategy (Turn-based) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32041947B7A7B2B4484E8490A5BBF18ADC923C48
 ```
 
 https://mybot314.ru/tekegram_catalog/

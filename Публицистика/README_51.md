@@ -1,3 +1,29 @@
+###  Публикация: 1320197   (470671) от 18.08.2019
+
+Юрий Мухин | И снова Путин. Кому и зачем он нужен (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга популярного публициста и писателя Юрия Мухина посвящена оценке деятельности Владимира Путина за первый год очередного президентского срока. Автор, как он сам пишет, собрал в этой книге никем не оспариваемые публичные сведения, однако в том, что видят все, он замечает то, что не видит никто. Неожиданные открытия Ю. Мухина позволяют по-новому оценить расклад (   Читать дальше...   )Жанр: Политология, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DD8AE88DFAB35BFC7B0A86B2430372BAB60332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245623   (469889) от 07.09.2018
 
 Сергей Медведев | Парк Крымского периода. Хроники третьего срока (2017) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469889.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469675.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469590.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469030.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467579.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467571.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467453.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467110.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466732.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466148.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465264.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464614.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464610.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464130.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463316.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462869.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462402.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462394.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462170.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462030.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461486.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461314.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461177.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461041.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459758.jpg" />
 </div>
 
 
@@ -652,33 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:922E48A83D0E6DD2335DC75DFB2A139D37F5706A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246438   (458970) от 12.09.2018
-
-Книжная серия | Игры мировых элит [12 книг] (2014-2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Игры мировых элит- это сборник книг, затрагивающих самые различные аспекты мировой борьбы за власть, информацию и ресурсы.
-Почему для англосаксов Россия всегда была и останется врагом № 1? И самое интересное для современного читателя: каким будет мир в двадцать первом веке? Академик Фурсов утверждает: это будет мир борьбы – той борьбы, которая начинается сегодня (   Читать дальше...   )Жанр: Политика; ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACBBC4997BABD934FE3E416F8C3FB0448C35B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

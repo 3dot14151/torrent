@@ -1,3 +1,30 @@
+###  Публикация: 1502029   (831910) от 12.10.2021
+
+DirEqual 3.8.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831910.jpg" />
+</div>
+
+
+###  Подробнее
+
+DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
+Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2021Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A53171F7D545C5EDF1E90BA7C25C0A43983388D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006010   (830281) от 10.04.2016
 
 Disk Drill Entreprise 2.4.441 [Multi/Ru]
@@ -6,7 +33,7 @@ Disk Drill Entreprise 2.4.441 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830281.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Sharks 3D 2.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829887.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ FireStream 1.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827962.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ USB Network Gate 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826532.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ Roadblock - Content Blocker 1.8.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825266.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ oneSafe 2.1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824650.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ Stellar Phoenix Mac Data Recovery 7.1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824624.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ Memory Cleaner 5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824225.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ App Uninstaller 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823129.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ Mirror for Panasonic TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822898.jpg" />
 </div>
 
 
@@ -282,7 +309,7 @@ Bartender 3 v3.1.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822649.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ iCollections 7 v7.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821516.jpg" />
 </div>
 
 
@@ -335,7 +362,7 @@ PhoneRescue 2.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819647.jpg" />
 </div>
 
 
@@ -361,7 +388,7 @@ Typinator 8 v8.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819599.jpg" />
 </div>
 
 
@@ -390,7 +417,7 @@ Accenssible 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819254.jpg" />
 </div>
 
 
@@ -419,7 +446,7 @@ SMART Utility 3.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818989.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ Clear Day - (Formerly Weather HD) 3.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818928.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ Pimp Your Screen / Экран На Прокачку 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815495.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ Hardware Monitor 5.54 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815418.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ Awaken 6.4.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814197.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Acronis True Image 2016 (2.0.6077) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812957.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ Paragon NTFS for Mac OS X 8.0 [Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812488.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ EtreCheckPro 6.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812361.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ Memory Cleaner - Freeup space 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812280.jpg" />
 </div>
 
 
@@ -669,7 +696,7 @@ NetWorker - Advanced Network Information App 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810129.jpg" />
 </div>
 
 
@@ -682,33 +709,6 @@ NetWorker отображает сетевую информацию в строк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8CA868DAD2394DE4AC8195C43E476CB80F80B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009486   (809773) от 21.04.2016
-
-Gemini 1.5.17 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не заставят себя долго ждать. По окончании работы кольцо радостно позеленеет и появится предложение перейти к результатам сканиования.
-Gemini распределяет данные по типам, например (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 апреля 2016Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E4D40D7803EC451E25BCA6CF543B6DEF7E9938
 ```
 
 https://mybot314.ru/tekegram_catalog/

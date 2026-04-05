@@ -1,3 +1,56 @@
+###  Публикация: 1061941   (445703) от 11.10.2016
+
+Bandicam 3.2.5.1125 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B929ED985435C1EC999C8C510C32455464417AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061690   (445695) от 11.10.2016
+
+Стартрек: Бесконечность / Star Trek Beyond (2016) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445695.jpg" />
+</div>
+
+
+###  Подробнее
+
+События развиваются спустя 2 года после начала пятилетней миссии.
+Экипаж звездного корабля «Энтерпрайз», во главе с капитаном Джеймсом Т. Кирком, были атакованы могущественной и опасной волной неизвестных пришельцев, которые уничтожают корабль, оставляя их без всего на новой неизведанной планете, где они оказываются в конфликте с новым безжалостным врагом.Производство: США, Bad Robot, Paramount Pictures, Perfect Storm Entertainment, Skydance Productions, Sneaky SharkЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джастин ЛинАктеры: Крис Пайн, Идрис Эльба, Соэ Салданья, Карл Урбан, Закари Куинто, Саймон Пегг, Антон Ельчин, Джон Чо, София Баутелла, Джозеф Гэтт, Джо ТаслимПеревод: Дублированный (Чистый звук)Язык субтитров: Русский (Forced), Английский (Forced, Full)Продолжительность: 02:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEB361BDCF26066E07176431FF7AD89BD0C1AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061261   (445692) от 11.10.2016
 
 Отряд самоубийц / Suicide Squad (2016) HDTV [H.264/1080p] [VO]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445692.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ NieR: Automata (2017) [Ru/Multi] (1.0.1787043/dlc) Repack R.G. Catalyst [Day One
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445634.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445524.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445307.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (09.2020) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444480.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444476.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444008.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444004.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443964.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Mikrotik RouterOS v5.5 Level 6 для VMware Workstation, ESX, ESXi [x86]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443880.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ RAGE 2 (2019) [Ru/Multi] (1.06u2/dlc) Repack R.G. Механики [Deluxe Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443709.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ The Dark Pictures Anthology: Man of Medan (2019) [Ru/Multi] (1.0) License HOODLU
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443704.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ USA VPN v1.5.0 Premium + Mod [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443655.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443635.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ WinPE 8.0 Sergei Strelec (x86/x64/Native x86) 2016.10.11 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443457.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ Media Player Classic - BE v1.0.3.1 (32bit/64bit) Final [Multi/Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443161.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443037.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442807.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442198.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ BELOFF 2022.08 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442090.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ Adobe Photoshop Lightroom 6.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441812.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ Overlord | Повелитель [2015, TV, 13 + 8 sp] HDTV 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441806.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441801.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ Acronis True Image 2016 19.0.5634 + Universal Restore + Media Add-ons [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441800.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ Acronis True Image — это интегрированный пакет прог
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A807CEAEA6FD01B2218B895AE5B9E0F20D51E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931005   (441796) от 06.10.2015
-
-Бойтесь ходячих мертвецов / Fear the Walking Dead (2015) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) (AMC)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия сериала происходят параллельно с событиями зомби-апокалипсиса, показанными в сериале «Ходячие мертвецы», но в совершенно другом месте — Лос-Анджелесе. Акцент будет сделан на семейные отношения, в частности, проблемы отцов и детей. История вращается вокруг Шона — разведённого школьного учителя и Нэнси руководительницы женского совета. А так же детей Нэнси: (   Читать дальше...   )Производство: СШАЖанр: ужасы, драмаРежиссер: Адам Дэвидсон, Кари Скогланд, Стефан ШварцАктеры: Клифф Кёртис, Ким Диккенс, Алисия Дебнем-Кери, Фрэнк Диллэйн, Рубен Бладес, Мерседес Масон, Колман Доминго, Лоренцо Джеймс Хенри, Элизабет Родригес, Тони Френч и др.Перевод: Многоголосый закадровый, профессиональный - AMCЯзык субтитров: АнглийскийФормат: MKVПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EFA373DA71E21A5119E6E8AD0AAA2E3BCBD0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916901   (441795) от 06.10.2015
-
-Overlord / Повелитель [2015, TV, 13 ep + 8 SP] HDTV 720p Raw+Rus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бежать из тягостной повседневности, покорить дивный новый мир, стать неуязвимым и бессмертным суперменом – такова мечта пресловутого «офисного планктона». Типичный его представитель, сражавшийся в недалеком будущем в виртуальную РПГ «Иггдрасиль» под ником Момонга, не захотел покидать закрывающуюся игру. Зачем же уходить из обжитой иллюзии, если можно даром получить (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Ито НаоюкиСубтитры: ASS, Встроенные, Полные | Надписи «nnm-club^anime»Формат: MKVПродолжительность: 13 эпизодов и 8 спэшлов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FC0C769580D24A4A1CD2E60FD47132A5EB0E13
 ```
 
 https://mybot314.ru/tekegram_catalog/

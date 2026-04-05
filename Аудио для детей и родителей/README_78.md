@@ -1,3 +1,29 @@
+###  Публикация: 1427258   (184422) от 27.11.2020
+
+Екатерина Вильмонт | Даша и Ko. Секрет драгоценного мусора. Книга 11 (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две симпатичные девчонки – Даша и Оля, а с ними трое парней – Стас, Кирилл и Петька. Шикарная компания для проведения расследования! А дело предстоит нешуточное. Однажды среди хлама и отходов Кирилл обнаружил старинный костяной веер, украшенный драгоценными камнями. Подозрительные люди, которые то и дело появлялись возле мусоропровода, уже давно привлекали внимание (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650B7A816C5724CA0A2BED957BA8DEBF1258EC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427051   (184122) от 27.11.2020
 
 Кукутики - КОЗЯВКИ (2020) [MP3|320 Kbps] <Детские песни>
@@ -6,7 +32,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184122.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ VA - Союз Детский (2013) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183853.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183846.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183477.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183465.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183430.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182933.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182783.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182575.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182480.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182416.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182381.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182196.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ VA - Музыка для оформления детских празднико�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181748.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181407.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181339.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ Karunesh - Baby Massage (2012) [MP3|320 кб/с]<New age, Relax>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181254.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180866.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180848.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180675.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180600.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180590.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179956.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ VA - Союз Детский 2 (2015) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179697.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179439.jpg" />
 </div>
 
 
@@ -673,33 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B5AC1AF4120F54511136EB44A51CF4191A7011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428731   (179431) от 03.12.2020
-
-Джонатан Оксье | Питер Нимбл и волшебные глаза (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастическая история о благородстве и волшебстве, невероятный мир, где переплелись древняя магия и наука, – все это роман «Питер Нимбл и волшебные глаза»!
-Эта история началась на берегах дальних морей в маленьком портовом городке. Море хранит много тайн и несет их к своим берегам – так в городок приплыла корзина, в которой лежал слепой младенец. Мальчик не знал (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 11:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F56B45C656F12CBE05C313ED51BCA139B2678B
 ```
 
 https://mybot314.ru/tekegram_catalog/

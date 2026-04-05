@@ -6,7 +6,7 @@ Jivko Petrov Trio (JP3) - Between The Worlds (2015) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273766.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Midnight Radio - NOIR JAZZ vol. 2 (2019) Signora Ward Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273689.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Iiro Rantala & Ulf Wakenius - Good Stuff (2017) ACT Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273683.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Herbie Hancock Trio - Live in New York (1994) Jazz Door [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273682.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ella Fitzgerald - The Verve Recordings 1956 - 1959 (2014) 3CD, Not Now Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273668.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Vince Guaraldi Trio - A Charlie Brown Christmas (1965) 2003, Fantasy [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273591.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cannonball Adderley - The Complete Albums Collection 1958-1960 (2016) 4CD, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273054.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ D.E.W. East - Introducing D.E.W. East (1999) [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272712.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Steve Grossman - Katonah (1989) [FLAC|Lossless|tracks + .cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272710.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Charlie Watts Meets The Danish Radio Big Band (2017) Impulse! [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272703.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272702.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ J.J. Johnson - J.J.'s Broadway (1963) Remaster, 2016, Universal[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272667.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sonny Stitt and Bennie Green - My Main Man (1964) Remaster, 2004, Universal[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272664.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Wes Montgomery & Clark Terry - Straight, No Chaser (1965) 1992, Jazz Door[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272650.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Adam Makowicz Trio - The Music of Jerome Kern (1993) Concord[APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272649.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Wes Montgomery - Full House (1962) 1992, Riverside[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272648.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Nina Simone - A Very Rare Evening (2013) [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272641.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Count Basie Orchestra - A Very Swingin' Basie Christmas! (2015) Concord Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272603.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Matthias Lupri Group - Same Time Twice (2000) 2002, Summit Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272535.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Matt Bianco (Mark Reilly) meets New Cool Collective - The Things You Love (2016)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272481.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Donald Byrd & Pepper Adams Quintet - Out of This World: The Complete Warwick Ses
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272431.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Frank Sinatra - The Sinatra Christmas Album (1987) Capitol[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272390.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Chick Corea & Gary Burton - Hot House (2012) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272376.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sir Roland Hanna - Colors From A Giant's Kit (2011) IPO Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272110.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ben Webster - Live At The Haarlemse Jazzclub (1972) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271531.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Cannonball Adderley with Milt Jackson - Things Are Getting Better (1958) 1993, R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271528.jpg" />
 </div>
 
 

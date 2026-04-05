@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985721.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985686.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985476.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Зимний марафон № 217: Новогодний Хит Парад
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985469.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985465.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985399.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ System Of A Down - Rock in Rio [1080p] (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985283.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_984637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_984637.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_984636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_984636.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984633.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984597.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984551.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Michael Flatley Riverdance Live From New York (1998) DVDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984507.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_984502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_984502.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984497.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984470.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stromae - Racine Carree Live (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984280.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ DJ Smash & Семён Слепаков/Откат (2013).HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983877.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983443.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983439.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982450.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982331.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Scorpions. Концерт "Get Your Sting & Blackout - Live In 3D" ( + доку�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982318.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982201.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA - Millenium Sexy - Сборник популярных видеоклипов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982166.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982158.jpg" />
 </div>
 
 

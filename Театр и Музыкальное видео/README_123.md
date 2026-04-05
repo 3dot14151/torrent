@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152776.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Зимний марафон № 214: Дискотека Уходящего 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152540.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152256.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Top Of The Pops 70s (vol.3) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152049.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151383.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151199.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150894.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150361.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149205.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149185.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149098.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148897.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148835.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148699.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148527.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148345.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Download Festival 2012 (Part1) (2012) HDTVRip [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148165.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148031.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148001.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147959.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147953.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147922.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147663.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147359.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147202.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146933.jpg" />
 </div>
 
 

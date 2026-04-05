@@ -1,3 +1,107 @@
+###  Публикация: 1367971   (914052) от 17.03.2020
+
+Журнал | Elle [France] №11 (март 2020) [PDF][Fr]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle — французскийЖанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5534C82A323255C8FE667BE2F2A7C17661661A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097412   (913659) от 27.01.2017
+
+Журнал | Сам [Россия] №2 (февраль 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Сам себе мастер» - уникальная энциклопедия творчества, умений и мастерства, одна из его главных задач - распространение технических знаний и умений среди населения, развитие технического творчества в домашних условиях и приобретение навыков решать проблемы по строительству, обустройству и ремонту всего, что находится в домашнем хозяйстве, своими силами и (   Читать дальше...   )Жанр: Строительство и ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D2B9D15729C4272ED0DD7E2265B7AFA71DA587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097583   (913606) от 27.01.2017
+
+Журнал | Игромания №2 (233) (февраль 2017) [PDF]
+
+>>Журналы
+>>Игровые журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913606.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Игромания» — российский компьютерно-игровой, ежемесячный журнал, распространяющийся главным образом в России и странах СНГ. В основу создания «Игромании» поставлена доступность и понятность описываемой информации, с тем, чтобы тексты мог понять самый широкий круг читателей.Жанр: Игровой журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F1CC16F708AB91A855A65140BE2D6B52137A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097514   (913590) от 27.01.2017
+
+Журнал | WOOD-Мастер №1 (55) (январь-февраль 2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913590.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Wood Мастер» - журнал, ориентированный на людей, для которых работа по дереву стала любимым увлечением: профессиональных мебельщиков, дачников, домашних мастеров, желающих создать в доме уют и заполнить свой досуг увлекательнейшим хобби.Жанр: Домашнему мастеруФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A1C1FC9102B7AFDE704D255660013F9F0D7A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990018   (913517) от 24.02.2016
 
 Подшивка журналов | Вестник электроники (2015) [PDF]
@@ -6,7 +110,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913517.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913105.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913070.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913045.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912866.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912665.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912577.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912561.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912509.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912507.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912502.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912501.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912496.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912494.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912488.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_912465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_912465.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912401.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912386.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912370.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912365.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912356.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912350.jpg" />
 </div>
 
 
@@ -567,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFA1D843275B6C2E7A7F5F4186BE12BC26EA6DB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097964   (912341) от 28.01.2017
-
-Журнал | Машины и Механизмы №1 (136) (январь 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912341.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Машины и Механизмы" - издание для всех, кто интересуется устройством современного мира. Журнал не ограничивается обзорами передовых технологий и последних изобретений. В сферу интересов «ММ» входят вопросы развития общества, новейшие социальные и даже геополитические тенденции. «ММ» отличается от прочих профильных изданий глубиной подачи материала, так (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4648E15CF958FDE1ED258DFBDDA1371E70ECDEE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098073   (912322) от 28.01.2017
-
-Журнал | Библиотека журнала Моя любимая дача №9 (2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виноград не только вкусная и красивая ягода, но и прекрасный источник здоровья и жизненных сил.
-Полезные свойства винограда оказывают лечебное воздействие на организм человека.Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB510A73BAE8878D449CB96B48CE62CF15EE356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367751   (912277) от 18.03.2020
-
-Журнал | Allers Trädgård №4 (апрель 2020) [PDF] [Se]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практичный садовый журнал с вдохновением, советами экспертов и новостями.Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8FCDDF023AA0B530E6810C4E8CEF76AC55BC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367774   (912276) от 18.03.2020
-
-Журнал | Bike España №2 (февраль 2020) [PDF] [Es]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся информация о горном велосипеде, тесты материалов, инструкция по эксплуатации, маршруты.Жанр: ВелотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32DCDB2A21865CD62CEC4A43B0BC1D2D9B9981AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

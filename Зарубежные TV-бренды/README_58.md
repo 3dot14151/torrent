@@ -6,7 +6,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTV [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615855.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Самые опасные животные Африки: Ботсвана /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614928.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ History Channel. Бойцовский клуб Юрского периода / J
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614919.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614916.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ History Channel. Бойцовский клуб Юрского периода / J
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614829.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NG: Суперсооружения: Мегазаводы. Бакарди / MegaS
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614733.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Discovery: Выжить любой ценой [сезон 1] / Ultimate Survival
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614492.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Animal Planet: Земля динозавров (Юрский период) / Whe
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614321.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTV 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614152.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613841.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ BBC. Как устроена Земля / Earth Machine (Der rastlose Planet) (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613309.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Animal Planet. Человек и львы (История одного сафа�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613301.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613064.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Discovery. Гаражное золото / Garage Gold (2013) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612511.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612432.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612354.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ BBC. История Жизни / Life Story (1-6 серии из 6)  (2014) BDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612350.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Discovery: Скрытое - Самые страшные темницы / Hidden 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611427.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ History Channel: Военная машина Гитлера / Hilter's War Machi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610939.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ NG: Секретные материалы древности: Загадка М�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610862.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest A
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610837.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ History Channel: Вселенная. Глубокая заморозка / The U
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610829.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610681.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ BBC. В краю муссонов: Потоп / Wonders of the Monsoon: Deluge (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610563.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610436.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610433.jpg" />
 </div>
 
 

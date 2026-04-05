@@ -1,3 +1,57 @@
+###  Публикация: 1303300   (573024) от 21.05.2019
+
+Елизавета Водовозова | Из русской жизни и природы [2 книги] (1871-1872) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ознакомление с природой. Занимательное естествознание. Занимательное природоведение.
+
+Рассказы для детей младшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B64B321E370305EECBFE0CC6804C0ECD5AD5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043426   (572996) от 16.08.2016
+
+В. Львович | Когда бессильны пушки (1930) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, посвященная событиям, связанным с так называемым Рурским конфликтом 1922-1923 гг., в ходе которого произошла оккупация Рурской области Германии, продолжавшаяся до 1925 г. Для лучшего понимания обстановки, в которой происходили описываемые события, в книгу добавлена вступительная статья «Рурский конфликт и оккупация Рурской области 1922-1925 гг.", написанная (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433B000F0DEDA90512B7F2F40A6EF94CBE143BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303547   (572889) от 21.05.2019
 
 Михаил Меморский | Краткая священная история, церкви Ветхого и Нового Заветов (1838) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572889.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572872.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572792.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572677.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572573.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572515.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572344.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572206.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572004.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571793.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571753.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571751.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571747.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571740.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571597.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571337.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571172.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570361.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570330.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570038.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570006.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569937.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569924.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569875.jpg" />
 </div>
 
 
@@ -634,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7777B28CD48CB10841AD77061F71E59B6DC16A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922200   (569873) от 28.07.2015
-
-Эрнст Гофман | Золотой горшок (1991) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник немецкого писателя-романтика Эрнста Теодора Амадея Гофмана (1776 — 1822) вошли лучшие произведения: «Золотой горшок», «Щелкунчик и мышиный король», «Песочный человек», «Крошка Цахес, по прозванию Циннобер», «Королевская невеста». В немецком романтизме не было художника более сложного и противоречивого, вместе с тем более своеобразного и самобытного. По (   Читать дальше...   )Жанр: Зарубежная литература для детей, Сказочная фантастикаПеревод: Вл. С. Соловьев, Э. Г. Бородина-Морозова, И. С. Татаринова, А. А. МорозовФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7E79E279728067A6ECD127CCD9675A86DD6120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922215   (569871) от 28.07.2015
-
-Е. Благинина | Считалки малыша (2007) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи для самых маленьких.Жанр: Стихи для детейФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C6524860AE62E9EB0FA081574D76D4FB7497E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

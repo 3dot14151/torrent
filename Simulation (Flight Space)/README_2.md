@@ -6,7 +6,7 @@ Ace Combat 7: Skies Unknown (2019) [Ru/Multi] (1.0.1/dlc) Repack =nemos=
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554534.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540331.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Galaxy on Fire 2 Full HD [Multi11/+] (L/1.0) 2012 | RELOADED
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510148.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505797.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Heliborne (2017) [Ru/Multi] (0.97/dlc) License PLAZA [Red Dragon Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495334.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Starpoint Gemini 2 (2014) [Ru/Multi] (1.9300/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487406.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blue Angels Aerobatic Flight Simulator (2017) [Multi] (1.0.0) License SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485401.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Aerial Destruction (2017) [En] (1.0) License HI2U
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481472.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kerbal Space Program (2015) [En] (1.2.0.1586) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441198.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Overload (2018) [Ru/Multi] (1.1.1886/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407739.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Take Off - The Flight Simulator (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390960.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Starpoint Gemini 2 (2014) [Ru/En] (1.9300/dlc) Repack R.G. Catalyst [Gold Pack]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379710.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wings of Honour / Крылья отваги [Ru] (P) 2003
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377689.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369791.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Overload (2018) [Ru/Multi] (1.0.1875) Repack R.G. Catalyst
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356008.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Starpoint Gemini Warlords (2016) [Ru/Multi] (2.040.1/dlc) License GOG [Digital D
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353562.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Independence War 2: Edge of Chaos (2001) [En] (F14.6) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346886.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Iron Sky: Invasion [En] (L) 2012 | RELOADED
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341912.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Iron Sky: Invasion [En/Multi6] (RePack) 2012 | z10yded
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339488.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Apache: Air Assault [Ru/En] (Repack) 2010 l R.G. Catalyst
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327814.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FPV Freerider (2015) [En] (5.1.3) Repack Z0l0t0y
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318535.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ X4: Foundations (2018) [Ru/En] (2.60/dlc) Repack =nemos=
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317916.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Space Pirates And Zombies 2 (2017) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309059.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Digital Combat Simulator: Black Shark / Ка-50 Черная акула [Ru] (L)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305784.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Space Pirates and Zombies 2 (2017) [Ru/Multi] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304755.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Star Wars: Squadrons (2020) [Ru/Multi] (1.0.10.39591) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_287031.jpg" />
 </div>
 
 

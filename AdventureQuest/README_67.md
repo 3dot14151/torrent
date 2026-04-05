@@ -1,3 +1,81 @@
+###  Публикация: 1435247   (144821) от 27.12.2020
+
+Death Stranding (2020) [Ru/Multi] (1.06hf/dlc) Repack xatab
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Death Stranding – один из самых ожидаемых релизов от разработчика Хидео Кодзимы, ранее доступный только для PS4. Это экшен нового поколения, который успешно переплетает классические механики с абсолютно новыми, а огромный открытый мир с интригующим сюжетом. Death Stranding подарит игрокам принципиально новый опыт, определяющий целый новый жанр.Тип издания: RepackРазработчик: KOJIMA PRODUCTIONSЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846A3A8ABC1526821E58224B308D44EF7E4D99F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678406   (144680) от 21.11.2023
+
+First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144680.jpg" />
+</div>
+
+
+###  Подробнее
+
+FIRSTDATE: LATE TO DATE — это романтически-комедийная интерактивная кинематографическая игра (FMV), в которой зритель определяет ход фильма с опциями, появляющимися каждую минуту. Добродетель должна убедиться, что Деря простит ее на этом первом свидании, когда она опаздывает, иначе их отношения закончатся до того, как они начнутся. С решениями, которые он примет (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Fossil, Eyexapp PlayЖанр: Adventure (Interactive Movie)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DE198637B458215D945D0AF1B930F63079DBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656821   (144447) от 21.11.2023
+
+Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Trine 5: A Clockwork Conspiracy волшебник Амадей, воровка Зоя и рыцарь Понтий отправятся в свое самое захватывающее путешествие. Когда на их репутации появляется огромное пятно, любимые попадают в беду, а их собственные магические силы оказываются под угрозой, герои Тройки должны сплотиться, чтобы дать отпор ужасной Механической армии и восстановить мир и справедливость.Тип издания: LicenseРазработчик: FrozenbyteЖанр: Action, AdventureЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087618   (144142) от 28.12.2016
 
 Amnesia: The Dark Descent / Амнезия: Призрак прошлого (2010) [Ru/Multi] (1.3/dlc) License PROPHET
@@ -6,7 +84,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144142.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144025.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143856.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143815.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143059.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Nerved (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142931.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Tormented Souls (2021) [Ru/Multi] (Build 7622656) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142673.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Californium (2016) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141981.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Amnesia: The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141764.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141095.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139961.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138735.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138343.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137875.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137360.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137259.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137217.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137073.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137013.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136844.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Mundaun (2021) [Ru/Multi] (1.0.444) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134434.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134104.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134063.jpg" />
 </div>
 
 
@@ -589,87 +667,6 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A87068EEE56E49D7F4CD929437A6D3A8C9520332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680400   (134053) от 29.11.2023
-
-Slender: The Arrival (2013) [Ru/Multi] (3.0.46.992) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slender: The Arrival возвращается с долгожданным обновлением 10th Anniversary Update — еще страшнее, чем когда-либо. Slender: The Arrival — это официальное расширенное переосмысление оригинальной игры с измененным сюжетом, новыми героями и улучшенной графикой. Все это вместе с атмосферой отчаяния и ужаса заставляет возвращаться к игре снова и снова.Тип издания: RepackРазработчик: Blue Isle StudiosЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6C65CC5A8E523E444E4E3DD790C2C3BDAF8AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594894   (132978) от 27.12.2012
-
-The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132978.jpg" />
-</div>
-
-
-###  Подробнее
-
-История The Dark Eye: Chains of Satinav развивается вдалеке от Авентурии. Главный герой, молодой зверолов Герон, живет в небольшом королевстве на северо-западе, именуемом Андергаст. Жители этого отдаленного региона очень суеверны – приметы есть практически на любое событие.
- Когда король ждет посла с соседнего королевства, чтобы положить конец многовековой вражде, жителей мучают нападения агрессивной стаи странных воронов. Жертвы нападений также утверждают, что птицы приносят ночные кошмары.
- Правителю не хочется, чтобы эта «незначительная» проблема помешала переговорам, так что нанимает опытного охотника, чтобы тот разобрался с проблемой. Герон, всю жизнь преследуемый неудачами, видит в этом шанс изменить свою судьбу, так что отправляется к королю, дабы предложить свою кандидатуру на столь важное задание. Только вот миссия оказалась намного тяжелее, чем казалось с самого начала, а ее выполнение даже заставляет парня покинуть земли Андергаста.
- Геймплей The Dark Eye: Chains of Satinav выполнен в лучших традициях point-and-click квестов – детально прорисованные локации, масса головоломок, обширный инвентарь и множество колоритных персонажей.(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25D1F1B3DCF79EDAAA1372863605DF5407B4B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681326   (132863) от 02.12.2023
-
-Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tourist Trap в царстве виртуальных приключений выделяется как мрачный комедийный point-and-click шедевр, действие которого происходит в вымышленном южноамериканском анклаве Санта-Баллена. Во главе этой сатирической эскапады стоит Лукас, молодой гид по туризму, невольно запутавшийся в паутине интриг, связанных с похищениями местных жителей и загадочной иностранной (   Читать дальше...   )Тип издания: SceneРазработчик: Tragico MediaЖанр: Приключенческие игрыЯзык субтитров: Английский, Испанский (Латинская Америка)Язык интерфейса: Английский, Испанский (Латинская Америка)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CE6ED92F1208A632DD5AB4398785AE3ADEB3C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463782.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Секретная жизнь жемчужин / The Secret Life of Pearls 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463560.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463299.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Генуя. Хронология катастрофы / Genoa. Bridge Disast
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463134.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Человек против осьминога / Man vs octopus (2017) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463130.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Da Vinci Learning: BBC: Джимми Дохерти в Саду Дарвина /
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463054.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Смертельный улов / Deadliest Catch (2014) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462163.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461894.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Человек на Марсе. Экспедиция на красную п
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461633.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461547.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460891.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery: Встреча с инопланетянами. Прибытие / Al
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460765.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459496.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NG: Тайны святых ковчегов / Mysteries of the Holy Arks (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459171.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ National Geographic. Тайны святых ковчегов / Mysteries of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459091.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NG: Взгляд изнутри: Северная Корея - династия 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458969.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458964.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery: Встреча с инопланетянами. Сигнал / Alien 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458838.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458751.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NG. Акула-молот: в поисках рекордсмена / World's Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457435.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457270.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NG:Больше, чем тираннозавр / Bigger Than T.Rex (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457239.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Discovery: Наука магии / The Magic of Science (2013) HDTVRip (1-9 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457168.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG: Реальные "Злые птицы" / Real Angry Birds (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457159.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457139.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457017.jpg" />
 </div>
 
 

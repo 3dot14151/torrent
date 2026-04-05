@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062968.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062861.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062455.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061974.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060799.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059544.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059397.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057509.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056985.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055665.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055574.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055533.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054068.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053720.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053424.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051931.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051454.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051257.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048466.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048348.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048347.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046888.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046536.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043872.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043587.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043200.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ George Cables - Shared Secrets (2001) MuseFX Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244928.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Count Basie - Swinging The Blues (1937 - 1949) 2000, Disques Dreyfus [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244908.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Art Pepper - Neon Art: Volume Three (1981) 2015, Omnivore Recordings [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244899.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Dizzy Gillespie Quintet - Treffpunkt Jazz (1961) 2020, Jazzhaus [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244815.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Kai Winding & Curtis Fuller - Bone Appetit (1980) 2004, Par Media Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244773.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Lester Young - Four Classic Albums: Second Set (1943 - 1957) 2CD, 2020, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244737.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Hank Jones - Urbanity (1947-1953) 1997, Verve[FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244670.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Lars Gullin - Baritone Sax (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244665.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Pierre de Bethmann - Sisyphe (2014) 2CD, Plus Loin Music[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244655.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Clint Houston - Inside The Plain Of The Elliptic (1979) Remaster, 2015, Solid Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244644.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SFJAZZ Collective - Live 2005 2nd Annual Concert Tour (2005) 2CD, SFJazz Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244639.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Donald Byrd - Live: Cookin' With Blue Note At Montreux (1973) 2022, Blue Note [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244638.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Peter Erskine - Dr. Um (2016) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244621.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Mal Waldron - Up Popped the Devil (1973) 2003, Enja Records[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244618.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ella Fitzgerald - BD Jazz (1945 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244617.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Charlie Parker - Five Classic Albums (1949 - 1954) 2CD, 2020, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244609.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Henry Threadgill - Double Up, Plays Double Up Plus (2018) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244606.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Tal Babitzky - Internal Voice (2002) [FLAC|Lossless|tracks + .cue] <Fusion, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244566.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Elmo Hope - Trio And Quintet (1953 - 1957) 1991, Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244529.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Sonny Criss - The Beat Goes On! (1968) 2000, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244527.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Laurent de Wilde - The Present (2006) Nocturne[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244506.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Cannonball Adderley - Nippon Soul (1963) 1990, Original Jazz Classics[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244500.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ The John Colianni Trio - Blues-O-Matic (1989) Concord Jazz[APE|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244478.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Art Blakey And The Jazz Messengers - Soul Finger (1965) 2009, Universal[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244475.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Willie ''The Lion'' Smith - 1938 - 1940 (1993) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244422.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Woody Herman - Road Band (1954, 1955) 2005, Membran Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244411.jpg" />
 </div>
 
 

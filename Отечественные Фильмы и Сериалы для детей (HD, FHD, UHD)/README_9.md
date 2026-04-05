@@ -1,3 +1,83 @@
+###  Публикация: 1580450   (159517) от 24.12.2022
+
+Два капитана (1976) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159517.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале века в провинциальном городке десятилетний Саня Григорьев находит в речке сумку с письмами участников какой-то пропавшей экспедиции. По удивительному стечению обстоятельств с поисками ее следов будет связана вся его дальнейшая жизнь, и роковую роль сыграет в ней тот, по чьей вине эта экспедиция погибла...Производство: СССР / Гостелерадио СССР, МосфильмЖанр: мелодрама, приключенияРежиссер: Евгений КареловАктеры: Борис Токарев, Сережа Кудрявцев, Елена Смирнова, Елена Лобкина, Юрий Богатырев, Алексей Сенчев, Николай Гриценко, Георгий Куликов, Ирина Печерникова, Вера Кузнецова и др.Субтитры: отсутствуютПродолжительность: 01:06:33 + 01:13:02 + 01:23:56 + 01:11:16 + 01:14:30 + 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC744F17643342DECFAB2629034B5165A4BDD47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506167   (159509) от 24.12.2022
+
+Конёк-Горбунок / Upon the Magic Roads (2021) BDRip [H.264/720p] [GER Transfer]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван - не царевич, не богатырь, не красавец, а старшие братья и вовсе его дураком считают. Но всё меняется, когда у Ивана появляется друг и верный помощник - Конёк-Горбунок. Пусть он ростом невелик, зато умный и смелый. С таким другом никакой враг не страшен. Ну, почти никакой. С таким помощником и ничего невозможного нет. Ну, почти, нет. Ивану с Коньком предстоит (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», Кинокомпания CTB, Компания CGFЖанр: Приключения, фэнтези, комедияРежиссер: Олег ПогодинАктеры: Антон Шагин, Павел Деревянко, Михаил Ефремов, Паулина Андреева, Ян Цапник, Олег Тактаров, Владимир Дикун, Виталий Копнин, Екатерина Байгозина, Алина НедобиткоПеревод: Не требуетсяСубтитры: русскиеПродолжительность: 01:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD11A446A5913EF9D8E67CA4B0840C5D222AE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673389   (158842) от 12.11.2023
+
+Золотые рога (1972) BDRip [H.264/1080p-LQ] [handmade]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было это давным-предавно. В стороне нашей светлой лесной жил Олень - Золотые рога. Малых, слабых всегда защищал, а вот зла никому не прощал… Но однажды в рассветном часу объявились злодеи в лесу.
+
+Злодейка Баба-Яга утащила и заколдовала двух маленьких девочек. Их мать отправляется на поиски. Сказочный олень Золотые Рога дарит ей волшебный перстень, который поможет (   Читать дальше...   )Производство: СССР / Киностудия им. М. ГорькогоЖанр: фэнтези, семейныйРежиссер: Александр РоуАктеры: Вера Алтайская, Юрий Харченко, Александр Хвыля, Маргарита Корабельникова, Савелий Крамаров, Георгий Милляр, Лев Потемкин, Михаил Пуговкин, Раиса Рязанова, Борис СичкинСубтитры: ОтсутствуютПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD96EF5341794A142CAEAF26CDE8C2F404D56025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344997   (154958) от 21.12.2019
 
 Старик Хоттабыч (1956) BDRemux [H.264/1080p]
@@ -6,7 +86,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154958.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154028.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150659.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150630.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148416.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146258.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145364.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140565.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139767.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137252.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136996.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134418.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132230.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132205.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132188.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132163.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131937.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131927.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131712.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131595.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130497.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130495.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129051.jpg" />
 </div>
 
 
@@ -596,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57033C59D8C77E0C7C9E6921AC9FA66A26772D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684274   (127895) от 15.12.2023
-
-Капитан Немо (1975) HDTV [H.264/1080p] (серии 1-3 из 3)
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Морское чудовище уничтожает военные корабли, и знаменитый профессор Аронакс отправляется в карательную экспедицию. После неудачного сражения с чудовищем корабль идет ко дну, а профессор, его слуга Консель и китобой Нед Лэнд попадают на подводный корабль и совершают удивительное путешествие под водой.Производство: СССР / Одесская киностудияЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Василий ЛевинАктеры: Владислав Дворжецкий, Юрий Родионов, Владимир Талашко, Михаил Кононов, Владимир Басов, Марианна Вертинская, Н.Базанова, Виктор Демерташ, Николай Дупак, Эльвира ХомюкСубтитры: отсутствуютПродолжительность: 03:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FE826F54A95B068ACDC2C41E4869B6E1022805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684735   (127497) от 17.12.2023
-
-Сказка о царе Салтане (1966) BDRip [H.264/1080p] [Handmade correction AI]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация сказки в стихах Александра Сергеевича Пушкина, написанной в 1831 году. Три девицы под окном пряли поздно вечерком... А потом много чего было: и любовь, и клевета, и предательство, и чудеса, и множество волшебных приключений, и тридцать три богатыря, и, конечно же, счастливый конец.Производство: СССР, киностудия Мосфильм, творческое объединение "Юность"Жанр: сказка, фэнтези, экранизация, семейный, детскийРежиссер: Александр ПтушкоАктеры: Владимир Андреев, Лариса Голубкина, Олег Видов, Ксения Рябинкина, Сергей Мартинсон, Ольга Викланд, Вера Ивлева, Нина Беляева, Виктор Колпаков, Юрий ЧекулаевПеревод: не требуетсяЯзык озвучки: русскийСубтитры: русские, английскиеПродолжительность: 01:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B4DC272334E7BB41A6C6DB60263EC799C41342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587942   (126573) от 23.12.2023
-
-Календарь ма(й)я (2022) WEBRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126573.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о фантастических приключениях современных подростков, жизнь которых по вине одного из них начинает двигаться в обратном направлении. Им придется не только прожить заново прошедшие дни, но и пережить события, которые в дальнейшем изменят жизнь их близких и их самих. Только поступок главного героя может выключить таинственный механизм, определяющий ход времени.Производство: Россия / Киностудия им. М. Горького, КАРО-ПродакшнЖанр: приключения, фантастика, семейныйРежиссер: Виктория ФанасютинаАктеры: Данила Уютов,  Милана Копничева,  Руслан Паньшин,  Фёдор Добронравов,  Анна Уколова,  Равшана Куркова, Раиса Рязанова, Юрий Батурин, Сергей Горошко, Влад ФельдманПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C069D979F1880DFB74DA39B5309A6160100807
 ```
 
 https://mybot314.ru/tekegram_catalog/

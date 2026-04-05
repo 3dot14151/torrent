@@ -1,3 +1,117 @@
+###  Публикация: 1620597   (245434) от 21.03.2023
+
+Формула 1. Сезон 2023. Этап 2. Гран-при Саудовской Аравии. Квалификация. Гонка. (18-19.03.2023) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 2. Арена:  Городская трасса Джидда (Джидда, Саудовская Аравия).
+Квалификация. 18 марта 2023, суббота.
+Гонка. 19 марта 2023, воскресенье.
+(   Читать дальше...   )Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Русский (Вячеслав Кобржицкий), Украинский (Максим Подзигун), Грузинский, Английский, Немецкий, Французский, Испанский, Голландский, Португальский (Бразильский).Субтитры: отсутствуютПродолжительность: Квалификация 01:16:43
+Гонка 02:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE11E85B561E38E28082F3DA89013CB2F56C662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623383   (243195) от 01.04.2023
+
+Формула 1. Сезон 2023. Этап 3. Гран-при Австралии. Квалификация (01.04.2023) WEB-DL [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243195.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 апреля 2023, суббота. 08:00 МСК. Этап 3, Мельбурн. Гран-при Австралии. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DE608AB254AC744BD400DEC351B74C0199DEA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623409   (243189) от 01.04.2023
+
+Формула 1. Сезон 2023. Этап 03. Гран-при Австралии. Квалификация. (01.04.2023) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 3. Арена: Городская трасса Альберт Парк (Мельбурн, Австралия).
+Квалификация. 1 апреля 2023, суббота.
+
+Картинка с канала F1 TV.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Субтитры: отсутствуютПродолжительность: 01:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2432AE0AB9310B131720CC8D32D628740FF49FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623473   (243113) от 01.04.2023
+
+Формула 1. Сезон 2023. Этап 03. Гран-при Австралии. Квалификация. (01.04.2023) UHDTV [H.265/2160p] [50fps] Sky Sports F1 UHD
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 3. Арена: Городская трасса Альберт Парк (Мельбурн, Австралия).
+Квалификация. 1 апреля 2023, суббота.
+
+Картинка с канала Sky Sports F1 UHD.(   Читать дальше...   )Телекомпания: Sky Sports F1 UHDЖанр: спортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Английский.Продолжительность: 01:29:27Реклама: присутствуют аудио и видео вставки рекламы до начала трансляции.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87ECF0935A053634251E7DA0FA53624EA4263FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543315   (242835) от 10.04.2022
 
 Формула 1. Сезон 2022. Этап 03. Гран-при Австралии. Гонка (10.04.2022) WEB-DL [H.264/720p] [50fps] F1TV
@@ -6,7 +120,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242835.jpg" />
 </div>
 
 
@@ -32,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242744.jpg" />
 </div>
 
 
@@ -61,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242447.jpg" />
 </div>
 
 
@@ -90,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240346.jpg" />
 </div>
 
 
@@ -119,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240340.jpg" />
 </div>
 
 
@@ -148,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240298.jpg" />
 </div>
 
 
@@ -174,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239844.jpg" />
 </div>
 
 
@@ -200,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239414.jpg" />
 </div>
 
 
@@ -226,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239385.jpg" />
 </div>
 
 
@@ -255,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227089.jpg" />
 </div>
 
 
@@ -281,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225355.jpg" />
 </div>
 
 
@@ -309,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225281.jpg" />
 </div>
 
 
@@ -337,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225150.jpg" />
 </div>
 
 
@@ -365,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220427.jpg" />
 </div>
 
 
@@ -392,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220370.jpg" />
 </div>
 
 
@@ -418,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219302.jpg" />
 </div>
 
 
@@ -444,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219230.jpg" />
 </div>
 
 
@@ -471,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216574.jpg" />
 </div>
 
 
@@ -497,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216333.jpg" />
 </div>
 
 
@@ -523,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213855.jpg" />
 </div>
 
 
@@ -552,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210132.jpg" />
 </div>
 
 
@@ -578,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210009.jpg" />
 </div>
 
 
@@ -589,116 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEF9A1889DDB147AEC6C38A3DA28F7446EEBD350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643359   (209988) от 01.07.2023
-
-Формула 1. Сезон 2023. Этап 10. Гран-при Австрии. Квалификация (30.06.2023) WEB-DL [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209988.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 июня 2023, пятница. 18:00 МСК. Этап 10, Шпильберг. Гран-при Австрии. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов)Субтитры: ОтсутствуютПродолжительность: 01:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C102118D75446AFB7D9245C4531E60C8D3E70700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648733   (208128) от 24.07.2023
-
-Формула 1. Сезон 2023. Этап 12. Гран-при Венгрии. Практика 1,2,3. Квалификация. Гонка. (21-23.07.2023) WEB-DL [H.264/1080p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 12. Арена: Автодром Хунгароринг (Будапешт, Венгрия)
-Практика 1,2. 21 июля 2023, пятница.
-Практика 3. 22 июля 2023, суббота
-Квалификация. 22 июля 2023, суббота.(   Читать дальше...   )Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский, Украинский, Грузинский, Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Продолжительность: Практика 1 01:12:20
-Практика 2 01:11:05
-Практика 3 01:10:52
-Квалификация 01:20:50(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF20191198C8D143E71D1388242BB851FC15D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648424   (208121) от 23.07.2023
-
-Формула 1. Сезон 2023. Этап 12. Гран-при Венгрии. Квалификация (22.07.2023) WEB-DL [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208121.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июля 2023, суббота. 17:00 МСК. Этап 12, Модьород. Гран-при Венгрии. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD3E78C1C0211B57224ED11A19D5D2F2BFCD5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649744   (207737) от 29.07.2023
-
-Формула 1. Сезон 2023. Этап 13. Гран-при Бельгии. Квалификация (28.07.2023) WEB-DL [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207737.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 июля 2023, пятница. 18:10 МСК. Этап 13, Франкоршам. Гран-при Бельгии. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980B89919B545EAC6E9E6C0D374B8F11EAFF858F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 922180   (533020) от 10.08.2015
+
+Индиана Джонс и последний крестовый поход / Indiana Jones and the Last Crusade (1989) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть невероятных похождений прославленного археолога и искателя приключений Индианы Джонса. На этот раз бесстрашный Индиана разыскивает самую таинственную реликвию в истории человечества - Святой Грааль. В этом археологу помогает его отец - профессор Джонс старший. Теперь под бдительным оком своего отца и при помощи своих верных талисманов, неизменной шляпы (   Читать дальше...   )Производство: США | Paramount Pictures, Lucasfilm Ltd.Жанр: Боевик, ПриключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Шон Коннери, Денхолм Эллиот, Элисон Дуди, Джон Рис-Дэвис, Джулиан Гловер, Ривер Феникс, Майкл Бирн, Кеворк Маликян, Роберт Эддисон, Ричард Янг, Алексей Сейл, Алекс Хайд-Вайт, Пол Максвелл, Айла Блэр, Вернон ДобчеффПеревод: Многоголосый закадровый, двухголосый закадровый, авторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 02:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B07346BF2B99C9788943BF1045220F472665C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051238   (532259) от 11.09.2016
+
+Горец 3: Последнее измерение / Highlander III: The Sorcerer (1994) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертный воин Коннор Маклауд вновь вызван на поединок, на этот раз своим самым могущественным врагом, Колдуном Кейном, заточенным под мистической горой в Японии 300 лет назад и достигшим невероятной магической силы.
+Ничего не подозревающие археологи освобождают Кейна. Для того, чтобы править миром колдуну нужна магическая энергия, которую он сможет получить только (   Читать дальше...   )Производство: Канада, Франция, Великобритания / Fallingcloud, Initial Groupe, Lumière Pictures, TransfilmЖанр: Фантастика, Фэнтези, Боевик, МелодрамаРежиссер: Эндрю МорахэнАктеры: Кристофер Ламберт, Марио Ван Пиблз, Дебора Кара Ангер, Мако, Рауль Трухильо, Жан-Пьерр Перуссе, Мартин Ньюфелд, Фредерик Й. Окимура, Дэниэл До, Габриэль КаконПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640B6B36AEABD534E615BAC5EDA4A9EE982CFBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049228   (532257) от 11.09.2016
 
 Боб и Кэрол, Тед и Элис / Bob & Carol & Ted & Alice (1969) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532257.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532202.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531731.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531411.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531192.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531158.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531111.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530566.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530491.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530269.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529720.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529478.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529452.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528941.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528434.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527903.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527561.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527270.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526965.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526871.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526492.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526464.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526055.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525910.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F78DE5BAE86D087B3832465BEE98EE52DFB14264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153624   (525124) от 12.08.2017
-
-Боже, я ошиблась номером / Boy, Did I Get a Wrong Number! (1966) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Божественная Диди, европейская актриса, известная больше своими сценами в ванне, нежели актерской игрой, решает, что хватит с нее «ванных» сцен и пришла пора стать серьезной актрисой. Она сбегает прямо в разгар съемок очередного эпизода из Голливдуа в Орегон. Она поселяется в гостинице. Телефонный оператор случайно соединяет ее с агентом по недвижимости по имени (   Читать дальше...   )Производство: США / Edward Small ProductionsЖанр: КомедияРежиссер: Джордж МаршаллАктеры: Боб Хоуп, Эльке Зоммер, Филлис Диллер, Чезаре Данова, Марджори Лорд, Келли Тордсэн, Бенни Бэйкер, Терри Бёрнэм, Джойс Джеймисон, Гарри фон ЗеллПеревод: Двуголосый закадровый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E91B87AEA097470019D9BF8AFEB21B84DAA65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922769   (524918) от 13.08.2015
-
-Бравадос / The Bravados (1958) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикий американский Запад: дикие времена, дикие нравы. Джим Дуглас ищет тех четверых, что изнасиловали и убили его жену. Он узнает, что в соседнем городке их арестовали и должны казнить. После того, как убийцам удалось сбежать, Дуглас решает взять правосудие в свои руки. Однако постепенно он убеждается в справедливости древней истины: убивая другого, ты уничтожаешь (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, ВестернРежиссер: Генри КингАктеры: Грегори Пек, Джоан Коллинз, Стивен Бойд, Альберт Сэлми, Генри Сильва, Кэтлин Галлант, Бэрри Коу, Джордж Восковек, Герберт Радли, Ли Ван КлифПеревод: Двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC88B09ED56038249F2ED94AC4D04BA362886C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

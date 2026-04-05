@@ -1,177 +1,3 @@
-###  Публикация: 1196946   (819061) от 05.01.2018
-
-El Coco - Revolucion (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry Me (5:42)
-02. Silent Lover (4:27)
-03. I'll Take My Chances (5:21)
-04. Somenthing Ya Got Makes Me Hot (6:42)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3105838AFD52C4C102CC1E65BFCF195565E3DDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197016   (819051) от 05.01.2018
-
-Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little White Lies (03:25)
-02. Lost & Found (02:57)
-03. Fair (03:33)
-04. Last Time We Danced (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F530667DD8B06645B5DF45C8447084A510851DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382542   (818982) от 11.05.2020
-
-Laid Back - Laid Back (1981) 2019,  Brother Music [FLAC|Lossless|image + .cue] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger (04:34)
-02. Bolivia (03:57)
-03. Night Train Boogie (03:57)
-04. Maybe I'm Crazy (03:36)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896A668E62531EC89E6E9452B392EFF149BE066D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117102   (818941) от 22.03.2017
-
-VA - Just Mix Eurodisco (2009) [FLAC|Lossless|WEB|tracks + .cue] <Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818941.jpg" />
-</div>
-
-
-###  Подробнее
-
-London Boys - My Love
-Den Harrow - Tell Me Why
-Madonna vs DJ Fifty - Into The Groove
-Sandra - Secret Land (Reverse Mix)(   Читать дальше...   )Жанр: Disco, Synth-popПродолжительность: 01:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FEAA014EE784510C931CAE22D9F3CD3A15B085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117415   (818939) от 22.03.2017
-
-Лариса Черникова - Любовное настроение (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокий волк [4:03]
-02. Рука в руке [4:16]
-03. Ты полети, моя звезда! [4:53]
-04. Подари мне ночь [4:05](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C0B6691C99E315C4DF506F694D0040142D3DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117411   (818938) от 22.03.2017
-
-Fancy - Bolero The Hit Collection & More (2012) [MP3|320 Kbps] <Disco, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames Of Love (05:21)
-02. Colder Than Ice (05:08)
-03. Bolero (Hold Me In Your Arms Again) (05:41)
-04. After Midnight (04:43)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2DE136A436F34892A8B75D836F35862F9D93AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117249   (818930) от 22.03.2017
 
 VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -180,7 +6,7 @@ VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818930.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818873.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Fancy - Bolero The Hit Collection & More (2012) [FLAC|Lossless|tracks + .cue] <D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818783.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Joy - Best (1986) Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Synth-pop,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818778.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818771.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Arabesque - The HQ Vinil Collection (1978-1984) All Studio Albums [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818558.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818093.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Montmartre - Hope (2016) [MP3|320 кб/с] <Synthpop, Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817948.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Pinballsound - Дирижабль (2016) [MP3|320 кб/с] <Indie Pop, Electroni
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817855.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Kylie Minogue - DISCO (Super Deluxe Edition) (2020) [MP3|320 Kbps] <Dance-pop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817781.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Cerrone - The Classics (Best of Instrumentals) (2021) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817632.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ VA - Nostalgie - The Summer Feeling (2015) 5CD [FLAC|Lossless|tracks] <Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817590.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ VA - Pure... Summer (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Dance, Eurodance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817222.jpg" />
 </div>
 
 
@@ -558,7 +384,7 @@ Uma2rman - Пой, весна! (2016) [MP3|320 кб/с] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817154.jpg" />
 </div>
 
 
@@ -587,7 +413,7 @@ Marc Seaberg - 2 Albums (1979,1980) LP [MP3|320 Kbps] <Electronic, Pop, Disco, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817046.jpg" />
 </div>
 
 
@@ -616,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817037.jpg" />
 </div>
 
 
@@ -645,7 +471,7 @@ VA - Easy like Sunday Morning (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816903.jpg" />
 </div>
 
 
@@ -674,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816902.jpg" />
 </div>
 
 
@@ -703,7 +529,7 @@ Mr. Zivago - Tell By Your Eyes (Covers) (1993) [FLAC|Lossless|image + .cue] <Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816897.jpg" />
 </div>
 
 
@@ -732,7 +558,7 @@ Eva (ex. Neoton Familia) - Midnight (1986) LP [MP3|320 Kbps] <Electronic, Europo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816061.jpg" />
 </div>
 
 
@@ -746,6 +572,180 @@ Eva (ex. Neoton Familia) - Midnight (1986) LP [MP3|320 Kbps] <Electronic, Europo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E53C6E4E52C5EC0F9AD5DABBFD4C2C108CD394A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504082   (815954) от 21.10.2021
+
+VA - NOW Thats What I Call A Massive Party (2021) 4xCD [MP3|320 Kbps] <Pop, Rock, Hip Hop, (Rap, RnB, Dance)>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815954.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. ABBA - Dancing Queen (03:51)
+ 02. John Travolta, Olivia Newton-John - The Grease Megamix (04:49)
+ 03. Village People - YMCA (04:45)(   Читать дальше...   )Жанр: Pop, Rock, Hip Hop, (Rap, RnB, Dance)Продолжительность: 05:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE5EE67E7BD775B055242DBDC48EC065513B3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197459   (815908) от 07.01.2018
+
+VA - Kiss Kiss Play Winter 2018 [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stavo Pensando A Te – Fabri Fibra
+02 Too Good At Goodbyes – Sam Smith
+03 What About Us – P!Nk
+04 Direzione La Vita – Annalisa(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 01:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B82B21AA8C89D04FAA793AE79397D5C24FCB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197408   (815805) от 07.01.2018
+
+VA - Top 40 Foute Hits The Ultimate Top 40 Collection (2017) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815805.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Anita Meyer  -  Why Tell Me, Why  3:34
+02.  2 Unlimited  -  No Limit  3:46
+03.  Backstreet Boys  -  I'll Never Break Your Heart  4:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60DFEC8595817013EDD9477B76BBA624D4BC4434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008594   (815686) от 18.04.2016
+
+GooGooSha - GooGooSha (2012) [MP3|320 кб/с] <ElectroPop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815686.jpg" />
+</div>
+
+
+###  Подробнее
+
+GooGooSha - Гульна́ра Исла́мовна Кари́мова (узб. Gulnora Islomovna Karimova, Гулнора Исломовна Каримова; родилась 8 июля 1972, Фергана) — старшая дочь президента Узбекистана Ислама Каримова, сестра Лолы Каримовой. Посол Узбекистана в Испании с января 2010 года по июль 2012 года.Треклист:
+01. Night (04:01)
+02. How Dare (03:37)
+03. Wake Up (04:28)(   Читать дальше...   )Жанр: ElectroPopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4B94190B9C84D2B8E63A6E35A4FE19A006AA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197074   (815681) от 07.01.2018
+
+VA - Glam Rock Party Supermix (1998) [FLAC|Lossless|image + .cue] <Glam, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hello Hello, I'm Back Again? / I'm the Leader of the Gang / Glisten Yeah / Rock and Roll / I Didn't Know I Loved You / Do You Wanna Touch Me / I Love You Love Me
+02.Blockbuster! / Teenage Rampage / Wig-Wam Bam / The Ballroom Blitz / Hell Raiser / Fox on the Run
+03.Daytona Demon / Can the Can / Devil Gate Drive / 48 Crash
+04.You, You,You / Red Dress / My Coo Ca (   Читать дальше...   )Жанр: Glam, Cover versionПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4814C5188E5CFE840283918901FD64397924BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197577   (815675) от 07.01.2018
+
+VA - Venti Compilation 4 (2016) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert One - Face To Face (5:46)
+02. Digital Emotion - Full Control (6:06)
+03. California - Volerei (6:21)
+04. Rofo - Summer Love (5:49)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRG, Electro, Synth-popПродолжительность: 02:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F8716C7A9D19A4DE46CCEB687A6B779FB63224
 ```
 
 https://mybot314.ru/tekegram_catalog/

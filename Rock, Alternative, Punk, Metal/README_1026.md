@@ -1,3 +1,32 @@
+###  Публикация: 1595812   (174638) от 07.12.2022
+
+Aeon Zen - Ephemera (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Entity (6:07)
+02. Soul Machine (5:29)
+03. Life? (6:44)
+04. Unite (5:11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BBB6E51554B539CD3595257C4E93DA3C5756BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595810   (174636) от 07.12.2022
 
 Aeon Zen - The Face Of The Unknown (2010) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +35,7 @@ Aeon Zen - The Face Of The Unknown (2010) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174636.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Highlord - Medusa's Coil (2004) Japanese Edition [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174632.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Shotgun Surgery - Shiteater (2022) [FLAC|Lossless|WEB-DL|tracks] <Dirty Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174628.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Inner Road - Visions (2011) [FLAC|Lossless|image + .cue] <Sympho Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174624.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Classless Act - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174622.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Highlord - Heir Of Power (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174617.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Highlord - Breath Of Eternity (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174609.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Deserted Fear - Doomsday (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174604.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Highlord - When The Aurora Falls... (2000) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174601.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174589.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Arrayan Path - Thus Always to Tyrants (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174583.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174571.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Olshanoe - 2 Albums (2021-2022) [MP3|320 Kbps] <Folk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174563.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174554.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Exper
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174549.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174526.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Blind Guardian - Imaginations From The Other Side (2020) Live [MP3|320 Kbps] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174476.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174446.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174406.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Group 1850 - 3 Albums, 1 Box-set, 11CD (1969-2019) [FLAC|Lossless|image + .cue |
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174404.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Aeon Zen - A Mind's Portrait (2009) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174398.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Amberian Dawn - 10 Releases (2008-2022) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174378.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174353.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174331.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174273.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82462D026A892738E146B3759026A8386F7C84A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668526   (174184) от 12.10.2023
-
-Necrofobia - Dark, Deep & Eternal (2004) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suicide
-02. Contamina
-03. Toxic Odor
-04. Quema eterna(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86303E9CD26AA3495A06B1D1934B849FA6EEB737
 ```
 
 https://mybot314.ru/tekegram_catalog/

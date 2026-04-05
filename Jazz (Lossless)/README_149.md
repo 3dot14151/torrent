@@ -6,7 +6,7 @@ Gary Burton Quintet - Whiz Kids (1987) /ECM/[FLAC|image+.cue]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559178.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bohren & der Club of Gore - 8 Альбомов (1994-2011) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_559125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_559125.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lianne La Havas - Blood (2015) [FLAC|Lossless]<Soul, Folk, Indie>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559060.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hadley Caliman - Iapetus (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558755.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Teddy Charles - Seven Classic Albums (1956 - 1959) 4CD, 2017, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558752.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John Kirby - 1941-1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558386.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wes Montgomery - Down Here on the Ground (1989) [FLAC|Lossless|image + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558266.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Miles Davis - Tutu (1986) [FLAC|Lossless|image + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558255.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Miles Davis - Seven Steps to Heaven (1992) [FLAC|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558204.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kenny G - Breathless (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558190.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Franco Cerri - Chitarra (1964) 2008, DIW Records[FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558165.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Peter Horvath - Absolute Reality (2016) [FLAC|Lossless|image + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558163.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kohsuke Mine - Out Of Chaos (1974) Remaster, 2015, Universal[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558162.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Bossa Nova moods: The Complete Collection (1999) 2CD [WavPack|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558030.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Eric Dolphy - Last Recordings (1964) /1988, West Wind/[APE|tracks+.cue]<Jazz, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557679.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Gil Evans Orchestra - Into The Hot (1961) /1988, Impulse!/[FLAC|image+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557624.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Joe Marsala - 1936 - 1942 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557371.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Charlie Parker - Complete Savoy Masters (1944 - 1947) 2CD, 1999, Definitive Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557191.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Masaru Imada and George Mraz - Alone Together (1977) Remaster, 1997, JVC[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556980.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Gerald Wilson - The Complete Pacific Jazz Recordings Of Gerald Wilson And His Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556521.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ John Sinclair - Mohawk (2014) [FLAC|Lossless|image + .cue] <Jazz, Poetry, Spoken
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556292.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Scott Hamilton Quartet - Dean Street Nights (2014) Woodville Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556216.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Sofia Hoffmann - One Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555941.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ The Prestige Blues-Swingers - Outskirts Of Town (1958) 1992, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555836.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Dave (David) Kikoski - Dave Kikoski (1994) Sony Epicure [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555692.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Gary Peacock & Ralph Towner - Oracle (1994) [FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555578.jpg" />
 </div>
 
 

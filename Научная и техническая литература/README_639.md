@@ -1,139 +1,3 @@
-###  Публикация: 1783249   (25681) от 05.03.2025
-
-Сергей Бубновский | Активные мышцы: ключ к восстановлению сердца (2025) [FB2, RTF, TXT]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему возникает гипертония? Какое влияние на сердце оказывают ноги? Можно ли отказаться от таблеток, снижающих давление, и при этом не умереть? Об этом и многом другом рассказывает доктор Бубновский с своей новой книге. Более 50 упражнений для здоровья сердца и сосудов помогут навсегда забыть об аритмии, повышенном давлении и... лишнем весе.
-
-Из книги вы узнаете: (   Читать дальше...   )Жанр: МедицинаИздательство: ЭксмоФормат: FB2, RTF, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AE85D56ADEE237356B53AB83BD7FCD0D492AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783335   (25670) от 05.03.2025
-
-Хорст Альтман | Ядовитые растения. Ядовитые животные (2004) [PDF, FB2, DJVU, RTF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25670.jpg" />
-</div>
-
-
-###  Подробнее
-
-К сожалению, в жизни достаточно часто имеют место отравления людей ядами, как токсичных животных, так и растительными. И самое страшное, как это обычно случаются у детей. К счастью, смертельные отравления в таких случаях редки. Однако часто встречаются такие симптомы, как понос и рвота, которые могут крайне отрицательно отразиться на здоровье наших малышей. Поэтому, (   Читать дальше...   )Жанр: Токсикология. Биология. Справочная литература, МедицинаПеревод: Ольга РезниченкоИздательство: БММ АО «Москва»Формат: PDF, FB2, DJVU, RTFКачество: Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6EA1912F274E7161525E59EFFD5DE7BDD0D4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783349   (25661) от 05.03.2025
-
-Ренад Аляутдин | Лекарственные средства. Справочник пациента (2024) [FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ренад Николаевич Аляутдин — автор более 300 научных статей, опубликованных на русском и английском языках в отечественных и зарубежных реферируемых научных журналах, 15 монографий и учебников, 8 патентов на изобретение в Российской Федерации, США и Евросоюза в области медицины, в том числе по нанотехнологиям в медицине.
-Р. Н. Аляутдин и его коллеги из Сеченовского (   Читать дальше...   )Жанр: МедицинаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735F7DA9EEF02BAC2F87A75484810E7F25EF4D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784010   (25339) от 08.03.2025
-
-В.Н. Ходак, А.Д. Жиряков (Сост.) | Приемы и способы защиты от собак (2024) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25339.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии представлена методика последовательного формирования у военнослужащих (сотрудников) Росгвардии навыков противодействия нападающим собакам, дано описание возможным и доступным приемам и способам защиты от собак, раскрыты закономерности возникновения опасных ситуаций при взаимодействии человека с собакой и предложена ситуационная классификация возможностей (   Читать дальше...   )Жанр: Учебное пособие, самооборонаИздательство: Издательство ПВИ войск национальной гвардии РФФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE7E97AE9231D1E29A4904C864B76FB7981F511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783912   (25301) от 08.03.2025
-
-С.Е. Гербановский (ред.) | Наставление по инженерному делу для пехоты РККА (Инж-П-39) (1941) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военно-инженерные работы имеют целью обеспечить успех в бою и победу над врагом с наименьшими потерями.
-
-В практическом пособии раскрываются вопросы:
-Задачи инженерного дела в пехоте.(   Читать дальше...   )Жанр: Военное дело. Наставления, памяткиИздательство: Военное Издательство Народного Комиссариата Обороны Союза ССРФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20122FC0AF2F382FFB7B9A64BF24CCCCEE9F644D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784222   (25271) от 09.03.2025
 
 Кирилл Шатилов | Умейте выражаться по-английски (2024) [PDF] [RU,EN]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25271.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25268.jpg" />
 </div>
 
 
@@ -195,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25253.jpg" />
 </div>
 
 
@@ -222,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25130.jpg" />
 </div>
 
 
@@ -249,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25032.jpg" />
 </div>
 
 
@@ -277,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25008.jpg" />
 </div>
 
 
@@ -303,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25007.jpg" />
 </div>
 
 
@@ -329,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24980.jpg" />
 </div>
 
 
@@ -355,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24952.jpg" />
 </div>
 
 
@@ -382,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24932.jpg" />
 </div>
 
 
@@ -408,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24930.jpg" />
 </div>
 
 
@@ -435,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24928.jpg" />
 </div>
 
 
@@ -461,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24914.jpg" />
 </div>
 
 
@@ -487,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24902.jpg" />
 </div>
 
 
@@ -513,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24897.jpg" />
 </div>
 
 
@@ -540,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24831.jpg" />
 </div>
 
 
@@ -567,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24803.jpg" />
 </div>
 
 
@@ -593,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24799.jpg" />
 </div>
 
 
@@ -619,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24787.jpg" />
 </div>
 
 
@@ -645,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24697.jpg" />
 </div>
 
 
@@ -673,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24695.jpg" />
 </div>
 
 
@@ -684,6 +548,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56834B6014687745B7C3DCECEB4D6B33743A6F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784993   (24694) от 14.03.2025
+
+Юрий Глазков | Колени без боли. Взгляд оперирующего хирурга (2024) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная медицина предлагает широкий ассортимент методов и стратегий по восстановлению поврежденных органов и тканей. Однако только профессиональный хирург способен грамотно и максимально эффективно применить их в конкретной ситуации.
+
+В этой книге собраны самые важные данные о здоровье колена:
+- чем опасны гипермобильность и иммобилизация;(   Читать дальше...   )Жанр: МедицинаИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7354CD38373D932637DDB0B022C804C00B7BE30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784997   (24681) от 14.03.2025
+
+Екатерина Филиппова | Тазовая боль. Почему она возникает и что с ней делать (2024) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чувствуете дискомфорт, жжение и боль "там"? Часто ходите в туалет? Испытываете боли во время секса? Давно и безуспешно лечитесь у урологов или гинекологов?
+Синдром хронической тазовой боли - заболевание, которое не вписывается в традиционные медицинские шаблоны и не поддается стандартным алгоритмам лечения. Оно возникает "из ниоткуда" - ни явных (   Читать дальше...   )Жанр: МедицинаИздательство: БомбораФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF41DDCAA7614A9C7DE0400DE768DCEC3E0184E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785427   (24617) от 15.03.2025
+
+Иван Мосин | Сюрреализм. Большая иллюстрированная энциклопедия (2017) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из самых ярких художественных направлений в истории искусства XIX века, его зарождению и развитию.
+
+Сюрреализм - уникальное художественное течение, которое более полувека доминировало в мировом искусстве, определяя облик художественной действительности. Чрезвычайный успех этого движения заключался в том, что сюрреализм был не просто локальным (   Читать дальше...   )Жанр: Искусство и культураИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40286AA829052FEDC27D82A9F6C815FCDFBDC2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785435   (24614) от 15.03.2025
+
+Иван Мосин | Импрессионизм. Большая иллюстрированная энциклопедия (2017) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из самых ярких художественных направлений в истории искусства XIX века, его зарождению и развитию. В ней представлено творчество не только самых прославленных представителей импрессионизма, таких как Дега, Мане, Моне, Писсарро, Ренуар, Сислей, но и художников, чьи имена менее знамениты, а то и вовсе неизвестны широкому читателюЖанр: Искусство и культураИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28FD4F12BC593A20C8A741BCDBC900C1D65BD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785378   (24609) от 15.03.2025
+
+Светлана Варшавская | Учебник ненормативной лексики английского языка (2014) [PDF, DJVU] [RU, EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник Ненормативной Лексики Английского Языка разработан Лингвистическим Университетом Светланы Варшавской, как дополнительное и общеобразовательное учебное пособие для всех, кто знает английский язык хотя бы на базовом разговорном уровне, но при этом есть стремление расширить свои знания. Это как раз будет тот вариант владения языком, когда «я английский не знаю, (   Читать дальше...   )Жанр: Языки. УчебникиИздательство: ООО «ЗУКЦ»Формат: PDF, DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7644E3889BA23D444664658A69FCCB353CA530F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

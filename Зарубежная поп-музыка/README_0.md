@@ -6,7 +6,7 @@ VA - AM Gold 1969 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051244.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - AM Gold 1966 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051197.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - AM Gold 1964 (1991) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051092.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - AM Gold 1965 (1990) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051085.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - AM Gold 1962 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050856.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - AM Gold 1963 (1991) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050855.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - This Is... Eurovision (1996) 2 CD [OGG Vorbis|480 Kbps] <Pop, Europop, Voca
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050810.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Top Pop (14 Pop-Songs) (1997) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050809.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Smash Hits Of The 80's (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050760.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Dos Décadas Dance (2001) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050531.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sabrina Carpenter - Man’s Best Friend (Bonus Track Version) (2025) [MP3|320 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050030.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Celine Dion - Falling Into You (1996) Reissue, 2015, Sony Music [OGG Vorbis|480 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046114.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stevie Wonder - Fulfillingness' First Finale (1974) Reissue, Remastered, 2011, M
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046113.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mariah Carey - #1's (1999) [OGG Vorbis|480 Kbps] <Hip Hop, Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046105.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Duran Duran - Astronaut (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046044.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Mastermix Essential Hits (2022) CD, Compilation [MP3|320 Kbps] <Afrobeats, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045751.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Bravo Hits Zima 2023 (2022) [MP3|320 Kbps] <Synthpop, Dance, Disco, Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045736.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Billy Joel - Streetlife Serenade (1974) Reissue, Remastered, 2015, Audio Fidelit
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045682.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Peter Gabriel - Up (2002) [OGG Vorbis|430 Kbps] <Electronic, Rock, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045417.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Discofox Vol. 4 - Die ultimative Schlagernacht (2023) [MP3|320 Kbps] <Germa
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045325.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Best Of Nu Monkey Records 2022 Part 2 (2023) CD, Compilation [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045313.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Best Of Nu Monkey Records 2022 Part 1 (2022) CD, Compilation [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045220.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Hits Nu Disco Views 002 (2023) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045218.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Elton John - Elton John (1970) Reissue, 2011, Mercury [OGG Vorbis|430 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044882.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - 70s Forever (2019) 3 CD [OGG Vorbis|450 Kbps] <Rock, Soft Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044823.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Londonbeat - Legends (2004) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044761.jpg" />
 </div>
 
 

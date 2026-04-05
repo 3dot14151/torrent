@@ -1,3 +1,61 @@
+###  Публикация: 1193411   (842896) от 27.04.2020
+
+Ex_Tension - Discography 12 Releases (2004-2015) [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Tribal, Industrial, Experimental, IDM, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zwischen Nacht Obduzieren (05:44)
+ 02. Philippe F. - remix (04:31)
+ 03. Noize Guerilla - remix (07:22)
+ 04. Turn of the coil - remix (06:20)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Rhythmic Noise/Industrial/EBM/ElectroПродолжительность: 11:24:24 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E89B7F85ACF3504BBDAE768CAEB76F876D1A346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378655   (842889) от 27.04.2020
+
+VA - Med School: Graduation (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bop - Magic.gif [04:34]
+02. S.P.Y - Black Flag (VIP) [06:03]
+03. Villem - Stereogram [05:44]
+04. Keeno - Lost For Words [05:21](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB9B4EEADC9BF46149589913FCCD64749839DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003791   (841894) от 04.04.2016
 
 VA - Trance Only Vol.6 (Future Club and Hardtrance Anthems) (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Trance Only Vol.6 (Future Club and Hardtrance Anthems) (2016) [MP3|320 кб
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841894.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Skrillex - Дискография (2009-2015) [MP3|320 кб/с]<Dubstep, Brostep
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841879.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ VA - Spring Lounge 2016: Sounds Like Sunshine (2016) [MP3|320 кб/с] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841860.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841844.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ VA - Hoch Die Hande Wochenende Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841727.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Kiiara - Low Kii Savage EP (2016) [FLAC|Lossless|WEB-DL|tracks] <postrnb, future
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841692.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ VA - GOA Chill Pt.1 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841645.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ VA - Intimacy Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841638.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ VA - Cafe Paris The Essence of Chilled Moments (2016) [MP3|320 Kbps] <Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841634.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ VA - Ten Years of Med School (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841605.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ lorian MSK - Le Vacarme De Diavel (2016) Zenon Records [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841543.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ VA - Cafe Paris: The Essence Of Chilled Moments Vol 2 (2017) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841538.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Moderat - III (Box Set, 3CD, Limited Edition) (2016) [FLAC|Lossless|tracks+.cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841493.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Eisfabrik - Discography (2015-2020) [FLAC 2.0|44.1/16,24|tracks|WEB-DL] <Synthpo
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841301.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ ATB - Best Hits & Remixes (2000) [MP3|320 Kbps] <House, Progressive House,Trance
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841237.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Dreaming Cooper - Parallels (2017) AstroPilot Music  [FLAC|Lossless|WEB-DL|track
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841233.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Under This - 1 Compilation, 18 Singles (2008 - 2016) [MP3|320 кб/с]<Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841057.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - NOW Dance Classics (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840971.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Ils - Discography 23 Releases (1997-2013) Distinct'ive Records, Botchit & Scarpe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840964.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Shalohim - The Ultra Spore (2020) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Psychil
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840748.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Phil Von - Blind Ballet (2015) Ant-Zen [MP3|320 кб/с] <Ambient, Abstract>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840308.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Mauro Angelini - Extreme Seduction (2016) [MP3|320 кб/с] <Lounge, Nu-Jazz, Bo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840201.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Vocal Trance Philosophy Vol.2 (Mixed by Vyze) (2016) [MP3|320 кб/с] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840015.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - Live @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839693.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ WHITENO1SE @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34550F92FABC06CB2F7DF3669A0B731CBEFB8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379445   (839557) от 29.04.2020
-
-VA - Touched By Silence (The Compilation) (2019) Touched Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apertures – Missing Skies (05:32)
-02. James Bernard – Repose (04:20)
-03. The Orb – Don't Let It Go To Your Head (The Orb's Smellosound Mix) (04:51)
-04. David Morley – Vertical System (04:29)(   Читать дальше...   )Жанр: Ambient, IDM, ExperimentalПродолжительность: 02:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9BD7A2AAF9C0A4691DBE002B1B6FCA68966BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379605   (839556) от 29.04.2020
-
-Above & Beyond - Anjunabeats Essentials (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond – Is It Love? (1001) (Grum Remix) (05:18)
-02. Boom Jinx – Phoenix From The Flames feat. Justine Suissa (Maor Levi Remix) (05:52)
-03. Gabriel & Dresden – Something Bigger (feat. Sub Teal) (04:45)
-04. Grum – Running (feat. Jinadu) (05:15)(   Читать дальше...   )Жанр: Progressive House, Tech TranceПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FD354E677374363BAD9F6C7C7C86566B7C28FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

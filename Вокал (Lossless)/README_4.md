@@ -6,7 +6,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282675.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Handel - L'Allegro, il Penseroso ed il Moderato (1995) 2CD,  [FLAC|Lossless|imag
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282192.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Jose Carreras, Placido Domingo, Natalie Cole - A Celebration of Christmas (1996)
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276947.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Peter Hahn & Anna Maria Kaufmann - CD2 Opera (2010) [FLAC|Lossless|image + .cue]
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266082.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Atlanta Symhonic Orchestra & Chorus - Carl Orff: Carmina Burana (1981) Remaster,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208214.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, D
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193881.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Maria Callas - DIVINA : Maria Callas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169011.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154315.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147865.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ The Baroque Christmas Album - Various Artists (2005) [APE|Lossless] <Classical, 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143100.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142484.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Jose Carreras, Luciano Pavarotti, Mario Lanza, Placido Domingo - Opera Favourite
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136376.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Il Divo - The Greatest Hits (2012) 2CD Deluxe Edition [FLAC|Lossless]<Neo-Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134386.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ The Three Tenors - The Three Tenors Christmas ( L Album di Natale ) (2000) [FLAC
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132546.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Placido Domingo - Christmas With Placido Domingo (1981) [FLAC|Lossless]<Classica
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132534.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131220.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Agnes Obel - Riverside (2010) EP [FLAC|Lossless|tracks + .cue] <Pop, Classical, 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123812.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Gregorio Allegri - Miserere (The Sixteen, Christophers; et al) (2008) Compilatio
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123776.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Loss
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105015.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Johann Sebastian Bach – Weihnachtsoratorium Christmas Oratorio: VA (1734) 2CD,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89415.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ C. H. Graun, J. A. Hasse, G. F. Handel, J. Mattheson – Cleopatra, soprano Isab
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88211.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Wolfgang Amadeus Mozart-Requiem in D minor, K 626: VA, conductor Bernard Labadie
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85305.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626: Munchner Philharmoniker (17
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84704.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80970.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66667.jpg" />
 </div>
 
 
@@ -781,7 +781,7 @@ Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40865.jpg" />
 </div>
 
 

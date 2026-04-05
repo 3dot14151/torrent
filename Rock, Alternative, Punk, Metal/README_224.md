@@ -1,3 +1,148 @@
+###  Публикация: 1374049   (873009) от 10.04.2020
+
+Lamori - Neo Noir (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Angel By Your Side
+02. The Evil Inside Of Me
+03. Born To Lose
+04. Fade Out Of Time(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9B4D69B876B0D815E80C3AE685B0044CB5AAB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374629   (872997) от 10.04.2020
+
+Sodom - M-16 (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Among The Weirdcong
+02. I Am The War
+03. Napalm In The Morning
+04. Minejumper(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDE6E6519B56A3D78B6A7D8E2B60DBCDE100B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374578   (872994) от 10.04.2020
+
+Infornal FuckЪ - Уже Не То (2018) [MP3|320 Kbps] <Parody Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пьяный бубен (Тролли) 02:27
+02. Сага о Сигурде Синяя Рожа 02:41
+03. Ролевики 03:44
+04. Про Джека Воробья (Пираты Карибского моря) 02:55(   Читать дальше...   )Жанр: Parody MetalПродолжительность: 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90302D1A4A3EE3FAF43EC50D5A6E9CA94130C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374280   (872993) от 10.04.2020
+
+Arctic Sleep - 8 Albums/1 Tribute (2006 - 2020) [MP3|320 Kbps] <Atmospheric Doom Metal, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872993.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Mare Vaporum
+2009 - Abysmal Lullabies
+2010  - Earth To Earth
+2012 - Arbors(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Space RockПродолжительность: 9 CD, 07:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7773AF30ACB8DABCB3EE50232A8598AAA078D610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374540   (872992) от 10.04.2020
+
+The Dream Syndicate - The Universe Inside (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Regulator [20:27]
+02. The Longing [07:37]
+03. Apropos Of Nothing [09:33]
+04. Dusting Off The Rust [09:56](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF799ED1654D84EBC88967208E20FDE557743D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374521   (872990) от 10.04.2020
 
 Dream On Dreamer - What If I Told You It Doesn't Get Better (2020) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
@@ -6,7 +151,7 @@ Dream On Dreamer - What If I Told You It Doesn't Get Better (2020) [MP3|320 Kbps
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872990.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872981.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Frei.Wild - Corona Quarantane Tape (2020) [MP3|320 Kbps] <Deutschrock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872980.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Laura Marling - Song for Our Daughter (2020) [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872978.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Die Apokalyptischen Reiter - Moral & Wahnsinn (2011) [FLAC|Lossless]<Folk / Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872934.jpg" />
 </div>
 
 
@@ -157,7 +302,7 @@ Shakra - Back On Track (2011) [MP3|320 kbps]<Hard rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872933.jpg" />
 </div>
 
 
@@ -192,7 +337,7 @@ Eternal Flight - SurVive (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872857.jpg" />
 </div>
 
 
@@ -221,7 +366,7 @@ VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872847.jpg" />
 </div>
 
 
@@ -250,7 +395,7 @@ Billy F Gibbons - Stepping Out Of ZZ Top： Rare And Unreleased Vol. 1⁄ 2 (202
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872725.jpg" />
 </div>
 
 
@@ -280,7 +425,7 @@ Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [MP3|320 Kbps] <S
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872722.jpg" />
 </div>
 
 
@@ -309,7 +454,7 @@ Billy Idol - The Roadside (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872717.jpg" />
 </div>
 
 
@@ -338,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872702.jpg" />
 </div>
 
 
@@ -367,7 +512,7 @@ Moscow Death Brigade - Bad Accent Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872692.jpg" />
 </div>
 
 
@@ -396,7 +541,7 @@ One Desire - Midnight Empire (2020) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872691.jpg" />
 </div>
 
 
@@ -425,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872683.jpg" />
 </div>
 
 
@@ -454,7 +599,7 @@ Placebo - A Place For Us To Dream (2016) 3CD, Compilation, Japanese Edition [FLA
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872575.jpg" />
 </div>
 
 
@@ -483,7 +628,7 @@ Brazen Abbot - Guilty As Sin (2003) [FLAC|Lossless]<Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872454.jpg" />
 </div>
 
 
@@ -512,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872338.jpg" />
 </div>
 
 
@@ -541,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872285.jpg" />
 </div>
 
 
@@ -570,7 +715,7 @@ Dark Forest - Oak, Ash & Thorn (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872283.jpg" />
 </div>
 
 
@@ -599,7 +744,7 @@ Tom Waits - 35 Albums (1973-2009) [MP3|320 Kbps] <Blues, Jazz, Experimental Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872232.jpg" />
 </div>
 
 
@@ -613,151 +758,6 @@ Tom Waits (полное имя Thomas Alan Waits; 7 декабря 1949 года
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997846   (872122) от 18.03.2016
-
-Vredehammer - Violator (2016) [MP3|320 кб/с] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Light The Fucking Sky
-2. Spawn Tyrant
-3. Violator
-4. Deadfall(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3E489AE54E02C6144A584027BC094E92A8F910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997781   (872091) от 18.03.2016
-
-Deos - .​.​.​To Depart (2015) [MP3|320 кб/с] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I The Vigil
-2. II The Last Journey
-3. III The Silence
-4. IV The EmptinessЖанр: Funeral Doom MetalПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0669B81938F824320CF1A16696356A8A1F93D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997784   (872087) от 18.03.2016
-
-Toxic Waltz - From A Distant View (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deify
-02. Blindness
-03. Generosity Exploited
-04. From A Distant View(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434820AA3C9EC1B2995A5C4AF4C0A51AEED4B9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997788   (872080) от 18.03.2016
-
-Human Fortress - Thieves Of The Night (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amberstow
-02. Last Prayer to the Lord
-03. Rise or Fall
-04. Thieves of the Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B579EC42E05D9D47FE90F750F7F55FB1C575D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873011   (872073) от 26.02.2015
-
-The Storyteller - Sacred Fire (2015) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As I Die
-02. One Last Stand
-03. Sacred Fire
-04. Ferryman(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61381B51C51C95D8779FD6E71D55CF8212CFC830
 ```
 
 https://mybot314.ru/tekegram_catalog/

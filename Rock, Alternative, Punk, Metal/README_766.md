@@ -1,3 +1,32 @@
+###  Публикация: 1079560   (294188) от 04.12.2016
+
+Hardbone - Tailor-Made (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Man's Land (03:07)
+02. It's A Man Thing (04:33)
+03. Tailor-Made Woman (04:49)
+04. Blood From Hell (03:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC514C2973DFCF8BA75C5CC3BB156F2AE7CA4244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 847768   (293805) от 06.12.2014
 
 V.A. - Classic Rock Presents: The Best Of 2014 (2014) [APE|Lossless]<Rock>
@@ -6,7 +35,7 @@ V.A. - Classic Rock Presents: The Best Of 2014 (2014) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293805.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Logos - Plan Mundial Para La Destruccion (2006) [APE|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293739.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Billy Idol - Rebel Yell (1983) remaster, 2010, Audio Fidelity [FLAC|Lossless|ima
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293680.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293651.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Zebrahead - The Bonus Brothers (Japan Only Bonus Tracks) (2017) [MP3|320 Kbps] <
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293609.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Aqualung - Aqualung (2002) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293604.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Sunrise Avenue - 2 альбома (2006, 2011) [FLAC|Lossless]<Pop-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293581.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Wolverine - Machina Viva (2016) [FLAC|Lossless|image + .cue] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293524.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Suidakra - Cimbric Yarns (2018) [MP3|320 Kbps] <Folk Rock, Acoustic>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293503.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ VA - British Punk and New Wave (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293498.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Fleetwood Mac And The Christine Perfect Band - Hey Baby (2014) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293484.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Michael Sweet - Ten (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293370.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ ACI - Tiefenrausch (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293365.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Chelsea Wolfe - Birth of Violence (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293362.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ INXS - X (1990) 2011, Petrol Electric, RM. RE. [FLAC|Lossless|tracks + .cue] <Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293360.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Rush - Hemispheres (1978) 40th Anniversary, 2018, Mercury [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293328.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Smokie - 9 Albums (1975 - 1982) Remastered, 2016, Sony Music [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293287.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Bryan Adams - Room Service (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293202.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Santiano - MTV Unplugged (2019) [MP3|320 Kbps] <Folk Rock, Folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293178.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293154.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293147.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293136.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293121.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Zorge (ex-Tequilajazzz) - Что Мы Знаем О Равновесии? (2013)
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293052.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293033.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B5B1EBCAEEC6355B431A4F17DD904B6B4B6EF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334766   (293032) от 30.10.2019
-
-Animal ДжаZ - Время любить (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Так надо
-02. Апрель
-03. Мистика
-04. Чувства(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18592DFF7EBDBD138CDC53A17D8F5170682288FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

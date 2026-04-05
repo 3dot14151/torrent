@@ -1,134 +1,3 @@
-###  Публикация: 587464   (224055) от 10.12.2012
-
-А.Д.Цыганок | Русский взгляд на израильские войны: Вторая Ливанская – 2006 и в секторе Газа – 2009 [2011] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224055.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются стратегия сторон, особенности действий войск и войсковых группировок при блокировании территории Ливана, воздушная, наземная и информационная фазы войны, операции специальных войск, формирований тыла в ходе войны, отличия войны в секторе Газа (2009) от Второй Ливанской войны (2006). Ее уроки и выводы важны не только для участниц вооруженной борьбы, но и для развития теории и практики военной сферы России.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCEDA75F2E79237A4B8F2FC3B5D706B8FB30CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965837   (223917) от 15.12.2015
-
-Сергей Соловьев, Геннадий Прашкевич | Толкин (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже много десятилетий в самых разных странах люди всех возрастов не только с наслаждением читают произведения Джона Р. Р. Толкина, но и собираются на лесных полянах, чтобы в свое удовольствие постучать мечами, опять и опять разыгрывая великую победу Добра над Злом. И все это придумал и создал почтенный оксфордский профессор, педант и домосед, благочестивый католик. (   Читать дальше...   )Жанр: Биографии и Мемуары, ЛитературоведениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4EF729AC70908582D2B86A558010673A0376C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425109   (223911) от 19.11.2020
-
-Кристи Фанк | Грудь. Руководство пользователя (2020) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, что каждый день делаете выбор, который приближает вас к заболеваниям груди – или отдаляет вас от них? Что в большинстве случаев заболевания, в том числе и действительно страшные, не зависят от судьбы, и есть способы уменьшить ваши факторы риска до нуля? Что многие вещи, которые вы слышали о причинах возникновения рака молочной железы, являются ложными? (   Читать дальше...   )Жанр: Научная литература, МедицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB4085BC6256177E2E4B1A1C51C7B075655F26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425017   (223901) от 19.11.2020
-
-В.П. Корявов | Методы решения задач в общем курсе физики [6 книг] (2011 - 2013) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из 6 книг с разбором методов решения задач по всему курсу общей физики.Жанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE73D2D0F890EB4E828E8CC323537461D06F3C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425218   (223893) от 19.11.2020
-
-Жюль Верн | Всеобщая история географических открытий (2020) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свой знаменитый труд «Всеобщая история географических открытий» известный французский писатель Жюль Верн (1828–1905) писал более десяти лет. Книга получила мировое признание, она переведена на многие языки и пользуется заслуженной славой одного из лучших изданий по истории освоения человечеством планеты Земля.
-В данном издании мы объединили все три книги: «Открытие (   Читать дальше...   )Жанр: Всемирная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FA2B7E16BF4F474609F309F7EC614819956770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587651   (223890) от 10.12.2012
 
 Мария Згурская | Древний Египет [2008] [FB2]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223890.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223857.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223849.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223843.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223792.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223780.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223684.jpg" />
 </div>
 
 
@@ -320,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223646.jpg" />
 </div>
 
 
@@ -346,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223640.jpg" />
 </div>
 
 
@@ -372,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223633.jpg" />
 </div>
 
 
@@ -399,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223628.jpg" />
 </div>
 
 
@@ -425,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223552.jpg" />
 </div>
 
 
@@ -452,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223535.jpg" />
 </div>
 
 
@@ -478,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223464.jpg" />
 </div>
 
 
@@ -504,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223449.jpg" />
 </div>
 
 
@@ -530,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223339.jpg" />
 </div>
 
 
@@ -556,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223334.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223292.jpg" />
 </div>
 
 
@@ -609,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223266.jpg" />
 </div>
 
 
@@ -635,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223250.jpg" />
 </div>
 
 
@@ -662,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223223.jpg" />
 </div>
 
 
@@ -673,6 +542,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9467B6ED84E3C5B05DAD6AE006EE6951AF0193FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269092   (223130) от 13.12.2018
+
+Александр Нефедкин | Сарматы. Первая тяжелая конница степей (2018) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223130.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение многих веков вся Восточная Европа была вотчиной сарматских племен и носила имя Сарматия, а сами сарматы, закованные с головы до ног в непробиваемую чешуйчатую броню (не только всадники, но и их кони), вооруженные трехметровыми копьями и тяжелыми мечами, по праву считались лучшей латной конницей Древнего мира. Сарматы нанесли сильнейший удар по Скифскому (   Читать дальше...   )Жанр: Общая история, ЭнциклопедииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E3A9AA5CDF332A04D8BDC09CDECC3134264D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349427   (223114) от 19.11.2020
+
+Подшивка журналов | В мире науки [Scientific American] (1983-2020) [PDF] [Обновляемая]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасный научно-популярный журнал. Самый популярный из научных и самый научный из популярных. Статьи пишут практически без формул специалисты мирового уровня в своих областях. Обилие качественных иллюстраций.
+
+До 2003 г качество хорошее, после 2003 - прекрасное.
+В издании русской версии журнала был перерыв. С 2003 года издание возобновилось.(   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C505D90F0E7507F68C90D3EFBBD0FAF3B044C169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269051   (223111) от 13.12.2018
+
+Сергей Чугунов | Грипп и простуда. Террористы №1 (2018) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223111.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге вы узнаете, чем грипп отличается от простуды с точки зрения медицины. Рекомендации ведущих специалистов, народные рецепты и рецепты знахарей помогут вам не только справиться с этими коварными хворями, но и, самое главное, предотвратить их возникновение.Жанр: МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0F75B8C80E7E355CD7C1030FE6E349FE651C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587470   (223047) от 10.12.2012
+
+А.Д.Цыганок | Война на Кавказе 2008: русский взгляд. Грузино-осетинская война 8–13 августа 2008 года (Изд. 2-е) [2011] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена отношениям России с республиками Южного Кавказа и войне Грузии с Южной Осетией и Абхазией. В книге рассматриваются истоки грузино-осетинского и грузино-абхазского конфликтов, группировки российских войск на Кавказском направлении. Автор рассматривает также российско-грузинские, российско-осетинские и российско-абхазские отношения в преддверие войны, стратегию и тактику противников в ходе кампании, их сильные и слабые стороны, анализирует боевые операции сухопутных подразделений, ВДВ, ВВС и ПВО. Дана оценка признанию Россией Южной Осетии и Абхазии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C8298DCB52D4FF850311F8AD625A6C293BC918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268996   (223008) от 13.12.2018
+
+Нэнси Аткинсон | Непридуманные космические истории (2018) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223008.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге "Непридуманные космические истории" известный журналист Нэнси Аткинсон, специализирующася на космической теме, собрала рассказы более чем 35 работающих на NASA увлеченных своим делом инженеров и ученых.
+
+Космические исследования готовятся очень долго, преолодевая на своем путу множество трудностей и преград. И успех этих великих путешествий во многом (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A6946A5108CE7E374620B069B33A40B06B2C55
 ```
 
 https://mybot314.ru/tekegram_catalog/

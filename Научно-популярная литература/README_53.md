@@ -1,30 +1,3 @@
-###  Публикация: 1810658   (9247) от 05.08.2025
-
-Олег Ивик | Что и как ели люди в Древнем мире (2024) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древние египтяне, шумеры, греки, римляне, скифы питались совсем не так, как мы сегодня. Они не знали картофеля, помидоров, болгарского перца, кукурузы и баклажанов, сахар использовали только как лекарство, а о бананах и апельсинах лишь слышали. На их столе не было ни чая, ни кофе, ни какао, а крепость спиртных напитков не превышала 14–16 градусов.
-Что же ели жители (   Читать дальше...   )Жанр: научно-популярная литература, история кулинарииИздательство: НаукаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA87CBE785679B5D0FE4A20429FE12B2C3BF0511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810654   (9244) от 05.08.2025
 
 Хэнк Теймс, Игорь Клейнер | Сюрпризы в теории вероятностей (2025) [PDF]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9244.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8779.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4844.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4183.jpg" />
 </div>
 
 
@@ -140,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4163.jpg" />
 </div>
 
 
@@ -166,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_836.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_653.jpg" />
 </div>
 
 

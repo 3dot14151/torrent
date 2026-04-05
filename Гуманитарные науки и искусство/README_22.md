@@ -1,82 +1,3 @@
-###  Публикация: 1372566   (884963) от 03.04.2020
-
-Энн Джензер | Как писать нон-фикшн. Расскажите о сложных темах миллионам (2020) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите писать так, чтобы увлекать читателя, независимо от темы, то эта книга для вас. Здесь вы найдете множество советов и рекомендаций, как преподнести сложный материал в доступной и занимательной форме. Вы узнаете, что именно позволяет научно-популярным текстам оставаться легкими и интересными и как эти приемы можно использовать в вашей собственной работе.Жанр: Творчество, Писательское мастерствоПеревод: Мария СухотинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2936A031965F1031B0C1D7EBECC0565D69CD6461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995158   (884615) от 11.03.2016
-
-Л. Д. Любимов | Искусство древнего мира (1980) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор в живой, увлекательной форме рассказывает об истории первобытного искусства и искусства древнего мира (Египет, Ассиро-Вавилония, Греция, Рим) во всем многообразии различных художественных памятников, созданных зодчими,
-скульпторами, живописцами, резчиками по камню, ювелирами в тонких анализах произведений искусства раскрывается непреходящая художественная ценность (   Читать дальше...   )Жанр: История, искусство, археологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AEAE1EE90620FD2B5651562B8D246E021C5512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995253   (884115) от 11.03.2016
-
-Иэн Крофтон | Всемирная история. 50 идей, о которых нужно знать. (2011) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто жалуются, что детям в школе преподают только разрозненные фрагменты: римляне, Тюдоры, нацисты, революции, – без всякой связи отдельных фактов между собой. Эта книга не претендует на заполнение всех лакун в историческом образовании, но она дает системный взгляд на всемирную историю, показывает взаимосвязь событий и эпох. Книга расширяет горизонты и предлагает (   Читать дальше...   )Жанр: История, Зарубежная образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A07876F25AA4DC5623A613EE8C54386E17BA0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995929   (882814) от 12.03.2016
 
 Пётр Третьяков | У истоков древнерусской народности (1970) [FB2]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882814.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882714.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882512.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880556.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879407.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879173.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878961.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878883.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878374.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877692.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877684.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876632.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876427.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876194.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875467.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874298.jpg" />
 </div>
 
 
@@ -509,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874119.jpg" />
 </div>
 
 
@@ -536,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873899.jpg" />
 </div>
 
 
@@ -562,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872450.jpg" />
 </div>
 
 
@@ -588,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872044.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871877.jpg" />
 </div>
 
 
@@ -640,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871661.jpg" />
 </div>
 
 
@@ -666,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871569.jpg" />
 </div>
 
 
@@ -677,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4C36CD7D4B85952C80C48E1147BD8318CD52A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485225   (870816) от 18.09.2021
+
+Книжная серия | «Популярная философия с иллюстрациями» [7 книг] (2020-2021) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870816.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Популярная философия с иллюстрациями» (изд.«АСТ») – издательская серия, в которой планируется выпуск знаковых философских произведений с комментариями и иллюстрациями, которые сделают чтение более понятным и увлекательным.Жанр: Научно-популярная литература, Психология, Древневосточная литература, Античная литература, Книги по философииФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2FD89A85881828877811559109A560922FBE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105088   (870807) от 20.02.2017
+
+А. Борисюк (сост.) | Леонардо да Винчи. Художник в 100 картинах (2015) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870807.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Леонардо да Винчи - ярчайший представитель эпохи Ренессанса, образец "универсального человека", его творчество стало вершиной Высокого Возрождения. Художник, изобретатель, архитектор, инженер, экспериментатор и человек-загадка. Леонардо оставил своим потомкам 120 записных книжек, многие до сих пор не расшифрованы. Его произведения стали каноном, (   Читать дальше...   )Жанр: Искусство. КультураФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B3E885EDF9CBCD5CDE1D5535A19CCD4D56C546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374665   (870768) от 11.04.2020
+
+Михаил Эпштейн | Постмодернизм в России (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Наумович Эпштейн – российско-американский философ, культуролог, литературовед, лингвист, эссеист, лауреат премий Андрея Белого, Лондонского Института социальных изобретений, Международного конкурса эссеистики (Берлин – Веймар), Liberty (Нью-Йорк). Профессор Университета Эмори (США), автор трех с лишним десятков книг и более семисот статей и эссе, переведенных (   Читать дальше...   )Жанр: Культурология, ИскусствоведениеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C5315E07A155AE5A2B4E16A4607C51F2D5527D
 ```
 
 https://mybot314.ru/tekegram_catalog/

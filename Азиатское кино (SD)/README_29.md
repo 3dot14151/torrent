@@ -1,3 +1,55 @@
+###  Публикация: 1548585   (597902) от 03.05.2022
+
+Токио! / Tokyo! (2008) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три совершенно разные истории, снятые тремя режиссёрами, общее у которых лишь одно: место действия мегаполис Токио. Первая «Дизайн интерьера» повествует о молодых людях, приехавших покорять столицу Японии. Акира мечтает стать кинематографистом, а его девушка Хироко ищет своё жизненное предназначение и находит его неожиданно фантастическим образом. Вторая «Дерьмо» (   Читать дальше...   )Производство: Франция, Япония, Южная Корея, Германия, Backup Films, Bitters End, Comme des Cinemas, Westdeutscher Rundfunk (WDR)Жанр: фэнтези, драма, комедияРежиссер: Чжун Хо Пон, Леос Каракс, Мишель ГондриАктеры: Дени Лаван, Аяко Фудзитани, Рё Касэ, Аюми Ито, Нао Омори, Сатоси Цумабуки, Кэн Мицуиси, Юно Иригути, Риэ Минэмура, Бэн ХимураПеревод: профессиональный многоголосый (CP Digital)Субтитры: русские, английскиеПродолжительность: 01:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6CF06FF835A5A697A69F740855469CB4206BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913505   (597558) от 02.07.2015
+
+Караульный пост 506 / GP506 (2008) HDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда отряд Караульного поста 506 не вышел на связь раз в полчаса, как обычно, власти заволновались… На этот пост прибывает разведывательный отряд, чтобы разобраться, что там случилось…Производство: Корея Южная | Motis ProductionsЖанр: Ужасы, ТриллерРежиссер: Су-чанг КуенгАктеры: Чхон Хо Чжин, Чо Хуюн-джэй, Йанг-Хунь Лии, Ку Сон-хван, Ли Чжон Хон, Джэ Мун, Вон-санг Парк, Хьонг-Так Шим, Бьюнг-хо СонПеревод: Авторский (одноголосый, закадровый)Язык субтитров: Отсутствуют
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B79C64B1EF71B6FC4F41B0E4F1D14E764C7742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 806159   (596767) от 20.07.2014
 
 Кулак ярости (Китайский связной) / Jing wu men (Fist Of Fury) (1972) BDRip
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596767.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596262.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596191.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596186.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593309.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593033.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592949.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592897.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592698.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592676.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592495.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592147.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590699.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590218.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588485.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588240.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587655.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587653.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586772.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586624.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586109.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585984.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585926.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582653.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12E5EBC871ACC704C09897D9001A68429A71B063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553510   (581952) от 26.05.2022
-
-Точки и линии / Ten to sen (Points and Lines) (1958) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581952.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Сэйтё Мацумото. На юге Японии на Кюсю обнаруживают тела мужчины и женщины, принявших яд. Все похоже на самоубийство влюбленных. Однако нет посмертной записки, никто из свидетелей никогда не видел их вместе. Смерть мужчины была выгодна высокопоставленным лицам, однако основные подозреваемые в момент преступления находились на севере страны на Хоккайдо.Производство: Япония, Toei TokyoЖанр: ДетективРежиссер: Цунэо КобаясиАктеры: Хироси Минами, Исао Ямагата, Миэко Такаминэ, Ёси Като, Такаси Симура, Усио Акаси, Токуэ Ханадзава, Юдзи Хори, Такаси Канда, Акико КадзамиПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FF2CC9333B0D64B7284F01F6B7F99DC262E4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302165   (581911) от 14.05.2019
-
-Детектив Ди: Четыре Небесных царя / Di Renjie: zhi si da tian wang (2018) BDRip [H.264] [MVO]
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581911.jpg" />
-</div>
-
-
-###  Подробнее
-
-За заслуги перед отечеством император дарует детективу Ди могущественный артефакт — Жезл Укрощения Драконов. Но императрица недовольна этим жестом, она считает, что таким образом император поставил под угрозу их власть, и Жезл надо немедленно вернуть. Миссия поручается давнему товарищу Ди, а в помощь ему императрица приставляет боевых магов. Но детектив Ди предвидел, (   Читать дальше...   )Производство: Китай, Гонконг / Huayi BrothersЖанр: Фэнтези, боевик, детектив, приключенияРежиссер: Цуй ХаркАктеры: Марк Чао, Карина Лау, Уилльям Фэн, Кенни Лин, Сандра Ма, Этан Жуань ...Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Русские, английскиеПродолжительность: 02:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000BD280A28319D99B0A9689295902B8B21B332B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 586299   (228682) от 08.12.2012
+
+Иллюстрации - Иллюстратор Бедарев Глеб Георгиевич
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрации - Иллюстратор Бедарев Глеб Георгиевич
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7458AEE88484D7622F9D9D56DB939202376895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965126   (228337) от 13.12.2015
 
 Обои - Picturesque scenery 156 [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228337.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228127.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227959.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227811.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227807.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227746.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227582.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227469.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227365.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227317.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227093.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226781.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226413.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226397.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226368.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226360.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226337.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226333.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226330.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226321.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226279.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226198.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226173.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225687.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225043.jpg" />
 </div>
 
 
@@ -642,33 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD4CFB4672129088B7E2E44F64A62806D4E288AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965162   (225019) от 14.12.2015
-
-Картинки - Позитивные картинки - 2 [GIF, JPG]
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые, смешные; смешные, веселые; ироничные картинки интернет-творчества. Как статичные, так и анимированные.
-Только позитив! Улыбнись! Улыбнись! Улыбнись!Формат: GIF, JPGРазрешение файлов: 191х267 - 672х800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4D121FA4F76474206A4F8C552131F75EEAD817
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 731737   (295931) от 08.12.2013
+
+Жаклин Уилсон | Дневник Трейси Бикер (1991) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти добрые, трогательные и веселые повести познакомят вас с девочкой Трейси, ее дневником и ее надеждами.
+Трейси, ужасная хулиганка Трейси Бикер, живет в детском доме и надеется однажды обрести семью. В детский дом пришла писательница Кэм Лоусон. Некий журнал заказал ей статью о жизни несчастных сироток, статью, которая должна вызвать у читателя умиление и жалость. Кэм берет ужасную Трейси из детского дома, и они становятся семьей.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060ED19886F02E5AEC5FC0F167B69F25BBD44535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731743   (295834) от 08.12.2013
+
+Жаклин Уилсон | Бриллиантовые девочки (2004) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мартина бесконечно названивает своему Тони, Джуд ввязывается во все драки, а Рошель только и думает, что о шмотках. Когда у тебя такие сестрички, один переезд равен не двум, а двадцати двум пожарам. К тому же мама вот-вот родит ещё одного Бриллиантового ребёнка. Единственная отрада в этом сумасшедшем доме — Фиалка, маленький попугайчик с надписью «Сделано в Китае».
+И все-таки Бриллиантовые девочки — лучше всех!Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD8C8FD123EE6A34770877786F319DE0D48FFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 731890   (295819) от 08.12.2013
 
 Люси Мод Монтгомери | Аня из Инглсайда (2000) [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295819.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295714.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295705.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295703.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295674.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295665.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295552.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295450.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295397.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295352.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295313.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295300.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295295.jpg" />
 </div>
 
 
@@ -364,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295231.jpg" />
 </div>
 
 
@@ -390,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295229.jpg" />
 </div>
 
 
@@ -417,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295201.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295144.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294975.jpg" />
 </div>
 
 
@@ -498,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294886.jpg" />
 </div>
 
 
@@ -525,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294823.jpg" />
 </div>
 
 
@@ -551,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294731.jpg" />
 </div>
 
 
@@ -577,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294276.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294271.jpg" />
 </div>
 
 
@@ -629,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294257.jpg" />
 </div>
 
 
@@ -641,60 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE5B4C193B77A011442E710EE4FD0E914367C4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079530   (294199) от 04.12.2016
-
-Ф. Жанузакова (сост.) | Казахские народные сказки (1982) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки - замечательный образец устного поэтического творчества казахского народа, страницы его истории, отражающие быт, обычаи, нравы и традиции степного кочевника, заключающие в себе драгоценные жемчужины народной мудрости, остроумия, находчивости, душевной щедрости.
-Мы узнаем из них о тяжелом и непосильном труде народа, о его вековой ненависти к своим угнетателям, (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58496872AFA7865455177835E2DFD66B91DCFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421669   (294035) от 11.12.2011
-
-А.Р. Куаншкалиева | Физкультурные праздники для дошкольников (2008) [JPEG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294035.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособие вошли сценарии физкультурных праздников с использованием акробатических упражнений, пластических композиций, ритмической гимнастики, созданных на основе программы "Старт" Л.В.Яковлевой и Р.А.Юдиной.
-Пособие адресовано воспитателям, руководителям физического воспитания в дошкольных учреждениях, педагогам дополнительного образования, работающим (   Читать дальше...   )Жанр: Пособие для педагоговФормат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D789B0D78D055A44B98655B5E7DDF21F35C7CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

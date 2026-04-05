@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416267.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416124.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416028.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415995.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415984.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415811.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415609.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415337.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415261.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413873.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413871.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413864.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413860.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413848.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413517.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413079.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412906.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412901.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412898.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412897.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412861.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412599.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412397.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412254.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411896.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411791.jpg" />
 </div>
 
 

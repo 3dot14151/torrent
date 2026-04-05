@@ -1,3 +1,30 @@
+###  Публикация: 1024808   (713030) от 10.06.2016
+
+Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybrid x86 & x64 (сборка от 09.06.2016) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
+Способ интеграции - SVCPACK (T13) и также можно устанавливать на "живую" систему.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA448FAC49B7CF7E0C15AB138C9AF7CA6186313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024512   (713018) от 10.06.2016
 
 LoftSchool | Комплексное обучение разработке на PHP (2016) PCRec
@@ -6,7 +33,7 @@ LoftSchool | Комплексное обучение разработке на P
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713018.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Navitel / Навител Навигатор v9.6.2526 RePack [Ru/En] - толь�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713011.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Adobe Photoshop CC 2018 19.1.3 (x64) RePack by JFK2005 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712912.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Easy DriverPacks 6.3.2015.0310 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712665.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ State of Decay: Year-One (2015) [Ru/Multi] (1.0) Repack R.G. Games [Survival Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712532.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712529.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712389.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ Microsoft Office 2016 Select Edition 16.0.4498.1000 RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712007.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_711589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_711589.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ CorelDRAW Graphics Suite 2018 20.0.0.633 RePack by KpoJIuK[Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711101.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ OTUS | Разработчик Java [32 занятия из 32] (2017-2018) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711097.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711055.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ Adobe Photoshop CC 2015 (v16.1.2) x86-x64 RUS/ENG Update 5
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711051.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.11.1.0/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711046.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711044.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711038.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710546.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710535.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710471.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710344.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ WebForMySelf | JavaScript. Полное руководство для совре
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710333.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ ABBYY FineReader 14.107.232 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710329.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ Crysis: Remastered (2021) [Ru/En] (3.0.0) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710277.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_710254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_710254.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ TNOD User & Password Finder 1.6.5.0 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709473.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ TNOD User & Password Finder – это программа, которая при
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFAFBE51EE510EB619E770A232E987DAC12C03A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329895   (709343) от 29.04.2011
-
-Windows XP Pro SP3 Rus VL Final x86 Diablik94 Edition [29.04.2011/Rus]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_709343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск прежде всего предназначен для «чистой» установки с загрузочного компакт диска (в Bios в меню Boot выставить, First boot device-CDROM).Данная сборка содержит только обновления на 29 число.Язык интерфейса: Rus
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

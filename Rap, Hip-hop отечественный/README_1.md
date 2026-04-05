@@ -1,32 +1,3 @@
-###  Публикация: 1367266   (917312) от 15.03.2020
-
-GSPD - Музло (2019) [MP3|320 Kbps] <Rave, Dance, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. СЕКТА [03:07]
-02. Интердевочка [03:27]
-03. Кислотный дождь [03:25]
-04. Заряженный [03:54](   Читать дальше...   )Жанр: Rave, Dance, PopПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D1D4425ACD411F882EBC38258C047E602762BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367591   (915821) от 16.03.2020
 
 SharOn - Шарашка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ SharOn - Шарашка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915821.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Slimus x ВесЪ - Улей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915783.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Sagath - Вынос тела (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909245.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Drummatix - На горизонте (2020) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908945.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907091.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Grebz - Рэппєq (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903821.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903244.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902116.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ babyshkaestvnuka - CRINGEPOLIS (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Underground>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902106.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901497.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Skabbibal - Умер (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Horrorcore>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900439.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Booker - Маргинальное чтиво (2019) [MP3|320 Kbps] <Rap, Hip-Hop
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900438.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Braslet - Зона комфорта (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Undergr
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900429.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900410.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Fonetic - Мой хаос (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899660.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897049.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ MATRANG - ТРИ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896817.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ N.Masteroff - Все мечты давно сгорели (2020) [MP3|320 Kbps] 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895294.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895284.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895268.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Kyok - DECADANCE 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895233.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Horus & Зараза - Баланс чёрного (2019) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895226.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_895218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_895218.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Horus - Рифмономикон (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895199.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ PHARAOH - Правило (2020) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895109.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ PHARAOH - Правило (2020) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5362E6AB01D684D0C963B038E6D1BFF74BC226F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370829   (893681) от 29.03.2020
+
+Артем Татищевский - Живым 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало [00:51]
+02. Уличный движ [03:28]
+03. Андромеда [03:19]
+04. Психотип [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A027AFE5BA8374C44FCB0BCD32CFB836077B821C
 ```
 
 https://mybot314.ru/tekegram_catalog/

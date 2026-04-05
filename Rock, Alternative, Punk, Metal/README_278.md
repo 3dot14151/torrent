@@ -1,3 +1,148 @@
+###  Публикация: 1198710   (804514) от 13.01.2018
+
+Iron Fire - Among The Dead (2016) [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (The Lost City) (1:16)
+ 02. Among the Dead (4:11)
+ 03. Hammer of the Gods (3:53)
+ 04. Tornado of Sickness (4:04)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBB120122EEE71E9A95AD4E06F0345D333E797B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505382   (804465) от 27.10.2021
+
+Ottoman - Heretic (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn The Witch 03:46
+02. Don Ivi 04:15
+03. Fire In The Hole 03:28
+04. Glory Days 05:00(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFA7DC7CA4E9628B411971BF99632DEAB3C96FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505389   (804464) от 27.10.2021
+
+Rage - The Soundchaser Archives (2014) 2xCD, Compilation, 30th Anniversary [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804464.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Anybody Home (New Demo 2014) 04:55
+02. Mystery Trip 04:16
+03. In Union (Unreleased Demo 2006) 03:31(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847C516D881B356FDFB9348BFA8F73B5910AB449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505255   (804463) от 27.10.2021
+
+Portals Of Glory - Divine Alliance (2021) EP [FLAC|Lossless|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aurora Novum (00:04:28)
+02 - Blood and Steel (00:06:00)
+03 - Doom of Your Kingdom (00:05:57)
+04 - Glory, Honor, and Freedom, or Death (00:06:11)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9F53AE006D0D73087D32617A208D620543C233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504990   (804461) от 27.10.2021
+
+Massacre - Resurgence (2021) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eldritch Prophecy (6:24)
+02. Ruins of R'Lyeh (5:26)
+03. Innsmouth Strain (3:05)
+04. Whisperer in Darkness (3:58)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3BC0597D9F1475BA5C55FC8342E10249C5D74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505437   (804460) от 27.10.2021
 
 John Diva & The Rockets Of Love - American Amadeus (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Glam>
@@ -6,7 +151,7 @@ John Diva & The Rockets Of Love - American Amadeus (2021) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804460.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Evans Blue - Letters from the Dead (2016) Not On Label, US [MP3|320 Kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804424.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Awesome 80's Volumes One, Two & Three (2004) 3CD, Compilation [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804413.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Woslom - A Near Life Experience (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804393.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Franklin Zoo - Red Skies (2016) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804364.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Judas Priest - Reflections: 50 Heavy Metal Years Of Music (2021) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804363.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Black Sabbath - Vol. 4 (1972) Remastered 2021, Rhino Warner Records [FLAC 2.0|96
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804360.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Pink Floyd - More (Original Film Sountrack) (1969) Remastered 2011, Pink Floyd R
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804356.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Ladies Ballbreaker - Whole Lotta Bobby (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804275.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Imagine Dragons - Origins (2018) Deluxe Edition [FLAC 2.0|44,1/24|WEB-DL|tracks]
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804263.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Pink Floyd - Wish You Were Here (1975) Remastered 2011, Pink Floyd Records [FLAC
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804243.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Pink Floyd - Wish Yоu Were Неre (1975) Reissue, Remastered, 2017, Japanese Ed
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804232.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Pink Floyd - The Division Bell (1994) Remastered 2011, Pink Floyd Records [FLAC 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804137.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Krypt - Preludes To Death (2008) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803647.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ OCN (Ocean) - Wojna Swin (2011) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803565.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Tyranex - Death Roll (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803560.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Simone Cozzetto - Wide Eyes (2016) [FLAC|Lossless|image + .cue] <Neo Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803554.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - These Dreams - Rock Classics (1997) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803551.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Chronosphere - Red n' Roll (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803549.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Nightrage - The Venomous (2017) Japanese Ed. [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803547.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Ancestral Dawn - Souldance (2017) Japanese Ed. [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803464.jpg" />
 </div>
 
 
@@ -600,145 +745,6 @@ Ancestral Dawn - Souldance (2017) Japanese Ed. [FLAC|Lossless|image + .cue] <Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:062EA8C9FBEB4195FD4103CDE4437DEBFE43DFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120090   (803461) от 30.03.2017
-
-Brother Firetribe - Sunbound (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финская AOR-группа "Brother Firetribe", в состав которой входит гитарист коллектива "Nightwish" Эмппу Вуоринен. Группу создали пять финских музыкантов, которых объединила любовь к американским титанам AOR и хард-рока "Journey" и "Van Halen". Помимо Вуоринена, еще одной известной фигурой в составе коллектива является фронтмен (   Читать дальше...   )01. Sunbound (1:35)
-02. Help Is On The Way (3:55)
-03. Indelible Heroes (3:51)
-04. Taste Of A Champion (3:37)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95990A727BABA27061B20784C465A29AB5F205E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120300   (803459) от 30.03.2017
-
-Warbringer - Woe to the Vanquished (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silhouettes
-02. Woe to the Vanquished
-03. Remain Violent
-04. Shellfire(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6993EC991544B24E4FA94C80159BAFCE52EB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120224   (803453) от 30.03.2017
-
-Edguy - Space Police - Defenders Of The Crown (2014) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Power MetalПродолжительность: 01:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C723C185ABFFD607A5FEBEF1AE93F3FA10F084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120397   (803447) от 30.03.2017
-
-Jasta - The Lost Chapters (2017) [MP3|320 Kbps] <Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Your Life (02:59)
-02. Parasitic (03:18)
-03. The Same Flame (03:05)
-04. Back to What Matters (04:06)(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AB5B3EE18562F705ADCA0DF92660E440410FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273907   (803382) от 05.04.2011
-
-MIKE TRAMP & Freak Of Nature - Дискография (1993-2011) [MP3|320 kbps]<Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard rock
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

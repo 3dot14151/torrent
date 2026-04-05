@@ -1,3 +1,29 @@
+###  Публикация: 1458475   (1023780) от 29.03.2021
+
+Все как у зверей | Дамп Youtube-канала "Все как у зверей" (2013-2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный дамп Youtube-каналаЖанр: Научно-популярное, натуралистикаПродолжительность: выпуски от ~00:02:00 до ~03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD9971300CE31BF7161AE7ACB7D44EBF33BDE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458477   (1023764) от 29.03.2021
 
 НаукаPRO | Дамп Youtube-канала "НаукаPRO" (2017-2021) WEB-DL
@@ -6,7 +32,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023764.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Udemy, Ryan Dhungel | React Node MERN Marketplace - Build A Hotel Booking App (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023745.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Knower School | Игровая модель топора (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023740.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ CG Cookie, Jonathan Lampel | Основы цифрового освещения 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023739.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023730.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Udemy | Создание персонажа в Blender 2.83 для игр / Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023725.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023601.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023554.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023548.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ Skillbox, Д. Пронин, А. Панов, П. Старостина и др. | 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023535.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023358.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ Udemy, Emile Ackbarali | An Introduction to Profibus DP Networking  (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023312.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ Udemy, Emile Ackbarali | An Introduction to the Ethernet/IP Protocol  (2021) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023300.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ Udemy, Mark Lassoff и др. | jQuery for Application Development: Fundamentals 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023297.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ Udemy, Miloslav Stofa | GPU computing in Vulkan. (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023295.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ Udemy, Emile Ackbarali | An Introduction to the DNP3 SCADA Communications Protoc
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023294.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ Udemy, Coding Gears | Train Your Brain | IP Addresses and Subnetting  (2021) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023292.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ Lets Build That App | Maps UIKit SwiftUI (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023291.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ Udemy, Yaroslav Shmarov | Ruby on Rails Crash Course: Authentication and Authori
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023276.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Udemy, Filip Jerga | React, Angular, Node In-Depth Guide: Beginner to Pro (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023273.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Udemy, Laurence Svekis | JavaScript DOM Projects InterActive Dynamic WebPages  (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023272.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Udemy, Abhilash Nelson | Computer Vision: Face Recognition Quick Starter in Pyth
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023264.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Udemy, Manisha Satone | 8051 Architecture, Assembly and 'C' Programming  (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023258.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ Udemy, Rob Percival и др. | Create a Store Inventory GUI Application with C++
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023256.jpg" />
 </div>
 
 
@@ -678,32 +704,6 @@ Qt - это кроссплатформенная среда разработки
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D7BE5361E9285EF6E7BA74F93C1810FDA3B8FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459364   (1023245) от 01.04.2021
-
-Udemy, Manisha Satone | PIC Microcontroller: Architecture and Embedded C Programming (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебная программа курса «Программирование микроконтроллеров PIC» предназначена для развития участников со всеми необходимыми навыками, необходимыми для работы с контроллерами периферийного интерфейса (микроконтроллерами PIC) как на аппаратном, так и на программном уровне. PIC Microcontroller - это микроконтроллер производства Microchip Technology. Это компактный (   Читать дальше...   )Производство: UdemyЖанр: МикроконтроллерыЯзык озвучки: АнглийскийПродолжительность: 06:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A02AD9736C91EF4EE387F1F6668E607148BC391B
 ```
 
 https://mybot314.ru/tekegram_catalog/

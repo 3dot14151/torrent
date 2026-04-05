@@ -1,3 +1,30 @@
+###  Публикация: 1383039   (815442) от 13.05.2020
+
+Микки Нокс | Быть психопатом. Интервью с серийным убийцей (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на самое дно человеческой души.
+Кто способен стать серийным убийцей, и что должно произойти в жизни человека, чтобы так надломить психику? Сколько боли нужно испытать человеку, чтобы превратиться в чудовище, не способное чувствовать и сопереживать? Способен ли такой человек измениться, и можно ли заразиться чужим безумием? Ответы на эти вопросы вы (   Читать дальше...   )Жанр: Криминология, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F01C754F82AA2D0E1DEB65C75283D0C4AD0EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383038   (815439) от 13.05.2020
 
 Микки Нокс | Меня зовут Джеффри Дамер. Подлинная история серийного убийцы (2019) [EPUB]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815439.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815311.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815249.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813879.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813744.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811729.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811611.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811558.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809833.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808917.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808895.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807970.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807461.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806395.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806362.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806346.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806288.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806021.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805129.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804508.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804334.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804236.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804084.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803956.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802008.jpg" />
 </div>
 
 
@@ -649,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5758C70CEC72057A0CFA888E6733CFEDA323EED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120618   (801890) от 31.03.2017
-
-Александр Платонов | Тайная война против СССР и России. Начальник 1 отдела по борьбе с терроризмом УБТ ФСБ РФ о лихих 90-х (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сейчас все чаще вспоминают «лихие 90-е» – кто-то с тревогой, а кто-то с тайной надеждой на их возрождение во всей красе: с бандитским беспределом, воровским переделом собственности, внешним западным управлением…
-Книга начальника 1 отдела Управления по борьбе с терроризмом ФСБ России А. М. Платонова дает качественную «прививку» от таких противоестественных желаний (   Читать дальше...   )Жанр: История, Публицистика: прочееФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52D9F77462A2FFF26CCD7889849BF204D576863
 ```
 
 https://mybot314.ru/tekegram_catalog/

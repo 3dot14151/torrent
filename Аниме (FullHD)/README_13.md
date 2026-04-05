@@ -6,7 +6,7 @@ Medaka Box: Abnormal | Medaka Box 2 | Ящик предложений Мэдак
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863470.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Punch Line | Punchline | Вся суть в трусах | Изюминка [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860649.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859865.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Strike the Blood IV | Удар крови [OVA-4] [2020, OVA, 12 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859288.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bokutachi no Remake | Remake Our Life! | Ремейк нашей жизни [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859235.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Vinland Saga | Сага о Винланде [2019, TV, 24 из 24] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858473.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Beck: Mongolian Chop Squad / Бек [2004, TV, 26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857860.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Gen'ei o Kakeru Taiyou | Day Break Illusion | Солнце, пронзающее
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856768.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854795.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Koutetsujou no Kabaneri / Kabaneri of the Iron Fortress / Кабанери же�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854700.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kurozuka | Куродзука [2008, TV, 12 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854380.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Magimoji Rurumo | Ведьмочка Рурумо [2014, TV, 12 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854149.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Gekijouban Kara no Kyoukai / The Garden of Sinners / Сад грешников (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852122.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Girl Friend (Kari) / Girl Friend Beta / Подружка Бета [2014, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848510.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Gintama° / Гинтама [ТВ-4] [2015, TV, 51 из 51] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848393.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848177.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Chain Chronicle (2016) / Цепные хроники [2016, Movie, 3 из 3] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848050.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Hello World | Здравствуй, мир! [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847945.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Koukaku Kidoutai: SAC_2045 | Ghost in the Shell: SAC 2045 | Призрак в д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847654.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ GJ-bu | Good Job Club | Клуб добрых дел [2013, TV, 12 ep.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847161.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Uchuu Patrol Luluco / Space Patrol Luluco / Космический патрул�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846645.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Love Hina | Любовь и Хина [2000, TV, 25 TV + 3 OVA + 2 SP] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842741.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Виолетта Эве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840749.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Zegapain | Дзэгапэйн [2006, TV, 26 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839952.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839876.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ God Eater / Пожиратель Богов [2015, TV, 13 из 13] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839405.jpg" />
 </div>
 
 

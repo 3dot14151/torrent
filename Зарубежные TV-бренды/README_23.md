@@ -6,7 +6,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805349.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805228.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Нетронутые уголки дикой природы / Nature's Micr
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805117.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804245.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hu
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804201.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery. Величайшая загадка Эвереста / Everest's Grea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804131.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Шок и Трепет. История электричества. Искр
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804068.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Чудаки и акулы / Jackass Shark Week (2021) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804000.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803197.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803098.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC. Панорама. Нелегальная торговля органами 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802492.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802476.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802468.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802450.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802410.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802376.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801989.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801954.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801474.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801437.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801298.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800835.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800115.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800043.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BBC. Панорама. Харви Вайнштейн: вся подноготн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799983.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799725.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1190082   (268724) от 08.12.2017
+
+VA - Deep Meditation Yoga (Best of Calm Relaxing Music) (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dharma Frequency - Mojun Ambient
+02. Dharma Frequency - Deep Meditation
+03. Sami Sivananda - Lotus Yoga
+04. Prana Tones - Deep Relaxation Tunes(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A221973310B49ACBB4B2C40CD09E8299C1181738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266956   (268428) от 04.12.2018
+
+Prequel - Without You (2018) Distant Hawaii [FLAC|Lossless|WEB-DL|tracks] <Detroit House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song I Said I'd Make For You (07:08)
+ 02. And Though It's Been Too Long (06:11)
+ 03. People Say (04:40)
+ 04. Give Me Things That Don't Get Lost (05:55)Жанр: Detroit House, Deep HouseПродолжительность: 00:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7132CE56BC8C6468F3924D104D4263074F5942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266950   (268427) от 04.12.2018
+
+au Voyage - Craosa (2018) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambion (01:15)
+ 02. Octious (02:01)
+ 03. Median (02:38)
+ 04. Sasanian (02:34)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F576839AAC01F21548C49C792E523927E1E14A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266996   (268420) от 04.12.2018
+
+VA - Balearic Sundown Lounge-Beach Chill Out Summer Moods (2018) [MP3|320 Kbps] <Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Pilots - Any Lounge Color (Guitar Bar Classics Lounge Mix)
+02. Two Heroes - Dream Of Something Sweet (Chillin' Dire Guitar Mix)
+03. Ryan Pearce - Open All Night (Ibiza Guitar Lounge Mix)
+04. Joe's Diner, Victor Rodriguez - Clouded Minds (Spanish Guitar Chill Mix)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F8BF6BEADEC272E1DF9348D3228B8ED7A4B129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266912   (268413) от 04.12.2018
 
 VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -6,7 +122,7 @@ VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268413.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ W O L F C L U B - W O L F C L U B (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268389.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ W O L F C L U B - Chasing The Storm (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268387.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ W O L F C L U B - Infinity (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268384.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Full House, Vol. 58 (2019) [MP3|320 Kbps] <Club, Groove, Future House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268222.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Sunshine Dance (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268219.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Guido's Lounge Cafe Vol.3 (2019) [MP3|320 Kbps] <Deep House, Electronica>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268190.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Fairytale Chillout (Smooth Vocal Lounge Selection) (2019) [MP3|320 Kbps] <B
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268189.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Phantom Network - Nightscape (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268093.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268056.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Nakayama Munetoshi - Echolocation (2016) Terminal Dream [FLAC|Lossless|WEB-DL|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268041.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Felicia Atkinson & Jefre Cantu-Ledesma - Limpid as the Solitudes (2018) Shelter 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267904.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dead Beat Project | O.S. - Discography 4 Releases (2007-2014) Aesthetic Death Re
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267902.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ HOME - Odyssey (2014) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267809.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Faderhead - Night Physics (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267778.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267720.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Suduaya - Loveology (2018) [FLAC|Lossless|tracks] <Psychill, Downtempo, Psybient
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267616.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Erissoma - Discography 11 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267539.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Depeche Mode - All That Glitters  (2008) [MP3|320 kbps]<Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267330.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Tranceiology: Trance Music Contest (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267146.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Damaged Records - Best of 2017 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267145.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - The Sound Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267143.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - The Sound Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60AF077FEB84FC391DAE7692B47826F28CE9B3D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190048   (267141) от 10.12.2017
-
-VA - Suanda Music: Track Of The Week - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roxanne Emery & Roman Messer  -  Lullaby (Original Mix)  3:56
-02.  Harry Square  -  Ricochet (Original Mix)  3:23
-03.  Sean Truby, Solis & Stine Grove feat. Ultimate  -  Your Dawn (DRYM Remix)  5:47
-04.  Photographer  -  Infinity (Roman Messer Radio Edit)  3:29(   Читать дальше...   )Жанр: Trance, Uplifting Trance, VocalПродолжительность: 02:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4482186CF0C53EE058C1F76C34E3657C3908E399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190031   (267140) от 10.12.2017
-
-VA - Tech Trance Essentials Vol.10 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Etamin  -  Covenant (Smith & Brown Radio Edit)  3:21
-02.  Rafa Montejo  -  Showcase (Original Mix)  6:07
-03.  Franco Landriel  -  Quimera (Radio Edit)  4:02
-04.  ReDrive & Patrick Blanes  -  End Transmission (Original Mix)  7:16(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDA122B9AE8DB87A6463F1F204B8950040518D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190457   (267136) от 10.12.2017
-
-VA - Offline Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tauon  -  Blessed (Original Mix)  4:07
-02.  Der Waldlaufer  -  Klare Wasser (Original Mix)  4:29
-03.  Thomas Lemmer  -  Cycle Of Life (Original Mix)  4:32
-04.  Sine  -  Flying (Firas Tarhini Remix)  3:48(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA8FE762DAE8A7EB148C2BD905F17AE76027526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190325   (267134) от 10.12.2017
-
-VA - The Best Of Chill Out: December (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enviado Vida  -  160914 (Original Mix)  2:29
-02.  Aumcraft  -  Oversoul (Original Mix)  8:12
-03.  Jama & Mininome  -  Dyhaniem (Original Mix)  4:34
-04.  Anturage  -  Raindrops (Original Mix)  4:22(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7EC81C7F9878DFB07670FEDFC9710BF0341EC10
 ```
 
 https://mybot314.ru/tekegram_catalog/

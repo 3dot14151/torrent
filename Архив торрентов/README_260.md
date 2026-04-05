@@ -1,113 +1,26 @@
-###  Публикация: 599104   (999443) от 06.01.2013
+###  Публикация: 600796   (998671) от 09.01.2013
 
-Butterfly - Favorite Colors Episode 065 (05.01.2013) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Teague -  Prelude VI (Intro Original Mix)
-02. Matt Eray -  Downtown Lights (Original Mix)
-03. Second Way -  Vladivostok 7520 (Original Mix)
-04. Erick Strong feat. Anthya -  Out Of My Mind (Original Mix)
-05. Avi -  Mainstage (Original Mix)
-06. Alex M.O.R.P.H. feat. Shannon Hurley -  Monday Morning Madness (Original Mix)
-07. Broning vs Sean Truby & Solis -  Rokit (Original Mix)
-08. 4 Strings -  Out To Nowhere (Original Mix)
-09. Arys -  Barocco (Audiko Remix)
-10. Alter Future & Namek -  Winter Feeling (Felix Pot Remix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01225E4806FE5C64A8CD65F7C46BE60D7ECF042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599434   (999442) от 06.01.2013
-
-Фотография - Фотограф Miru Kim
+[Wallpapers] A selection of panoramic wallpapers (09.01.13)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Miru KimРазрешение файлов: ~  500x750 ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A470669EB19D86A475178D588175088FF8B62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599430   (999440) от 06.01.2013
-
-Фотография - Фотограф Alva Bernadine
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Alva BernadineРазрешение файлов: ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB147142AF580B2C3AD304A656CD46CEDAF3A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599384   (999439) от 06.01.2013
-
-[Wallpapers] Compilation of air (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999439.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Compilation of air (06.01.13)
-Название: Compilation of air (06.01.13)
+[Wallpapers] A selection of panoramic wallpapers (09.01.13)
+Название: A selection of panoramic wallpapers (09.01.13)
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
+Разрешение файлов: 2560х1024
 Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45BBA010F9EEF22C211B9B5E31F1E1CD839A21D0
+magnet:?xt=urn:btih:7F9242B121E9BEB76FC2C3344D8F12693B644422
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,25 +28,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599435   (999438) от 06.01.2013
+###  Публикация: 600593   (998670) от 09.01.2013
 
-Фотография - Фотограф Zuna Potočná
+Sexy Girls Pack Wallpapers (06.01.13) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Zuna PotočnáРазрешение файлов: ~  500x750 ~ 800x800
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B54717D6A97BAC9B9865CBDD2D6AB53FAB189A98
+magnet:?xt=urn:btih:C9430EE16B0170C1245E5CC5679AEBDAAEE6456D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,55 +54,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599671   (999435) от 06.01.2013
+###  Публикация: 600598   (998669) от 09.01.2013
 
-[Wallpapers] A selection of beautiful girls Pack 17
+Interior Wallpapers (06.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998669.jpg" />
 </div>
 
 
 ###  Подробнее
 
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937EDCDDDAF5FD42CA98A62A59E5DB9F01A83983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600936   (998665) от 09.01.2013
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998665.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 6
+Название: New 2013 Nature Wallpaper Pack 6
+Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470C7EEC4492FF76F64627DFAFF18649FA0347BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599386   (999432) от 06.01.2013
-
-[Wallpapers] Compilation of anime Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999432.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Compilation of anime Pack 6
-Название: Compilation of anime Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:707989E3C14D64CFD51743484D3FA589045A52CA
+magnet:?xt=urn:btih:F98EE288A6B655A4DA79DBB24264BDA45A1CC633
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,25 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599428   (999431) от 06.01.2013
+###  Публикация: 600603   (998664) от 09.01.2013
 
-Фотография - Фотограф Anna Bodnar
+Best HD Wallpapers Pack (07.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
+magnet:?xt=urn:btih:0E853388EF245600583430477062A05CF7C1A013
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,34 +136,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598136   (999429) от 06.01.2013
+###  Публикация: 600606   (998662) от 09.01.2013
 
-Kaizen - Любим делать красиво (2011) [MP3|320 кб/с]<Alternative>
+Sexy Girls Wallpapers (07.01.13) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Любим делать красиво (4:27)
-02. Поколение Пох*й (3:36)
-03. Саломея (3:15)
-04. Я люблю с тобой молчать (3:35)
-05. Все Мы Гоним (3:07)
-06. По слогам (3:35)
-07. Web-Dr'Ocher (3:39)
-08. Шаг За Край (3:45)
-09. Шум inc (2:29)
-10. Dolphin (5:14)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:34
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68541AB594C2588717CC0E6141DEB5937D01B958
+magnet:?xt=urn:btih:20E8959DAF9EF6CC7F2B98B694027D8F5ECCF10A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,30 +162,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599161   (999424) от 06.01.2013
+###  Публикация: 600789   (998660) от 09.01.2013
 
-Aeternitas - Requiem (2000) [WavPack|Lossless]<Gothic Metal>
+[Wallpapers] New 2013 Wallpaper Pack 16
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introitus [03:29]
-02. Kyrie [01:53]
-03. Graduale [04:12]
-04. Tractus [03:13]
-05. Sequenz - Dies Irae [04:38]
-06. Sequenz - Mors Stupedit [05:54]
-07. Sequenz - Rex Tremendae [02:59]
-08. Sequenz - Confutatis [04:45]
-09. Sequenz - Lacrymosa [03:24]
-10. Offertorium [04:29](   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 00:48:08
+[Wallpapers] New 2013 Wallpaper Pack 16
+Название: New 2013 Wallpaper Pack 16
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47687D3C358A6A74A73F5A967B8768641F8DF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600588   (998657) от 09.01.2013
+
+Computer Desktop Wallpapers Collection (06.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93F50ABFB0A52936AD6C2C3001B7BB24AF7DD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600602   (998656) от 09.01.2013
+
+Computer Desktop Wallpapers Collection (07.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EDA1B3F48D931CCD31E904C0B23B4346B390F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600698   (998654) от 09.01.2013
+
+SynWrite Editor 4.6 build 600 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998654.jpg" />
+</div>
+
+
+###  Подробнее
+
+SynWrite Editor - мощнейший текстовый редактор для программистов и обычных пользователей. SynWrite - редактор исходного кода, поддерживает возможность разработки программ более чем на 70 языках. В том числе Java, C++, JavaScript, Pascal, Perl, HTML, XML, PHP, SQL и других. SynWrite обладает TDI-интерфейсом, а значит позволяет открыть сразу несколько файлов в отдельных вкладках. Помимо этого в SynWrite имеется целый ряд вспомогательных инструментов, облегчающих написание кода.Название программы: SynWrite EditorЯзык интерфейса: Multi/Русский
 
 ## Скачать торент
 ```bash
@@ -293,211 +270,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599670   (999416) от 06.01.2013
+###  Публикация: 600798   (998653) от 09.01.2013
 
-[Wallpapers] Car wallpapers (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999416.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Car wallpapers (06.01.13)
-Название: Car wallpapers (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8557FCCAD1B0EE814702E4DA48AAD21A459ED4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599388   (999415) от 06.01.2013
-
-[Wallpapers] A selection of beautiful girls Pack 16
+[Wallpapers] New 2013 Wallpaper Pack 18
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1920x1080 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F561B7002D26EE37C2277B8D549FD52B99DF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599165   (999413) от 06.01.2013
-
-Robert Monroe - Tales Of Power (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnosis
-02. Sonora Trip
-03. Magic World
-04. Night Walking
-05. The Power of Silence
-06. Mescalito
-07. Welcome To Astral World
-08. Unreal
-09. Salvia Dream
-10. Tales of Power(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C3D161E7E0EA5EE6F55DC2F661E02C0747CE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599442   (999411) от 06.01.2013
-
-VA - Paradise Islands (Mykonos Beach - Chillhouse Lounge Edition) (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monodeluxe - Look At Me Again
-02. H&H Soulsurvivors - Brazil
-03. Larse - Close Eyed Dancer
-04. Alex Douche - Stories (feat. Martin Landa)
-05. Deejay Lesa - Waves
-06. Neo Mind - Your Eyes (Original Mix)
-07. Sharon Phillips - Touch Me (Kenny Blake's Uplifting Remix)
-08. Paolo Madzone Zampetti - A2s
-09. Fast Vision Soul - Babatunde
-10. Demie - Alone in the Sunset(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B6A0C3DFC6F85BC2BFEC64F2D0DCFB85B9BA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599410   (999410) от 06.01.2013
-
-Фотография - Фотограф Daria Endresen
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Daria Endresen
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CE11FA1A28BAAD6AC021C9EC981E2AB44CDB34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599664   (999408) от 06.01.2013
-
-[Wallpapers] World of Animals (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999408.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] World of Animals (06.01.13)
-Название: World of Animals (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 4200х2800
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB32A28C65C02DFDA71AA1898CD784EA7FF4E624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599382   (999405) от 06.01.2013
-
-[Wallpapers] Art collection (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999405.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Art collection (06.01.13)
-Название: Art collection (06.01.13)
+[Wallpapers] New 2013 Wallpaper Pack 18
+Название: New 2013 Wallpaper Pack 18
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C282D38980A37BAAB71B899518087C27DF9DFCAD
+magnet:?xt=urn:btih:65D7580A2B33E63FDE3E3DBF3A08542B04EB55C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,25 +300,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599438   (999402) от 06.01.2013
+###  Публикация: 600612   (998652) от 09.01.2013
 
-Фотография - Фотограф Michael G. Magin
+Sexy Girls Pack Wallpapers (08.01.13) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Michael G. Magin
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22BB094D67A0A9CA4A491CAC37AD0E44F95E1A0E
+magnet:?xt=urn:btih:6A61515CB1A3223AFE5D86150C3AB0DC8AD74DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,25 +326,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599415   (999401) от 06.01.2013
+###  Публикация: 600774   (998651) от 09.01.2013
 
-Фотография - Фотограф Norbert Bares
+Рисованная графика - Artworks by alicexz
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Norbert Bares
+Работы художника-иллюстратора под ником alicexz.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D31D9420C6A4891C2898AA5706679124B851F35B
+magnet:?xt=urn:btih:F5BDF31E41E30400678219544DEF77A2825C7337
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,15 +352,97 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599417   (999399) от 06.01.2013
+###  Публикация: 600794   (998647) от 09.01.2013
 
-Wide Wallpapers - cities - Paris (06.01.13) [Wallpapers]
+[Wallpapers] New 2013 Wallpaper Pack 17
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998647.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Wallpaper Pack 17
+Название: New 2013 Wallpaper Pack 17
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EBB66934DECBA1D9D3ECFE0DE2082BB3324CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600823   (998646) от 09.01.2013
+
+Фотография - Beautiful Girls Part 8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Креативная коллекция фоторабот, с прелестными, соблазнительными девушками.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A954794864CDC5AA4042351C3BE8FB9BECB232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600627   (998645) от 09.01.2013
+
+Фотография - Фотограф Silja Magg
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Silja Magg
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877D167F0414B1E6047052E8D2E1B75FBCFF6686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600608   (998644) от 09.01.2013
+
+Computer Desktop Wallpapers Collection (08.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998644.jpg" />
 </div>
 
 
@@ -575,7 +452,7 @@ Wide Wallpapers - cities - Paris (06.01.13) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F8C46E704CEDB959B9E92AAA80880D405E945FB
+magnet:?xt=urn:btih:79302EA2B511D19704EE1F20ECEFB40D14065C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,25 +460,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599411   (999397) от 06.01.2013
+###  Публикация: 600807   (998628) от 09.01.2013
 
-Фотография - Фотограф Andreas Kock
+Рисованная графика - Artworks by Nithin Рао Kumblekar
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Andreas Kock
+Работы художника-иллюстратора Nithin Рао Kumblekar.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD92E1DF4735B9C991EFD1424E4B30EFF7CFE155
+magnet:?xt=urn:btih:21097436F8EB5ED54852E8F03E034AE771437F3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,25 +486,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599436   (999394) от 06.01.2013
+###  Публикация: 600771   (998626) от 09.01.2013
 
-Фотография - Фотограф Christian Kettiger
+Фотография - Photos from Peter Edqvist
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Christian Kettiger
+Работы фотографа Peter Edqvist.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09AED8D1A744C7BAAB4E7BD2C71C2E59A09EFC5A
+magnet:?xt=urn:btih:7C7F928F65C6E5A97F5126FAF4053EEA3CE92703
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,60 +512,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599418   (999392) от 06.01.2013
+###  Публикация: 600888   (998621) от 09.01.2013
 
-Wide Wallpapers - waterfalls (06.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93837390EB06CD24529D45C2A054A3C5855D8631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598780   (999391) от 06.01.2013
-
-VA - Pure Trance Bliss (2013) [MP3|320 кб/с]<Uplifting Trance>
+Moolen Rouge - Мельница (2012) [MP3|320 кб/с]<Rap, Hip-hop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Juventa - 405 (Original Mix)
-02. Jaco - Malaysia (Original Mix)
-03. Temple One - Aquamarine (Original Mix)
-04. LTN - Never Let Me Go (Anhken Sunset Remix)
-05. Jan Martin - Exemption (The Madison Remix)
-06. Jjoo - One Night In Seoul (Original Mix)
-07. Juventa & Answer42 - Like These Eyes (Answer42 Remix)
-08. Audien - Keep This Memory (Johan Malmgren Remix)
-09. Estiva & Tania Zygar - Death Of Me (Original Mix)
-10. Juventa - Roadtest (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:25:36
+1. Мельница (3:18)
+2. Как дела (2:21)
+3. Кокосы (3:21)
+4. "Give me more" При уч. Victory (No comment's) (NoComm Rec.) (3:55)
+5. Водка (2:56)
+6. Пьяная (при уч. шум bgdd) (3:41)
+7. Попами двигайте (2:57)
+8. Привет командиру (2:42)
+9. Get Down (2:41)
+10. Февраль (NoComm Rec.) (1:52)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:51:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F56C526884BC8E642D04C3AEB39444750E50B1C
+magnet:?xt=urn:btih:49A002817DBF7DE6EED01A97AC8A4883EC669355
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,29 +547,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599385   (999390) от 06.01.2013
+###  Публикация: 600628   (998615) от 09.01.2013
 
-[Wallpapers] Abstract Wallpapers (06.01.13)
+Фотография - Фотограф Pavel Kiselev
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Abstract Wallpapers (06.01.13)
-Название: Abstract Wallpapers (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Фотография - Фотограф Pavel Kiselev
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B5BD0B05920B929B6ECF48E6F358B931E29420A
+magnet:?xt=urn:btih:23420770A81506860FC5C000B6CA4196441BE4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -726,27 +573,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599520   (999384) от 06.01.2013
+###  Публикация: 600625   (998610) от 09.01.2013
 
-Dismantled - Whole Wide World (EP)(2012) [MP3|320 kbps] <EBM , Industrial>
+Фотография - Фотограф Scott Church
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Whole Wide World (05:03)
-02. Whole Wide World (Instrumental) (05:22)
-03. DiseaseЖанр: EBM , IndustrialПродолжительность: 00:46:07
+Фотография - Фотограф Scott Church
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAC2C90EA5D7C6ED00C04B4D39F36C33B04EDEC3
+magnet:?xt=urn:btih:C031EAA4AD7B223CDA9D52578502A28C2535B1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600748   (998607) от 09.01.2013
+
+SolveigMM Video Splitter 3.6.1301.9 Final [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998607.jpg" />
+</div>
+
+
+###  Подробнее
+
+SolveigMM Video Splitter – редактор для MPEG-2, AVI, WMV, ASF, MP3, WMA файлов. Основные функции программы - возможность быстро сохранить или вырезать произвольное количество медиа фрагментов из видео / аудио файла, а также объединение медиа файлов. Все операции выполняются с сохранением исходного качества и без потери видео/аудио синхронизации. Интуитивно понятный интерфейс позволяет редактировать медиа-файлы всего в несколько кликов мыши. Программа создана на основе SolveigMM Video Editing SDK, программа обеспечивает высокие качество и скорость обработки избегая операций перекодирования данных. Начиная с версии 2.0 добавлена функция редактирования с покадровой точностью для MPEG-2 файлов. Продвинутая технология SolveigMM оставляет 99% исходных данных в оригинальном виде, транскодируя только некоторые кадры, находящиеся в начале и конце фрагментов.
+
+(   Читать дальше...   )Название программы: SolveigMM Video SplitterЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600765   (998602) от 09.01.2013
+
+DFX Audio Enhancer 11.108 [Английский + Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998602.jpg" />
+</div>
+
+
+###  Подробнее
+
+DFX Audio Enhancer — звуковой плагин для улучшения звучания медиа-плееров и Windows в целом.  Качество звучания значительно улучшается за счет совершенствования частотных характеристик, для чего и предназначен этот плагин. С помощью DFX Audio Enhancer устраняются два главных недостатка — срез высоких частот и недостаточное разделение стереобазы и ее глубины, а также добавляются режимы объемного звучания и супербаса. При помощи этого инструмента вы получите высочайшее качество звука и сможете услышать музыку такой чистоты, как будто вы сидите в концертном зале или рядом с музыкантом.
+
+(   Читать дальше...   )Название программы: DFX Audio EnhancerЯзык интерфейса: Английский + Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600879   (998597) от 09.01.2013
+
+AoA DVD Creator 2.6.2 [Eng]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998597.jpg" />
+</div>
+
+
+###  Подробнее
+
+AoA DVD Creator - программа для создания DVD, просто перетащите видео файлы, нажмите "Старт" и дело сделано. С DVD Creator вы можете редактировать ваше видео, сделать структуру и меню для вашего нового DVD, также можете создавать высококачественные DVD-диски с видео и сохранить во все пользующиеся популярностью типы медиа файлов.
+В довершение всего, это программное обеспечение, при конвертации MP4 в формат DVD, ни чем не уступает по скорости большинству конкурирующих программ.
+
+AoA DVD Creator программное обеспечение, которое способно создавать DVD из всех типов файлов. И не только может обрабатывать видео в различные форматы, но он может записывать внушительное количество MP4 на DVD очень быстро.
+
+Еще одна особенность этого программного обеспечения предлагает - совместимость со всеми популярными типами медиафайлов, что удобно, если у вас много файлов для записи, которые хранятся в различных медиа-форматах. Вы можете просто загрузить все файлы, независимо от того являются ли они в том же формате или (   Читать дальше...   )Название программы: AoA DVD CreatorЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599555   (998589) от 09.01.2013
+
+Книжная серия | New Wave (14 книг) [2002–2003] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на название (New Wave - Новая волна), отсылающее нас к англо-американской фантастике 1960-х гг., в серии вышли только две книги, авторов которых относят к настоящим «нововолнистам» (Т. Диш и Ф. Дик). На самом деле в серии издавались книги киберпанков и близких к ним авторов, то есть произведения 80-90-х гг.
+Серия окончена.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCB74E00DAD2D07C02E2DD07C7823120861285F
 ```
 
 https://mybot314.ru/tekegram_catalog/

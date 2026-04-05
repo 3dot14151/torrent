@@ -1,3 +1,57 @@
+###  Публикация: 471546   (83794) от 22.03.2012
+
+Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Shift
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный фантастический экшен от третьего лица Deep Black: Reloaded предоставит вам уникальную возможность проникнуть в мистические глубины черной бездны, вооружившись мощнейшим sci-fi снаряжением, джет-паком, уникальным подводным оружием и другими высокотехнологичными изобретениями будущего. В игре Deep Black впервые проработана невероятная динамика сражений – как в мрачных пучинах океанских вод, так и на суше. Это стало возможным благодаря использованию современных реалистичных физических эффектов в подводном окружении. Игра покажет вам всю глубину страха перед океанской бездной и непредсказуемостью битвы за правое дело. Умопомрачительный интригующий сюжет перенесет вас в недалекое будущее – в мир нестабильности, хаоса, шпионажа, терроризма, ожесточенной борьбы за мировое господство и обладание новейшим биологическим оружием.
+
+(   Читать дальше...   )Тип издания: RePackРазработчик: Biart StudioЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, английский, французкий, итальянский, немецкий, испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0844617C50EBDF3A16F53EA88DAB81EE68E0FEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471860   (83773) от 22.03.2012
+
+[RePack] Orcs Must Die! / Бей орков! {v 1.0r14 + 5 DLC} [Ru] 2011 | Naitro
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орки наступают! Крепите оборону! В вашем распоряжении все необходимое, чтобы рубить, сплющивать, взрывать и испепелять зеленых наглецов в массовом количестве: это и хитроумные ловушки, и смертоносные заклинания, и разнообразное оружие. Веселитесь от души! Основная цель стратегического экшена четко отражена в его названии: игрокам придется заняться масштабной ликвидацией зеленой заразы — орд орков, пытающихся прорваться в наш мир через порталы в крепостях. В распоряжении защитников цитаделей впечатляющий арсенал средств для расправы с агрессорами: это и хитроумные ловушки, и смертоносные заклинания и разнообразное оружие.Рубить, сплющивать, взрывать и испепелять армии орков предстоит на протяжении более чем двадцати миссий. Orcs Must Die! – веселая смесь таких жанров, как экшен, стратегия и «башенки». События игры развиваются в вымышленном фэнтезийном мире, а в качестве главного героя выступает рыцарь, способный использовать меч, лук и различные магические заклинания.Тип издания: RePackЖанр: Action / Strategy (Real-time) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D09207963C79C5BEE7A05B67D01EAEDFC32D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470382   (83606) от 21.03.2012
 
 Dead Island. Ryder White [Ru/En] (RePack/1.3) 2012 | R.G. Unigamers
@@ -6,7 +60,7 @@ Dead Island. Ryder White [Ru/En] (RePack/1.3) 2012 | R.G. Unigamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83606.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Counter-Strike: Source [Ru/Multi11] (RePack/34) 2004 | PyCc-TeaM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83570.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83555.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83552.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Waveform (P) [En] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83524.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (Lossless RePack) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83504.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Space-Rat: Xplode! (L) [Ge] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83454.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83381.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Mabinogi Fantasy Life (L) [En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83378.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83370.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ Counter-Strike 1.6 [Ru] (RePack/20.03.2012) 2000 | NetTomsk
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83365.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ Gunrox (L) [Ru, Ua, En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83356.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83354.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ Worms: Reloaded / Worms 2: Armageddon + 7 DLC [Multi5/+] (RePack/1.0.0.475) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83168.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83111.jpg" />
 </div>
 
 
@@ -409,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82934.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82732.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ Just Cause 2 Limited Edition + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82374.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ Brink + 1 DLC [Ru] (RePack/1.0.23653 + Update 1,11) 2011 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82340.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82289.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ Defenders of Ardania [En] (Lossless Repack) 2012 | R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82280.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82075.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ Warp [En] (RePack) 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82067.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ Diablo III [Mac OS X] (Beta Client) [Native] [Eng]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81955.jpg" />
 </div>
 
 
@@ -635,61 +689,6 @@ Diablo III [Mac OS X] (Beta Client) [Native] [Eng]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A058D6A6776E78555FF4DC58523FAEE870D86F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467276   (81901) от 13.03.2012
-
-[RePack] Worms: Reloaded {1.0.0.474 + 7 DLC} [Multi5/+] 2010 | Fenixx
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет минуло с момента выхода Worms Armageddon, но пошаговый комический хаос продолжается вместе с Worms Reloaded, это полностью новое издание для PC через Steam. Worms Reloaded поддерживает игру до 4-х соперников онлайн, автономный режим мультиплеера на одном компьютере, голосовой канал, множество сумасшедшего нового оружия (возвращено некоторое знаковое оружие из Worms Armageddon), достижения, доски почета, все темы пейзажев с высоким разрешением, целый ряд блестящих карт фортов в новом режиме Forts, новый редактор ландшафтов, новые режимы игры, головные уборы, могилки и голоса (звуки).
-В довершение ко всему, есть также одиночная игра с компьютером, смертельные матчи (deathmatches), гонки, форты и головоломки. Наслаждайтесь новым High Definition полноцветным графическим движком, пересмотренная физика и карьера с новым компьютерным A.I. интеллектом с 7 типами сложности, начиная от легкого до очень трудного, компьютер стал очень умным и у него появились такие черты как мстительность, дерзость и "темные черты характера"! Игра также обладает различными вариантами настроек и включает в себя тысячи возможностей настройки для вашей команды червей, тонны игровых параметров и пользовательские уровни, поэтому вы можете играть в игру, как вы хотите!
-
-(   Читать дальше...   )Тип издания: RePackРазработчик: Team17 SoftwaretЖанр: Strategy (Turn-based)Язык озвучки: русский, английский,немецкий, французский, итальянскийЯзык интерфейса: русский, английский,немецкий, французский, итальянский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466611   (81739) от 12.03.2012
-
-[XBox360] Top Gun: Hard Lock [ENG]  (PAL/NTSC-U) (2012)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Top Gun: Hard Lock – аркадная авиаигра, часть серии Top Gun, основанной на одноименном фильме 1986 года с Томом Крузом в главной роли. Игра позволяет участвовать в военных воздушных боях. Игрок контролирует пилота легендарного истребителя F-14 Tomcats, противостоящего враждебным «Мигам».Разработчик: Headstrong GamesЖанр: Arcade/Flight Combat/3D/3rd PersonЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0C365408B018AA5699A447A151660AD196260D
 ```
 
 https://mybot314.ru/tekegram_catalog/

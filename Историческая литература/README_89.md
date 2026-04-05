@@ -1,29 +1,3 @@
-###  Публикация: 1596990   (167459) от 13.12.2022
-
-Елена Романенко | Повседневная жизнь русского средневекового монастыря (2002) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли приоткрыть завесу тайны над жизнью средневековых русских монастырей? Казалось бы, этот удивительный мир, в котором самое настоящее, потрясающее воображение чудо становилось явлением обыденной, повседневной жизни, давно ушел в небытие, став достоянием истории. Но остались списки древних житий, уцелели стены и башни некогда разрушенных, но возрождающихся ныне (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49115B40D44D188164918F0EA2B93A47D4E48E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596996   (167358) от 13.12.2022
 
 Сергей Яров | Повседневная жизнь блокадного Ленинграда (2013) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167358.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167337.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166600.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166565.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166482.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166036.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165548.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164780.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164112.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164001.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163980.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163834.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163820.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163812.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162979.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162931.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161768.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159589.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158856.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158710.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158707.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158701.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158699.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158606.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158485.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9CF7DE583D70C7303D51E75CFECD649ED99D99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518166   (157719) от 18.12.2021
+
+Мэтт Хранек | Часы. Истории культовых марок и их знаменитых владельцев (2021) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарные, самые популярные, коллекционные часы, представленные в этой книге, - больше, чем просто устройства для определения времени. Они хранят память об особых событиях и знаменитых людях, которые их когда-то носили: Франклине Рузвельте, Джоне Кеннеди, Ральфе Лорене и многих других, чьи жизни и победы навсегда запечатлелись на циферблатах эксклюзивных часов. (   Читать дальше...   )Жанр: Популярно об истории, ПублицистикаПеревод: Г. С. БаробинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE39FFAA40283A3708F7B275D3DBC2F4220039C
 ```
 
 https://mybot314.ru/tekegram_catalog/

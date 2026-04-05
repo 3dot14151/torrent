@@ -1,3 +1,32 @@
+###  Публикация: 1060844   (245372) от 08.10.2016
+
+Sedmina - Melita & Veno Dolenc (1980) Reissue,  2014,  Mellotron Records [FLAC|Lossless|tracks + .cue] <Folk Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sedmina - Pesem O Tanji (2:55)
+02. Sedmina - Jutro (2:36)
+03. Sedmina - Pesem (2:56)
+04. Sedmina - Magdalena (4:39)(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82204A80189259DA4480E4F1A28CF7109DF48AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624052   (245370) от 04.04.2023
 
 Legacy Pilots - Helix (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Rock>
@@ -6,7 +35,7 @@ Legacy Pilots - Helix (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Sy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245370.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Manegarm - Manegarm (2015) [FLAC|Lossless|image + .cue] <Viking Metal, Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245365.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Panopticon - Roads To The North (2014) [FLAC|Lossless|image + .cue] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245358.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Moonlight Benjamin - Wayo (2023) [MP3|320 Kbps] <Blues Rock, Voodoo Rock, Native
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245353.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245352.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245344.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Birthday Massacre - Fascination (2022) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245340.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Ghosts of Sunset - Breathe (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245337.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ninja - Invincible (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245336.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Tribute - Breaking Barriers (1986) Reissue, 2013, Sireena Record [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245322.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Bar Stool Preachers - Above the Static (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245304.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Alan Parsons - From The New World (2022) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245255.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ After All - Mercury Rising (2003) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245237.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - The Rock Collection: Rock Ballads (1992) 2CD Compilation [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245226.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Dust Prophet - One Last Look Upon The Sky (2023) [MP3|320 Kbps] <Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245204.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Heavy Blanket - Moon Is (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245195.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Herman Brood & His Wild Romance - Yada Yada (1988) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245189.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245186.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Oliva - Raise the Curtain (2013) Limited Edition Digipak [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245185.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ King Moonracer - Hello To Kings (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245182.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Darkhold - Tales from Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245177.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Powerhouse - Powerhouse (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Classic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245150.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Re-Animator - Re-Animator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245130.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ WolloW - Tales of WolloW - Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245126.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245118.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9CCBA7EB284B5C4F4B9D06E1F57A295C0E51308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450775   (245114) от 27.02.2021
-
-Vas' - Быстрее послушать (2021) [MP3|320 Kbps] <Indie-Rock / Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Будет ли это важно через год [00:03:02]
-02 - Бинго [00:03:16]
-03 - Оставь свет включённым [00:03:29]
-04 - Голышом [00:03:58](   Читать дальше...   )Жанр: Indie-Rock / Pop-RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAC63003370DCC3DBC7B91B481C7AE1555946C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

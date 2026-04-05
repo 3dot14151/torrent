@@ -1,3 +1,119 @@
+###  Публикация: 1184725   (298787) от 18.11.2017
+
+En:peg Digital (Enpeg) - Label-Pack (a digital division of n5MD) (2004-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental, Downtempo, Abstract, Leftfield, Glitch>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obvious (03:08)
+ 02. Honesty, Please! (03:18)
+ 03. Meet by the Dock (04:18)
+ 04. On Thursdays (04:28)(   Читать дальше...   )Тип издания: WEBЖанр: IDM/AmbientПродолжительность: 00:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E9FCB9803A55A70FA349D0A3A226DBA83C9C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261352   (298767) от 13.11.2018
+
+VA - There Is Soul In My House - Purple Music All Stars Vol.17 (2018) [MP3|320 Kbps] <Funky, Soulful, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamie Lewis - Cookys 11 (The Divas Talk) (07:45)
+02. Karl8 - Higher (Karl8 & Andrea Monta Mix) (05:04)
+03. Marc Cotterell - Give Me Strength (07:15)
+04. Alex Ander - I'll Be There (Jamie Lewis Re-Styled Mix) (09:40)(   Читать дальше...   )Жанр: Funky, Soulful, HouseПродолжительность: 02:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8058825873754650E49FD596BDBDD50B0F898E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261970   (298766) от 13.11.2018
+
+VA - Ori Uplift - Uplifting Only 300 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2013 TOTY #2: Kelly Andrew - The Incursion (Epic Orchestral Trance Mix)
+02. 2013 TOTY #2: Sergey Nevone & Simon O'Shine - Apprehension
+03. 2013 TOTY #1: SoundLift - Freedom
+04. 2017 TOP VOCAL #1: RAM & Arctic Moon with Stine Grove - A Billion Stars Above(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB4DAEFB0FBCD2BCF9A45EE36C0B4349925FC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261972   (298760) от 13.11.2018
+
+VA - 1​+​1​=​X (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Contemporary, Tech House, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Qasim Naqvi – Brutal Moderna (04:19)
+02. A Winged Victory For The Sullen – Long May It Sustain (04:20)
+03. Rival Consoles – Ritual Song (05:10)
+04. Nils Frahm – Frau Dehlholm (03:06)(   Читать дальше...   )Жанр: Modern Classical, Contemporary, Tech House, MinimalПродолжительность: 01:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E87DDAE03CDE15878C53E1B74BEC7888E6C8142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262084   (298758) от 13.11.2018
 
 Eelke Kleijn - Maschine (2018) DAYS like NIGHTS [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -6,7 +122,7 @@ Eelke Kleijn - Maschine (2018) DAYS like NIGHTS [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298758.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Future Sound of Egypt 600 - Sands of Time (Mixed by Aly & Fila & Ciaran Mca
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298745.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Bass Anthems 2017 [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298694.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Snap! - This Is Snap! (2001) [FLAC|tracks+.cue]<Hip-House, Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298629.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Progressive Gain (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298616.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Deep Space Network | I.F. | DSN. - Discography 7 Releases (1992-2004) [FLAC|Loss
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298601.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Kiasmos - Discography 9 Releases (2009-2018) Erased Tapes Records [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298595.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ AniMe - Absolute Mix # 1-16 (2014-2015) [MP3|320 кб/с]<Hardcore>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298563.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Masters Of Hardcore - Official Podcast # 1-28 (2014-2015) [MP3|128,320 кб/с]<
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298458.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ VA - 80's Dance Workout Experience (2019) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298242.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ VA - Everything Is Chilling House (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298220.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ VA - Lounge Season: New Year Party (2016) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298214.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ NX-Trance - CY 3000 (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298213.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Deadmau5 - W:/2016ALBUM/ (2016) [MP3|320 Kbps] <Downtempo, Electro House, Progre
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298138.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Blank & Jones feat Marcus Loeber: Silent Piano (Songs for Sleeping) (2016) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298136.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ zakè (Zake) - Orchestral Studies Collectanea (2020) Past Inside the Present [FL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298068.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Deadmau5 - W:/2016ALBUM/ (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298063.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Talk Talk - The Very Best Of Talk Talk (Natural History) (1990) [FLAC|Lossless]<
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297848.jpg" />
 </div>
 
 
@@ -522,7 +638,7 @@ CiM - Discography 8 Releases (1998-2020) deFocus, Headspace, Ann Aimee [FLAC|Los
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297753.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ DROELOE - A Matter Of Perspective (2020) Deluxe Anthology [FLAC|Lossless|WEB-DL|
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297741.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ VA - Goa Vision 2021 (2020) [MP3|320 Kbps] <Psy-Trance, Psychedelic, Electronic>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297606.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ Karetus - PINATA (2015) [MP3|320 кб/с]< Drum & Bass, Dubstep, Electro, Moomba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297112.jpg" />
 </div>
 
 
@@ -625,119 +741,6 @@ Karetus - PINATA (2015) [MP3|320 кб/с]< Drum & Bass, Dubstep, Electro, Moomba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2FD3EF33EE2B2868BAA4693959C8D3020EC40F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262319   (296964) от 14.11.2018
-
-Miami Disco Boys Club - Music to Make You Feel Good (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Head Spins (06:02)
-02. How You Feeling (05:31)
-03. Everything Has Changed (04:05)
-04. Never Meant To Hurt U (04:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39743264EDB7179A03D8CB0F5F9A099A409908B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261922   (296955) от 14.11.2018
-
-Estiva - Spectacle I (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cubes (Original Mix)
-02. Rainbow (Original Mix)
-03. The One (Original Mix)
-04. Bloom (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B77B8A67DC4CCACD16ABC9602B42AAC1B641B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184983   (296946) от 19.11.2017
-
-Tears For Fears - Rule The World: The Greatest Hits (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Wants to Rule the World (4:12)
- 02. Shout (7" Edit) (4:47)
- 03. I Love You But I'm Lost (4:21)
- 04. Mad World (3:34)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D491E2141CA92894B449DA8454E8325675FDC03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677349   (296940) от 19.11.2017
-
-VA - The Mystic Art Of Chill Vol.1-2 (2004-2005) [FLAC|Lossless]<Chillout, Lounge, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Chillout, Lounge, AmbientПродолжительность: 02:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F0148D689887E4D0D9B934E971B1579FF4E275
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1212517   (775221) от 13.03.2018
+
+VA - Amsterdam Trance Sessions Vol.15 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Digital Rush  -  There Is Love (Radio Mix)  4:04
+02.  Alphadelta  -  All Your Words (Original Mix)  4:37
+03.  Erika K  -  Equus (Original Mix)  6:31
+04.  Denis Sender & Tycoos  -  Collabro 2.0 (Original Mix)  3:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0352EAA7965E8BDAD6B27AAECD6387C02925C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277798   (775160) от 22.01.2019
+
+VA - D.MAX Recordings: Best of 2018 (Mixed by Bryan Summerville & Dave Cold) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novan Aery - Quasar (Original Mix)
+02. D4souL - Mario (Original Mix)
+03. AC - Gale (Original Mix)
+04. Age&Why - Don't send Me Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A634EA4CB3E502AB105588DFA7C204EE26F6A261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212900   (774514) от 14.03.2018
 
 VA - Miami Hits (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Miami Hits (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774514.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Vocal Dance Vol. 5 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774312.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beautiful Vocal Trance - Chapter 2 (2018) [MP3|320 Kbps] <Trance,Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773014.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ DJ Nikolaevv - Melody Of Leaving Summer (2018) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772010.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Dirkie Coetzee - Reverie (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771988.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Vocal Trance Hits 2016-02 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769554.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Pure Bliss Vocals: Spring (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768759.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Global DJ Broadcast: Top 20 March (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768200.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Black Hole Trance Music 03 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768184.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance Mission (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768110.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Unique Sense In Miami (Mixed by Abstract Vision) (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768106.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Silent Shore Selections Top 20: Winter (2018) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766597.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Levitated Radio Top 25: Winter 2018 (Selected by Manuel Rocca) (2018) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766594.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Redux Miami Selection (Mixed by Brent Rix) (2018) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766591.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Best Of Trance Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766583.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Suanda Spring Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765549.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Progressive Miami (2018) [MP3|320 Kbps] <Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764967.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764597.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764592.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Dream Dance Vol.89 (2020) 3CD  Box Set [MP3|320 Kbps] <Trance, Progressive,
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764513.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Physical Dreams - Dreams Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764473.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Infrasonic Winter Selection (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764143.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - FG Top 10: March (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764074.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - #WeAreTrance #008-18-08 (Mixed by XiJaro & Pitch) (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763693.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - #WeAreTrance #008-18-08 (Mixed by XiJaro & Pitch) (2018) [MP3|320 Kbps] <Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749E6E60C733B257D540DA00A446167F5C80063B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214893   (761812) от 24.03.2018
-
-VA - Uplifting Trance Sessions Vol.06 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Albinoni & Alex Numark  -  Adagio (Original Mix)  6:41
-02.  Fright Nite  -  Back In Time (Original Mix)  2:58
-03.  Ciro Visone  -  Modern Storm (Original Mix)  7:10
-04.  Mat Coste  -  Flight 527 (Original Mix)  7:04(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CD52F700B6541A4D477FAFAE64801EAA6CC0A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214848   (761807) от 24.03.2018
-
-VA - Ferry Corsten Presents Corsten's Countdown March (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ferry Corsten & Paul Oakenfold  -  A Slice Of Heaven (Extended Mix)  7:00
-02.  Above & Beyond feat. Richard Bedford  -  Northern Soul (Ben Bohmer Remix)  6:23
-03.  Libra presents Taylor  -  Anomaly (Calling Your Name) (DIM3NSION Remix)  5:55
-04.  Raz Nitzan feat. Moya Brennan  -  Find The Sun (Rafael Frost Remix)  3:54(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC684EB14268E0A08D18C0EE49EEFBC8C49DAC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

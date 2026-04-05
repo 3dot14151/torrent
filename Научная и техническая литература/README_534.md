@@ -1,137 +1,3 @@
-###  Публикация: 1650314   (194400) от 13.08.2023
-
-Джозеф Пистоне | Донни Браско: моя тайная жизнь в мафии. Правдивая история агента ФБР Джозефа Пистоне (2023) [FB2, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент ФБР Джозеф Д. Пистоне, изображающий из себя преступника по имени Донни Браско, провел самую дерзкую операцию в истории ФБР, работая под прикрытием шесть лет, чтобы проникнуть в самые закрытые круги мафии.
-Теперь его незабываемый рассказ оживляет весь мафиозный мир — их кодекс чести и предательство, их жен, подруг и любовниц, их расточительные траты и грязные (   Читать дальше...   )Жанр: Автобиографическая, криминальнаяИздательство: Питер КлассФормат: FB2, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F533669AE8D40B3E6D156675B872F4776D73604C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653168   (194367) от 14.08.2023
-
-Н.Д. Рогалёв, А.А. Дудолин, Е.Н. Олейникова | Тепловые электрические станции (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы теории тепловых электростанций, методы определения показателей тепловой экономичности и обеспечивающие ее условия. Рассмотрены принципиальные и полные тепловые схемы современных ТЭС, в том числе газотурбинных и парогазовых установок, возможные компоновочные решения. Освещены вопросы расчета и проектирования ТЭС, приведены данные по новым технологиям (   Читать дальше...   )Жанр: Электротехника, энергетикаИздательство: НИУ МЭИФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF043FE0212B786C53F52D3C71B0D95291006FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432293   (194362) от 12.08.2023
-
-Б.П. Демидович, И.А. Марон, Э.З. Шувалова | Численные методы анализа (1967) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194362.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагаются избранные вопросы вычислительной математики, и по содержанию она является продолжением учебного пособия Б. П. Демидовича и И. А. Марона «Основы вычислительной математики».
-Настоящее, третье издание отличается от предыдущего более доходчивым изложением. Добавлены новые примеры.
-Рассчитана на студентов технических, экономических и педагогических (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Черно-белый скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75B7AE5DA2AD0974F4E7A55A7A1D89A1312D8CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653039   (194351) от 14.08.2023
-
-В.А. Биллиг | Основы офисного программирования и язык VBA (2-е изд.) (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс содержит полное описание языка Visual Basic, начиная с описания переменных и объектов, операторов языка и процедур и заканчивая созданием классов. Подробно разбираются вопросы: создание семейства классов, наследование интерфейсов, реализация полиморфизма, создание классов с событиями, программирование Win API, функции обратного вызова, новые функции разбора (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA181CDF3CA7D428100216FA22473D412FE7461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653601   (194295) от 16.08.2023
-
-Л.М. Москалев, В.В. Боченков, С.В. Дорожков | Узкоколейные паровозы СССР (2021) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194295.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно описаны история создания, производства и эксплуатации узкоколейных паровозов в СССР. Издана в развитие серии книг, посвященных отечественному рельсовому транспорту. Историко-техническое издание-справочник.
-Труд основан на большом количестве исторического, архивного и фактического материала. В книге представлено значительное количество разнопланового (   Читать дальше...   )Жанр: история техникиЯзык: Русский, АнглийскийИздательство: ООО «МЕДИА-ГРАНД»Формат: DJVU, PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC45B7A45B4D30BAB5E90B93A51ADE7DD8C591B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654107   (194152) от 19.08.2023
 
 Т.А. Павловская | Программирование на языке высокого уровня Паскаль (2-е изд.) (2016) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194152.jpg" />
 </div>
 
 
@@ -167,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194147.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194140.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194139.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194132.jpg" />
 </div>
 
 
@@ -272,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194128.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193967.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193909.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193901.jpg" />
 </div>
 
 
@@ -376,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193869.jpg" />
 </div>
 
 
@@ -402,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193837.jpg" />
 </div>
 
 
@@ -428,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193813.jpg" />
 </div>
 
 
@@ -455,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193784.jpg" />
 </div>
 
 
@@ -482,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193766.jpg" />
 </div>
 
 
@@ -510,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193760.jpg" />
 </div>
 
 
@@ -537,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193758.jpg" />
 </div>
 
 
@@ -564,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193609.jpg" />
 </div>
 
 
@@ -592,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193606.jpg" />
 </div>
 
 
@@ -618,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193543.jpg" />
 </div>
 
 
@@ -646,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193403.jpg" />
 </div>
 
 
@@ -672,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193390.jpg" />
 </div>
 
 
@@ -683,6 +549,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BFD1ADF860B075166AAF8C034E7363219AE0D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827646   (193389) от 22.10.2025
+
+Кале-Жермен Бландин | Анатомия дыхания (2025) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует по меньшей мере сотня способов дыхания. А возможно, и больше. Почему мы относим одни виды дыхания к пассивным, а другие — к активным? Может ли быть задержка дыхания отдыхом от интенсивной дыхательной деятельности?
+Дыхательные движения чрезвычайно разнообразны. Чаще всего мы их не замечаем, поскольку они совершаются неосознанно и пересекаются с другими (   Читать дальше...   )Жанр: Популярная анатомия и физиологияИздательство: ПопурриФормат: PDF, EPUBКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4F770F52158C404E7BB064011B51BAA82956A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827826   (193292) от 23.10.2025
+
+В.Э. Милн | Численное решение дифференциальных уравнений (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является естественным продолжением книги того же автора «Численный анализ» (М., 1951).
+Книга посвящена изложению основных приемов численного решения дифференциальных уравнений и вопросов, связанных с таким решением. В первой части рассматриваются методы численного решения обыкновенных дифференциальных уравнений. Наряду с описанием самих методов автор рассматривает (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CDC4D6322F8F3F8E6662B0F163DC5D2A5E561C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827805   (193290) от 23.10.2025
+
+В.Э. Милн | Численный анализ (1951) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая книга, основное содержание которой заключается в подробном изложении практических способов, применяющихся при численном решении математических задач (интерполяция, способ наименьших квадратов, гармонический анализ, численное дифференцирование и интегрирование, решение уравнений, простейшие приемы интегрирования дифференциальных уравнений). В каждой главе (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4F35A8A98E6DED0B1E6EC551A3BDAEEC08D06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827780   (193289) от 23.10.2025
+
+П.И. Монастырный (ред.) | Сборник задач по методам вычислений (2000) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены подробные решения большого количества задач и упражнений по вычислительной математике.
+Для студентов вузов, а также для широкого круга специалистов в области прикладной математики.Жанр: МатематикаИздательство: Минск "Университетское"Формат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD3E3BF5A38721CA33145CB0CC6E9AE54544836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587083   (193211) от 29.10.2022
+
+В.М. Перельмутер | Пакеты расширения MATLAB. Control System Toolbox и Robust Control Toolbox (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193211.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описаны пакеты расширения Control System Toolbox и Robust Control Toolbox системы MATLAB 7, предназначенные для анализа и синтеза систем управления. Коротко изложены основные теоретические положения, принятые при разработке указанных пакетов расширения. Приведены многочисленные примеры использования этих пакетов расширения для решения конкретных задач с подробным (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B6FD227D17E24F1852F981D1EF35599B8DB587
 ```
 
 https://mybot314.ru/tekegram_catalog/

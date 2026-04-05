@@ -1,3 +1,62 @@
+###  Публикация: 894851   (703578) от 04.05.2015
+
+VA - Bar and Grooves (30 Smooth Summer Tunes) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cor De Savina - Mariana Green (06:27)
+002. The K2 Project - Suntanner (03:14)
+003. Chantell - Dreaming Of You (Naked On The Beach Mix) (05:26)
+004. Greg Knight - Chocolate & Marmelade (05:22)
+005. Steven Dual - Flying (Balearic Guitar Mix) (04:18)(   Читать дальше...   )Производство: Cherry Lounge RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 02:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8808281287D3F98A3B2B1FE1E4C2A690D02DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286673   (703474) от 07.03.2019
+
+Eurythmics - Missionary Man, Live Concert 1984 (2000) Unofficial Release, Bootleg [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex Crime
+02. Let's Go
+03. The Last Time
+04. Here Comes The Rain Again(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925E5A3B6BA7ED3531C0B80AAD3034D70F459CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287367   (703341) от 07.03.2019
 
 Little BIG - Skibidi (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rave, Dance>
@@ -6,7 +65,7 @@ Little BIG - Skibidi (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rave, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703341.jpg" />
 </div>
 
 
@@ -35,7 +94,7 @@ VA - Balearic Spirit Vol.1: Smooth Vibes With Ibiza Spirit (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703189.jpg" />
 </div>
 
 
@@ -64,7 +123,7 @@ VA - Late Night Lounge: Selected Cocktail Lounge Moods (2017) [MP3|320 Kbps] <Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703188.jpg" />
 </div>
 
 
@@ -93,7 +152,7 @@ VA - Italian Lounge Vol.4 (Beautiful Italian Songs In A Chilly Sauce) (2017) [MP
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703180.jpg" />
 </div>
 
 
@@ -122,7 +181,7 @@ Valdi Sabev - Imagined Vol. 1 (2017) [MP3|320 Kbps] <Ambient, Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702912.jpg" />
 </div>
 
 
@@ -151,7 +210,7 @@ Stars Crusaders - Welcome To Hydra (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702825.jpg" />
 </div>
 
 
@@ -180,7 +239,7 @@ VA - Deepalma Ibiza 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702818.jpg" />
 </div>
 
 
@@ -209,7 +268,7 @@ Marfen - Around The Garden (2018) [MP3|320 Kbps] <Electronic, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702553.jpg" />
 </div>
 
 
@@ -237,7 +296,7 @@ Genning - Life In Dub (2018) MixCult Records  [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702552.jpg" />
 </div>
 
 
@@ -266,7 +325,7 @@ Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702458.jpg" />
 </div>
 
 
@@ -295,7 +354,7 @@ KUBA - Animalia (2018) Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Downte
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702447.jpg" />
 </div>
 
 
@@ -324,7 +383,7 @@ VA - Deepalma Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702311.jpg" />
 </div>
 
 
@@ -353,7 +412,7 @@ VA - Floating Spirals III (Compiled by E-Mantra) (2016) [FLAC|Lossless|WEB-DL|tr
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702308.jpg" />
 </div>
 
 
@@ -382,7 +441,7 @@ VA - The New Chill & Lounge Experience (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701242.jpg" />
 </div>
 
 
@@ -411,7 +470,7 @@ Worakls - Orchestra (2019) [MP3|320 Kbps] <Electro, Techno, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701207.jpg" />
 </div>
 
 
@@ -440,7 +499,7 @@ VA - Ultimate Chillout Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701158.jpg" />
 </div>
 
 
@@ -469,7 +528,7 @@ VA - Sexy Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701150.jpg" />
 </div>
 
 
@@ -498,7 +557,7 @@ VA - We Are Trance April (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700672.jpg" />
 </div>
 
 
@@ -527,7 +586,7 @@ VA - Markus Schulz - Global DJ Broadcast - In Bloom (2018) [MP3|320 Kbps] <Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700668.jpg" />
 </div>
 
 
@@ -556,7 +615,7 @@ VA - Ori Uplift & Ellez Ria - Uplifting Only 271 (2018) [MP3|320 Kbps] <Trance,U
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700660.jpg" />
 </div>
 
 
@@ -585,7 +644,7 @@ VA - Aly & Fila - Future Sound of Egypt 544 (2018) [MP3|320 Kbps] <Trance,Progre
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700652.jpg" />
 </div>
 
 
@@ -614,7 +673,7 @@ Willits + Sakamoto (Christopher Willits & Ryuichi Sakamoto) - Ancient Future (20
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700651.jpg" />
 </div>
 
 
@@ -643,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700627.jpg" />
 </div>
 
 
@@ -672,7 +731,7 @@ VA - Markus Schulz presents In Bloom Volume One (2018) (EP) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700526.jpg" />
 </div>
 
 
@@ -686,64 +745,6 @@ VA - Markus Schulz presents In Bloom Volume One (2018) (EP) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20B6818F69AC97EB468CB7AC3A5CD12AA278E2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026951   (700406) от 17.06.2016
-
-VA - Goa Trance Vol.32 (2016) [MP3|320 кб/с] <Trance, Psy-Trance, Psychedelic>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waio - Searching for Signals (Symbolic Remix) 8:28
-02. Ace Ventura & Symbolic - Prime Time (Avalon Remix) 8:23
-03. Relativ - Tomorrow Last Forever 8:51
-04. Freak Control - Dmt Trip 6:51(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 02:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F49B0CD4DA2C959CEC623BBDD39981591C9FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794044   (700377) от 07.06.2014
-
-Of Norway - Accretion (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yours Is A History Of Violence
-02. Spirit Lights (feat Linnea Dale)
-03. Accretion
-04. Love Is Over(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F586B2B14538B75ED5D8B94E95B24D0E91559DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

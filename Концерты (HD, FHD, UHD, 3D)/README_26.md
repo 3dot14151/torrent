@@ -6,7 +6,7 @@ Blind Guardian (2016) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465880.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465360.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465127.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Krokus - Live At Baloise Session (2014) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464602.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Supertramp - Live In Paris '79 (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464290.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463239.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Rammstein - In Amerika (Disc 1) (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462045.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Madonna - MDNA World Tour (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462042.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461869.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461767.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461682.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461676.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461419.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Rockin'1000: Stade de France, Paris (2019) WEB-DLRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459772.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456558.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455158.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454721.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453283.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453100.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451185.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451085.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447722.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446910.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446721.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446177.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Dr. Dre & Snoop Dogg Full Live @ Coachella 2012 HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443834.jpg" />
 </div>
 
 

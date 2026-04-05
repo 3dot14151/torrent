@@ -1,3 +1,56 @@
+###  Публикация: 1261192   (305461) от 10.11.2018
+
+Ю.И. Нечаев, А.Б. Дегтярев | Интеллектуальные системы: концепция и приложения (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305461.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии общие принципы и методы искусственного интеллекта исследованы при решении трудноформализуемых проблем. Большое внимание уделено развитию современного подхода к реализации систем искусственного интеллекта в рамках новой парадигмы обработки информации в мультипроцессорной вычислительной среде. Рассмотрены вопросы использования концепции мягких вычислений (   Читать дальше...   )Жанр: РобототехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF271D16CCF0088371FB56019304585DDCF10735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960788   (305434) от 29.11.2015
+
+В.А. Новиков (ред.) | Электропривод в современных технологиях (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305434.jpg" />
+</div>
+
+
+###  Подробнее
+
+В соответствии с блочно-модульными принципами построения технических и программных средств унифицированных систем автоматизированных электроприводов изложены способы реализации технологических функций электроприводов, методы расчета, выбора, параметрирования и программирования электроприводов для современных технологий.
+ Приведены примеры выполнения систем управления (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FA329EE1CC3EF6811540FDBF9A5DFB6E7C2A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960804   (305430) от 29.11.2015
 
 В.Н. Арефьев, С.К. Киселев | Основы теории управления и автоматики (2014) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305430.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305281.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302465.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301236.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301222.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ B.C. Титов и др. | Проектирование аналоговых и 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301133.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301127.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300513.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300317.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299844.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299046.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299024.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299012.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298913.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298899.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298889.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298883.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298709.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298603.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298549.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298377.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298376.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297737.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297485.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0117A66EE5682795BEBFB7496F53C10F909A21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424121   (295310) от 15.11.2020
-
-Н.М. Попов | Измерения в электрических сетях 0,4...10 кВ (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295310.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассмотрено распределение электроэнергии от электростанций до потребителей, приведены приборы и методы для измерений электрических и неэлектрических величин в системах электроснабжения, приводится принцип работы и подключение приборов напрямую и к трансформаторам тока и напряжения, методика измерений в электрических сетях в эксплуатационных условиях, системы (   Читать дальше...   )Жанр: Электротехника, измеренияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9A2F25B7D0FBA64E41164C85BE6143C13F228F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185124   (295028) от 20.11.2017
-
-Людмила Терская | Технологии меховой отделки (2014) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295028.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии показан весь спектр современных направлений в меховой отделке одежды из различных материалов. Представлены современные методы мехового дизайна, включая дизайн пушно-мехового полуфабриката. Описаны зарубежные и отечественные технологии меховых пластин и полотен для получения разнообразных видов меховой отделки одежды. Представлены способы изготовления (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CA0C26BB2FDCA1955305C30035260E9EA47130
 ```
 
 https://mybot314.ru/tekegram_catalog/

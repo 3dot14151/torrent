@@ -6,7 +6,7 @@ Fantastical 2 v2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387912.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Privatus 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387833.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Permute 2 v2.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387589.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Yate 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387561.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ EverWeb 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387560.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ GlueMotion 1.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387559.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Sync Checker 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387558.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Translatium 9 v9.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387557.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tap Forms Organizer 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387535.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sidify Apple Music Converter 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387525.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Elmedia Player Pro 6.13 (1435) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387471.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Twitterrific 5 v5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387449.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ WebToLayers 1.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387447.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Grids for Instagram 5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387445.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ SnapMotion 4.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387443.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ MetaImage 1.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387441.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ RightFont 5 v5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387437.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bumpr 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387429.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ ExactScan Pro 19.9.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387427.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Synalyze It! Pro 1.23.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387425.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ iFinance 4 v 4.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387423.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Postbox 7 v7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387422.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SQLEditor 3 v3.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387419.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ AnyTrans 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387361.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ KCNcrew Pack 09-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387314.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Allegorithmic Substance Painter 2019.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387307.jpg" />
 </div>
 
 

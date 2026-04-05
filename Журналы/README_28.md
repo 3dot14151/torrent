@@ -1,3 +1,107 @@
+###  Публикация: 1350286   (1003533) от 05.01.2020
+
+Журнал | Все загадки мира №22 (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для людей, которым нравится узнавать новое, расширять кругозор, быть в курсе научно-популярных событий. Удивительные явления, невероятные гипотезы, сенсации и мнения экспертов. А также интересные: открытия, феномены, версии. Авторитетное и увлекательное изложение познавательных фактов.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B14AFE221496A49C652B0DE23B909EFD6F2CDDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350309   (1003530) от 05.01.2020
+
+Журнал | Таинственные истории №11 (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D36F71746B9A46701507EE922B9211C6B179D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350205   (1003484) от 05.01.2020
+
+Журнал | Вязание ваше хобби №11 (2019) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003484.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вязание - ваше хобби» - ежемесячный журнал по вязанию на спицах и крючком. В каждом номере суперхиты вязаной моды для каждого сезона - самых модных, самых элегантных, самых экстравагантных, из новых видов пряжи, с эксклюзивным декором. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели для начинающих рукодельниц.Жанр: вязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BEC433FDB987AE936DB64825877F86C8C8723A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350209   (1003480) от 05.01.2020
+
+Журнал | Вязание ваше хобби №12 (2019) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003480.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вязание - ваше хобби» - ежемесячный журнал по вязанию на спицах и крючком. В каждом номере суперхиты вязаной моды для каждого сезона - самых модных, самых элегантных, самых экстравагантных, из новых видов пряжи, с эксклюзивным декором. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели для начинающих рукодельниц.Жанр: вязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC01751980C8AD9FBF034BF9D8647B97FF4E3829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350211   (1003450) от 05.01.2020
 
 Журнал | Вязание ваше хобби. Приложение к журналу №11 Зимняя мода (2019) [PDF]
@@ -6,7 +110,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003450.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003449.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003329.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003298.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003296.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003295.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003294.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003203.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002878.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002732.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002401.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002224.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002223.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002222.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002179.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002163.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002072.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001690.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001685.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001683.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001655.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001648.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE449A133B6062154F286F1A5EA685473D674A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352008   (1001640) от 12.01.2020
-
-Газета | Российская газета №296. Спецвыпуск "Стиль жизни. Часы" (ноябрь 2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спецвыпуск "Стиль жизни. Часы" рассказывает о модных новинках в мире часов, фирмах-производителях и многом другом,связанном с часами.Жанр: мода, стильФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5AAA197ACA450FF5E1AC3BCBA6A52D8CE829CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298114   (1001560) от 12.01.2020
-
-Подшивка | Stereo Video & Multimedia (2019) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет последние новинки аудио- и видео-продукции на мировом рынке, проводит сравнительные тесты, делится впечатлениями от общения с интересными людьми. Журнал будет полезен всем, кто интересуется аудио-видеоаппаратурой или заинтересован в её приобретенииЖанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB4453E2004E2CCEC0AAFD731B0B34897343656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352827   (1000899) от 15.01.2020
-
-Журнал | Секреты и архивы №1 (2020) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000899.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале "Секреты и архивы" описываются как исторические сенсации, скандальные расследования, загадочные артефакты, так и сверхъестественное, мистическое, непознанное. Журнал для тех, кто привык быть в курсе самой интересной информации. На страницах журнала много научных мифов, неизвестного об известном, военных тайн, истории изобретений, необычных гипотез, (   Читать дальше...   )Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858DF5AAC9EEB68A87EFCC8A7507B1333F58299A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597093   (1000694) от 01.01.2013
-
-Журнал | Best Hotels №2 [2012-2013-зима] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание «Best Hotels» рассказывает о новых курортах, инновационной архитектуре и дизайне, а также роскоши отдыха во всех ее проявлениях.
-Журнал ставит своей целью охватить три основные составляющие путешествия: проживание, еда, отдых. В каждом номере представлены описания около пятидесяти отелей – от дизайнерских до эксклюзивных.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5883913E92A0D62325E21A19C22065AEB081E2D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

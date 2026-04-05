@@ -1,3 +1,32 @@
+###  Публикация: 1170161   (399216) от 01.10.2017
+
+Кипелов - Звезды и Кресты (2017) [FLAC|Lossless|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Звезды и кресты
+03. Рожденный летать
+04. Дама Пик(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D6D5FBAB7BC73670AC2B0AF1A13A5FD4AABA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565967   (399135) от 27.10.2012
 
 Bloodshot Dawn - Bloodshot Dawn (2012) [FLAC|Lossless]<Thrash Metal / Melodic Death>
@@ -6,7 +35,7 @@ Bloodshot Dawn - Bloodshot Dawn (2012) [FLAC|Lossless]<Thrash Metal / Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399135.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ Karma To Burn - Slight Reprise (2012) [MP3|320 кб/с]<Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398972.jpg" />
 </div>
 
 
@@ -75,7 +104,7 @@ Lamb Of God - Resolution (2012) [FLAC|Lossless]<Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398963.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ Stone Sour - House of Gold & Bones Part 1 (Japanese Edition) (2012) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398917.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Niagara - 5 альбомов (1986-2002) [MP3|256 кб/с]<Rock, Poprock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398866.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Lurking Fear - Out of the Voiceless Grave (2017) Japan [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398744.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ FOES - The Summit Lies Skyward (2016) [FLAC|Lossless|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398694.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ UFO - The Salentino Cuts (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398515.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Chris Rea - Road Songs For Lovers (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398505.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Skanskа Mоrd - Pаths Tо Chаron (2012) [MP3|320 кб/с]<Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398300.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ Illdisposed - Sense The Darkness (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398207.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397822.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ Broken Hope - Mutilated And Assimilated (2017) [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397765.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ Colaars - Native (2014) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397761.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Evil Invaders - Feed Me Violence (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397700.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Survivor - 8 Albums, 5 Compilations, 1 Live (1979 - 2006) 36 CD [FLAC|APE|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397437.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Fernando Noronha & Black Soul - Bring It (2006) [MP3|320 кб/с]<Rock, Blues-Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396888.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Rod Stewart - Rarities (2013) 2CD [FLAC|tracks + .cue]<Rock, Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396727.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ Desperado (Dee Snider) - Ace (2006) [MP3|320 Kbps] <Hard & Heavy>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396716.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ Aerosmith - Music From Another Dimension! (2012) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396708.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ Mercenary - Recollections - The Century Media Years (Compilation) (2012) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396019.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ Pink Floyd - Delicate Sound of Thunder (EMI CDS 7914802) (1988) [FLAC (image+.cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396004.jpg" />
 </div>
 
 
@@ -692,7 +721,7 @@ Amatory - Огонь (2016) EP [FLAC|Lossless|tracks] <Alternative Metal, Nu-Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395694.jpg" />
 </div>
 
 
@@ -720,7 +749,7 @@ The Rolling Stones - Sticky Fingers Live At The Fonda Theatre 2015 (2017) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395638.jpg" />
 </div>
 
 
@@ -749,7 +778,7 @@ Amatory - 6 (2015) [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395634.jpg" />
 </div>
 
 
@@ -763,35 +792,6 @@ Amatory - 6 (2015) [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0C5F37639DB4C32592617299B961E448905AB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171589   (395578) от 05.10.2017
-
-Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks] <Alternative Rock, Heavy Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Revelation #12  4:42
-02.  Tattooed In Reverse  4:24
-03.  We Know Where You F'cking Live  4:32
-04.  Say10  4:19(   Читать дальше...   )Жанр: Alternative Rock, Heavy Metal, IndustrialПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84F00906135D6685F8394BBE5E137CE0312B4CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

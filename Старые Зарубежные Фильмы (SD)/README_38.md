@@ -1,3 +1,135 @@
+###  Публикация: 933395   (943342) от 06.02.2016
+
+Во всем виноват Рио / Blame It on Rio (1984) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое друзей отправляются отдохнуть в Рио. Виктор привез с собой несовершеннолетнюю дочь Дженнифер (Мишель Джонсон - "Музей восковых фигур"), и Мэтью (Майкл Кейн - "Отпетые мошенники") сопровождает дочь Николь (Дэми Мур - "Стриптиз"). Колдовская атмосфера Рио, словно пропитанная эротикой и томными вожделениями, застает их врасплох. Виктор (   Читать дальше...   )Производство: США, SherwoodЖанр: Мелодрама, КомедияРежиссер: Стэнли ДоненАктеры: Майкл Кейн, Джозеф Болонья, Валери Харпер, Мишель Джонсон, Деми Мур, Жозе Левгой, Лупе Джильотти, Майкл Мена, Тесси Калладу, Ана Лусия ЛимаПеревод: Профессиональный (двухголосый закадровый), профессиональный (многоголосый закадровый), авторский (одноголосый закадровый) х2Язык субтитров: АнглийскийПродолжительность: 01:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A549CF5309882CF274FBC3C33B85EB67AE751BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626325   (942870) от 06.03.2013
+
+Добро пожаловать на каникулы / Nightmare Beach (1989) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два приятеля приезжают в курортный городок, где накануне был казнен лидер местной группировки байкеров. Наутро могила казненного оказывается пустой, а по улицам начинает колесить затянутый в кожу мотоциклист, чей «электрифицированный» байк несет смерть окружающим. Один из друзей становится жертвой призрачного гонщика, и поскольку полиция и мэрия пытаются скрыть присутствие (   Читать дальше...   )Производство: Италия, США / Elpico Cinematografica, Laguna Films, Overseas FilmGroupЖанр: УжасыРежиссер: Умберто ЛенциАктеры: Николас Де То, Сара Бакстон, Роули Вальверде, Лэнс ЛеГолт, Майкл Паркс, Джон Сэксон, Бен Стотс, Кристи Лашанс, Грегг Тодд Дэвис, Ямилет ХидальгоПеревод: Одноголосый закадровыйПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE9E9AE5F1739AECEDB9BD9CDAAC41B6A320067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363564   (942224) от 28.02.2020
+
+Три лица Евы / The Three Faces of Eve (1957) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация документальной книги докторов Корбетта Тигпена и Харви Клекли, основанной на случае раздвоения личности Крис Костнер Сайзмор (Chris Costner Sizemore).
+Скромная домохозяйка и верная жена Ева Уайт страдает от сильных головных болей. Время от времени у нее случаются провалы в памяти. Мистер Уайт, заметив странное поведение жены, направляет ее к психиатру. (   Читать дальше...   )Производство: США/ Twentieth Century Fox Film CorporationЖанр: драма, детективРежиссер: Нуннэлли ДжонсонАктеры: Джоэнн Вудворд, Дэвид Уэйн, Ли Дж. Кобб, Эдвин Джером, Алена Мюррэй, Нэнси Калп, Дуглас Спенсер, Терри Энн Росс, Кен Скотт, Мими ГибсонПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D56258FCF26FC4DE3ACF98433D45E9A711DF1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363567   (942135) от 28.02.2020
+
+Солнечный кризис / Solar Crisis (1990) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за сильного потепления на Земле критическая ситуация: ресурсы на исходе, растительность почти исчезла. В борьбе за выживание грабежи и разбой стали привычным делом.
+Чтобы снизить солнечную активность, к светилу отправляется космический корабль со сверхмощной бомбой для реализации проекта «Встречный пожар». Но в составе экипажа улетает диверсант — искусственный (   Читать дальше...   )Производство: Япония, США / Asahi Breweries, Gakken Co. Ltd., Japan America Picture Company, Lotte Company, Mitsui Company Ltd., NHK, Nippon Steel Corporation, Nissho Iwai Corporation, Toppan Printing, Yamaichi Securities Ltd.Жанр: Фантастика, ТриллерРежиссер: Ричард С. Сарафьян, Алан СмитиАктеры: Тим Мэтисон, Чарлтон Хестон, Питер Бойл, Аннабел Скофилд, Корин Немек, Тэцуя Бэссё, Джек Пэланс, Дориан Хэрвуд, Пол Косло, Сэнди МакПикПеревод: Авторский, Вартан ДохаловСубтитры: ОтсутствуютПродолжительность: 01:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA00506D4AA88CB3709EC73F473DA2E3FDB76716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983866   (941976) от 07.02.2016
+
+Освобожденный ангел / Angel Unchained (1970) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ангел — байкер, который решил присоединиться к коммуне хиппи недалеко от маленького города. После того, как на них напали городские хулиганы, Ангел призывает на помощь своих друзей-байкеров, чтобы отомстить нападавшим.Производство: СШАЖанр: Боевик, Триллер, ДрамаРежиссер: Ли МэдденАктеры: Дон Страуд, Люк Аскью, Ларри Бишоп, Тайн Дэйли, Нил Моран, Джин Мари Инджелс, Билл МакКинни, Джордан Родс, Питер Лоуренс, Педро РегасПеревод: Профессиональный (многоголосый закадровый), Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66110A5B2357E61DA7232F458A8B34C436669F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983718   (941697) от 07.02.2016
 
 Спасатель / Lifeguard (1976) DVDRip
@@ -6,7 +138,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941697.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941694.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941287.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940946.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940761.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940745.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940558.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940079.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_939551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_939551.jpg" />
 </div>
 
 
@@ -244,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939550.jpg" />
 </div>
 
 
@@ -271,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939548.jpg" />
 </div>
 
 
@@ -298,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939303.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938481.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938305.jpg" />
 </div>
 
 
@@ -376,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938157.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937223.jpg" />
 </div>
 
 
@@ -428,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936916.jpg" />
 </div>
 
 
@@ -454,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936901.jpg" />
 </div>
 
 
@@ -480,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936535.jpg" />
 </div>
 
 
@@ -507,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935459.jpg" />
 </div>
 
 
@@ -533,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934995.jpg" />
 </div>
 
 
@@ -544,136 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD51DDC3B2506A5556D0B253F9649D6258D75F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628541   (934957) от 11.03.2013
-
-Маска Сатаны / La Maschera del demonio / Black Sunday (1960) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инквизиция объявляет княжну Азу ведьмой и приговаривает ее к смерти необычным способом — прибивают к лицу шипами железную маску. Двести лет спустя в Миргород попадают доктор Круваян и его молодой помощник Андрей Горобец. Прогуливаясь по округе, они находят старую заброшенную часовню, в склепе которой покоится Аза. Роковое стечение обстоятельств оживляет красотку, и она, для начала куснув Круваяна, начинает истреблять своих потомков. Горобец, влюбившийся в молодую княжну Катю, как две капли воды похожую на Азу, пытается разобраться в нагромождении жутких событий, происходящих в замке…Жанр: УжасыРежиссер: Марио БаваАктеры: Барбара Стил, Джон Ричардсон, Андреа Кекки, Иво Гаррани, Артуро Доминичи, Энрико Оливьери, Антонио Пьерфедеричи, Клара Бинди, Марио Пассанте, Ренато Терра, Джермана ДоминичиПеревод: Одноголосый закадровыйПродолжительность: 01:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD091867701C7BCF0105BF8489F4CDCB3D5C46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364714   (934642) от 04.03.2020
-
-Я и Катерина / Io e Caterina (1980) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщины так достали богатого предпринимателя, что он решает изгнать их из своей жизни. Вместе с вечно недовольной женой из дома он выгоняет даже экономку. Робот-горничная по имени Катерина должна скрасить его жизнь. Неожиданно робот влюбляется в хозяина и начинает ревновать…Производство: Италия, Франция / Carthago Films S.a.r.l., Italian International Film, Radiotelevisione Italiana (RAI)Жанр: КомедияРежиссер: Альберто СордиАктеры: Альберто Сорди, Эдвиж Фенек, Катрин Спаак, Валерия Валери, Россано Брацци, Уго Болонья, Данута Хавалек, Энди Миллер, Лаура Франчи, Элиза МайнардиПеревод: Многоголосый профессиональный, Intra Communication по заказу ТК 100ТВСубтитры: ОтсутствуютПродолжительность: 01:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE92BCF4442067BC88BE53C7610DA556787C7534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628947   (934625) от 11.03.2013
-
-Полицейская в Нью-Йорке / A policewoman in New York / La poliziotta a New York (1981) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неподражаемые Эдвиж Фенек и  Альваро Витали  в  фильме о приключениях женщины-полицейской и ее непутевого помощника в Нью-Йорке.Производство: Италия, Франция / Imp.Ex.Ci., Les Films Jacques Leitienne, Medusa Produzione, Nuova Dania CinematograficaЖанр: КомедияРежиссер: Мишель Массимо ТарантиниАктеры: Эдвиж Фенек, Альваро Витали, Джакомо Риццо, Эдит Питерс,  Энцо Андронико, Галлиано Сбарра, Жак Стани, Ренцо Монтаньяни, Альдо МаччонеПеревод: Одноголосый закадровый (Акоп Акопян)Субтитры: ОтсутствуютПродолжительность: 01:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1A77B893240CF775FB7D5B6285DAB15EAF8FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364970   (933413) от 05.03.2020
-
-Таксист / Il tassinaro (1983) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьетро жизнерадостный, импульсивный таксист, улицы и площади Рима стали его жизненными артериями. Пьетро женат, у него семья, дочь и двое сыновей. В его родном городе Риме всегда что-то происходит…Производство: Италия / Italian International Film, RAI Rete 1 TVЖанр: Драма, КомедияРежиссер: Альберто СордиАктеры: Альберто Сорди, Джулио Андреотти, Тони Эскин, Джанни Багино, Андреа Бельфйоре, Энцо Марино Белланич, Освальдо Бентивольо, Уго Болонья, Лучиано Бонанни, Федерико Феллини, Сильвана Пампанини, Марилу Толо, Алессандра МуссолиниПеревод: Многоголосый профессиональный, Intra Communication по заказу ТК 100ТВСубтитры: ОтсутствуютПродолжительность: 02:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD9C9C3F4B82455E8E0FB1F9C25C003360AFC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176829   (933296) от 19.02.2010
-
-Первые сексуальные опыты / The First Turn-On!! (1983) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933296.jpg" />
-</div>
-
-
-###  Подробнее
-
-В летнем лагере подростки отправляются в поход вместе со своей вожатой Мишель. Четверо из подростков — Энни, Мич, Дэнни и Генри — отстают от остальных. Генри заводит всех в красивую пещеру, где они и остаются. Вожатая находит их и хочет вывести оттуда, но по случайному стечению обстоятельств выход в пещеру оказывается заваленЖанр: Комедия, ЭротикаРежиссер: Майкл Херц, Ллойд КауфманАктеры: Джорджия Харрелл, Майкл Санвилль, Гуги Гресс, Джон Флуд, Хайди Миллер, Аль Пиа, Бетти Пиа, Gilda Gumbo, Лара Гриллз, Кристина Мари ВетцелПеревод: Двухголосый (закадровый)Продолжительность: 01:28:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

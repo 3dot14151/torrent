@@ -1,3 +1,29 @@
+###  Публикация: 1073522   (345542) от 16.11.2016
+
+Возвращение в Лимбанг / Return To Limbang (2006) DVB
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345542.jpg" />
+</div>
+
+
+###  Подробнее
+
+В декабре 1962 году на берегу реки небольшой городок Limbang в Северной Борнео (ныне в малайзийском штате Саравак) стал новостью № 1 в мировой политике, когда повстанцы захватили город, и взяли всех местных европейцев в заложники. 42 Команда Королевской морской пехоты, которой командовал капитан Джереми Мур, была спешно отправлена в Лимбанг с миссией: "Спасение (   Читать дальше...   )Телекомпания: США, Brush Fire FilmsЖанр: Документальный, ИсторияПеревод: Одноголосый закадровый, профессиональный (ТПО "Red Media")
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A46D21D7F2CCD2866B6C5CC0018EFBF2BDEBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266948   (345271) от 08.10.2019
 
 Ракетный щит Родины (2018) WEB-DL [H.264/720p-LQ] (1-8 серия из 8)
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345271.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340088.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339600.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337869.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334235.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334180.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329320.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314678.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314305.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ The Battle for Marjah (2010) SATRip [EN]
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312775.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312626.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312306.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312131.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310837.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310031.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309117.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306571.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296654.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295671.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293900.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293130.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291216.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_290453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_290453.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289500.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289492.jpg" />
 </div>
 
 
@@ -648,33 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE3E7B2C96B63C75BD1F788C235F7DBDAFEE65CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182121   (289124) от 23.11.2017
-
-Женщины-воины (Воительницы) / Warrior Women (2017) HDTVRip [H.264/720p-LQ] (3 серии из 3)
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во все времена военные дела были прерогативой мужчин. В этом сериале приоткрывается завеса над представителями другого пола, которые воевали не менее храбро. Военную историю создавали и женщины.
-Сериал расскажет о самых знаменитых женщинах-воинах. Каждая история о кровопролитии, самопожертвовании и терпении рассказывает о молодой воительнице, попавшей в кровавую (   Читать дальше...   )Производство: Великобритания, Urban Canyons LtdЖанр: Документальный, война, история, реконструкцияРежиссер: Джон УэйтПеревод: ДублированныйПродолжительность: 3 х ~ 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3C6951F1A2C3995AB2397D25EF0BF78CD87566
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1181780   (321575) от 08.11.2017
+
+VA - Magnatron 2.0 (2017) [MP3|320 Kbps] <Synthwave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wice - Star Fighter
+02. Waveshaper - End of Space
+03. Daniel Deluxe - Brute Force
+04. Tonebox - Frozen Code(   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFB8286421371FF2C0A09A2BBA3A529749882C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259409   (321523) от 03.11.2018
+
+Mara - ...If You Only Knew (2003/2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive Breaks, Progressive House, Downtempo, Tribal House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...If You Only Knew (05:00)
+ 02. Turning It On (05:31)
+ 03. Desanitize (07:23)
+ 04. Snoodle (02:55)(   Читать дальше...   )Жанр: Progressive Breaks, Progressive House, Downtempo, Tribal HouseПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F586037BC5E95EA7375376123E26AC4A577F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075286   (321413) от 22.11.2016
+
+VA - This House Is Hot - Pumpin Electro House Smashers For Top Clubbers (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thyron!X - Too Hot (Summer Anthem) (Thyron!X Hotter Remix) 05:10
+02. Atomic Electrolab - Hot Chick 05:02
+03. John De Mark - Time (Hot N Dirty 3Am Remix) 06:01
+04. Nelle - Deeper Harder (Hot Pants Remix) 07:58(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6258A0560F328340E49E63C195264F63FCD56B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075087   (321298) от 22.11.2016
+
+VA - Eau Solaire: Deep and Love Sensations (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adjacent Six - Best App - Soulrain's House Mix
+02. Lazy Shame - Skadeo - Vocal Republic Mix
+03. Lisa Reinhard - Take My Heart - Heartbeat Mix
+04. Livio Regalado - Abnorma - Alvaro Alvarinho's Beach Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A09BA6D058F977E3DA34446B5FAA71F0AB8B575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075519   (321153) от 22.11.2016
 
 Maceo Plex - Journey To Solar (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
@@ -6,7 +122,7 @@ Maceo Plex - Journey To Solar (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321153.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ SCSI-9 - Squares And Circles LP (2019) [FLAC|Lossless|WEB|tracks] <Deep House , 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320881.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dead Can Dance - Dionysus (2018) [pias] [FLAC 2.0|44.1/24|tracks|WEB-DL] <Tribal
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320862.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Sunset At Stonehenge (Mixed by Paul Oakenfold) (2019) [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320647.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ A-Mase - Breaking Memories (Best Remixes In Breaks) (2019) [MP3|320 Kbps] <Atmos
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320646.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tiesto & Steve Aoki - Tornado (Remixes) (2012) [MP3|320 кб/с]<House, Dubstep>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320519.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Penner & Muder - Same Monkeys Different Zoo (2010) [FLAC|Lossless]<Tech House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320501.jpg" />
 </div>
 
 
@@ -205,7 +321,7 @@ VA - Beautiful Vocal Trance Chapter 4 (2019) [MP3|320 Kbps] <Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320316.jpg" />
 </div>
 
 
@@ -234,7 +350,7 @@ Vicetone feat. Barack Obama - Hope (Single) (2012) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320155.jpg" />
 </div>
 
 
@@ -261,7 +377,7 @@ Scatman John - 2 Single, 3 Albums (1994-1999) [FLAC|Lossless]<Eurodance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320010.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ EEDL - Unstored (2020) Lapsus Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319906.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Villete - Dawn Is Mine (2020) Scissor and Thread [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319814.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jose Vizcaino - Transitions (2020) Seven Villas [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319811.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jose Vizcaino - Disconnection (2019) Seven Villas Voyage [FLAC|Lossless|WEB-DL|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319810.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sorrow - Discography 27 Releases (2011-2020) Inspected, Fent Plates, Monotreme [
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319625.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Trance Favorites Episode #009 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319440.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319437.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Koan - Find Me If You Can (2017) [MP3|320 Kbps] <Balearic,Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319428.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Aly & Fila - Future Sound of Egypt 521 (2017) [MP3|320 Kbps] <Trance, Uplif
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319426.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Roger Shah presents High Noon At Salinas - Beach Grooves Vol 1 (2017) [FLAC
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319425.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Paris La Nuit - Chillin Lounge Selection Vol 3 (2015) [MP3|320 кб/с]<Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319372.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319337.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76779FF6DA935887575727551DEFABC0322C39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182230   (319327) от 09.11.2017
-
-VA - Vocal Trance Classics Top 40 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Ana Diaz - Nothing Without Me (Beat Service Radio Edit)
-02. Cosmic Gate - Calm Down (Omnia Radio Edit)
-03. OceanLab - Miracle (Above & Beyond Club Edit)
-04. Sarah Lynn - At The End of Every Journey (Jorn van Deynhoven Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25550AA9FB090F3540D34F24AB72919D51BD5334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343557   (319320) от 04.11.2020
-
-Bjarki (Cucumb45, Kid Mistik) - Discography 30 Releases (2010-2020) !K7 Records, трип, bbbbbb [FLAC|Lossless|tracks+.cue, tracks] <Techno, IDM, Abstract, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IIIiiiIIiiiiiiiiiiiiiIIIIIIIiiiiiiiIIIIIiiiiiiii (01:12)
- 02. OpxThermin (06:01)
- 03. Get Slothered 6even2 (03:24)
- 04. Rathakrem (05:13)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, IDM, Abstract, Ambient •Продолжительность: 18:44:59 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C23FBF37856EF0E2AB1A99D740824AB63D8327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421278   (319309) от 04.11.2020
-
-Marric - Come Home (2020) antilounge records [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gono Line (03:22)
-02. Dozing Off (01:48)
-03. No Dance Tonight (03:30)
-04. T.A.N.J.A. (02:18)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBFF457B5D3F6A6C6B9CB6B47DE588F088ED2367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959026   (319266) от 23.11.2015
-
-The Cars - Just What I Needed (1995) [FLAC|tracks+.cue]<New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Just What I Needed (3:46)
-02.My Best Friend's Girl (3:46)
-03.Good Times Roll (3:48)
-04.You're All I've Got Tonight (4:16)(   Читать дальше...   )Жанр: New WaveПродолжительность: 02:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC122FCA94398F855AC0B8E0B38699267FE29FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

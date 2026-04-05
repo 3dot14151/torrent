@@ -1,3 +1,61 @@
+###  Публикация: 1417515   (353531) от 22.10.2020
+
+VA - Air Chilled Electro House (2020) [MP3|320 Kbps] <Chill, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addicted Boys - Addictive Motion
+02. L3idwen - Feel The Music
+03. Lounge Ibiza Cafè - Sunny
+04. China Charmeleon - Spoil My Night(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 07:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E8C285116ED47920C5A23372297998EEA16A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417626   (353527) от 22.10.2020
+
+VA - Suntrip Uplifting Trance Session (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353527.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arty & Mat Zo - Rebound
+002. Rafael Osmo - Overdrive (Original Mix)
+003. New Horizons - Take Flight
+004. Brent Rix - Jericho (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 09:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8067592E7CB321D1AC35BBB3DC677A7F497426D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952719   (353526) от 02.11.2015
 
 VA - Love Christmas Relaxed Chill Lounge Winter Cuts (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Love Christmas Relaxed Chill Lounge Winter Cuts (2015) [MP3|320 кб/с]<Do
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353526.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Dancefloor Fever 2016 (The Best of Clubbing Music) (2015) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353523.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Lounge Tropic: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353420.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Sense Of Trance #44 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353391.jpg" />
 </div>
 
 
@@ -125,7 +183,7 @@ VA - Dubstep 2012 vol.2 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353275.jpg" />
 </div>
 
 
@@ -160,7 +218,7 @@ VA - Club Dance Ambience Vol.93 (2016) [MP3|320 Kbps] <Dance, Club, Club House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352498.jpg" />
 </div>
 
 
@@ -189,7 +247,7 @@ VA - Dance Club Hits (2016) [MP3|169-320 Kbps] <Dance, Club, Eurodance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352485.jpg" />
 </div>
 
 
@@ -218,7 +276,7 @@ VA - Autumn Mood: Ambient Serene Music (2018) [MP3|320 Kbps] <Ambient, Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351986.jpg" />
 </div>
 
 
@@ -247,7 +305,7 @@ VA - Chill A Tropical Delight (2018) [MP3|320 Kbps] <Chillout, Downtempo, Ambien
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351896.jpg" />
 </div>
 
 
@@ -276,7 +334,7 @@ VA - Spaceman's Paradise (1996) [MP3|160 кб/с]<Electronic, Hard Trance, Euro 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351793.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ VA - Green Sky Reflection (2015) [MP3|320 кб/с]<Minimal House, Techno House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351792.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ VA - Lazy Sundays (2015) [MP3|320 кб/с]<Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351791.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351786.jpg" />
 </div>
 
 
@@ -392,7 +450,7 @@ VA - Lazy Sundays Vol. 2 (2015) [MP3|320 кб/с]<Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351692.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ VA - Driving Hits - Autumn Edition (2015) [MP3|320 кб/с]<Deep House, House, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351677.jpg" />
 </div>
 
 
@@ -450,7 +508,7 @@ VA - Club House October Mix (2018) [MP3|320 Kbps] <Electro, House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351558.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ VA - Hits Cocktail Vol.14 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351402.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ VA - Trancern 38.3: Official Compilation (November 2012) (2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350998.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ VA - Trance. Vocal Fascination 37 (2012) [MP3|320 кб/с]<Uplifting Trance, Voc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350870.jpg" />
 </div>
 
 
@@ -573,7 +631,7 @@ VA - Sexy Trance #49 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350597.jpg" />
 </div>
 
 
@@ -608,7 +666,7 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350517.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ VA - Record Super Chart 607 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350271.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ VA - Welcome Singles November (2016) [MP3|320 Kbps] <House,  Bass House, Bounce,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350123.jpg" />
 </div>
 
 
@@ -695,7 +753,7 @@ VA - 60 Minutes. Old School Dance Music vol.11 (mixed by Dj V) (2022) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350046.jpg" />
 </div>
 
 
@@ -709,64 +767,6 @@ VA - 60 Minutes. Old School Dance Music vol.11 (mixed by Dj V) (2022) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70727742D0062C02878558996F6805845C64B9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256913   (350032) от 24.10.2018
-
-VA - Fern World: Magical Sounds Of Lo Fi Music (2018) [MP3|320 Kbps] <Lo Fi, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350032.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ambitus - Eternal Sunset
-002. Citizen Maze - Serenity In The Woods
-003. Field Works - Imprints
-004. Matas - Flutter(   Читать дальше...   )Жанр: Lo Fi, LoungeПродолжительность: 07:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25211E2848344D8DE595867E948488625E85422F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072766   (349992) от 14.11.2016
-
-VA - Urban Loudness Friends Styles (2016) [MP3|320 Kbps] <Dancehall, Dance, Electro, Halloween>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Little Mix - Shout Out To My Ex (Clean) 04:06
-002. Michael Jackson - Thriller (Discotech Remix) (Clean) (Short Edit) 02:19
-003. Nine Inch Nails - Reptile (Remix) (Clean) 05:53
-004. Nine Inch Nails - Reptile (Intro Dirty) 06:22(   Читать дальше...   )Жанр: Dancehall, Dance, Electro, HalloweenПродолжительность: 10:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF489914D887D4C8DC130E5F14CA6B758D63DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1028451   (689947) от 22.06.2016
+
+Umbrella Corps / Biohazard Umbrella Corps (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вступай в корпус! Capcom представляет Umbrella Corps - уникальный агрессивный шутер в стилистике Resident Evil с новыми стратегическими элементами. Вас ждут напряженные бои на ближней и средней дистанции с применением укрытий и аналоговой системы прицеливания, щекочущие нервы матчи без возможности возрождения и многое другое!Тип издания: RepackРазработчик: CAPCOMЖанр: Action, 1st Person, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC56F25FA806965EF11E3A8867C49C99DCEBE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288963   (689785) от 14.03.2019
+
+OVERKILL's The Walking Dead (2018) [Ru/En] (1.3.2/dlc) Repack Mizantrop1337
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Overkill’s The Walking Dead — энергичный кооперативный шутер от первого лица, действие которого разворачивается в Вашингтоне после вспышки эпидемии, вернувшей мертвых к жизни. В этом испытании навыков, стратегического мышления и умения действовать сообща игроков ждут походы, поиск припасов и уцелевших людей, а также защита своего лагеря как от мертвых, так и от живых.Тип издания: RepackРазработчик: Overkill SoftwareЖанр: Экшен от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C5D1271439511B4964DFED77697A46E3EA8C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222121   (688939) от 27.04.2018
 
 Containment Initiative (2018) [En] (1.45) License PLAZA
@@ -6,7 +58,7 @@ Containment Initiative (2018) [En] (1.45) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688939.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Prey (2017) [Ru/Multi] (1.0.2/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688662.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ STRAFE (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686777.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Reframed (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686615.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Apocryph: an old-school shooter (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686605.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ DESOLATE (2019) [Ru/Multi] (1.2.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685554.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ CRIMSON METAL (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684357.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ DooM in the Dark (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683500.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Prey (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682262.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0/upd9) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681791.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Inner Chains (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680406.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Prey [Ru] (L) 2006
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_678861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_678861.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ I Am Alive (2012) [Ru/Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_676072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_676072.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ illWill (2023) [Ru/Multi] (1.11) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_676066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_676066.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673878.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Borderlands: Trilogy (2009-2014) [Ru/En] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G. R
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673724.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Solarix (2015) [En/Tu] (1.6) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673524.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ The Fidelio Incident (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672308.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Agent 9 (2019) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671930.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ RICO (2019) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671928.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ eXoDOS Collection v3.11 - Volume 5 Action (2018) [En] (3.11) Repack eXo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670022.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Battlezone (2017) [Ru/Multi] (1.08/dlc) Repack Other s [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669385.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2.0/upd2/dlc) Repack Other s [Definitive Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668692.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Lazaretto (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667566.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ LAZARETTO - это хоррор-игра от первого лица, посв�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A3DB3A55FE583460869CDE5235B58B2F0159BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022073   (667360) от 26.05.2017
-
-Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0/upd2) Repack Other s [Definitive Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Island Riptide Definitive Edition – переиздание, состоящее из серьезно улучшенной версии зомби-экшена Dead Island Riptide и всех выпущенных DLC. Dead Island Riptide является спин-оффом Dead Island, который разработан на улучшенном движке. В игре появилась новая система погоды, включающая наводнения и необходимость преодолевать кишащие зомби реки на маленьких (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Action, 1st Person, 3D, CompilationЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C315962D62C1A8076B0D528AE332888334B3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224264   (666934) от 09.05.2018
-
-Singularity (2010) [Multi] (1.1) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каторга-12 — советский научный центр, расположенный на небольшом острове у побережья Камчатки. В результате неудачного эксперимента остров попал во временную ловушку и теперь постоянно перемещается между 1950 и 2010 годами.Тип издания: LicenseРазработчик: Raven SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C00090E7897FE478CC100BDB3EC68751E4959C
 ```
 
 https://mybot314.ru/tekegram_catalog/

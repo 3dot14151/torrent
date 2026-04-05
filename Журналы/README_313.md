@@ -1,3 +1,133 @@
+###  Публикация: 368990   (527454) от 29.07.2011
+
+Журнал | Stereo & Video [Россия] №8 (2011) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02809296F0CA2C2203363B7FF0994090329331D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052866   (527361) от 15.09.2016
+
+Журнал | Аптека здоровья №15 Как сохранить слух (октябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли жить так, чтобы у вас ничего не болело? Можно! И стоит к этому стремиться. Что для этого нужно? Правильное питание, здоровый образ жизни и физическая активность. А если все-таки что-то болит? Попробуйте помочь своему организму справиться с болезнью самостоятельно, без лекарств. Используйте проверенные временем средства из арсенала народной медицины - не (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC24AE95CC0522B17EBB1581315C6E032E44BA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052619   (527358) от 15.09.2016
+
+Журнал | Лена. Креатив №5 (2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изысканные салфетки, связанные крючком, изумительные вышивки крестом и гладью, мастер-класс по обратному декупажу, украшения в технике квиллинг и многое другое... Всё для вас!Жанр: Домоводство, рукоделие, хобби, творчествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BC7D7F5225DF629DAAAE07E0CCF547A65B702D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052876   (527341) от 15.09.2016
+
+Журнал | Аптека здоровья №16 Как помочь сердцу (октябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли жить так, чтобы у вас ничего не болело? Можно! И стоит к этому стремиться. Что для этого нужно? Правильное питание, здоровый образ жизни и физическая активность. А если все-таки что-то болит? Попробуйте помочь своему организму справиться с болезнью самостоятельно, без лекарств. Используйте проверенные временем средства из арсенала народной медицины - не (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EC37BC0B307887248866C2870151D2110732A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052861   (527316) от 15.09.2016
+
+Журнал | Аптека здоровья №14 Как избавиться от косточки на ноге (октябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли жить так, чтобы у вас ничего не болело? Можно! И стоит к этому стремиться. Что для этого нужно? Правильное питание, здоровый образ жизни и физическая активность. А если все-таки что-то болит? Попробуйте помочь своему организму справиться с болезнью самостоятельно, без лекарств. Используйте проверенные временем средства из арсенала народной медицины - не (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C00A0E7376EDF84436B5CF36EFF3414185D869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052901   (527308) от 15.09.2016
 
 Календарь | Современная усадьба. "Голосистый петушок" на 2017 год (2016) [PDF]
@@ -6,7 +136,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527308.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527076.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527074.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527073.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527071.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527005.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526812.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526687.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526657.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526655.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526650.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526583.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526505.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526451.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526450.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526342.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526070.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526040.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526003.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525535.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525531.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DFAB9BA4FB86235F0265B260C1714111118C053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157438   (525522) от 11.08.2017
-
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №15 (159) (Август 2017)  [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA07FD9DE8A6AC15ABDF22CCD14AA96B9F199AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157350   (525512) от 11.08.2017
-
-Журнал | Радиоэлектронные технологии / Radio Electronic Technology №4 (2017) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525512.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Радиоэлектронные технологии» - важными направлениями журнала стали поддержание и развитие имиджа радиоэлектронной отрасли, информирование отечественных и зарубежных партнеров о возможностях предприятий в области создания и производства радиоэлектронных устройств и комплексов, информационная поддержка научно-технических и инновационных технологических разработок (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40940A4E7107B998DB9C37CD23598C7DF30A63E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157401   (525509) от 11.08.2017
-
-Журнал | Psychologies №9 (20) (сентябрь 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9F4F3CA1DA1AA1ED6668AB88C1D723E31DDC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157331   (525479) от 11.08.2017
-
-Журнал | Windows IT Pro/RE №8 (август 2017) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное издание на русском языке, целиком и полностью посвященное вопросам работы с продуктами семейства Windows и технологиям компании Microsoft. Каждый номер журнала начинается со статей, посвященных одной из самых перспективных на данный момент технологий, оказывающих серьезное влияние на ИТ-отрасль и вызывающих интерес сообщества профессионалов Windows. (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2827E26E81F801AB03517641720681D634FF56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157456   (525462) от 11.08.2017
-
-Журнал | Частный дом от проекта до объекта №11 (34) ( декабрь 2016 - январь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Строительство коттеджа, как и любое другое строительство, начинается с выбора земельного участка и его приобретения. Размеры участка, его рельеф, характер почвы — все это оказывает существенное влияние на выбор проекта загородного дома и на объем затрат по благоустройству участка. А тщательно разработанный проект- это и гарантия качества, и возможность рационально (   Читать дальше...   )Жанр: Строительство, ремонт, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA909127652F60B5CEC66C71ADD32E6DBA09E27
 ```
 
 https://mybot314.ru/tekegram_catalog/

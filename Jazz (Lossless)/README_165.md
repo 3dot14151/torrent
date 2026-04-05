@@ -6,7 +6,7 @@ Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Зв�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504235.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Taylor Cook - The Cook Book (2015) [FLAC|tracks+.cue]<Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503768.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dominique Magloire - Travelin' Light With Billie (2015) [FLAC|tracks|WEB-DL]<Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503762.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ethel Ennis - If Women Ruled The World (1998) /Savoy Jazz/[FLAC|tracks+.cue]<Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503759.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Anat Cohen - Luminosa (2015) /Anzic Records/[FLAC|tracks+.cue]<Contemporary Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503758.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bireli Lagrene - 15 (1982) Antilles [FLAC|Lossless|tracks + .cue] <Swing, Gypsy,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503726.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Paul Brown - Promised Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503517.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Chick Corea - The Spanish Heart Band: Antidote (2019) Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503371.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Cinematic Orchestra - Presents In Motion #1 (2012) [FLAC (tracks+cue)|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503317.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502635.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Jean-Loup Longnon & His New York Orchestra (1988) Atlantic Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502622.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Lee Konitz - Chicago'N All That Jazz (1975) 1989, Lester Recording [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502614.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jessi Teich - Twisted Soul (2015) [FLAC|Lossless]<Vocal Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502534.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Claudia Morris - Secret Love (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502533.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Pink Turtle - Pop in Swing (2008) [APE|image+.cue]<Jazz Mainstream, Tribute, Par
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502411.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Pink Turtle - A la mode (2012) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502409.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501663.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Paul Brown - The Funky Joint (2012) Woodward Avenue Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501553.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <Wor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501483.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Pink Turtle - Back Again (2010) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501329.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Bireli Lagrene - Inferno (1987) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500657.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ London, Meader, Pramuk & Ross - The Royal Bopsters Project (2015) [FLAC|tracks|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500633.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Art Pepper & The Hollywood All-Stars - Art Standards (1979 - 1982) 2002, Galaxy 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500497.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Jazz Ladies & Stan Kenton (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500436.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499750.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Max Roach Double Quartet - Easy Winners (1985) Soul Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499744.jpg" />
 </div>
 
 

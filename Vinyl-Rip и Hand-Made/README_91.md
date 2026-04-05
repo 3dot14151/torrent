@@ -1,3 +1,32 @@
+###  Публикация: 1648172   (63055) от 13.03.2024
+
+Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Rock, Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Label Society — сольный проект гитариста Закка Уайлда, известного по своей работе с Оззи Осборном.1999 - Sonic Brew
+2000 - Stronger Than Death
+2002 - 1919 Eternal
+2003 - The Blessed Hellride(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Southern Rock, Groove MetalПродолжительность: 17:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AB29AD4F19B22344E0F74F15607E0927936591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706802   (62971) от 14.03.2024
 
 VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tracks] <Pop>
@@ -6,7 +35,7 @@ VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62971.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Deep Forest - Studio Albums & Projects (23 releases) (1994-2023) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62557.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Electric Light Orchestra (ELO) - Time (1981) [FLAC 24/192|Lossless|tracks] <Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62437.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Samson - Survivors (1979) Reissue, 1983, Thunderbolt [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62343.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62339.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Korn (Jonathan Davis) - Studio Albums (16 releases) (1994-2022) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62268.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62237.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62226.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62215.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62012.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Наутилус Помпилиус / Бригада С (1988) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62006.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61904.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61832.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Пульс 1 - Музыкальный компьютер. (Серия "Сп
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61817.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61806.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61799.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61795.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61626.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61093.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60749.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60368.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60091.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59611.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59085.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58683.jpg" />
 </div>
 
 
@@ -716,37 +745,6 @@ Art of Anarchy — американская хард-рок супергрупп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A7F4451CF54FB2D3DB77C7A603D88919FB4430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595019   (58673) от 24.04.2024
-
-Scott Stapp (Creed) - Studio Albums (4 releases) (2005-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Post-Grunge, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scott Stapp — (урожденный Энтони Скотт Флиппен; 8 августа 1973 г.) — американский певец, наиболее известный как ведущий вокалист и автор текстов рок-группы Creed.
-Он также возглавлял группу Art of Anarchy.
-За свою работу в Creed Стэпп неоднократно награждался, в том числе Грэмми за лучшую рок-песню «With Arms Wide Open»2005 - The Great Divide
-2013 - Proof Of Life
-2019 - The Space Between The Shadows
-2024 - Higher PowerЖанр: Post-Grunge, Hard Rock, Heavy MetalПродолжительность: 02:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E40C39139F5B3CD9B537D75BB206FC49AC94BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

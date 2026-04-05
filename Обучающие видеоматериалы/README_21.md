@@ -1,3 +1,32 @@
+###  Публикация: 1443061   (1035886) от 27.01.2021
+
+Григoрий Коченoв | Курс графического дизайна: композиция, цвет, типографика (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знание основ графического дизайна сейчас - это не удел дизайнера, а базовые требование рынка. Сегодня важно уметь выражать свои идеи в графике. Понимать типографику, уметь выстраивать композицию. Мы с Вами разберем основы и заложим фундапмент для будущего роста.
+
+Содержание:
+1 Основы композиции(   Читать дальше...   )Жанр: ВидеокурсыПродолжительность: ~06:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F76B65A26DEFFF20F2DEFC16AEBF7B7F6D7031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 854188   (1035885) от 27.01.2021
 
 Дарья Черненко | Как готовить один раз в две недели. Зимнее меню (2014) PCRec
@@ -6,7 +35,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035885.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035681.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035668.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ New Art School ,Егор Гришин | База CG (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035595.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ New Art School, Егор Гришин | Скетчинг (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035592.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ Lectoroom, Мария Павлова | Старичок с воробьями (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035542.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ The Gnomon Workshop, Pawel Margacz | Creating Stylized VFX in Unreal Engine 5 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035521.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Syd Mead | Airship Arrival (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035438.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ SEMPRO | SEO-конференция. Как делать SEO для западн
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035434.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ Feng Zhu | The Techniques of Feng Zhu Vol 1-3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035430.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ Shane Hurlbut | Experience Lighting Masterclass (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035427.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Shannon Thomas, Paul 'BirD' Warzecha, Michael Vicente | Presentation Blizzard En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035426.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ Lynda, David Andrade | Тренинг по основам Blender 2.91 / Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035424.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Jonathan Lam | Design Isometric Environments for Games (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035418.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Van Arno | Figure Fundamentals Volume 1 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035405.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Glenn Vilppu | Drawing Manual 1. Gesture (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035382.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Coding For Entrepreneurs | Проекты и курсы. Django (2020) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035348.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ CG Cookie | Уроки по 3D моделированию в Blender / Blender T
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035340.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ Knower School ,Дмитрий Смирнов | Курс художественн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035301.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ CrossVidos | Марафон по съемке и монтажу видео на 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035090.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035086.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035068.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ OTUS, Анастасия Асеева-Нгуен и др. | QA Lead. Часть 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035062.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ OTUS, Любовь Данилова и др. | Автоматизация тес
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035060.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035059.jpg" />
 </div>
 
 
@@ -663,33 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9590DA57FE64D7E454B3DBD2B0B0C76A2F6EC8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440429   (1035036) от 30.01.2021
-
-Евгений Карпов | Интерьер в SketchUp (2019)
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035036.jpg" />
-</div>
-
-
-###  Подробнее
-
-О курсе
-Похож на виртуальную стройку: начинаем со существующих стен, затем возводим перегородки, наносим штукатурку, рассчитываем площади и объемы чернового и чистового пола, вставляем окна и двери, текстурируем, собственноручно моделируем мебель и расставляем готовую. В конце курса получается виртуальная модель дома, которая выводится на страницы в виде картинок, (   Читать дальше...   )Производство: UdemyЖанр: ГрафикаПродолжительность: 15:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364A5EF274488DDF9FC3D873C1422DC3AB813F0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

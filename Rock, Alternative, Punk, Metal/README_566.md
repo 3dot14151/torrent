@@ -1,3 +1,90 @@
+###  Публикация: 932025   (510195) от 28.08.2015
+
+Fink - Fresh Produce (2000) [MP3|320 кб/с]<Electronic, Downtempo, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tubb Journey (6:36)
+02. Fink Vs DJ Alicat (6:49)
+03. We Are Ninja (6:01)
+04. Break N Enter (5:55)(   Читать дальше...   )Жанр: Electronic, Downtempo, Indie RockПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A0261BCA1D3F850AB7D700DE69DA30CC671D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932209   (510193) от 28.08.2015
+
+Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]<Progressive Rock,  Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tides Of Time (7:48)
+02. Minion (6:56)
+03. Hell's Not Enough (6:24)
+04. Bennett Built A Time Machine (6:56)(   Читать дальше...   )Жанр: Progressive Rock,  Symphonic RockПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C12C7B64995332AFEB356AF9CA51989CDFBEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932073   (510192) от 28.08.2015
+
+Backyard Babies - Four By Four (2015) [MP3|320 кб/с]<Hard Rock, Glam Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Th1rt3en Or Nothing
+02. I'm On My Way To Save Your Rock 'N' Roll
+03. White Light District
+04. Bloody Tears(   Читать дальше...   )Жанр: Hard Rock, Glam PunkПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78151EEEC2C795D67520C1C60205B84D8B0F18CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932090   (510181) от 28.08.2015
 
 Motorhead - Bad Magic (2015) [FLAC|tracks|WEB-DL]<Heavy Metal>
@@ -6,7 +93,7 @@ Motorhead - Bad Magic (2015) [FLAC|tracks|WEB-DL]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510181.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Soilwork - The Ride Majestic (2015) Limited Edition [MP3|320 кб/с]<Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510046.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Foals - What Went Down (2015) [OGG| 442-508 кб/с]<Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509983.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Daturana – Crossroad Man (2011) [FLAC|Lossless]<Psychedelic Rock / Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509883.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ Crazy Town - 3 Альбома (1999-2015) [MP3|320 кб/с]<Alternative / Nu-Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509880.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ P.O.D. - 9albums + 3EPs + 6singles (1992-2015) [MP3|320kbps] <Christian Rock, Ra
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509840.jpg" />
 </div>
 
 
@@ -176,7 +263,7 @@ Arkuum - Trostlos (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Post-Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509544.jpg" />
 </div>
 
 
@@ -205,7 +292,7 @@ Edison's Children - Somewhere Between Here And There... (2015) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509469.jpg" />
 </div>
 
 
@@ -234,7 +321,7 @@ Slik Toxik - Doin' The Nasty (1992) [MP3|320 кб/с]<Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509467.jpg" />
 </div>
 
 
@@ -263,7 +350,7 @@ Julien-K - We’re Here With You (2012) Deluxe Edition [MP3|320 кб/с]<Industr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509372.jpg" />
 </div>
 
 
@@ -292,7 +379,7 @@ Headcrash - 6 альбомов (1993-2006) [MP3|160-320 кб/с]<Industrial Rap-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509358.jpg" />
 </div>
 
 
@@ -321,7 +408,7 @@ Telekinetic Yeti - Abominable (2017) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509292.jpg" />
 </div>
 
 
@@ -350,7 +437,7 @@ Wilt - Wilt (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black metal, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509291.jpg" />
 </div>
 
 
@@ -379,7 +466,7 @@ Telekinetic Yeti - Primordial (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509290.jpg" />
 </div>
 
 
@@ -408,7 +495,7 @@ Delirium - Dolce Acqua (1971) Reissue, Remastered, 2005, Arcangelo, Japanese Edi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509286.jpg" />
 </div>
 
 
@@ -437,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509285.jpg" />
 </div>
 
 
@@ -466,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509220.jpg" />
 </div>
 
 
@@ -495,7 +582,7 @@ Hienas - Socavon (2022) [MP3|320 Kbps] <Sludge, Doom, Stoner, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509104.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ Blind Channel - Lifestyles of the Sick & Dangerous (2022) [MP3|320 Kbps] <Rap Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509037.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ BelMel Studio - Хозяйкам на заметку (2022) [MP3|320 Kbps] <Russ
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509036.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ Tiny Moving Parts - Tiny Moving Parts (2022) [MP3|320 Kbps] <Pop-Punk, Math Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509028.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Traitor - Exiled To The Surface (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509023.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509022.jpg" />
 </div>
 
 
@@ -654,93 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ADC7104C58CFB5953891E364E359FFFD80FEF92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562081   (509020) от 09.07.2022
-
-Journey - Freedom (2022) [MP3|320 Kbps] <Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together We Run (4:49)
-02. Don't Give Up On Us (5:23)
-03. Still Believe In Love (5:16)
-04. You Got The Best Of Me (5:33)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19EF326AB40E7DC1C57C9A526002302F071BCD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562373   (508952) от 09.07.2022
-
-Dreamtide - Drama Dust Dream (2022) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508952.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stop Being Deep  04:22
-2. Spin  05:30
-3. Around  05:06
-4. Ni Dos Ni Agua  02:45(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C7E7DC46E17CD28952557D65930D10E0F98BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562045   (508941) от 09.07.2022
-
-Imagine Dragons - Mercury - Acts 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508941.jpg" />
-</div>
-
-
-###  Подробнее
-
-15. Bones
-16. Symphony
-17. Sharks
-18. I Don't Like Myself(   Читать дальше...   )Жанр: Indie Rock, Electronic, Alternative RockПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DD6F4E1F5ECB78E953034BA66BAF596787F535
 ```
 
 https://mybot314.ru/tekegram_catalog/

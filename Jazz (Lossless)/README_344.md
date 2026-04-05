@@ -6,7 +6,7 @@ Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71331.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Art Farmer - Something To Live For: The Music Of Billy Strayhorn (1987) Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71306.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Don Patterson - Boppin' & Burnin' (1968) 1998, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71305.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Simon Trio - Legacy (1986) 1996, Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71304.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Eddie Daniels - Blue Bossa (1972, 1973) 1996, Candid [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71303.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Larry Coryell - Bolero & Scheherazade (1983) Philips [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71299.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71241.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71240.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71238.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71221.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71219.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. II (2023) Signora Ward Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71203.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71197.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - The Midnighters Vol. II (2025) Signora Ward Records [FLAC|Lossless|Web-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71165.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The Midnighters Vol. I (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71163.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Don Patterson - Steady Comin' At 'Ya (1972 - 1977) 1998, 32 Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71143.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Red Mitchell & George Cables - Live At Port Townsend (1992) 2005, Challenge Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71142.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Art Farmer + Bill Evans - Modern Art (1958, 1959) 2004, Lone Hill Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71141.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Frank Morgan - Mood Indigo (1989) Antilles [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71140.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dick Hyman - Solo At The Sacramento Jazz Festivals (1983 - 1988) 2017, Arbors Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71113.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dick Hyman - Cincinnati Fats (1981) 1987, Musical Heritage Society [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71112.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Buddy Rich - The Legendary Buddy Rich (1988) Spectrum Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71111.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dick Hyman & Mary Mayo - Moon Gas (1963) 2003, Vroom Sound Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71109.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Art Farmer & Hal Mckusick Quintet - Complete Studio Recordings (1956 - 1958) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71065.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Clifford Jordan, Richard Davis, James Williams, Ronnie Burrage - Four Play (1990
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71064.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71063.jpg" />
 </div>
 
 

@@ -1,3 +1,60 @@
+###  Публикация: 1451892   (1028085) от 04.03.2021
+
+Hilyard, Marco Uson, Collapsed Textures - United Soundscapes Oriented To Nature (2020) USON [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hilyard – Understory (05:57)
+02. Marco Uson – Una Fija Mirada En El Más Allá (07:24)
+03. Collapsed Textures – Distant Embers (07:14)Жанр: Ambient, DroneПродолжительность: 00:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB880F6504048651E383B093C5DEAADE21481EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451851   (1028084) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 6 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid8 - Another Day (Original Mix) (04:54)
+02. Cryogenics - Hiding (Original Mix) (05:03)
+03. Skorpz - Babylon System (Original Mix) (05:52)
+04. Carter - What I See (V.I.P. Edit) (07:30)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76DC7F3C23C58B636E1C7B6C4A39350AABA5772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451811   (1028082) от 04.03.2021
 
 VA - Warehouse Anthems: Drum & Bass Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -6,7 +63,7 @@ VA - Warehouse Anthems: Drum & Bass Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028082.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 11 (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028079.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028071.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 5 (2015) [FLAC|Lossless|WEB-DL|tracks]
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028070.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028067.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ VA - The Perfect Sunset Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028066.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 12 (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028063.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ VA - Point of Origin, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028062.jpg" />
 </div>
 
 
@@ -238,7 +295,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 13 (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028058.jpg" />
 </div>
 
 
@@ -267,7 +324,7 @@ VA - Warehouse Anthems: Drum & Bass, Vol. 15 (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028057.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ Psilotum - Altered Vision (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|trac
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028051.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ Patrick Benolkin (Eluder, ElectricWest, Lamont Kohner) - Discography 23 Releases
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028047.jpg" />
 </div>
 
 
@@ -352,7 +409,7 @@ VA - Illusion Of Gravity (Compiled by Sunduo) (2021) Microcosmos Records [FLAC|L
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028031.jpg" />
 </div>
 
 
@@ -381,7 +438,7 @@ Solar Fields - Reflective Frequencies (Remastered Special Digital Edition) (2021
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027914.jpg" />
 </div>
 
 
@@ -410,7 +467,7 @@ Terminal 11 - Discography 15 Releases (2001-2021) Phthalo, Hymen Records, Cock R
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027899.jpg" />
 </div>
 
 
@@ -439,7 +496,7 @@ Richard Devine (Richard Coleman Devine) - Discography 14 Releases (1996-2020) [F
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027864.jpg" />
 </div>
 
 
@@ -468,7 +525,7 @@ Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027820.jpg" />
 </div>
 
 
@@ -497,7 +554,7 @@ maximum movement theatre - songs from the shed (2021) [FLAC|Lossless|WEB-DL|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027777.jpg" />
 </div>
 
 
@@ -526,7 +583,7 @@ Bop - Perehod (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Downt
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027763.jpg" />
 </div>
 
 
@@ -555,7 +612,7 @@ Kaskade - Reset (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive Trance,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027758.jpg" />
 </div>
 
 
@@ -584,7 +641,7 @@ Sciama - Decay To Nothing (2021) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027756.jpg" />
 </div>
 
 
@@ -613,7 +670,7 @@ VA - Best Of Progressive Dacru (2021) [MP3|320 Kbps] <Psytrance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027710.jpg" />
 </div>
 
 
@@ -642,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027659.jpg" />
 </div>
 
 
@@ -668,7 +725,7 @@ sayCeT (S A Y C E T) - Discography 12 Releases (2006-2020) [FLAC|Lossless|tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027657.jpg" />
 </div>
 
 
@@ -682,63 +739,6 @@ sayCeT (S A Y C E T) - Discography 12 Releases (2006-2020) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2928E5E5AE4C9260E1057D5087069B97D5180E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144440   (1027644) от 06.03.2021
-
-James Shinra - Discography 15 Releases (2008-2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno, Ambient, Acid>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbine (06:32)
- 02. Isolate (05:29)
- 03. Endgame (06:19)Жанр: Electro, IDM, Techno, Ambient, Acid •Продолжительность: 06:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF81A5A3BFBE5B38D5D38E1ED02E3B9D82B66FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452395   (1027573) от 07.03.2021
-
-Skold - Dies Irae (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Industrial Rock>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dirty Horizon [00:04:00]
-02 Unspoken [00:03:38]
-03 The End is Near [00:03:37]
-04 Terrified [00:04:10](   Читать дальше...   )Жанр: Industrial RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660C162CC0EF624E7DC990525D8B346480F07009
 ```
 
 https://mybot314.ru/tekegram_catalog/

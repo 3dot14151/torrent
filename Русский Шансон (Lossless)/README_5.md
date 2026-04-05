@@ -6,7 +6,7 @@ VA - Концерт памяти Сергея Наговицына (2002) [FLAC|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801596.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Иван да Марья (2003) [FLAC|Lossless|image + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801083.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798816.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798747.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798659.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798624.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797832.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Москва златоглавая II - VIII (1995 - 1998) [FLAC|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797758.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Мужские истории 2 (2004) [FLAC|Lossless|image + .cue]<Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796329.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Шансон по-русски.Новые хиты (2001) [FLAC|Lossless|tr
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793971.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793817.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Кураж судьбы 2 (2001) [FLAC|Lossless|image + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793049.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Москва златоглавая IV (1996) [FLAC|Lossless|image + .cue]<
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793012.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792813.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792775.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792490.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792413.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792236.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792192.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792185.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792165.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791562.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790811.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789437.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788965.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788134.jpg" />
 </div>
 
 

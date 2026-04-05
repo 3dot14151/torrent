@@ -6,7 +6,7 @@ Wild Bill Davis - Swing & Shout: Americans Swinging In Paris (1977) 2002, Black 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701276.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pepper Adams - Plays Charlie Mingus (1963) 2003, Fresh Sounds Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701270.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Smoking Time Jazz Club - Ain't We Fortunate! (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701160.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Andy Bey - Tuesdays in Chinatown (2001) Warlock Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700778.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - George Gershwin Songbook (Jazzclub Highlights) (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700554.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The David Angel Big Band - Camshafts And Butterflies (1973, 1975) 2015, V.S.O.P.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700056.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Duke Ellington - Things Ain't What They Used To Be (1966, 1969) 1996, LaserLight
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699666.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Johnny Smith Trio - Designed For You (1959) Remaster, 2017, Warner [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698982.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Martial Solal - At Newport '63 (2016) Sony Music [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698810.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698809.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698808.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Eddie South - 1937 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698804.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Miles Davis - Plays For Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698716.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Joe Zawinul - The ESC Years (1992-1996) 2011, ESC Records[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698561.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Ella Fitzgerald - Sings The George and Ira Gershwin Song Book (1959) 4CD, 1998, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698367.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Fredrik Kronkvist Quartet - Maintain! (2005) Connective Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697876.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Pablo Ziegler Trio - Jazz Tango (2017) ZOHO Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697872.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Michael Leonhart Orchestra - The Painted Lady Suite (2018) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697780.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Shelly Manne & His Men - West Coast Jazz In England (1960) 2011, Solar Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697232.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Claude Williamson Trio - Complete 1956 Studio Sessions (2002) Fresh Sound Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697230.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Guy Lafitte & Wild Bill Davis - Lotus Blossom (1983) 2003, Black And Blue [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697226.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Dirty Bourbon River Show - 2 Albums (2015, 2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697111.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Fats Waller and His Rhythm - Ain't Misbehavin (1929 - 1941) 2016, Sony Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696888.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Bernie Senensky - Homeland (1991) Remaster, 2015, Solid Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696762.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Phil Woods & Michel Legrand And Orchestra - Images (1975) Remaster, 2014, Sony M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696656.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696072.jpg" />
 </div>
 
 

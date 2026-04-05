@@ -6,7 +6,7 @@ ProFind 1.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374720.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alfred 4 Powerpack 4.0.5.1113 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374719.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Yate 5 v5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374718.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Cisdem Duplicate Finder 4 v4.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374717.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ WonderPen 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374716.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Ink2Go 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374635.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Athentech Perfectly Clear Complete 3.8.0.1671 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374634.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Translatium 9 v9.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374633.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ BookMacster 2.9.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374632.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ QLab Pro 4 v4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374631.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Video Editor MovieMator Pro 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374630.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Lattice 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374626.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ PopClip 2019.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374625.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Mate Translate 6.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374624.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sublime Merge Build 1118 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374623.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ WebVideoHunter Pro 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374622.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Grids for Instagram 5.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374616.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ TG Pro (Temperature Gauge Pro) 2.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374516.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ MacClean 3 v3.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374510.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ TechSmith Snagit v2019.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374509.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ TunesKit Screen Recorder 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374508.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ iExplorer 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374432.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ ProFind 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374405.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Invisor - Media File Inspector 3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374403.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Topaz Gigapixel AI 4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374381.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Sublime Text 3 (3152) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374342.jpg" />
 </div>
 
 

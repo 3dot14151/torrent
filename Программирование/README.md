@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061646.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061304.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Frances Buontempo | Introducing C++: The Easy Way to Start Learning Modern C++ (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061184.jpg" />
 </div>
 
 
@@ -81,32 +81,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858714   (1060557) от 12.03.2026
-
-С. Чернышев, Ю. Петров, С. Ильин и др. | Основы Flutter (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена для всех, кто хочет погрузиться в эффективную кроссплатформенную разработку с Flutter. Вы не только изучите синтаксис языка Dart и основы фреймворка, но и сразу примените знания на практике, разрабатывая проект, который развивается на протяжении всей книги. После каждой новой темы вас ждут задания по доработке его кодовой базы, что позволит уверенно (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BA9860B34117EAA198BBEB11E5F6BBAAF6A2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856333   (1059090) от 28.02.2026
 
 Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
@@ -115,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059090.jpg" />
 </div>
 
 
@@ -135,32 +109,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853345   (1056720) от 14.02.2026
-
-Валерий Рубанцев | Если бы у Диофанта был компьютер. Решаем исторические задачи по математике (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1056720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Валерия Рубанцева «Если бы у Диофанта был компьютер» посвящена решению классических исторических математических задач, прежде всего диофантовых уравнений, с использованием современных компьютерных алгоритмов и программирования. Она предлагает новый взгляд на задачи древности, сочетая историю математики с практическими навыками вычислений, что делает ее полезной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77ECAD8121E1CDFE07A61B47B03B88ADAC310B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852858   (1056558) от 12.02.2026
 
 Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
@@ -169,7 +117,7 @@ Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056558.jpg" />
 </div>
 
 
@@ -197,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056523.jpg" />
 </div>
 
 
@@ -223,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055157.jpg" />
 </div>
 
 
@@ -249,7 +197,7 @@ Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055071.jpg" />
 </div>
 
 
@@ -275,7 +223,7 @@ Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055070.jpg" />
 </div>
 
 
@@ -301,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054879.jpg" />
 </div>
 
 
@@ -327,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054872.jpg" />
 </div>
 
 
@@ -345,32 +293,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850563   (1054616) от 31.01.2026
-
-Илья Кантор | Современный учебник JavaScript [3 книги] (2026) [EPUB, PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1054616.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этого учебника вы можете изучить jаvascript, начиная с нуля и заканчивая продвинутыми концепциями вроде ООП. Мы будем использовать браузер в качестве окружения, но основное внимание будет уделяться именно самому языку jаvascript. Давайте посмотрим, что такого особенного в jаvascript, чего можно достичь с его помощью, и какие другие технологии хорошо с ним (   Читать дальше...   )Жанр: ПрограммированиеЯзык: русскийИздательство: javascript.ruФормат: EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63B0AE81725267A9B84C735385FC9C6E8EA1603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849347   (1053554) от 22.01.2026
 
 Alex Vasilev | Python by Example (2025) [PDF] [EN]
@@ -379,7 +301,7 @@ Alex Vasilev | Python by Example (2025) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053554.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Imp
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053540.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ Diego Oliva, Marco Antonio Perez Cisneros и др. | Initialization and Diversit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053453.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053353.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053342.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ Anita Goel | Python Programming. An Object-Oriented Approach (2025) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053327.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ Michael D. Smith | Problem Solving with Python. Using Computational Thinking in 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053326.jpg" />
 </div>
 
 
@@ -565,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053321.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ Chris Fregly | AI Systems Performance Engineering. Optimizing Model Training and
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053231.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ Priyanka Vergadia, Valliappa Lakshmanan | Visualizing Generative AI. How AI Pain
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053230.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053013.jpg" />
 </div>
 
 
@@ -672,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052804.jpg" />
 </div>
 
 
@@ -683,6 +605,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7D54CE8E84ECA5CB7776F466A59211D78249763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848481   (1052671) от 17.01.2026
+
+Robert C. Martin | Clean Architecture. A Craftsman’s Guide to Software Structure and Design (2018) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Building upon the success of best-sellers The Clean Coder and Clean Code, legendary software craftsman Robert C. "Uncle Bob" Martin shows how to bring greater professionalism and discipline to application architecture and design.
+As with his other books, Martin's Clean Architecture doesn't merely present multiple choices and options, and say "use your (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Pearson EducationФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E701E8498E2F123B0BB6D93C225AE832C036BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848129   (1052573) от 16.01.2026
+
+Бернд Ульман | Программирование аналоговых и гибридных компьютеров (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052573.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мере того как классические цифровые компьютеры приближаются к своим физическим и архитектурным границам, стремительно растет интерес к аналоговым и гибридным вычислениям. Такие компьютеры могут превосходить классические цифровые по скорости работы, общей вычислительной мощности, энергоэффективности, а также обладать чрезвычайно высокой степенью параллелизма. Данная (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA6E23834EF11F0232F47661F7701F43031A057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847668   (1052380) от 13.01.2026
+
+В.Ю. Ачкасов | Программирование на Lazarus. Учебное пособие [4-е  изд.] (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052380.jpg" />
+</div>
+
+
+###  Подробнее
+
+В  учебном  пособии  рассматривается  среда  программирования  Lazarus  и  компилятор FPC. Lazarus —  свободно распространяемая среда программирования на Объектом Паскале, бесплатный  аналог  Delphi.  В  издании  подробно  рассматриваются  все  аспекты  создания Windows-приложений на базе этой среды.
+Учебное  пособие  предназначено  для  студентов,  обучающихся  по  направлениям подготовки, (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Ай Пи Ар Медиа,Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E7166024A3B29AAEBCE01A8BAFBFCFB2A7E49A
 ```
 
 https://mybot314.ru/tekegram_catalog/

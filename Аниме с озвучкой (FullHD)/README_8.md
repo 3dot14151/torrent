@@ -1,3 +1,108 @@
+###  Публикация: 1375664   (863274) от 15.04.2020
+
+Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой по имени Рокуро происходит из семьи магов-оммёдзи, которые уже много поколений сражаются со злыми духами Кегаре. Однако сам он мечтает быть певцом, футболистом — да кем угодно, лишь бы не оммёдзи. Впрочем, когда на горизонте возникает девушка-оммёдзи Бенио, Рокуро вдруг впервые в жизни ощущает конкуренцию и наконец решает проявить свои врождённые таланты. (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: Приключение, сверхъестественное, сёнен, романтикаРежиссер: Томохиса ТагутиЯзык озвучки: Японский и русскийСубтитры: ASS, Внешние, Полные + надписи | RUПродолжительность: 50 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639EACF400DC8C4992883C923A7CE7D1434C2C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767719   (863221) от 18.03.2014
+
+Akira | Акира [1988, MV] BDRip 1080p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 1988. Огромный взрыв наподобие тех, что без малого полвека назад сотрясли Хиросиму и Нагасаки, стирает Токио с лица земли. Нью-Токио 2019 года, восставшее из пепла, словно тёмный Феникс. Организация страны теперь напоминает тоталитарное государство, железной рукой подавляющее подпольное Сопротивление. В исследовательских центрах проводятся парапсихологические (   Читать дальше...   )Жанр: приключения, фантастика, мистика, киберпанкРежиссер: Отомо КацухироСубтитры: •Продолжительность: 124 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05ADD620672152AF079C0DBD20AD22F368916EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365543   (859730) от 17.04.2020
+
+Youjo Senki | Saga of Tanya the Evil | Военная Хроника Маленькой Девочки [2017, TV, 12 ep + 13 sp] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в параллельном мире идёт война. В первых рядах, среди суровых мужчин, командующая ни много ни мало — целым отрядом, затесалась юная белокурая девушка по имени Таня Дегуршаф.
+Ну, или, по крайней мере, так кажется со стороны. Мало кто знает, что на самом деле она — это он. Ещё будучи в Японии очередным представителем офисного планктона, пускай и очень успешным, (   Читать дальше...   )Производство: NUT, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Уэмура ЮтакаОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин; 13 Эпизодов по 2 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593A57F4AA45851380B6E18D5B5A14215E4E8152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365544   (859726) от 17.04.2020
+
+Gekijouban Youjo Senki | Saga of Tanya the Evil | Военная Хроника Маленькой Девочки. Фильм [2019, Movie] BDRip 1080p raw+rus
+
+>>След.
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1926 год. 203-й магический батальон Имперской армии во главе с майором Таней Дегуршаф, возвращаются на родину после окончания успешной кампании по разгрому остатков армии Республики на Южном континенте. Однако ожидаемого празднования успешного завершения миссии не случилось. В штаб поступает сообщение о массовой мобилизации вблизи границы с Российской Федерацией (   Читать дальше...   )Производство: NUT, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Уэмура ЮтакаОзвучка: Многоголосая закадровая, ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 01:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3031AC8C4FC3AAEE40390006D419D539B75A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482840   (859225) от 25.09.2021
 
 Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чёрной компании [TV-1] [2021, TV, 12 из 12] WEB-DL 1080p rus
@@ -6,7 +111,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859225.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859224.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855700.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2004,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853967.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Bishoujo Senshi Sailor Moon S | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852763.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Bishoujo Senshi Sailor Moon Super S: Black Dream Hole | Красавица-Во�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852757.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852756.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ Bishoujo Senshi Sailor Moon R | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852755.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ Bishoujo Senshi Sailor Moon R: Promise Of The Rose | Красавица-Воин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852754.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Bishoujo Senshi Sailor Moon | Красавица-Воин Сейлор Мун [T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852753.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ Bishoujo Senshi Sailor Moon Crystal | Pretty Guardian Sailor Moon Crystal | Кр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852751.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849045.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847274.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845784.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! | Я Сказала, Усре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844001.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844000.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ Dumbbell Nan Kilo Moteru? | Насколько Тяжёлые Гантели т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843999.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ Wolf's Rain | Волчий Дождь [2003, TV, 30 ep] BDRip 10-bit 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843998.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ Monster Musume no Iru Nichijou | Повседневная Жизнь с Деву
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843994.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ Shiki | Усопшие [2010, TV, 22 ep + 2 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839060.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ Kekkai Sensen & Beyond | Фронт Кровавой Блокады [TV-2] [2017
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837438.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ Toaru Majutsu no Index III | Некий Магический Индекс [TV-3]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837232.jpg" />
 </div>
 
 
@@ -570,114 +675,6 @@ Toaru Majutsu no Index III | Некий Магический Индекс [TV-3]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A190237601917CEEFB1C65A10A0D753EEF9A21C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379760   (837231) от 30.04.2020
-
-Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический Индекс: Чудо Эндимиона [2013, Movie + Special] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837231.jpg" />
-</div>
-
-
-###  Подробнее
-
-События фильма развиваются сразу после окончания строительства космического подъёмника «Эндимион» в Академия-Сити. Главный герой Тома Камидзё и его подруга Индекс случайно сталкиваются с Арисой Мэйго, эспером нулевого уровня.
-По непонятным причинам «Ассоциация магов» преследует Арису и нападает на Академия-Сити. Чтобы защитить город от угрозы, образуется движение (   Читать дальше...   )Производство: J.C. Staff, ЯпонияЖанр: Приключения, МистикаРежиссер: Нисикиори ХиросиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: Movie 01:30:08; Special 00:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB9C6027C0D3EEADD028D050E624A7F0FDC54DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379758   (837229) от 30.04.2020
-
-Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009, TV, 24 ep + OVA + 3 Specials] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Академия-Сити. Население 2,3 миллиона. 80 процентов учащихся принимают активное участие в «Программе по развитию мозга». Их называют эсперами, и только семеро из них достигли 5-го уровня.
-Знакомьтесь c главными героями, гражданами Академии-Сити: Микото Мисакой и её подругой Куроко Сираи. Они следят за порядком в городе, и в то время, как Куроко является членом организации (   Читать дальше...   )Производство: J.C. Staff, ЯпонияЖанр: Приключения, Комедия, ФантастикаРежиссер: Нагай ТацуюкиОзвучка: Одноголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 24 Эпизодов по 23 Мин; OVA 34 Мин.; Specials 8 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCE588CFBC435A44D5F58F58BE13B69E9F21273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473407   (835858) от 09.10.2021
-
-Моя геройская академия [ТВ-5] / Boku no Hero Academia 5 / My Hero Academia Season 5 [2021, TV, 25 ep] WEB-DL 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый герой должен досконально владеть своим даром. Чтобы умело его контролировать понадобится обучение. Специально для такого открыли Геройскую Академию. Но можно ли туда попасть простому человеку, который не имеет никаких способностей? На самом деле с даром можно не только родится, а и получить в награду от супергероя.
-
-Простой парнишка Идзука Мидория не обладает (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Нагасаки КэндзиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 25 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333A6D17D2042D8108259D801A1B12E216628339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113620   (835756) от 12.03.2017
-
-Империя трупов | Shisha no Teikoku | Империя мертвецов | The Empire of Corpses [2015, MV] BDRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа отправит нас в Европу XIX века. Юный студент Джон Уотсон был завербован службой разведки в качестве секретного агента. Технократия — мир, где наука совершила невероятный прорыв для любой промышленности. Создание гомункулов поставлено на поток, и существа с мертвым телом и искусственной душой используются во всех сферах жизни в роли солдат и рабочей (   Читать дальше...   )Производство: студия Wit StudioЖанр: приключения, фантастикаРежиссер: Макихара РётароОзвучка: Многоголосая от AniChaosПродолжительность: 02:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48019A7CEF2477EEA5FE3FC33C3FE344BBFFE369
 ```
 
 https://mybot314.ru/tekegram_catalog/

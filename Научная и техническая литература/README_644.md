@@ -1,134 +1,3 @@
-###  Публикация: 682679   (20455) от 24.04.2025
-
-Игорь Борщенко | Подборка книг (6 книг) [2012-2013] [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка книг, где  читатель найдет уникальную методику кандидата медицинских наук Игоря Анатольевича Борщенко. Методика уникальна по своей простоте и доступности. Она годится для всех, кто страдает заболеваниями опорно-двигательной системы, для больных, получивших травму или перенесших операцию на позвоночнике и суставах, для тех, кто испытывает боли в спине, в руках (   Читать дальше...   )Издательство: АСТ, Астрель, Метафора, ВКТФормат: FB2Качество: Изначально электронное (ebook) с ил.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DAFA66941EB67293C0AA72CFAA7424B512181B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483399   (20449) от 24.04.2025
-
-Подборка | Книги по хирургии-Часть 3 (1939-2013) [CHM, DOC(X), DJVU, FB2, PDF, TIF, ТХТ, JPG, ISO, HTML]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моя подборка книг по хирургии. Собиралась из разных источников в течении нескольких лет, присутствуют собственные сканы книг. Все книги разделены по тематическим разделам для удобства пользования. Вы можете не качать всю раздачу, а выбрать только нужную вам книгу.Жанр: ХирургияЯзык: Русский, английский, украинскийФормат: CHM, DOC(X), DJVU, FB2, PDF, TIFF, ТХТ, JPG, ISO, HTMLКачество: отсканированные страницы,  OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2D3B6FF539AFA845A66EC165AC5E99413169F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 67645   (20346) от 25.04.2025
-
-Р.Д. Синельников, Я.Р. Синельников | Атлас анатомии человека [Том 1] (1996) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20346.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первом томе рассматриваются учение о костях, учение о соединениях костей, учение о мышцах. Отражены взаимоотношения костных образований и прикрепляющихся к ним мышц, что позволяет раскрыть скелетотопию особенно сложных мышечных комплексов. Иллюстративный материал представлен рисунками препаратов, специально подготовленных для атласа, и рентгенограммами. Все анатомические (   Читать дальше...   )Жанр: Анатомия и физиологияИздательство: МедицинаФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC41F2127203E14CDCFD2F4CFBEB823ABA581054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793531   (20309) от 25.04.2025
-
-Василий Шуров | Над пропастью не ржи. Записки нарколога (2024) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20309.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Я всегда смогу бросить», «Женский алкоголизм не лечится», «Пиво – не алкоголь». С зависимостями связано множество заблуждений. Эта книга написана для того, чтобы развеять иллюзии. Кто заболеет, а кто выстоит? Ни раса, ни цвет глаз, ни вероисповедание, ни достаток никак и ни от чего вас не застрахуют. «Над пропастью не ржи. Записки нарколога» – книга, из которой (   Читать дальше...   )Жанр: Здоровье, Психология, ЗависимостиИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7945ED362C28C254406E214A9966E99184A9DE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751422   (20238) от 26.04.2025
-
-Р.Д. Синельников и др. | Атлас анатомии человека в 4 томах [4 книги] (2009-2010) [DJVU, PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атлас состоит из 4-х томов, посвященных строению организма человека, который так тщательно пытаются изучать студенты первого курса медицинских ВУЗов или колледжей. Материал изложен очень подробно, с отличными рисунками, которые позволяют максимально доходчиво визуализировать всю ту информацию, о которой так много написано в страницах учебника.
-Предназначается для (   Читать дальше...   )Жанр: Анатомия и физиологияФормат: DJVU, PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FC0D94BD08D995E26DD20C2E03E895845EC0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 656330   (20217) от 26.04.2025
 
 Роман Никольский | Надоел диабет? Есть решение! Методика избавления и реабилитации, которая реально помогает [2010] [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20217.jpg" />
 </div>
 
 
@@ -165,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20124.jpg" />
 </div>
 
 
@@ -193,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20121.jpg" />
 </div>
 
 
@@ -219,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20107.jpg" />
 </div>
 
 
@@ -247,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20101.jpg" />
 </div>
 
 
@@ -274,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20082.jpg" />
 </div>
 
 
@@ -302,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20075.jpg" />
 </div>
 
 
@@ -330,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20046.jpg" />
 </div>
 
 
@@ -357,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19946.jpg" />
 </div>
 
 
@@ -383,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19808.jpg" />
 </div>
 
 
@@ -409,7 +278,7 @@ A.S. Posamentier, R. Geretschlager | Geometric Gems: An Appreciation For Geometr
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19790.jpg" />
 </div>
 
 
@@ -435,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19674.jpg" />
 </div>
 
 
@@ -461,7 +330,7 @@ F.J. Rivas | Process Control with MatLAB/Simulink: A Guide for Beginners (2025) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19667.jpg" />
 </div>
 
 
@@ -487,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19609.jpg" />
 </div>
 
 
@@ -515,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19543.jpg" />
 </div>
 
 
@@ -543,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19475.jpg" />
 </div>
 
 
@@ -569,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19366.jpg" />
 </div>
 
 
@@ -596,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19277.jpg" />
 </div>
 
 
@@ -622,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19255.jpg" />
 </div>
 
 
@@ -648,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19044.jpg" />
 </div>
 
 
@@ -674,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18968.jpg" />
 </div>
 
 
@@ -685,6 +554,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD32C3019643CF51499FEF6FD2A3FF19B17B1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795963   (18964) от 08.05.2025
+
+А.П. Забияко, А.Н. Красников, Е.С. Элбакян (ред.) | Энциклопедия религий (2020) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателей предлагается единственное в своем роде иллюстрированное издание, в котором наиболее полно представлены не только традиционные религии и конфессии, но и новые религиозные движения. Энциклопедия содержит толкования важнейших религиозных и теологических понятий, а также подробные статьи о религиозных философах, реформаторах, теологах (богословах), (   Читать дальше...   )Жанр: религиоведение, история религий, энциклопедияИздательство: Академический проектФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C804996A06B5E6E01F2101C24686D590D3B2DFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796802   (18546) от 12.05.2025
+
+А.Г. Мерников | Стрелковое оружие Великой Отечественной войны (2025) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18546.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном издании широко представлено личное оружие солдата, применявшееся во время Великой Отечественной войны по обе стороны фронта: револьверы и пистолеты, винтовки и противотанковые ружья, истолеты-пулеметы и пулеметы. История создания и использования различных видов огнестрельного оружия рассказывается с энциклопедической достоверностью, особенности конструкции (   Читать дальше...   )Жанр: ИсторияИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2CEE33635BE8D548106DBC3EB13FEED976D498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796511   (18533) от 12.05.2025
+
+Библиотека ЖАФИК, Vol. 7: Бунтари и утописты Америки 1960-1970-х: Хиппи, Йиппи, Протест, Вудсток, Контркультура (Дополнения) [102 книги] (1969-2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Источники по истории молодёжной Америки 1960-1970-х достаточно разрозненны, это дополнение восполняет данный пробел.
+
+В пакете обновление библиотеки ЖАФИК, по направлениям:
+– 60% – фотоальбомы (молодежная Америка 1960-1970-х)(   Читать дальше...   )Жанр: Живопись, альбомы, фотографияЯзык: АнглийскийИздательство: РазличныеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576C0BBB8F2E7CE676B8FBE988E61634688F7605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796462   (18523) от 12.05.2025
+
+Книжная серия | Обзор химических элементов по группам периодической системы [10 книг] (1972 - 1985) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг по элементам периодической системы Д.И. Менделеева.Жанр: ХимияИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1097BCBA0A9011FB45B4537662B9F038BAC1FC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796780   (18518) от 12.05.2025
+
+Валерий Новоселов | Старение, мозг, деменция. Взгляд в зазеркалье болезни Альцгеймера (2024) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18518.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фокусе внимания данной книги - хорошо знакомое нашему современнику слово «Альцгеймер». Или болезнь Альцгеймера. Несмотря на широкую известность данного термина, у большинства людей остается низкой осведомленность о первых признаках этого заболевания, как и о возможностях его профилактики. Многие стороны этой болезни настолько запутаны, что сама она приобрела очертания (   Читать дальше...   )Жанр: монография, здоровье, геронтологияИздательство: Longevity BooksФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694DE91EF5CF120AF044786FB552BFE089850BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

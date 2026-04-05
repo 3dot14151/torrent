@@ -1,3 +1,32 @@
+###  Публикация: 1654385   (205181) от 20.08.2023
+
+Jamie West-Oram - Skeleton Key (2023) [FLAC|24/44.1|tracks|WEB-DL] <Progressive Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knuckle Down [00:03:06]
+02. Claustrophobia [00:03:20]
+03. Cuckoos In The Nest [00:03:07]
+04. Endless Possession [00:02:56](   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09268229687E990B08B3E89188EC6556A0D7BBDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654462   (205179) от 21.08.2023
 
 Курара - ПП (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205179.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Anoxia - Relinquish The Quiet (2023) [FLAC|24/96|tracks|WEB-DL] <Melodic Dark Go
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205176.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Offspring - Rise And Fall, Rage And Grace (2008) 15th Anniversary Deluxe Edi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205150.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205141.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Morito Ergo Sum - A Mournful Foreboding (2016) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205139.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rannoch - Conflagrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205127.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Disturbed - Divisive (2022) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205123.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Wonders - Beyond the Mirage (2023) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205115.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Wonders - The Fragments of Wonder (2021) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205110.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Mentally Defiled - Aptitude for Elimination (2014) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205099.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Axe - 10 albums, 19 CD (1979-2019) Discography [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205061.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Cure - Melkweg Amsterdam 1979 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204999.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204958.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Pyramaze - Bloodlines (2023) [FLAC|Lossless|image + .cue] <Power Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204943.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Steeldown - I Don’t Care What Your Favourite Dinosaur Is (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204940.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Metalocalypse: Dethklok - Dethalbum IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204935.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Metalocalypse: Dethklok - Dethalbum IV (2023) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204933.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204926.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Grateful Dead - Wake of the Flood: The Angel's Share (2023) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204921.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Jorn - 40 albums, 54CD (1994-2022) [FLAC|Lossless|image + .cue |tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204920.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Lazarvs - Blackest (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Groove Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204910.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Red Jasper - 777 (2016) Deluxe Edition, 2023, Universal Records [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204907.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Ofnus - Time Held Me Grey and Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmosp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204905.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Imperial Night - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204903.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Seven Ravens - After the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204898.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Seven Ravens - After the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBC95D2B4E00767030481B902411844D559C87DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654614   (204893) от 22.08.2023
-
-Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise [00:01:05]
-02. Awake [00:04:01]
-03. The Cage [00:03:28]
-04. Sail Away [00:03:16](   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2C00F8710B402AA565E9896B74BE8E22321474
 ```
 
 https://mybot314.ru/tekegram_catalog/

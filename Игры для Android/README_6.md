@@ -6,7 +6,7 @@ Pool Break Pro 3D Billiards v2.7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814620.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Comix Zone 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814554.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Worms 3 v.2.04 + mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808565.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Battletoads. Battletoads And Double Dragon. Антология (SEGA Genesis Gam
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806676.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Golden Axe. Golden Axe 2. Golden Axe 3. Антология (SEGA Genesis Game) [
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804754.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802867.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802288.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798081.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795397.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Angry Birds Fight! 2.4.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795189.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793877.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788556.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781586.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780485.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780037.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778253.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772915.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Landstalker - The Treasures Of King Nole 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771898.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Teenage Mutant Ninja Turtles - Recolored (8-Bit) 1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770395.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Knights & Dragons - Final Cut 1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769166.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ S.T.A.L.K.E.R. Call of Pripyat Mobile v0.06 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769131.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768362.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768333.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763892.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Piggly v1.10ggl + Mod [En/De]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759529.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ ProPilkko 2.7 [Ru/Multi] - Мультиплеерный online симулято�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758920.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1120907   (800940) от 01.04.2017
+
+X-Plane 11 (2017) [Ru/Multi] (1.0.110025) License CODEX
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800940.jpg" />
+</div>
+
+
+###  Подробнее
+
+X-Plane 11 является последней версией в тренажере серии полета для систем Windows, Mac и Linux. В этом тренажере, есть целый мир , чтобы обнаружить. Благодаря своей открытой структуре, все пользователи и энтузиасты могут изменить каждую часть и адаптировать ее к своим предпочтениям.11 выпуск X-Plane предлагает гораздо более реалистичный и захватывающий опыт.Тип издания: LicenseРазработчик: Laminar ResearchЖанр: Flight simulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97808F83061D835CADF93F90393201233804FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508353   (797392) от 08.11.2021
 
 SkateBIRD (2021) [Ru/Multi] (1.0.0) License CODEX
@@ -6,7 +32,7 @@ SkateBIRD (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797392.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Robo Vacuum Simulator (2021) [En] (4.26.2.0) License DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796630.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Pro Fishing Simulator (2018) [Ru/Multi] (1.1) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792799.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Motorcycle Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.12) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788734.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Fishing Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788408.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Alpine - The Simulation Game (2021) [Multi] (1.0.0) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787778.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787274.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Fishing Sim World (2018) [Ru] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786915.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ ZiL Truck RallyCross (2017) [En] (1.0) License TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785851.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Game Dev Tycoon (2013) [Ru/Multi] (1.5.28) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785512.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784266.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Airport Madness 3D: Volume 2 (2017) [En] (1.123) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780032.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ SYMMETRY (2018) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780013.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Demolish & Build 2018 (2018) [Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776671.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ ABZU (2016) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776307.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Seamulator 2009 / Большая Регата. Морской симулятор
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775064.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Block'hood (2017) [Ru/Multi] (1.1.25) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774029.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.1/dlc) License PLAZA [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773911.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Slay the Spire (2019) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772529.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Britannic: Patroness of the Mediterranean (2020) [En] (1.0.85) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772492.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.20.53319/dlc) Repack xatab (обновл
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769132.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Rolling Line (2018) [En] (3.7.5) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769017.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Pure Farming 2018 (2018) [Ru/En] (1.1/dlc) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768796.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Ready for Take off A320 Simulator (2017) [Multi] (1.0.1) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768389.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Motorbike Garage Mechanic Simulator (2018) [Multi] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767224.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Motorbike Garage Mechanic Simulator (2018) [Multi] (1.0.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97D130AB523C0E88FA4562150F953B449DFF206A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123862   (766708) от 16.04.2017
-
-This Is the Police (2016) [Ru/Multi] (1.1.3.0) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в головокружительный водоворот преступлений, коррупции и интриг. Сыграйте роль хладнокровного начальника полиции Джека Бойда и загляните в лицо преступникам Фрибурга - города, тонущего в волнах преступности. Сумеет ли Джек дотянуть до отставки с солидным банковским счетом или окончит карьеру, покрыв свое имя позором... Если вообще доживет до пенсии? Командуйте (   Читать дальше...   )Тип издания: LicenseРазработчик: Weappy StudioЖанр: Стратегия, Приключение, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ЯпонскийЯзык интерфейса: Русский, Английский, Немецкий, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE1ECC5D67A7CCD884AFF16DC39932DA831A638
 ```
 
 https://mybot314.ru/tekegram_catalog/

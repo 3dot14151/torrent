@@ -6,7 +6,7 @@ Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032498.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030665.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA «20 Years Of Nuclear Blast» 2007 2DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030591.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027454.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027337.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Dua Lipa - We're Good (2021) WEB-DL [1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025596.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Little Big Family - 40 Music Videos (2013-2021) WEB-DLRip [H.264/V9/1080p/2160p-
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024985.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The Beatles: Мне следовало быть осторожнее / I Should 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023106.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022722.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021282.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ The Beatles: Не приставай / Don’t Bother Me (A Hard Day's Night) (1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020800.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019615.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016145.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016143.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016139.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Thundercloud - Lightning Queen (2021) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016062.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ The Beatles: Я счастлив просто потанцевать с тобо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015757.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ The Beatles: Любовь нельзя купить 2 / Can't Buy Me Love (A Har
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013830.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012993.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012930.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012926.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011947.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Ra
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011274.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004926.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004797.jpg" />
 </div>
 
 

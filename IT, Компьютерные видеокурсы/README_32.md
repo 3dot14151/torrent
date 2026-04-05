@@ -1,29 +1,3 @@
-###  Публикация: 1371308   (891321) от 30.03.2020
-
-OTUS | Математика для Data Science. Базовый курс (2020) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы освоите основные разделы высшей математики, необходимые для успешной работы в Data Science: математический анализ, линейную алгебру, теорию вероятности и статистику. После курса вы будете готовы к изучению машинного обучения.Жанр: Программирование, Data ScienceПродолжительность: 62:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495AE708B3528CF4F73137B1DC211235F3FB949D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494317   (890283) от 06.09.2021
 
 Udemy, Sergei Bukharov | Проектирование ПО по принципам SOLID и Connascence (2021) WEB-DL [AD]
@@ -32,7 +6,7 @@ Udemy, Sergei Bukharov | Проектирование ПО по принципа
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890283.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Pluralsight.com | Индексирование MySQL для производит
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889897.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Pluralsight.com | Оптимизация запросов MySQL и настро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889890.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ RealPython | Data Collection & Storage (2019) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888928.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Nomad Coders | YouTube CloneCoding (2021) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888753.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Pluralsight.com | Мониторинг MySQL с помощью Performance Schem
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888190.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Steve Grisetti | Lynda - HitFilm 3 Pro Essential Training (2015) PCRec [H.264/72
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887760.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Udemy, Dennis Ivy, Brad Traversy | Django with React | An Ecommerce Website  (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887133.jpg" />
 </div>
 
 
@@ -247,7 +221,7 @@ Podlodka, А. Ложечкин и др. | Podlodka Soft Skills Crew - Комму
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887127.jpg" />
 </div>
 
 
@@ -276,7 +250,7 @@ Stepik, Артём Прытков | Tableau Профессионал (2021) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887086.jpg" />
 </div>
 
 
@@ -303,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887037.jpg" />
 </div>
 
 
@@ -331,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886167.jpg" />
 </div>
 
 
@@ -358,7 +332,7 @@ ITVDN, Сластен Максим | jQuery (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885411.jpg" />
 </div>
 
 
@@ -385,7 +359,7 @@ Pluralsight.com | Начало работы с MariaDB / Getting Started with Ma
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881790.jpg" />
 </div>
 
 
@@ -411,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880260.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ Udemy / Cronis Academy | Бинарное дерево поиска (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879894.jpg" />
 </div>
 
 
@@ -464,7 +438,7 @@ Udemy / Cronis Academy | Двоичные числа. Все о дополнит
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879867.jpg" />
 </div>
 
 
@@ -490,7 +464,7 @@ Udemy / Cronis Academy | Оценка сложности алгоритмов. �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879765.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ Javabegin | Angular для начинающих (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879649.jpg" />
 </div>
 
 
@@ -542,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879611.jpg" />
 </div>
 
 
@@ -568,7 +542,7 @@ ItGid, Александр Лущенко | HTML для JavaScript разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878600.jpg" />
 </div>
 
 
@@ -594,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876673.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ ITVDN | Видео курсы по YII2 [Essential, Advanced] (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876364.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ IQComp | Коллекция обучающих видеоуроков с сай�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875497.jpg" />
 </div>
 
 
@@ -675,7 +649,7 @@ Rod Stephens | [O'Reilly] Алгоритмы и структуры данных 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872796.jpg" />
 </div>
 
 
@@ -689,6 +663,35 @@ Rod Stephens | [O'Reilly] Алгоритмы и структуры данных 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0974309876729F637ADE90D83AA633503FC4C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479295   (872457) от 17.09.2021
+
+Верный старт в 1C и др. | Подборка учебных курсов по 1С [часть 1] (2015-2021) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка видеокурсов и других материалов по программированию и администрированию 1С за 2015-2021 года.
+В состав первой части подборки входят:
+1C Предприятие для программистов
+КонфигурированиеПроизводство: Верный старт в 1C и др.Жанр: 1С, программирование, администрированиеПродолжительность: ~00:10:00 видеоурок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5DD0FBE6B588957611ADF39BDA3868C4512C83
 ```
 
 https://mybot314.ru/tekegram_catalog/

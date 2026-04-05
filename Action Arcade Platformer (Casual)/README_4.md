@@ -1,3 +1,55 @@
+###  Публикация: 1065128   (841108) от 09.03.2017
+
+Conga Master (2016) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцпол заполняется, цепочка становится все длиннее... Присоединяйся, пора станцевать конга! Двигай своими виртуальными бедрами в увлекательной и веселой игре Conga Master и выстрой самую длинную цепочку из танцоров конга. Здесь не нужно особого таланта — конга доступна всем! Играть в Conga Master легче легкого: веди своего танцора по танцполу, по пути добавляя новых (   Читать дальше...   )Тип издания: LicenseРазработчик: UndercodersЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39FA193E45A2AA59448C0151442DC8AFED53293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004597   (837621) от 06.04.2016
+
+Toby: The Secret Mine (2015) [En] (1.0) License TiNYiSO
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837621.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приключенческом двухмерном платформере Toby: The Sicret Mine вам предстоит управлять маленьким персонажем Тоби, отправившемся на поиски своих друзей по следу похитителя. История развивается в маленькой деревушке, где происходят жуткие события. Всех её жителей, кроме вашего героя, похитило злое чудовище. Теперь вам нужно спешить спасти тех, кто ещё остался жив.Тип издания: LicenseРазработчик: Lukas NavratilЖанр: Adventure, Indie, PlatformerЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184A21C37D2322224FC28804651F66FFCA1B218C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005918   (830473) от 10.04.2016
 
 Recursion Deluxe (2016) [En] (1.0.0) Repack ALiAS
@@ -6,7 +58,7 @@ Recursion Deluxe (2016) [En] (1.0.0) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830473.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mable & The Wood (2019) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829172.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.16.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827760.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827613.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Aeon Must Die! (2021) [Ru/Multi] (1.14) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826221.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Lumione (2021) [Ru/Multi] (7518609) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826129.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Ascender (2017) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825810.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Bridge Constructor Portal (2017) [Ru/En] (1.0.0.0) Repack Aladow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822005.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Owlboy (2016) [Ru/Multi] (1.3.6550.38509) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818513.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Okinawa Rush (2021) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813571.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812688.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ A Pixel Story (2015) [En] (1.4) Unofficial FANiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812583.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Peace, Death (2017) [Ru/En] (1.0.9.0) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804582.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Rain World (2017) [Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803011.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Algotica - Iteration 1 (2017) [Ru/En] (1.0.2) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801071.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Badass Hero (2017) [Ru/Multi] (7.0) Repack VseTop
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799424.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Tunche (2021) [Ru/Multi] (1.0.3) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798361.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Chronology (2014) [Ru/Multi] (1.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796781.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794522.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Even the Ocean (2016) [Multi] (1.024) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794519.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793875.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Capsized (2011) [En] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790853.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ A Hat in Time (2017) [En] (1.0.10897.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790852.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Demon Turf (2021) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789176.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Demon Turf (2021) [En] (1.0.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DCD2985F316B1BC3589DE2E6D0EE6C22B1AB0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511331   (789170) от 20.11.2021
-
-Pronty: Fishy Adventure (2021) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pronty: Fishy Adventure - подводная метроидвания, место действия которой происходит в некогда величественном городе Рояла, который теперь переполнен опасными чудищами, глубинными обитателями и морским мусором. Примерьте на себя роль Пронти и его товарища - механического рыбы-копья. Чтобы вдохнуть жизнь в заброшенный город и раскрыть происхождение Пронти, вам придется (   Читать дальше...   )Тип издания: LicenseРазработчик: 18Light Game Ltd., FunZone GamesЖанр: Метроид, Приключения, ПлатформерЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F0B14DFDF7E1DA466F7A70205175CF47385554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511355   (789167) от 20.11.2021
-
-UNDEMON (2021) [Multi] (1.0) License PLAZA
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды в мрачный дождливый день молния сильно ударила в ветхое дерево. В результате, появляется призрак девушки... и она страдает, так как ничего не помнит, ни кто она сейчас, ни кем она была при жизни. Отправляйтесь в загадочное приключение.  Ощутите атмосферу 2D-платформеров 90-х!Тип издания: LicenseРазработчик: West SunЖанр: Platformer (2D), Action, AdventureЯзык субтитров: Английский, КорейскийЯзык интерфейса: Английский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA8155E295364099FEDFC3B479357920324E8B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

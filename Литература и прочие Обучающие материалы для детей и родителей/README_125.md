@@ -1,3 +1,30 @@
+###  Публикация: 1505237   (806018) от 26.10.2021
+
+О.В. Узорова, Е.А. Нефёдова | 3000 задач и примеров по математике: 2-3 классы (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806018.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены, задачи и примеры на все основные разделы математики, предусмотренные программой начальной школы.
+Выполняя задания из этого сборника, учащиеся не только овладевают вычислительными навыками, арифметическими действиями, но и ознакомятся с разнообразием окружающего мира: явлениями природы, животным и растительным миром, историей своей страны, достижениями (   Читать дальше...   )Жанр: Обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6538C328C141E3D1D2A68BA440F822A6BD6A88F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505256   (806017) от 26.10.2021
 
 Е.Д. Киселева | Мир будущего. Самые интересные игры для всей семьи (2015) [PDF]
@@ -6,7 +33,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806017.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805907.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805856.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805727.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805695.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805693.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805470.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805012.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804923.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804847.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804361.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804317.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804254.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804122.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804052.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803962.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803953.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803837.jpg" />
 </div>
 
 
@@ -487,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803719.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803718.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803708.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ DK Publishing | Dinosaurs: A Visual Encyclopedia / Динозавры: визу�
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803701.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803524.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803386.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803359.jpg" />
 </div>
 
 
@@ -659,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5616A2E5293A036410FE3B3834A7A3265751481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120229   (803186) от 30.03.2017
-
-Алексей Целлариус | Нескучная биология (2017) [fb2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто боится формул и мудрёных объяснений, но любит решать весёлые задачки и хитрые головоломки, разгадывать загадки и делать опыты, Издательство АСТ выпускает новую книжную серию – "Простая наука для детей". Здесь легко, понятно и невероятно увлекательно рассказывается о чудесах в физике, химии и биологии: о вечных двигателях, путешествиях на Луну, (   Читать дальше...   )Жанр: Познавательная литератураФормат: fb2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63985E7E8E2073E617122C0C561492E3F972377
 ```
 
 https://mybot314.ru/tekegram_catalog/

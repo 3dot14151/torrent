@@ -6,7 +6,7 @@ NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_935956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_935956.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935165.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 6
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935127.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Вселенная Стивена Хокинга: Инопланет�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934254.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931648.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PBS: Мир Дикой Природы / Wild World (2011-2012) DVB (2-й сез�
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930262.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PBS: Мир Дикой Природы / Wild World (2010) DVB (1 сезон, с�
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930256.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Грандиозное ограбление / Mega Heist (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930155.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929681.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929033.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_928792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_928792.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927631.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927599.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927538.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927439.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926037.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Discovery: Один день в Освенциме / One Day In Auschwitz  (2015
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925811.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ BBC. В поисках бессмертия / The Immortalist (2016) HDTV [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925322.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Discovery: Поиск пришельцев. Урожай пришельцев / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924691.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924248.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924242.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924180.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924079.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924006.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Discovery: Недружелюбная Вселенная ( Плохая Всел
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923674.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922648.jpg" />
 </div>
 
 

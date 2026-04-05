@@ -1,31 +1,3 @@
-###  Публикация: 1231298   (607125) от 17.06.2018
-
-Анатолий Давыдов | Целебный камень (1990) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник знакомит широкого читателя с творчеством известного украинского прозаика. Тематический диапазон произведений очень широк. Повесть «Целебный камень» в увлекательной форме рассказывает о жизни и обычаях древних людей, рассказы посвящены современности.
-
-Для младшего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5567BB0973A2D2862F37CAB1E68790498684FD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913292   (607092) от 28.06.2015
 
 Виктор Гюго | Гаврош (2005) [PDF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607092.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607010.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607006.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606841.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605505.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605444.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605443.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605057.jpg" />
 </div>
 
 
@@ -245,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604834.jpg" />
 </div>
 
 
@@ -271,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604723.jpg" />
 </div>
 
 
@@ -297,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604478.jpg" />
 </div>
 
 
@@ -324,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603970.jpg" />
 </div>
 
 
@@ -351,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603594.jpg" />
 </div>
 
 
@@ -378,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603581.jpg" />
 </div>
 
 
@@ -405,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603005.jpg" />
 </div>
 
 
@@ -432,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602986.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602976.jpg" />
 </div>
 
 
@@ -485,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602784.jpg" />
 </div>
 
 
@@ -511,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602414.jpg" />
 </div>
 
 
@@ -538,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602056.jpg" />
 </div>
 
 
@@ -564,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602052.jpg" />
 </div>
 
 
@@ -591,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602040.jpg" />
 </div>
 
 
@@ -617,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601997.jpg" />
 </div>
 
 
@@ -643,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601991.jpg" />
 </div>
 
 
@@ -669,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601913.jpg" />
 </div>
 
 
@@ -680,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B43B3A464A3C11A8C106A0B750607AAC0DDBE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298744   (601633) от 29.04.2019
+
+Д. Дж. Макхейл | Бобби Пендрагон. Связной между мирами. Книга первая (2006) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бобби Пендрагон — совершенно обычный 14-летний подросток. Но оказывается, Бобби обладает необыкновенными способностями: он может пройти сквозь пространство и время и попасть в другое измерение. Бобби суждено стать Странником — Связным между мирами, которым угрожает опасность…Жанр: фантастика, детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C892135221F973D856B1511762B4BE7D725443CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

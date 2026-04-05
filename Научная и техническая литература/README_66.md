@@ -1,133 +1,3 @@
-###  Публикация: 972053   (983344) от 05.01.2016
-
-Р. Г. Скрынников | Трагедия Новгорода (1994) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Противоборство Руси державной и Руси удельно-вечевой — одна из драматических страниц отечественной истории. Жестокое завоевание Новгорода Москвой привело к упадку древнейшего русского города и повлияло на политическую ситуацию в государстве. Анализ этого явления и его последствий составляет содержание книги известного историка.Жанр: ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F96329A85134954E90CB135DCA94EE96C2ADDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972164   (983335) от 05.01.2016
-
-Арнольд Шёнберг | Упражнения по композиции для начинающих. Программа обучения. Словарь. Музыкальные примеры (2003) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие выдающегося австрийского композитора, педагога и музыкального теоретика Арнольда Шёнберга впервые публикуется на русском языке. Издание адресовано преподавателям и студентам музыкальных училищ и вузов, специалистам-музыковедам и широкому кругу интересующихся проблемами музыкального искусства XX века.Жанр: Искусство, музыка, сольфеджиоПеревод: Е. А. ДоленкоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4174E024C57BD374D3E983F950539D3EB6C9DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355432   (983306) от 26.01.2020
-
-А.В. Кузнецов, Р.А. Рутковский (ред.) | Сборник задач и упражнений по высшей математике: Математическое программирование (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены все темы дисциплины «Математическое программирование»: линейное программирование, теория двойственности, графы и потоки на сетях, включая транспортные задачи, сетевое планирование, теория матричных игр, выпуклое и динамическое программирование, равновесие экономической системы и оптимизация производства, линейное программирование в системереального экономического (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FDC572B0A32CAB0FD2D31FAC904B3735D244D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971899   (983285) от 05.01.2016
-
-Олескин А.В. | Биополитика (2006) [DOC]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие «Биополитика» (второе, обновленное и расширенное издание) посвящено социально-политическим приложениям современной биологии. Их совокупность обозначается в книге термином «биополитика». Концепции и факты современной биологии позволяют по-новому взглянуть на вопросы о месте и роли человека в планетарном многообразии живого (биоса), на нормы и рамки (   Читать дальше...   )Жанр: Биология, политологияФормат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE9E8C0903407B32483CF2F8288D8A766A6B0FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972238   (983198) от 05.01.2016
-
-Иван Солоневич | Великая фальшивка февраля (2007) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983198.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время история, как точная наука, переживает кризис. Магазины заполнили «исторические труды», близкие к стилю фэнтэзи, и каждый автор стремится убедить читателя, что именного его версия истории истинна. В таких условиях особенно ценными становятся книги, содержащие свидетельства очевидцев, цифры и факты – все это является твердым фундаментом, на котором (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627EB200B89975E40CC15B15F3E60D8EB14831F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972170   (983102) от 05.01.2016
 
 И. Л. Блинков | Лекарственные растения в клинике (1983) [DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983102.jpg" />
 </div>
 
 
@@ -163,7 +33,7 @@ Pro мозг (2010) [PDF]
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983088.jpg" />
 </div>
 
 
@@ -190,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983023.jpg" />
 </div>
 
 
@@ -217,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982532.jpg" />
 </div>
 
 
@@ -243,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982489.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982458.jpg" />
 </div>
 
 
@@ -296,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982457.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982214.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982211.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982207.jpg" />
 </div>
 
 
@@ -402,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982204.jpg" />
 </div>
 
 
@@ -428,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982067.jpg" />
 </div>
 
 
@@ -456,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982038.jpg" />
 </div>
 
 
@@ -482,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981996.jpg" />
 </div>
 
 
@@ -508,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981931.jpg" />
 </div>
 
 
@@ -534,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981930.jpg" />
 </div>
 
 
@@ -560,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981908.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981846.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981562.jpg" />
 </div>
 
 
@@ -639,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981401.jpg" />
 </div>
 
 
@@ -665,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981140.jpg" />
 </div>
 
 
@@ -676,6 +546,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1813458C0EFBB3C8042CAF01AB4490CCCE6E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355901   (980893) от 28.01.2020
+
+Джереми Фишер, Гиллиан Кейс | Голос. 99 упражнений для тренировки, развития и совершенствования вокальных навыков (2017) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш голос – мощный инструмент, которым вы пользуетесь каждый день, и забота о нем приносит бесценные плоды – успехи в профессии, творчестве, общении. Авторы этой книги, музыкант и педагог Джереми Фишер и эксперт по вокалу, фониатр Гиллиан Кейс, создали универсальный комплекс упражнений, с помощью которого реально значительно улучшить качество и звучание голоса, развить (   Читать дальше...   )Жанр: Культура и искусство, Музыкальная педагогикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506C0486E2CEF89101FB934122CE45E991DB3B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355765   (980889) от 28.01.2020
+
+Павел Евдокименко | Принцип пуповины. Анатомия везения. Научный подход к ненаучным понятиям (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Павел Евдокименко – практикующий врач-ревматолог, невролог, академик российской Академии Медико-Технических Наук (АМТН РФ), один из ведущих специалистов по лечению болезней позвоночника и суставов. Ведет YouTube-канал «Разумная медицина доктора Евдокименко» – канал о здоровье для разумных людей.
+Эту книгу доктор Павел Евдокименко считает одной из лучших своих (   Читать дальше...   )Жанр: Научно-популярная литература, Нетрадиционная медицинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3D869C9B3C6186646DDAE70469F28A9F0F6B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972606   (980841) от 07.01.2016
+
+Д. И. Гачев | Эстетические взгляды Дидро (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор ставил себе задачей раскрыть в этой работе основное содержание эстетической системы главы французских материалистов XVIII столетия Дени Дидро. В осуществлении этой задачи необходимо было ограничиться основными художественными проблемами, которые волновали Францию накануне буржуазной революции XVIII века. Речь идет о теоретических истоках буржуазного реализма. (   Читать дальше...   )Жанр: История, философия, эстетикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98725C00E51F99121E9462B42D752D248BCA4CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972604   (980840) от 07.01.2016
+
+А. И. Казарин | Экономические воззрения Дени Дидро (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи буржуазным мыслителем, Дидро не был буржуазно ограниченным. Он умел относиться критически не только к буржуазии как классу, но и к буржуазным идеалам. Это и придало его творчеству особое обаяние и привлекательность. Он неустанно боролся за улучшение положения трудящихся и был одним из самых ревностных правдоискателей. Борьба за истину и за достойные человека (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFEB40C07A03A921062EBEEAAF8A6A930FF4978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972602   (980836) от 07.01.2016
+
+А. И. Казарин | Учение Дидро о государстве и праве (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Политические воззрения Дидро в их внутренней связи до сих пор не исследовались. Отдельные высказывания Дидро на политические темы рассматривались чаще всего вне всякой внутренней связи, как более или менее случайные суждения человека, далекого от политики, кабинетного мыслителя. Их классовая природа устанавливалась умозрительным путем, отвлеченно, а не конкретно-исторически. (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A8B8FCF3C990ACE7543F5CDC37F72AEA52B4FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

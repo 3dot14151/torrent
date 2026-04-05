@@ -1,3 +1,55 @@
+###  Публикация: 1031153   (652966) от 03.07.2016
+
+Gnomes Vs. Fairies (2016) [En] (5.0B) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gnomes vs. Fairies игра в стиле Hack 'n' slash-Action RPG platformer. Улучшайте своего гнома тонной предметов, раскачивайте любую из 5 школ Магии Меча, и наслаждайтесь уникальным ретро приключением, круто замешанным на элементах таких Гуру жанра как: Mario 64, Zelda 64, Spiro.Тип издания: LicenseРазработчик: Prismic Studios LLCЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BA45974DD4D7929D30BE24FC11F8253818A4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291794   (651876) от 26.03.2019
+
+Outward (2019) [Multi] (1.0) License RELOADED
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outward – приключенческая РПГ, события которой разворачиваются в большом открытом мире. Вам предстоит выступить в роли путешественника, отправившегося исследовать неизведанные земли, населенные опасными существами, неприятелями и интересными персонажами. Играть вы сможете как в одиночку, так и с друзьями в кооперативном режиме локально или онлайн.Тип издания: LicenseРазработчик: Nine Dots StudioЖанр: RPG, Adventure, 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A393A8F5A5A795C8C9CCA368A4446B708C8669CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140984   (651570) от 09.06.2017
 
 Fallout: Nevada (2015) [Ru] (1.2) Repack ak97nsk [Crazy Edition]
@@ -6,7 +58,7 @@ Fallout: Nevada (2015) [Ru] (1.2) Repack ak97nsk [Crazy Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651570.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650835.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ The Legend of Heroes: Trails in the Sky (2014) [En] (2019.03.24) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648177.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ DARK SOULS: REMASTERED (2018) [Ru/Multi] (1.01/Reg 1.02) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648124.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Megadimension Neptunia VII (2016) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647091.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Goliath (2016) [Ru/En] (1.0.6/upd 3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647081.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Celestian Tales: Old North (2015) [En] (1.1.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645246.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644327.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.001.202/dlc) Repack Dec
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644236.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Grim Dawn (2016) [Ru/En] (1.1.1.0/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642355.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Victor Vran (2015) [Ru/En] (2.07/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642242.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Hand of Fate (2015) [Ru/Multi] (1.3.19/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640710.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Darkest Dungeon (2016) [Ru/Multi] (24839/dlc) License CODEX [Ancestral Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638699.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Two Worlds II / Два Мира 2 (2010) [Multi] (2.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638598.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Survivalist (2015) [Ru/Multi] (57) SteamRIP ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637536.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.5/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636527.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Smoke and Sacrifice (2018) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635129.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634650.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631929.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Moonlighter (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631517.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ The Witcher: Anthology / Ведьмак: Антология (2008-2015) [Ru/En/P
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630817.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Moonlighter (2018) [Ru/Multi] (1.4.4.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629566.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ City of Brass (2018) [Ru/Multi] (1.5.1/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629325.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Ys Origin [En] (L) 2012 | Reloaded
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628437.jpg" />
 </div>
 
 
@@ -620,60 +672,6 @@ Ys Origin [En] (L) 2012 | Reloaded
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C13E4F335A63362DBCCB5D45C019E3EFFB2B9BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294894   (625445) от 09.04.2019
-
-Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Operencia: The Stolen Sun – РПГ от первого лица с пошаговыми боями, в которой вам предстоит провести команду колоритных персонажей через фэнтезийный мир, вдохновленный центрально-европейской мифологией.Тип издания: RepackРазработчик: Zen StudiosЖанр: RPG, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A81E75D94F570453DB552D0B5D5DE7FF1422012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683288   (625310) от 25.07.2013
-
-Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0/3dlc) Repack R.G. Revenants
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра по мотивам эпической саги Джорджа Мартина A Song of Ice and Fire, в России известной как «Песнь льда и пламени», покорившей сердца миллионов поклонников фэнтези во всем мире. Книги разошлись по миру тиражом более 15 млн экземпляров, а телесериал «Игра престолов», основанный на первом томе саги, быстро завоевал признание зрителей и критиков.
-
-Вам предлагаются на выбор два персонажа: Морс, присягнувший на верность Ночному Дозору, и Алистер, красный жрец, вернувшийся в Вестерос из долгого изгнания в поисках искупления. События игры начинаются сразу после того, как Десница короля Роберта Баратеона распрощался с жизнью. Наши герои оказываются втянутыми в весьма запутанную историю, которая проведет их по самым разным уголкам Вестероса — от Королевской Гавани до грандиозной ледяной Стены. В странствиях каждый из них встретится с известнейшими личностями, в числе которых коварная королева Серсея; хитроумный Варис по прозвищу Паук; суровый Джиор Мормонт, лорд-командующий Ночного Дозора.(   Читать дальше...   )Тип издания: LossLess RePackРазработчик: Cyanide StudioЖанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4449BF4A3EC00F186A943A8DA05A05390ABF2A2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 543368   (495116) от 05.09.2012
-
-Бен Ватсон | С# 4.0 на примерах [2011] [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495116.jpg" />
-</div>
-
-
-###  Подробнее
-
-На практических примерах рассмотрено программирование на языке Microsoft С# 4.0, начиная с основ языка и заканчивая решением типичных задач с помощью .NET Framework. Показано создание эффективных классов, интерфейсов и типов, а также программного кода, допускающего многократное использование. Описаны приемы обработки данных, основанные на применении коллекций, сериализации, баз данных и XML. Рассмотрена реализация пользовательского интерфейса с применением технологий WinForms и WPF, а также создание веб-приложений на основе технологий ASP.NET и Silverlight. Показано применение на практике новых возможностей языка С# 4.0. Уделено внимание взаимодействию с ОС Windows и системным ПО, использованию шаблонов для разработки сложных программ и другое. Приведено более 200 готовых решений, оптимальных технических приемов и примеров проверенного кода.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC98928E89CE02C110C060C952238B8A485A1A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543839   (492910) от 06.09.2012
-
-Д.В.Сошников | Функциональное программирование на F# [2011] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этой книги имеет богатый опыт преподавания курсов функционального программирования на базе F# в ведущих российских университетах, он умеет доходчиво объяснить концепции функционального программирования даже начинающему разработчику ПО, не прибегая к сложным понятиям лямбда-исчисления. Книга содержит много полезных примеров использования F# для решения практических задач: доступа к реляционным или слабоструктурированным XML-данным, использование F# для веб-разработки и веб-майнинга, визуализация данных и построение диаграмм, написание сервисов для облачных вычислений. Используя фрагменты кода, рассмотренные в книге, читатели могут немедленно приступить к решению своих практических задач на F#.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649AE14EC2A7A5DEF1F07D7C487969C6466BE5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565528   (491829) от 24.07.2022
-
-Серия книг | Библиотека MIT [3 книги] (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аннотация к книге "Алгоритмы. Самый краткий и понятный курс"
-Вам требуется понять, что такое алгоритмы и графы, как они работают и изучить их? Эта книга для вас. Для ее чтения требуется лишь базовое школьное образование - здесь вы найдете все ответы на вопросы по этой теме, а также краткие и понятные объяснения даже сложных понятий и чуть-чуть математики. (   Читать дальше...   )Жанр: Машинное обучение. Анализ данных. Программирование.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C573EE7C84ACB6359666E170BE2BF940A91BC501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544282   (490540) от 07.09.2012
 
 Аарон Хиллегасс | Objective-C. Программирование для iOS и MacOS [2012] [PDF]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490540.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489862.jpg" />
 </div>
 
 
@@ -140,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486415.jpg" />
 </div>
 
 
@@ -168,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485303.jpg" />
 </div>
 
 
@@ -194,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485279.jpg" />
 </div>
 
 
@@ -220,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483973.jpg" />
 </div>
 
 
@@ -246,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483963.jpg" />
 </div>
 
 
@@ -273,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482142.jpg" />
 </div>
 
 
@@ -304,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482069.jpg" />
 </div>
 
 
@@ -330,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482055.jpg" />
 </div>
 
 
@@ -356,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479964.jpg" />
 </div>
 
 
@@ -382,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478267.jpg" />
 </div>
 
 
@@ -408,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477785.jpg" />
 </div>
 
 
@@ -436,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476840.jpg" />
 </div>
 
 
@@ -462,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476809.jpg" />
 </div>
 
 
@@ -488,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476670.jpg" />
 </div>
 
 
@@ -514,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475879.jpg" />
 </div>
 
 
@@ -540,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475861.jpg" />
 </div>
 
 
@@ -567,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475850.jpg" />
 </div>
 
 
@@ -594,7 +515,7 @@ Nate Murray и др. | ng-book2: The Complete Book of Angular 4 (2017) [PDF] [En
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475732.jpg" />
 </div>
 
 
@@ -623,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469322.jpg" />
 </div>
 
 
@@ -650,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468752.jpg" />
 </div>
 
 
@@ -676,7 +597,7 @@ Benoît Blanchon | The Ultimate Guide to Master ArduinoJson / Руководст
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468376.jpg" />
 </div>
 
 
@@ -687,6 +608,84 @@ Benoît Blanchon | The Ultimate Guide to Master ArduinoJson / Руководст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B31333D1F281F9520CB9B814924CBDCC1559456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940251   (468186) от 24.09.2015
+
+Марк Сафронов, Джефри Уайнсет | Разработка веб-приложений в Yii 2 (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yii — это высокопроизводительный фреймворк, используемый для быстрой разработки веб-приложений на PHP. Он хорошо спроектирован, имеет прекрасную поддержку, его легко изучить и легко сопровождать. Эта книга на практических примерах покажет вам самые важные возможности Yii 2. Сквозь всю книгу проходит пример построения реального приложения — каждая глава представляет (   Читать дальше...   )Жанр: Программирование, Фреймворк, PHP, Yii 2Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D689EE35E269074280CE001D8C23AFE5A8890D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755434   (468177) от 24.09.2015
+
+Герберт Шилдт | C# 4.0. Полное руководство (2011) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468177.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом полном руководстве по C# 4.0 — языку программирования, разработанному специально для среды .NET, — детально рассмотрены все основные средства языка: типы данных, операторы, управляющие операторы, классы, интерфейсы, методы, делегаты, индексаторы, события, указатели, обобщения, коллекции, основные библиотеки классов, средства многопоточного программирования (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C727BFEC0C1E80CAC7F6B59603B751062E99716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407138   (468158) от 06.09.2020
+
+Федор Г. Пикус | Идиомы и паттерны проектирования в современном С++ (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468158.jpg" />
+</div>
+
+
+###  Подробнее
+
+C++ — универсальный язык программирования, при проектировании которого была поставлена цель добиться эффективности, высокой производительности и гибкости. Паттерны проектирования — это общепринятые решения известных проблем проектирования. По существу, это библиотека повторно используемых компонентов, только для разработки программной архитектуры, а не конкретной (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992EB0D095113E8716CA7DE41D95AFB509AD37C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

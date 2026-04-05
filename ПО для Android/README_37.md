@@ -1,3 +1,109 @@
+###  Публикация: 1468415   (883766) от 10.09.2021
+
+Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка рекламы
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот Android браузер с adblock позволит вам просматривать веб-страницы без рекламы и видеть только ту информацию, которая действительно имеет для вас значение. Бесплатный браузер с адблоком блокирует рекламу, баннера, видеорекламу и поп-апы (всплывающие окна). Он предотвращает отслеживание рекламодателями вашей активности и экономит заряд батареи, а также трафик (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 4 сентября 2021 г.Разработчик: Adblock - Rocketshield Browser Technology LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BC777820FCAE3E178A77A907665F881D7563CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077562   (883577) от 10.09.2021
+
+Учить английский язык с Lingualeo v3.3.27 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingualeo — это удобный и эффективный сервис для изучения иностранных языков. Это лингвистический суперапп, который включает в себя множество инструментов и методик обучения.
+Сейчас в приложении можно изучать: английский, китайский, хинди, испанский, португальский, русский, японский, немецкий, корейский, французский, вьетнамский, итальянский, турецкий, украинский, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 6 сентября 2021 г.Разработчик: Lingualeo LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CBCB73C8FDE271E89EC7CDC0BB94D05642F190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357938   (883257) от 04.04.2020
+
+4K Wallpapers - HD & QHD Backgrounds 7.0.145 (Pro) [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда HDW с гордостью представляет вам «Мастер обоев», самое удивительное приложение, когда-либо созданное для обоев HD, QHD и 4K, с продвинутым автоматическим переключением обоев.
+Все обои подобраны профессиональными дизайнерами и фотографами, чтобы каждый фон выглядел красиво.Тип издания: ПираткаРелиз состоялся: 04.04.2020Разработчик: HDWПоддерживаемая ОС: Android. 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D753A59055EBCB406840D0FBBD07B2528D62E79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995932   (882102) от 12.03.2016
+
+Шашлык Мастер Pro v1.1 [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882102.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первую очередь эта программа была создана для оказания помощи в процессе приготовления шашлыка, а именно она призвана напоминать Вам о необходимости перевернуть мясо каждую минуту - как раз так, как рекомендуют делать профессионалы. Это позволит не пережарить мясо, не дать ему сгореть, а также сделает его сочным и раскроет всю полноту вкуса выбранного Вами рецепта. (   Читать дальше...   )Тип издания: Pro с МаркетаРелиз состоялся: 28.04.2015Разработчик: 074yaraПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896996B26A0D7AD6A4C35C6FE2BB004E4C329FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479136   (881971) от 11.09.2021
 
 Навигатор пешехода - грибника PRO v2.4.8.88 [Ru]
@@ -6,7 +112,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881971.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ Trigonometry. Unit circle / Тригонометрический круг v3.22 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881708.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Mobile Doc Scanner MDScan OCR 3.7.21 [Ru] - Многостраничный ск�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881308.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880745.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880551.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ Notify & Fitness for Mi Band v9.0.6 [Ru/Multi] - Менеджер фитнес �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879643.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879088.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879079.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878759.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878539.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878428.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ Password Depot For Android 14.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878421.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877075.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ Youtube AdAway 3.5.0 [Ru] - Блокировка рекламы с YouTube
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875863.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ WiFi Map 3.2.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874379.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ Notify & Fitness for Amazfit v9.0.4 [Ru/Multi] - Программа для ум�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874029.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873278.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872446.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ Magisto Video Editor & Maker 4.13.15782 [Ru] - Редактор видео со 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872409.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ Chromatix (Black and White Photo Colorizer) v1.3.98 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872334.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868474.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867409.jpg" />
 </div>
 
 
@@ -575,113 +681,6 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F6BDF1AC3B4ABE01374B162D81802F58E57819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497196   (866349) от 21.09.2021
-
-MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напоминанием (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не просто обычные «Заметки», это универсальное хранилище информации! В MultiNotes Вы можете сохранять не только короткие заметки, но и многое другое.Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 13.09.2021Разработчик: m.kadykovПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E221BC79C7CAB14F9B99538EB355A5B4C9BE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497198   (866346) от 21.09.2021
-
-неЗаметки v179 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866346.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Супер-быстрое создание текстовых и фото заметок
-• Мгновенный список покупок или дел - просто введите текст списка, и программа сделает отдельную заметку из каждой строчки
-• Возможность хранить заметки и задачи по группам. Например: Дом, Покупки, Школа, Временные заметки и так далее
-• Виджет просмотра заметок(   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 19.09.2021Разработчик: SD.samodelkinПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE8417177EA3381B9A4EFC066116AE76C4F4E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480517   (864292) от 22.09.2021
-
-Глаза + Зрение: тренировка, упражнения, гимнастика v1.6.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глаза + Зрение (англоязычное название: Eyes + Vision) помогает при таких проблемах как амблиопия, спазм аккомодации, близорукость, дальнозоркость, косоглазие, сухость глаз, синдром "ленивый глаз", усталость и напряжение, и т.д. Также помогает улучшить: самочувствие, точность, концентрацию, жизненные силы, работоспособность и снятие стресса. Это бесплатное, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 22 августа 2021 г.Разработчик: FunlikaПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E34B70B3D1C602E6346C00F23302EECFCA22A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779546   (864276) от 22.09.2021
-
-FolderSync Pro v3.1.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для облачной синхронизации с поддержкой различных сервисов и протоколов. Музыку, фотографии другие важные файлы вы можете копировать с телефона в облако или наоборот. При этом FolderSync позволяет максимально гибко настроить Вашу синхронизацию. Также есть полноценный встроенный файловый менеджер, который позволяет управлять файлами как локально, так и в (   Читать дальше...   )Тип издания: Pro Paid / Pro c МаркетаРелиз состоялся: 22.09.2021Разработчик: Tacit DynamicsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A15977DE4BC7162C4F8E705CF874C51801306A
 ```
 
 https://mybot314.ru/tekegram_catalog/

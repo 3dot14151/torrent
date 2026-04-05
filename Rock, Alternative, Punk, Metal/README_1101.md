@@ -1,3 +1,35 @@
+###  Публикация: 595342   (132136) от 29.12.2012
+
+Dyscrasia - Septical Stomach-Pumped Remnants (2004) [FLAC|Lossless]<Brutal Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intro / Grinded Into Fetal Sludge
+ 02 Semen Soaked C-section
+ 03 Atrocious Appetite for Cauterized Cooter
+ 04 Penetration Decimation ( Anal Decapitation )
+ 05 Septical Stomach-Pumped Remnants
+ 06 Hundreds of Gaping Wounds
+ 07 Massive Morgue MolestationsЖанр: Brutal DeathПродолжительность: 00:27:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681373   (132133) от 05.12.2023
 
 Грязная Комната - Отлов собак (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -6,7 +38,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132133.jpg" />
 </div>
 
 
@@ -35,7 +67,7 @@ Satanic Warmaster - Carelian Satanist Madness (2005) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132127.jpg" />
 </div>
 
 
@@ -64,7 +96,7 @@ Anyone - Miracles In The Nothingness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132125.jpg" />
 </div>
 
 
@@ -93,7 +125,7 @@ Isospin - Aftermath Chronicles (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132116.jpg" />
 </div>
 
 
@@ -122,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132114.jpg" />
 </div>
 
 
@@ -151,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132107.jpg" />
 </div>
 
 
@@ -180,7 +212,7 @@ KSB muzic - Маме не покажем!! (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132087.jpg" />
 </div>
 
 
@@ -209,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132077.jpg" />
 </div>
 
 
@@ -238,7 +270,7 @@ Drowning Pool - Drowning Pool (2010) [FLAC|Lossless]<Alternative metal / Post-Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132060.jpg" />
 </div>
 
 
@@ -273,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132015.jpg" />
 </div>
 
 
@@ -302,7 +334,7 @@ Solitary - Requiem (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131890.jpg" />
 </div>
 
 
@@ -331,7 +363,7 @@ Solitary - The Diseased Heart of Society (2017) [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131888.jpg" />
 </div>
 
 
@@ -360,7 +392,7 @@ Night In Gales - The Last Sunsets (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131886.jpg" />
 </div>
 
 
@@ -389,7 +421,7 @@ Night In Gales - Dawnlight Garden (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131884.jpg" />
 </div>
 
 
@@ -418,7 +450,7 @@ Knife - Heaven Into Dust (2023) [FLAC|Lossless|image + .cue] <Speed Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131882.jpg" />
 </div>
 
 
@@ -447,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131880.jpg" />
 </div>
 
 
@@ -476,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131871.jpg" />
 </div>
 
 
@@ -505,7 +537,7 @@ Kaban - В Мире Животных (2021) [FLAC|Lossless|image + .cue] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131868.jpg" />
 </div>
 
 
@@ -534,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131866.jpg" />
 </div>
 
 
@@ -564,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131865.jpg" />
 </div>
 
 
@@ -593,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131863.jpg" />
 </div>
 
 
@@ -622,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131862.jpg" />
 </div>
 
 
@@ -651,7 +683,7 @@ Satanic Warmaster - Strength and Honour (2001) Reissue, 2007, Northern Heritage 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131861.jpg" />
 </div>
 
 
@@ -680,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131860.jpg" />
 </div>
 
 
@@ -709,7 +741,7 @@ Snail - Terminus (2012) [MP3|320 кб/с]<Psychedelic Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131641.jpg" />
 </div>
 
 
@@ -729,39 +761,6 @@ Snail - Terminus (2012) [MP3|320 кб/с]<Psychedelic Stoner Doom>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7572CB12460D0BB32A2C92DCDB9EA53CFFEE2F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595363   (131633) от 30.12.2012
-
-Deformed Slut - Stench Of Carnage (2011) [MP3|320 кб/с]<Brutal Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necrobscurity Necrophile 2:41
- 02. Rotten Mutilated Devoured 2:52
- 03. The Monstrous Monochromatism 3:42
- 04. Disemboweled 2:28
- 05. Gun Of Annihilation 2:58
- 06. Stench Of Carnage 3:54
- 07. Cadaveric Carcass 3:09
- 08. Slashing Your Flesh (In Fillet) 3:01Жанр: :kruto:Продолжительность: 00:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A5132C351CB7FFA26706044833FD4E715E9B8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

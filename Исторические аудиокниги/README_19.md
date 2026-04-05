@@ -1,55 +1,3 @@
-###  Публикация: 1140574   (654690) от 07.06.2017
-
-Виктор Вальд | Проклятие палача (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654690.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Проклятие палача» является продолжением известного романа Виктора Вальда «Палач». Выжив, благодаря своим невероятным знаниям, великому умению лекаря и ответственности перед семьей, палач Гудо вновь оказывается в плену «проклятия палача», которое тяготеет над каждым, кто когда-либо согласился стать таковым. Дьявольское наследие мэтра Гальчини ни на миг не оставляет (   Читать дальше...   )Жанр: Исторический романПродолжительность: 20:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C7A81DA977E83B96B6A2099933D28B72F45A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140830   (654480) от 07.06.2017
-
-Борис Акунин | История Российского Государства (Том 4, художественное дополнение). Седмица Трехглазого (2017) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический детективный роман в лучших традициях классических книг о Фандорине! Невероятные приключения «старомосковского Шерлока Холмса»! «Он вдруг увидел перед собой всю свою длинную-предлинную жизнь как одну краткую седмицу: с трудоначальным понедельником, юновесенним вторником, мужественной середой, сильным четвертком, зрелой пятницей, грозовой субботой и тихим, (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 10:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C024631BC6170C45414FA6235034808DAF2225F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 214304   (652891) от 03.07.2010
 
 Валентин Пикуль | Мальчики с бантиками (2006) [MP3, В. Сушков]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_652891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652891.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651659.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651642.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651259.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649814.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649685.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648489.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646055.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645961.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645852.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645683.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643922.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642837.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642578.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640982.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639095.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637343.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636250.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633565.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633276.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632394.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632096.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631676.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630518.jpg" />
 </div>
 
 
@@ -677,6 +625,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A98D1430922D6CCBCDA5856844F0B9857F30DC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034857   (630508) от 15.07.2016
+
+Андрей Сахаров | Владимир Мономах (2010) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное произведение повествует об одном из самых известных государственных деятелей Древней Руси, великом князе киевском Владимире Мономахе (1053-1125).
+Читатель (слушатель), ознакомившись с этой книгой, получит достаточно достоверное и яркое представление об одном из интереснейших периодов русской истории, об эпохе расцвета Киевской Руси в XI - начале XII века.Жанр: ЖЗЛПродолжительность: 18:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13476A159E87633C0D5D4DB8614EE68E7AC15A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291926   (628369) от 08.04.2019
+
+Владимир Шигин | Легенды и были старого Кронштадта (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже при первом упоминании слова "Кронштадт" сразу же представляются одетые в гранит набережные и частокол корабельных мачт, перезвон склянок и мокрая брусчатка мостовой, низкое балтийское небо и молчаливые матросы в бушлатах с надвинутыми на лоб бескозырками…
+На самом деле сегодняшний Кронштадт совсем не такой, как мы его себе представляем, а куда более (   Читать дальше...   )Жанр: Исторический романПродолжительность: 11:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8506C36C99F0C2B224F29591C306737DFEC8F8A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,84 +1,3 @@
-###  Публикация: 961773   (293354) от 05.12.2015
-
-Татьяна Редько-Добровольская | Япония: Боги и герои (1997) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске серии “Боги и герои” представлены японские мифы, рассказывающие о сотворении мира, происхождении Неба и Земли, о богах и легендарных воителях прошлого.
-Читая их, попадаешь в чудесный, удивительный мир, созданный воображением древнейших обитателей Японских островов. Сюжеты мифов почерпнуты из памятника японской литературы VIII века «Записи о деяниях (   Читать дальше...   )Жанр: МифологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C213E2EFBC3216BCDF988E464FCF219CDCF23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961781   (293350) от 05.12.2015
-
-Гегель | Философия религии [2 тома] (1975-1977) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293350.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первый том настоящего издания вошли ранние работы Гегеля ("Жизнь Иисуса", "Дух христианства и его судьба", "Фрагмент системы 1800 г.") и первая часть его "Лекций по философии религии". В ранних работах разбираются проблемы разума и веры. Ранние работы знакомят с некоторыми важными аспектами формирования гегелевской диалектики. (   Читать дальше...   )Жанр: История, философия, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB106788ED78D6F64D7A7CE54518E5CAB3F93416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962046   (292768) от 05.12.2015
-
-Г. В. Ф. Гегель | Лекции по истории философии [3 книги] (1993-1994) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Георг Вильгельм Фридрих Гегель - немецкий философ, один из величайших мыслителей Европы. Творчество Гегеля является вершиной развития немецкой классической философии и одной из поворотных точек развития европейской философии в целом.
-
-"Лекции по истории философии" - одно из главных философских произведений великого немецкого мыслителя, в них он излагает (   Читать дальше...   )Жанр: История, философия, политология, этика, психология, физика, логикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6676818CADA9F94C0F3F8CB2881339B11FD0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961749   (292759) от 05.12.2015
 
 Гегель | Наука логики (1929) [DJVU, PDF]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292759.jpg" />
 </div>
 
 
@@ -116,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292564.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290323.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290079.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289972.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289447.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289446.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289445.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289444.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289440.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289438.jpg" />
 </div>
 
 
@@ -379,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289435.jpg" />
 </div>
 
 
@@ -405,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289433.jpg" />
 </div>
 
 
@@ -431,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289431.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289430.jpg" />
 </div>
 
 
@@ -484,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289239.jpg" />
 </div>
 
 
@@ -511,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289237.jpg" />
 </div>
 
 
@@ -540,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289233.jpg" />
 </div>
 
 
@@ -566,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289231.jpg" />
 </div>
 
 
@@ -593,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289229.jpg" />
 </div>
 
 
@@ -619,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289227.jpg" />
 </div>
 
 
@@ -645,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289067.jpg" />
 </div>
 
 
@@ -671,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289063.jpg" />
 </div>
 
 
@@ -682,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4629DD050D39C2B6843C7B1391D71804804CE6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962733   (289050) от 07.12.2015
+
+Василий Валентин | Двенадцать ключей мудрости (1999) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средневековый алхимический трактат, изданный и прокомментированный Эженом Канселье, одним из немногих наследников алхимической традиции в XX веке, повествует о взаимодействии духовной и физической реальностей в символике металлов и минералов. В трактате в иносказательной форме также изложены сакральные основы королевской власти в Европе. Имя Василия Валентина стоит (   Читать дальше...   )Жанр: Философия, Религия, Эзотерика, КатолицизмПеревод: Эжен КансельеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDB01C1632A0CBCFD833A08EC341A6FC60CE5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962980   (288961) от 07.12.2015
+
+А. В. Антонов | Психология изобретательского творчества (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288961.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии психолога и изобретателя А. В. Антонова представлены результаты исследования психологии творческой деятельности изобретателя. Дан анализ изобретательских задач и предложена их типология. Освещаются особенности мотивации изобретательского поиска. Особое внимание уделено рассмотрению основных методов решения изобретательских задач. Анализируются также (   Читать дальше...   )Жанр: История, психологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23AAA62EC5F4456575EF32140F8C56ECA95C51A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962770   (288837) от 07.12.2015
+
+Е. Д. Степанов | Пограничная политика КНР: стратегические цели и тактические приемы (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288837.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии разбираются концептуальные основы пограничной политики КНР, ее стратегические цели и задачи, место ее в глобальной политике страны. Детально исследуются действия китайских властей по инспирированию «проблем» на границах страны, фабрикации обоснований своих территориальных притязаний, поиску аргументов, маскирующих экспансионистскую сущность их пограничной (   Читать дальше...   )Жанр: Политика, ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C8D10182782BBBA63A952D4E177025418E7532
 ```
 
 https://mybot314.ru/tekegram_catalog/

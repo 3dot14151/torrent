@@ -1,3 +1,111 @@
+###  Публикация: 1848670   (1052859) от 18.01.2026
+
+FixPlus — Редактор лица и тела v1.52.142 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052859.jpg" />
+</div>
+
+
+###  Подробнее
+
+🌟 FixPlus — Ваш универсальный фоторедактор и ретушер селфи с ИИ 🌟
+Раскройте свою красоту с FixPlus — универсальным фоторедактором на базе ИИ, который помогает изменить форму тела, улучшить лицо, исправить выражения и создавать безупречные селфи за секунды.Тип издания: ProРелиз состоялся: 29.06.2025Разработчик: Photo Editor & Collage MakerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81207F7927B0C2AA0CF0869924D8C799516AC9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848654   (1052858) от 18.01.2026
+
+Solid Explorer File Manager v3.2.15 + Plugins Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Solid Explorer - это приложение для управления файлами, на подобие олдскульных приложений для управления файлами. Приложение поможет вам:
+🗄️ легко управлять файлами на двойной панели
+🔐 защищать файлы с помощью надежного шифрования
+🖥️ управлять файлами в облачном хранилище или NAS(   Читать дальше...   )Тип издания: FullРелиз состоялся: 18.01.2026Разработчик: NeatBytesПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B78D81AF90E29FFE62EE7BDF85E7BD9A2FA0D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848649   (1052857) от 18.01.2026
+
+Horary Chart / Астрология: Хорарная Карта v4.1.7 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорарная карта - это программа для построения хорарных карт, включающая астрологическую карту с линейкой, расчет событий в пределах знака и отображающая соединения планет и домов с антисами и звездами. Есть функция добавления формул жребиев и выбор из ста звезд.Тип издания: Paid / ProРелиз состоялся: 10.01.2026Разработчик: Roman ShimchenkoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CF214A9865112F2A614DC4FB9A3CE60A83E45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848647   (1052856) от 18.01.2026
+
+Astrological Charts / Астрологические Карты Pro v11.2.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астрологические Карты Pro (Astrological Charts Pro) – это профессиональная астрологическая программа для Android, которая строит 12 типов астрологических карт, содержит, кроме планет, ещё 13 астероидов и 23 фиктивные точки, включая транснептуновые, и несколько жребиев. А так же есть выбор из 12 систем домов, 22 вида аспектов с настраиваемыми орбисами и база данных (   Читать дальше...   )Тип издания: Paid / ProРелиз состоялся: 10.01.2026Разработчик: full-astro-devПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BADBD086EEF559A0421878B702000C37350C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848675   (1052854) от 18.01.2026
 
 YouCam Makeup-примерка макияжа v6.39.8 Mod by PieMods [Ru/Multi]
@@ -6,7 +114,7 @@ YouCam Makeup-примерка макияжа v6.39.8 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052854.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ PhotoDirector v20.9.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052734.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ PixelLab Pro - Text on pictures 2.1.8 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052717.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Notification Dots v1.2.86 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052705.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ Notification Widget v1.5.206 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052704.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ Screen Mirroring - TV Miracast v4.0.0.221 Mod by vadj [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052701.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ Grok - ИИ ассистент v1.1.05-release.03 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052683.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ Solid Explorer File Manager v3.2.14 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052682.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.7 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052635.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ Photo Editor v12.5 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052634.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ AR Ruler App: Линейка Рулетка v3.1.7 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052632.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ AR Plan 3D: Линейка, Рулетка v4.10.4 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052631.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.4 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052619.jpg" />
 </div>
 
 
@@ -348,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052618.jpg" />
 </div>
 
 
@@ -374,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052617.jpg" />
 </div>
 
 
@@ -400,7 +508,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.1 Mod by baalajimaestro  [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052616.jpg" />
 </div>
 
 
@@ -426,7 +534,7 @@ NewPipe v0.28.1 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052615.jpg" />
 </div>
 
 
@@ -452,7 +560,7 @@ Grok - ИИ ассистент v1.1.04-release.09 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052614.jpg" />
 </div>
 
 
@@ -478,7 +586,7 @@ Eatr・Здоровые рецепты v2.11.1 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052024.jpg" />
 </div>
 
 
@@ -504,7 +612,7 @@ Solid Explorer File Manager v3.2.13 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051975.jpg" />
 </div>
 
 
@@ -533,7 +641,7 @@ DjVu Reader & Viewer (читалка) v1.0.140 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051974.jpg" />
 </div>
 
 
@@ -560,7 +668,7 @@ Vanced Tube v5.5.80.345 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051955.jpg" />
 </div>
 
 
@@ -571,110 +679,6 @@ Vanced — это модифицированная версия YT, котора
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6C16AC0B2E7EF66C44C4E8BF7E4E46362F3B27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847017   (1051954) от 10.01.2026
-
-FitAI - Планировщик тренировок v1.5.3 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051954.jpg" />
-</div>
-
-
-###  Подробнее
-
-FitAI имеет базу данных из более чем 3900 упражнений, включая упражнения в спортзале и упражнения с весом тела дома. Вы можете использовать его с гантелями, штангой и гирями в спортзале. У нас есть упражнения для груди, бицепсов, пресса, квадрицепсов, икр, трицепсов, задней поверхности бедра, широчайших мышц спины, ягодиц, предплечий, трапеций, мышц плеча. Самые (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.01.2026Разработчик: Social Tech Inc.Поддерживаемая ОС: Зависит от устройстваЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F16A8729117B99A9BE96B823F07CD3AE15E975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847077   (1051953) от 10.01.2026
-
-Grok - ИИ ассистент v1.1.03-release.08 Mod by kljovyj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 10.01.2026Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AF92CE6C92AE5CC760B51217744CE6153AE8D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847074   (1051952) от 11.01.2026
-
-Win 11 Launcher v9.33 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам наскучил пользовательский интерфейс Android и вы хотите насладиться лаунчером в стиле Windows на своем Android? Нет, подожди сейчас. Win 11 и Win 10 Launcher здесь для вас (вдохновленный ОС Win 11 и Win 10). Настройте свой телефон с уникальным внешним видом с помощью быстрой, чистой и энергоэффективной программы запуска. Удивите своих друзей новым внешним видом (   Читать дальше...   )Тип издания: ModРелиз состоялся: 10.01.2026Разработчик: Spark PlanetПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8CCDD7DF7C3E94004D0B46D94C3802560334EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847246   (1051892) от 11.01.2026
-
-Кегель тренажер v10.2.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплекс несложных упражнений и ежедневные напоминания - вот простой способ укрепить мышцы тазового дна! Вам надоело выполнять одни и те же упражнения и чувствовать, что результаты не улучшаются? В этом приложении 10 различных тренировок, это означает, что у вас всегда есть возможность выбрать новый комплекс. Быстро и легко - все упражнения длятся от 30 секунд до (   Читать дальше...   )Тип издания: ProРелиз состоялся: 10.01.2026Разработчик: Olson Applications LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E1838088568B253578563DF84F72AE2C1A6678
 ```
 
 https://mybot314.ru/tekegram_catalog/

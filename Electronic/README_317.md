@@ -1,3 +1,116 @@
+###  Публикация: 710508   (415933) от 14.10.2013
+
+Avicii - True (2013) [FLAC|Lossless|tracks + .cue]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wake Me Up   (4:07)
+02.  You Make Me   (3:53)
+03.  Hey Brother   (4:15)
+04.  Addicted To You   (2:28)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A9868FF8A214EA264F02A195993747E4D583E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947970   (415728) от 18.10.2015
+
+VA - 50 Vocal Trance Hits (2015) [MP3|320 кб/с]<Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UCast & Susana - To Another Day (Radio Edit) (03:57)
+02. Beat Service & Ana Criado - An Autumn Tale (Kaimo K Radio Edit) (04:20)
+03. ReOrder & Katty Heath - Love Again (Radio Edit) (03:44)
+04. Dan Chase & Cynthia Hall - Life Won't Let Us Fall (Radio Edit) (04:27)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DCCBB7FDF7775AAAB728A118810DED8ACD597D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251643   (415604) от 02.10.2018
+
+VA - Only Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Liquide - New Dawn (Radio Mix)
+02. Fischer & Miethig - Rush Night 2014 (Mindsoundscapes Radio Cut)
+03. Aural Project - Fine Tune (Radio Cut)
+04. Boki & Met - Midnight Sun (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D41A1472DDA5B37CB8CCBBFA6A66D0F313AE2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753281   (415380) от 30.09.2020
+
+Tom Day - Discography 38 releases (2011-2020) [FLAC|Lossless|WEB-DL]<Ambient, Modern Classical, Downtempo, House, Broken Beat>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southerly (04:45)Жанр: Ambient, Modern Classical, Downtempo, House, Broken Beat •Продолжительность: 10:13:21 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8976C4D106D4F0A935C8D7500D93F72F962F941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149214   (415378) от 30.09.2020
 
 Phelian - Discography 16 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient, Dubstep, Bass, Downtempo>
@@ -6,7 +119,7 @@ Phelian - Discography 16 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Fut
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415378.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - Trance Collection By Yeiskomp Records Vol 22 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415252.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Autumn Lounge 2017 Pitch [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415201.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Aly & Fila - Future Sound Of Egypt 514 (2017) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415178.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Black Hole Trance Music 09-17 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415101.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - Jewels & Gems Vol.1: Selection Of Deep House (2016) [MP3|320 Kbps] <Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414947.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Fashion Week Vol.3: Catwalk House & Beats (2016) [MP3|320 Kbps] <Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414936.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Deep Down Underground Vol.1 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414931.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - Female Vocal Trance Anthems (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414878.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ IsoQuant - Risen From Ashes (2016) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414784.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ VA - Lucid Sounds, Vol. 21: A Fine and Deep Sonic Flow of Club House, Electro, M
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414756.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ VA - Treasure Cast Vol.1: Deep Sound Soul (2016) [MP3|320 Kbps] <Deep House, Tec
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414754.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ VA - Schneeweiss V (Presented by Oliver Koletzki) (2015) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414619.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ VA - Kontor Top Of The Clubs - The Biggest Hits Of The Year MMXVI (2016) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414614.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ VA - So Fresh Dance (2013) [FLAC|Lossless|tracks + .cue]<House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414091.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ VA - Super Eurobeat Vol. 225 (2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414071.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ Excision - Virus (2016) [MP3|320 Kbps] <Drumstep, Dubstep, Trap>
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414016.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ VA - Chillout Break Best Lounge Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413858.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ VA - Chillout Now Best Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413843.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ VA - DJ Mag Top 100 DJs Virtual Festival 2020 [MP3|320 Kbps] <Electro House, Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413723.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Nebula - Astronomy (2017) Scientific Wax [FLAC|Lossless|tracks+.cue] <Drum n Bas
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413610.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413437.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251798   (413365) от 03.10.2018
-
-VA - Golden Glamour Lounge Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karen Gibson Roc - From The Inside (Original Mix) 3:38
-02. Road, Terry Callier - Walk Away (Original Mix) 4:44
-03. Channel Two, Joy Jones - S'posed To Be (Original Mix) 3:46
-04. Weathertunes - The Snake (Original Mix) 4:13(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA5BD2A4FF7ED1F3C390121B57D599526F6C11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251981   (413359) от 03.10.2018
-
-Fading Language - Vessels of Time (2018) Insight Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording, Future Garage>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stray (04:30)
- 02. Errance For A Flame (05:22)
- 03. Tomorrow; Never (02:03)
- 04. The Light Betwixt The Brook (05:50)(   Читать дальше...   )Жанр: Ambient, Field Recording, Future GarageПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97E4536F7B2025C5801C4BC35238F4E4763AB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167959   (412843) от 22.09.2017
-
-VA - Ori Uplift & Nord Horizon - Uplifting Only 241 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.New World - Ikigai (Intro Mix)
-02.Aurosonic & Sue McLaren - Captured By Gravity (Omar Sherif Extended Mix)
-03.Zoë Song feat. Sophia Omarji - Frozen In Time (Danny Zero Remix)
-04.Dennis Graft - Tatyana(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79174915F8F136262272AF3B6F3DE26DABC63C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167980   (412840) от 22.09.2017
-
-VA - Suanda Chillout Vol.2 (Mixed by Seven24) (2017) [MP3|320 Kbps] <Chillout, Balearic, Vocal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aelyn - Game Over (Original Mix)  4:32
-02.  Frainbreeze - When You Find Me (feat. Natune) (Bryan Milton Chillout Remix)  5:30
-03.  CubeTonic - So Strong (feat. Dilara Gadel) (Soty & Seven24 Remix)  5:00
-04.  Feel & Alexandra Badoi - Did We Feel (Frainbreeze Chillout Remix)  4:06(   Читать дальше...   )Жанр: Chillout, Balearic, VocalПродолжительность: 02:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CA9AB57C5C2173D6F413B6CBF497D28FCAF987
 ```
 
 https://mybot314.ru/tekegram_catalog/

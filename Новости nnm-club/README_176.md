@@ -1,3 +1,57 @@
+###  Публикация: 805302   (434568) от 08.10.2014
+
+Штамм / The Strain (2014) WEB-DLRip (Сезон 1, серия 01-13 из 13) (BaibaKo)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434568.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аэропорту Нью-Йорка совершает посадку трансатлантический лайнер с выключенным светом и закрытыми дверями. Эпидемиолог доктор Эфраим Гудвезер и его команда на борту находят около двухсот трупов и четырех выживших. Тела умерших начинают исчезать из моргов. Они оживают, только это уже не люди, а исчадия ада...
+
+Штамм - американский хоррор-сериал, созданный по одноименному (   Читать дальше...   )Производство: США, MiradaЖанр: Ужасы, фантастика, драмаРежиссер: Гильермо дель Торо, Дэвид Семел, Кит ГордонАктеры: Дэвид Брэдли, Энн Бетанкорт, Николай Вич, Педро Мигель Арсе, Дрю Нельсон, Джо Веркилло, Джим Уотсон, Алекс Пэкстон, Джонатан Поттс, Рихард ЗаммельПеревод: Профессиональный (многоголосый, закадровый) - BaibaKoФормат: aviПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB3D24D9046B95036A4FBF1B7486EBC58E698C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 393032   (434302) от 27.09.2011
+
+Windows XP Twilight Angel Edition 2011.09
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для "чистой" установки Windows XP SP3 Pro с загрузочного компакт-диска, а также для установки пакетов драйверов с возможностью выбора. Проходит проверку подлинности на официальном сайте Microsoft.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037170   (434158) от 12.09.2017
 
 State of Decay: Year One (2015) [Ru/Multi] (1.0.15.11.3.5751/dlc) Repack Other s [Survival Edition]
@@ -6,7 +60,7 @@ State of Decay: Year One (2015) [Ru/Multi] (1.0.15.11.3.5751/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434158.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434108.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434018.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Red Comrades 2: For the Great Justice. Reloaded / Петька и Василий
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434015.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Chris Rea - 6 альбомов (1979-1992) [FLAC/APE 2.0 24/96|tracks/image (Vin
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433250.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ Snappy Driver Installer Origin R747 / Драйверпаки 22081 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433236.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ Light - портативная камера с 16 "глазами", способ
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432964.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432824.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ DU Speed Booster 2.6.7 [Ru/Eng] - Очистки памяти
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432780.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ Acronis True Image Home 2013 16 Build 5551 + PlusPack [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432779.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ ProDAD Mercalli V4 SAL+ 4.0.451 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432774.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432772.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432769.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432639.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432081.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432043.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432038.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431963.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431805.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_431415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_431415.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ Blood: Fresh Supply (2019) [En] (1.9.10-1/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431163.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_430960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430960.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ Dreamfall Chapters [Русификатор] (2015) [ui/sub/res] (1.2) Unofficial
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430645.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430634.jpg" />
 </div>
 
 
@@ -628,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C2CE59CD628B9A1097567CD89910103C8E89BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542413   (430437) от 03.10.2012
-
-Косяки (Дурман) / Weeds (2012) HDTV [1080i] (8 сезон, 1-13 серии из 13)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_430437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Речь в сериале идет не о борьбе с наркотиками и не о том, как же вредна наркомания; здесь представлен взгляд совершенно с другой стороны - Нэнси живет в предместье, где у каждого свой "скелет в шкафу". Нэнси – вдова с двумя весьма оригинальными детьми. Старший, Сайлас, мальчик умный и интересный, с постоянными проблемами на любовном фронте, младший, Шейн (   Читать дальше...   )Жанр: Драма, Криминал, Чёрная КомедияРежиссер: Крейг Зиск(Craig Zisk), Скотт Эллис, Пол Фейг, Лев Л. СпироАктеры: Мэри-Луиз Паркер(Нэнси Ботвин), Хантер Пэрриш(Сайлас Ботвин), Александр Гулд(Шейн Ботвин), Кевин Нилон(Даг Вилсон), Джастин Кирк(Энди Ботвин) и др.Перевод: Одноголосный закадровый, (любительский) (2 вида)Озвучка / Автор перевода: Язык субтитров: Русский + АнглийскийПродолжительность: ~27 минут - серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521049   (430430) от 03.10.2012
-
-Dakara Boku wa, H ga Dekinai / Говорю же, у меня не встаёт!  [2012, TV, 12 из 12] HDTV 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая синигами, богиня смерти Лисара Ресталл является в мир людей, чтобы восстановить славу и влияние своего клана. В мире сериала синигами питаются чужой энергией, причем только избранные могут удовлетворить потребности высших существ. Найти такого партнера непросто, ведь душа большинства людей мелковата, в ней нет стержня, источника внутренней силы. Гостья не знала, что судьба, которая выше богов, уже приготовила ей сюрприз в лице простого парня по имени Рёсукэ Кага. А в чем сила простого 17-летнего японского школьника? Конечно же, в… воображении! В этой области Кага непобедимый чемпион, правда, большинство одноклассниц зовут его проще – извращенцем.
-
-Да, Рёсукэ не святой, но его эротические мечты имеют такую силу, что гордая Лисара, скрепя сердце, согласилась на временный контракт, иначе ее миссия провалилась бы. Теперь они партнеры, и каждый получил от союза что-то свое: юная богиня начала лучше понимать окружающих, а земной парень стал меньше фантазировать и получил шанс среди приключений и битв «перейти (   Читать дальше...   )Жанр: комедияРежиссер: Такахаси ТакэоПеревод: Kampfer 1-12 иПродолжительность: (12 эп.), 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E171ABEB1FC6F3CD8BC2D253AA79D82BE406D9B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

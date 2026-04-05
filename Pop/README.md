@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062914.jpg" />
 </div>
 
 
@@ -28,35 +28,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861785   (1062863) от 
-
-VA - Трудный возраст. Трибьют МакSим (2026) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062863.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дора/ТРАВМА - Трудный возраст
-2. NANSI & SIDOROV - Сантиметры дыханья
-3. Lida - Нежность
-4. Абрикоса - Лолита(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A6A1C73B348C09A4576B1235F9C93F5E43B960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861226   (1062619) от 
 
 VA - 90s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
@@ -65,7 +36,7 @@ VA - 90s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062619.jpg" />
 </div>
 
 
@@ -94,7 +65,7 @@ VA - 10s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062147.jpg" />
 </div>
 
 
@@ -123,7 +94,7 @@ VA - 80s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062084.jpg" />
 </div>
 
 
@@ -152,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062031.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062028.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ Laura Pausini - YO CANTO 2 (2026) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061941.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ VA - Greatest Ever! Love (The Definitive Collection) (2006) 3 x CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061877.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ VA - Funk Classics The 70's (1995) [FLAC|Lossless|tracks + .cue] <Funk / Soul, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061876.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ VA - Magic 90s (2019) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061875.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ VA - Greatest Ever! Nineties (The Definitive Collection) (2006) 3 x CD, Box Set 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061870.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ Lian Ross - V (2025) [FLAC|Lossless|image + .cue] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061577.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ VA - This Is Your Life (1991) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061500.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ VA - Greatest Ever Decade 70s (2021) 4 x CD, Compilation [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061455.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ VA - The Classic 70s Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061442.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ VA - 00s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061437.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ VA - Lost Hits Of The 70s And 80s (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061361.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ MilleniumKid - Dystopie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Indie
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061329.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Lauren Vahdani - A Million Little Heartbreaks (2026) [FLAC 24/96|Lossless|WEB-DL
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061061.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Chris Norman - Lifelines (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1060996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060996.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060916.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060915.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060913.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ VA - Аркадиас - 100 лучших песен (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060912.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ VA - 1990s R&B Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Soul, Funk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060888.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ VA - 1990s R&B Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Soul, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B302EB0E94624E179F8E8394848D5C9590E39226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859144   (1060846) от 14.03.2026
+
+Азиза - 4 Albums (1989-2019) [MP3|320 Kbps] <Russian Pop Music>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1989 - Азиза - Aziza
+2014 - Азиза - Рай неземной-2CD
+2019 - Азиза - The Best(   Читать дальше...   )Жанр: Russian Pop MusicФормат: MP3 (tracks)Продолжительность: 5 CD, 05:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29B6E7098D4DB695E187CB397977E658DF655B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

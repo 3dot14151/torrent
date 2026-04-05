@@ -1,3 +1,32 @@
+###  Публикация: 1000545   (855337) от 27.03.2016
+
+Edvard Grieg - Piano Concerto & Lyric Pieces (Javier Perianes, BBC Symphony Orchestra, Sakari Oramo) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto in A minor, Op.16
+01. I. Allegro molto moderato (13:41)
+02. II. Adagio (6:47)
+03. III. Allegro moderato molto e marcato (10:22)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DC0F41731795F7D7C2D99E734A4D4AC1285426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001503   (853858) от 28.03.2016
 
 Raphael Ensemble - Korngold: String Sextet, Schoenberg: Verklarte Nacht (1990) [FLAC|Lossless|tracks] <Classical, Chamber Music>
@@ -6,7 +35,7 @@ Raphael Ensemble - Korngold: String Sextet, Schoenberg: Verklarte Nacht (1990) [
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853858.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tatiana Sergeeva - Russian Harpsichord Music of the XIX century. (1997) [FLAC|Lo
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853850.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ton Koopman, Musica Antiqua Amsterdam - Haydn: Complete Harpsichord Concertos (1
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853798.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Zuzana Ruzickova; - Harpsichord music from England, Spain and Portugal (2012) 2C
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853795.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Francesco Cera - Trabaci: Music for Organ and Harpsichord (2014) 2CD [FLAC|Lossl
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853791.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - J S Bach: Complete Harpsichord Concertos on Antique Instruments (2009) 3CD 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853758.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Murray Perahia -  Mozart • The Complete Piano Concertos (2006) 12CD Box Set [F
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853712.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Roman Ilyin - Pieces 2 (2020) [MP3|320 Kbps] <Classical, Neo-classical, Encemble
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853273.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ewald Demeyere - Arne: Eight Sonatas or Lessons for the Harpsichord (2002) [FLAC
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852097.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Michele Benuzzi - Christoph Nichelmann: Harpsichord Sonatas (2015) 2CD [FLAC|Los
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852055.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Alan Cuckston - HANDEL: Harpsichord Suites Nos. 1- 5 (1994) [FLAC|Lossless|image
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852046.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Anne Sofie von Otter - Music for a While, Baroque Melodies (2004) [FLAC|Lossless
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851989.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nils-Erik Sparf, The Drottningholm Baroque Ensemble - Antonio Vivaldi: The Four 
 >>Камерная
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851875.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ludovico Einaudi - Waves: The Piano Collection (Jeroen & Sandra van Veen) (2013)
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851805.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Robert Woolley - Purcell - Complete Harpsichord Music (1991) 2CD [FLAC|Lossless|
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850301.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Bolshoi Theatre Orchestra - 20th Century Russian Classical Hits (2016) [FLAC|Los
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850268.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850257.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Arturo Benedetti Michelangeli - The unknown recordings - Les inedits (1939/41/42
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850209.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Storgards, Helsinki Philharmonic Orchestra - Korngold: Much Ado About Nothing & 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848784.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Chatham Baroque - Sol y Sombra: Baroque Music Of Latin America (1999) [FLAC|Loss
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848696.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Elina Garanca - Romantique (2012) [FLAC|Lossless|image + .cue] <Classical, Opera
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848686.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Elina Garanca - Arie Favorite (2002) [APE|Lossless|image + .cue] <Classical, Ope
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848685.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Elina Garanca - Aria Cantilena (2007) [FLAC|Lossless|image + .cue] <Classical, O
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848681.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Elina Garanca - Mozart - Opera & Concert Arias (2005) [FLAC|Lossless|image + .cu
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848680.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Elina Garanca - Meditation (2014) [FLAC|Lossless|image + .cue] <Classical, Opera
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848608.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Elina Garanca - Meditation (2014) [FLAC|Lossless|image + .cue] <Classical, Opera
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65968525AFAFE447E341A7BBE839179E4BDD3E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002305   (848604) от 31.03.2016
-
-Elina Garanca - Elina (2013) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Seguidilla - Carmen (Bizet)  4:40
-02.  Chanson - Carmen (Bizet)  4:44
-03.  Habanera - Carmen (Bizet)  4:41
-04.  Flower Duet - Lakme (Delibes)  5:06(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66244D046611927183743C95808B4D4AD3BB8797
 ```
 
 https://mybot314.ru/tekegram_catalog/

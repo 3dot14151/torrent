@@ -1,3 +1,29 @@
+###  Публикация: 941902   (801897) от 25.04.2016
+
+Бруклин 9-9 / Brooklyn Nine-Nine (2015) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-23 из 23) (NewStudio)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801897.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о том, что происходит, когда у детектива, не воспринимающего ничего серьёзно, появляется новый руководитель, который хочет, чтобы он рос и с уважением относился к своей должности.Производство: СШАЖанр: комедияРежиссер: Фил ЛордАктеры: Энди Сэмберг, Андре Брогер, Терри Крюс, Мелисса Фумеро, Джо Ло Трульо, Стефани Беатриз и др.Перевод: профессиональный многоголосый закадровый - NewStudioФормат: MKVПродолжительность: ~00:22:00 серияРеклама: присутствуют голосовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CE923400992DAAD0926C935ACDC7879EB021E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120653   (801806) от 31.03.2017
 
 Сегодня международный день резервного копирования (День бэкапа)
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801806.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ MAGIX Vegas Pro 14.0 Build 244 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801644.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801171.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ uTorrent Pro 3.5 Build 43580 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800935.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ The Beatles: 1 (1962-1970) 2015 [remastered] BDRip [H.264/1080p]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800811.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800798.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_800730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800730.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 05.2020 by OVGorskiy 1D
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800688.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Astra Linux Special Edition 1.7 [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800662.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800527.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800525.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_800235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800235.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_800011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800011.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Saints Row: The Third - Remastered (2020) [Ru/En] (1.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799793.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799787.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799720.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Halo: Combat Evolved (2003) [Ru/En] (1.10) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799709.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799704.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799701.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Microsoft Windows 7 SP1-u with IE11 (2 x 3in1) - DG Win&Soft 2018.12 (en-US, ru-
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799700.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Project CARS 2 (2017) [Ru/Multi] (7.1.0.1.1108/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799699.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799697.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799696.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799583.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ WWE 2K17 (2017) [En] (1.06/upd4/dlc) Repack =nemos= [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799418.jpg" />
 </div>
 
 
@@ -648,38 +674,6 @@ WWE 2K17 (2017) [En] (1.06/upd4/dlc) Repack =nemos= [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:392283AD64CE301499B922E209B75F07B0AE4CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 40115   (799417) от 03.04.2017
-
-Gregorian [Полная дискография] [1991-2007] [MP3|192-320 CBR] <New Age>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот попытался собрать здесь как можно более полную дискографию Gregorian.
-Многое уже выкладывалось на трекере, однако "окучить" полностью никто не пробовал. Рискну это сделать...CD 1
-01. Brothers in arms
-02. Scarborough fair
-03. Tears in heaven(   Читать дальше...   )Жанр: New Age
-Официальный сайт группы
-Неофициальный русский сайтПродолжительность: 1:25:24
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 562260   (405965) от 18.10.2012
+
+[Wallpapers] Нравятся! Сотня № 072 (1920х1080-2560х1600)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Большое спасибо неизвестным авторам этих работ.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D1EFEF6D2F911D910456CF4BA870B0F865C7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562264   (405964) от 18.10.2012
 
 [Wallpapers] Нравятся! Сотня № 074 (1920х1080-2560х1600)
@@ -6,7 +34,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405964.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405959.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405957.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405954.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405876.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405865.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Frans Mensink [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405706.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405635.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405632.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405615.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405512.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405481.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405265.jpg" />
 </div>
 
 
@@ -364,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405225.jpg" />
 </div>
 
 
@@ -390,7 +418,7 @@ Pixiv Artist - Mii~ina [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404914.jpg" />
 </div>
 
 
@@ -416,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404903.jpg" />
 </div>
 
 
@@ -442,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404775.jpg" />
 </div>
 
 
@@ -468,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404766.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404761.jpg" />
 </div>
 
 
@@ -520,7 +548,7 @@ Herika Noronha [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404753.jpg" />
 </div>
 
 
@@ -546,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404691.jpg" />
 </div>
 
 
@@ -572,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404649.jpg" />
 </div>
 
 
@@ -598,7 +626,7 @@ Artworks by Derek Jones [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404638.jpg" />
 </div>
 
 
@@ -624,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404637.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404635.jpg" />
 </div>
 
 
@@ -661,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE58FD3A6F822BEAF932949BAA382DCB7125B598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562758   (404569) от 21.10.2012
-
-Иконки - Cyber-X Icons Pack [Графика]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyber-X Icons PackРазрешение файлов: ~ 128x128
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E933C86A78EB759777EA939834CCB5B7FDDD696
 ```
 
 https://mybot314.ru/tekegram_catalog/

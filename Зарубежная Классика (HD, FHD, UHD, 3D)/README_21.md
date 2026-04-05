@@ -1,3 +1,82 @@
+###  Публикация: 1111996   (822612) от 20.03.2017
+
+Военный фургон / The War Wagon (1967) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Уэйн играет владельца ранчо Тау Джексона, который хочет сеять смерть при попытке взятия бронированного почтового дилижанса принадлежащего местному «барону» среди скотоводов, который украл все его состояние и облил грязью доброе имя.
+Чтобы совершить это ограбление Джексон объединяется в команду со старым актером, полуобразованным индейцем, молодым пьяницей и (   Читать дальше...   )Производство: США / Batjac Productions, Marvin Schwartz Productions Inc., Universal PicturesЖанр: ВестернРежиссер: Берт КеннедиАктеры: Джон Уэйн, Кирк Дуглас, Ховард Кил, Роберт Уокер мл., Кинен Уинн, Брюс Кэбот, Джоэнна Барнс, Валона Ноланд, Брюс Дерн, Джин ЭвансПеревод: Многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A39287AB0C6870F3AB4FB940DAA5F6522EC3C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007275   (822586) от 14.04.2016
+
+Крестный отец 3 / The Godfather: Part III (1990) BDRip [H.265/1080p] [Main10]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительная часть знаменитой гангстерской эпопеи, в которой продолжается рассказ о делах «семьи» дона Корлеоне. Через двадцать лет после событий, описанных в предыдущей картине, Майкл Корлеоне решает заняться легальным бизнесом. Однако противодействие внутри клана заставляет его вспомнить об испытанных кровавых методах общения с противником, что приводит к трагическому (   Читать дальше...   )Производство: США / Paramount Pictures, Zoetrope StudiosЖанр: Боевик, Драма, Криминал, ТриллерРежиссер: Френсис Форд КопполаАктеры: Аль Пачино, Энди Гарсиа, Талия Шайр, Илай Уоллак, Джо Мантенья, София Коппола, Фрэнк Д’Амброзио, Джордж Хэмилтон, Бриджит Фонда, Раф Валлоне, Донал Доннелли, Ричард Брайт, Хельмут Бергер, Дон НовеллоПеревод: Многоголосый закадровый, профессиональный (Киномания)Язык субтитров: Английский, французский, испанский, русскийПродолжительность: 02:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211400B7CDB8EF1D7D7FFF60E48D8C4EAA6EBE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111231   (822479) от 20.03.2017
+
+Три монеты в фонтане / Three Coins in the Fountain (1954) WEB-DL [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три американки работают в Риме. Одна уже давно влюблена в своего босса, сладкоречивого писателя, который в ответ «ни в зуб ногой». Другая, нарушая строгие правила, крутит роман с итальянцем. Третья, новенькая, встречает настоящего принца и буквально теряет голову. Каждая из них надеется отыскать счастье в Риме, они бросают монетки в фонтан Треви, и… как поёт в фильме (   Читать дальше...   )Производство: США, 20th Century Fox Film CorporationЖанр: ДрамаРежиссер: Жан НегулескоАктеры: Клифтон Уэбб, Дороти МакГуайр, Джин Питерс, Луи Журдан, Мэгги МакНамара, Россано Брацци, Ховард Ст. Джон, Кэтрин Гивни, Кэтлин Несбит, Мерри АндерсПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DB61C55A125FEB160CBD302415D132C9325787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007194   (822464) от 14.04.2016
 
 Крестный отец 2 / The Godfather: Part II (1974) BDRip [h.265/1080p]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822464.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822451.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822429.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822008.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820341.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819510.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819322.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819153.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818674.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818554.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818303.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817813.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817629.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816952.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816637.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816635.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816519.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815948.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815944.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815943.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815897.jpg" />
 </div>
 
 
@@ -563,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815429.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815393.jpg" />
 </div>
 
 
@@ -600,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF04E2AFC69C2FC01A7D6B4C6B2E8D2131CC4DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753036   (815119) от 07.01.2018
-
-Сицилийский клан / Le clan des Siciliens (1969) BDRemux [1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой гангстер Роже Сарте совершает побег из фургона, перевозящего его в тюрьму из Дворца Правосудия. Все проходит удачно благодаря помощи главы сицилийского клана Витторио Маналезе. Роже нужен ему для участия в дерзком ограблении. Клан намерен совершить кражу уникальной коллекции драгоценностей, собранной в Риме для международной выставки.
-
-К операции готовятся (   Читать дальше...   )Жанр: драма, криминалРежиссер: Анри ВернёйАктеры: Жан Габен, Ален Делон, Лино Вентура, Ирина Демик, Амедео Надзари, Филипп Баронне, Карен Блангернон, Ив Брэнвиль, Жерар Бур, Элиза ЧеганиПеревод: Многоголосый закадровый, Одноголосый закадровыйСубтитры: Английские, Русские, ФранцузскиеПродолжительность: 02:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC677E936F8F907C87312DD034FDDF0F6EB42817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114282   (814755) от 24.03.2017
-
-Кромвель / Cromwell (1970) Blu-ray [H.264/1080p] [Custom]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достоверное историческое повествование о гражданской войне XVII века, разделившей Англию на два противоборствующих лагеря, об английской буржуазной революции. Основное внимание в картине уделяется конфронтации Оливера Кромвеля и короля Карла I. Кромвель — идеалист, преданный своему делу, с холодными, измученными глазами, хриплым голосом и несгибаемым духом. Он настроен (   Читать дальше...   )Производство: Великобритания, Columbia Pictures, Irving Allen ProductionsЖанр: Драма, историческийРежиссер: Кен ХьюзАктеры: Ричард Харрис, Алек Гиннесс, Роберт Морли, Дороти Тьютин, Фрэнк Финлей, Тимоти Далтон, Патрик Уаймарк, Патрик Мэги, Найджел Сток, Чарльз ГрейПеревод: Профессиональный (двухголосый закадровый) - НТВ+Продолжительность: 02:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BED0E9F817F3816376A42A97A9FEEAA56E1B162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773592   (813955) от 14.04.2014
-
-Крестоносцы / Krzyzacy / Die letzte Schlacht der Kreuzritter (1960) HDTVRip [720p] (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813955.jpg" />
-</div>
-
-
-###  Подробнее
-
-На рубеже 14-15 веков, немецкий Тевтонский орден стремится к захвату польских земель. Польский король Ягелло и князь Мазовецкий пытаются уладить отношения с орденом мирным путём, но разбойничьи набеги крестоносцев вызывают всё большую ярость и гнев поляков. Шляхтич Юранд из Спыхова, мстя за свою жену, убитую крестоносцами, ведёт с ними открытую ожесточённую борьбу. (   Читать дальше...   )Жанр: Исторический, драмаРежиссер: Александр ФордАктеры: Уршуля Моджиньская, Гражина Станишевская, Анджей Шалявский, Хенрик Боровский, Мечислав Каленик, Александр Фогель, Эмиль Каревич, Люцина Винницкая, Тадеуш Бялощиньский, Тадеуш Косударский, Мечислав Войт, Януш Страхоцкий, Станислав Ясюкевич, Леон Немчик, Збигнев Сковроньский, Мечислав Стоор, Влодзимеж Скочиляс, Северин Бутрым, Барбара Хоравянка, Алиция Кравчик, Ирэна (   Читать дальше...   )Перевод: Профессиональный (дублированный)Продолжительность: 01:29:01 + 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB9A00F5B1190B260BD9584928AFBC212BD8649
 ```
 
 https://mybot314.ru/tekegram_catalog/

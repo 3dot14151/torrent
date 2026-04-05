@@ -1,3 +1,58 @@
+###  Публикация: 1511580   (788351) от 22.11.2021
+
+Ctrl + Paint, Matt Kohr | Design Basics 2: Shape (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ваша цель это концепт-арт или иллюстрация, форма это ваше секретное оружие. В отличие от классического рисования, вы не просто воспроизводите то, что видите. Основы дизайна 2 помогут вам перейти от традиционного рисования к иллюстрации.
+
+В этом курсе исследуются 7 разных подходов к упрощению формы. Каждый из этих принципов сопровождается демонстрацией. Вместо (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 55:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A048F5EDC252E383878C5FCBA8D1F72A6737227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511582   (788332) от 22.11.2021
+
+Ctrl + Paint, Matt Kohr | Boss Monster (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788332.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой направляющей обучение серии видео каждый из нас будет создавать главного монстра для видеоигры. Хотя я рассказываю о своих личных процессах и методах, задача состоит не в копировании моего дизайна – в центре внимания Ваш проект.
+Гигантские главные монстры («Боссы») часто являются самым запоминающимся моментом в игре. По-моему, лучшие дизайны не просто «круто (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 57:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23458554CBA17E08CF582BB473F096990DE0274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511587   (788322) от 22.11.2021
 
 Ctrl + Paint, Matt Kohr | Game Icons (2015) PCRec [En, Ru]
@@ -6,7 +61,7 @@ Ctrl + Paint, Matt Kohr | Game Icons (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788322.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Ctrl + Paint, Matt Kohr | Design Basics (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788321.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ Udemy, CG Masters, Chris Plush, Erindale Woodford | Master Procedural Texturing 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788291.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788256.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Blender Market, Midge "Mantissa" Sinnaeve | Моушн графика в реа�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787753.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ Lynda.com | Painter 2017 Essential Training (2016) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787527.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Digital Tutors | Motion-графика в After Effects (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787474.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ The Gnomon Workshop, Eric Keller | Modeling and Rendering a Realistic Jumping Sp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787303.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ Blender Cloud | Создание морского чёрта в Blender 2.81 / A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786547.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ Victory3D | Создание игрового стимпанк пистолет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786514.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ Blender Cloud | Создание стилизованного персонажа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786505.jpg" />
 </div>
 
 
@@ -302,7 +357,7 @@ Blender Cloud | Создание фэнтезийного фургона в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784463.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ Lynda.com | Up and Running with Plant Factory (2015) PCRec [H.264/720p-LQ] [RU/E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778651.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Lynda.com | Up and Running in VUE (2015) PCRec [H.264/720p-LQ] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778638.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ ITVDN | Видео курс Unity3D Essential (2015) PCRec [H.264/720p]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777801.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ W.D.I | Типографика в веб (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777427.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ CG Cookie | Создание воксельного арта в Blender 2.8 / Cr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772791.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ CG Cookie | Основы цифрового скульптинга в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772625.jpg" />
 </div>
 
 
@@ -494,7 +549,7 @@ Victory3D | Создание игрового окружения "Античны
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772495.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ CG Cookie | Создание игры Portalethium часть 2: Дизайн у
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771270.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770392.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ Polygon Runway | Создание 3D леттеринга в Blender 2.82 / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770390.jpg" />
 </div>
 
 
@@ -600,7 +655,7 @@ Polygon Runway | Стань 3D иллюстратором в Blender 2.8 / Becom
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770294.jpg" />
 </div>
 
 
@@ -628,7 +683,7 @@ CGMA | Mastering Destruction in Houdini (2019) PCRec[En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769018.jpg" />
 </div>
 
 
@@ -640,59 +695,6 @@ CGMA | Mastering Destruction in Houdini (2019) PCRec[En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F04178445E542D232921DADE27DBC3AF75FBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392885   (767424) от 30.06.2020
-
-3dmaya.com.ua| Maya Winter [2019] PCRec
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk Maya — многопрофильное программное обеспечение для 3D-анимации, моделирования и визуализации. В настоящее время является стандартом в кинематографии, телевидении, рекламе, игровом дизайне, виртуальной реальности, 3D-печати.
-В программу курса Maya включены блоки по всем этапам создания персонажа и окружения: 3D-моделинг в Maya и скульптинг в Zbrush, создание (   Читать дальше...   )Производство: Сергей Ярошенко, Денис ЧикалюкЖанр: Создание видеоПродолжительность: 215:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8430AB77F650C8078F50DB7E7207D4C9B4D4F8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213834   (766490) от 19.03.2018
-
-Питер Хан | Динамический эскиз / Peter Han | Dynamic Sketching [часть 1] (2014) WEBRip [H.264/720p] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eрок, призванный развить в вас основные навыки создания эскиза. Студенты узнают, как использовать простейшие формы для рисования объектов. Используются ручка и тонированная бумага. Так же студенты будут учиться чувствовать себя уверенно.Производство: CGMA 2D AcademyЖанр: Скетчинг, РисунокПродолжительность: 04:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2AE53570AE8C7D79A1EE2FD6830F719F285E6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

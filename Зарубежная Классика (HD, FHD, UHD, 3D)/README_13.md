@@ -1,3 +1,84 @@
+###  Публикация: 1100041   (901436) от 03.02.2017
+
+Пуск торпеды / Torpedo Run (1958) WEB-DL [H.264/1080p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война. 1942 год. Американская подводная лодка в Тихом океане получает задание потопить японский авианосец. Ситуация осложняется тем, что авианосец сопровождает транспорт с американскими пленными, включая жену и дочь командира подводной лодки.Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Военный, ДрамаРежиссер: Джозеф ПивниАктеры: Гленн Форд, Эрнест Боргнайн, Дайан Брюстер, Дин Джонс, Л. К. Джонс, Филип Обер, Ричард Карлайл, Фредд Уэйн, Дон Кифер, Роберт ХардиПеревод: Авторский одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8026FEBC89B78EA05E8A6EFEF9452C8EA6A39A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874324   (901271) от 24.03.2020
+
+Расёмон / Rashmon (1950) BDRip 720p
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901271.jpg" />
+</div>
+
+
+###  Подробнее
+
+По рассказу Рюноске Акутагавы "В чаще" ("In the Woods").
+Действие картины происходит в древней Японии. В лесу изнасилована женщина, а ее муж убит. Есть четыре точки зрения - у каждого из четырех свидетелей - своя.
+Каждая проливает дополнительный свет на случившееся, добавляя дополнительные детали к случившемуся. Однако какая же версия является (   Читать дальше...   )Производство: ЯпонияЖанр: Драма, КриминалРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Матико Кё, Масаюки Мори, Такаси Симура, Минору Чиаки, Китидзиро Уэда, Норико Хонма, Дайскэ КатоПеревод: Дублированный, двухголосый закадровый (СВ Дубль по заказу ГТРК Культура), многоголосый, закадровый (DVD Магия)Язык субтитров: Русский, английскийПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF34633A354906006D7D1F33444F02EBD1D7D822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095096   (901188) от 03.02.2017
+
+Человек с востока / E poi lo chiamarono il magnifico (1972) Blu-ray [H.264/1080p] [Custom]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавные приключения молодого чопорного англичанина Томаса на Диком Западе, где он под руководством трёх довольно мирных разбойников постигает простую жизнь без затей. Томас шокирует местных жителей своими манерами, и, влюбившись в дочь богатого фермера, окончательно становится посмешищем. Но не надолго
+Его товарищи берутся превратить парня в настоящего лихого американца, (   Читать дальше...   )Производство: Италия, Франция, Югославия, Jadran Film, Les Productions Artistes Associs, Produzioni Europee Associati (PEA)Жанр: Вестерн, комедияРежиссер: Энцо БарбониАктеры: Теренс Хилл, Грегори Уэлкотт, Янти Соммер, Доминик Барто, Гарри Кэри мл., Энцо Фьермонте, Даника Ла Лоджа, Риккардо Пиццути, Жан Луис, Алессандро СперлиПеревод: Профессиональный (многоголосый, закадровый), Профессиональный (двухголосый, закадровый)Продолжительность: 02:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5839C1F29BDBCD270530E88F0BE435B05722425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095280   (900950) от 03.02.2017
 
 Спартак / Spartacus (1960) BDRemux [H.264/1080p]
@@ -6,7 +87,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900950.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899700.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899620.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899393.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899040.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898963.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898743.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898550.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897758.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897304.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897278.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897235.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897125.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897076.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895789.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895455.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895197.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894769.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894470.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894454.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894445.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894419.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894150.jpg" />
 </div>
 
 
@@ -600,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C44C33DC1EF5A0F64702B38AD2078D9899E71E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096545   (894059) от 07.02.2017
-
-Война Мерфи / Murphy's War (1971) WEB-DL [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо поставленный, захватывающий боевик о войне, в котором наряду с батальными сценами дается психологический портрет английского моряка, который один остался в живых после того, как его судно оказалось потоплено немцами. Опираясь на помощь местного населения, после восстановления здоровья, он, одержимый местью, решает один напасть на немецкую армию, несмотря на (   Читать дальше...   )Производство: Великобритания / Hemdale, Michael Deeley-Peter Yates FilmsЖанр: Военный, ДрамаРежиссер: Питер ЙетсАктеры: Питер О’Тул, Шан Филлипс, Филипп Нуаре, Хорст Янсон, Джон Хэллам, Инго Могендорф, Гарри Филдер, Джордж РубисекПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8A1D9060C695038A5716E227FE37FC11B19B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493430   (893782) от 04.09.2021
-
-В воскресенье всегда идёт дождь / It Always Rains on Sunday (1947) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гуги Уиверс замужем, у неё две падчерицы, и её брак лишен любви. Неожиданно в её жизни появляется старый возлюбленный, сбежавший из тюрьмы.Производство: Великобритания, Ealing StudiosЖанр: Драма, криминалРежиссер: Роберт ХеймерАктеры: Гуги Уизерс, Эдвард Чэпман, Сьюзэн Шоу, Патриция Планкетт, Дэвид Лайнс, Сидни Тэфлер, Бетти Энн Дейвис, Джон Слейтер, Джейн Хилтон, Мейер Целкинер, Джон Маккаллум, Джимми Хэнли, Джон Кэрол, Элфи Бэсс, Джек УорнерПеревод: Одноголосый профессиональный (AA-Studio)Субтитры: Русские, английскиеПродолжительность: 01:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0B99D572DD165A67FE60BDDA0CB4D8105FCA50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992427   (893661) от 06.03.2016
-
-Поддержите своего шерифа / Support Your Local Sheriff! (1969) BDRemux [H.264 /1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893661.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Диком Западе Джейсон МакКаллоф неожиданно получает освободившуюся должность шерифа в городке, охваченном золотой лихорадкой. Джейсон МакКаллоф изначально становится шерифом по большому счету ради оплаты, полагая, что если пойдёт что-то не так, то он всегда сможет уехать в Австралию. Но МакКаллоф усмиряет нечистых на руку жителей с помощью меткой стрельбы и остроумия, (   Читать дальше...   )Производство: США, Cherokee-Brigade Productions, Three PicturesЖанр: Комедия, вестерн, приключенияРежиссер: Берт КеннедиАктеры: Джеймс Гарнер, Гарри Морган, Джоан Хэккетт, Уолтер Бреннан, Джек Илэм, Генри Джонс, Брюс Дерн, Уиллис Бучи, Джин Эванс, Уолтер БуркПеревод: Профессиональный (многоголосый, закадровый) (TB5 Санкт-Петербург)Продолжительность: 01:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099B8BE3B1F88A63533AE977CC44B2ABC6655093
 ```
 
 https://mybot314.ru/tekegram_catalog/

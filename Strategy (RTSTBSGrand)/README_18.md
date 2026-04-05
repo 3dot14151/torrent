@@ -1,3 +1,55 @@
+###  Публикация: 1676262   (53904) от 09.06.2024
+
+Stronghold (2023) [Ru/En] (1.2/dlc) Repack dixen18 [Definitive Edition]
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stronghold: Definitive Edition оживляет средневековую Англию в стратегической и захватывающей игре. В этой классической стратегии в реальном времени геймерам предстоит восстановить разрушенное королевство, объединить разрозненные силы и сразиться с коварными злодеями - Крысой, Свиньей, Змеей и Волком. Сюжет разворачивается на истерзанной войной границе, где король (   Читать дальше...   )Тип издания: RepackРазработчик: FireFly StudiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4F423878A44E54C27235D59322952CE4F2AB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718243   (52748) от 20.06.2024
+
+Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/Multi] (2.2.1-40632/dlc) Repack dixen18 [Deluxe Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52748.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Might & Magic Heroes VII были добавлены такие вещи, как вид от третьего лица и красивый мир вокруг нашего мага; жанр игры немного поменялся, став одновременно RPG и ролевой игрой от третьего лица. Вся серия потерпела значительное количество изменений, поэтому следует уделять внимание каждой детали в этой части. Эта серия пошаговых стратегий в одно время стала (   Читать дальше...   )Тип издания: RepackРазработчик: Limbic EntertainmentЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A13C8DC1156477BA38818EAE1A385C1BD4A501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821344   (52170) от 02.10.2025
 
 Stronghold (2023) [Ru/Multi] (1.34/dlc) Repack Let'sРlay [Definitive Edition]
@@ -6,7 +58,7 @@ Stronghold (2023) [Ru/Multi] (1.34/dlc) Repack Let'sРlay [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52170.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Songs of Steel: Hispania (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49115.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Spirits of The Silicium Forest (2024) [Ru/En] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48702.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ War for the Overworld (2015) [Ru/Multi] (2.1.1/dlc) Repack FitGirl [Ultimate Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48412.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Great Houses of Calderia (2023) [En] (1.0.1.1337) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47998.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack Decepticon [Ann
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47594.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47572.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Annive
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47517.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Northgard (2018) [Ru/Multi] (3.5.15.38668/dlc) Scene Tenoke [The Viking Age Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46789.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Regiments (2022) [Ru/Multi] (1.4.0S.1609/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46376.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45537.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Ed
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45372.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Regiments (2022) [Ru/Multi] (1.4.5/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45003.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44897.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.17.22308.0/dlc) Scene Tenoke [Pr
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44684.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Three Kingdoms: The Last Warlord / Три королевства: Последн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44355.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ StarCraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42905.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Scourge Of War - Remastered (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42894.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0) Scene FairLight
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42460.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack FitGirl [Deluxe Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42357.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42313.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42159.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42088.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42021.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B1EE41E0704A74A2A620301A26A072AE72C087D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752764   (41756) от 02.10.2024
-
-Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте страну и проведите свой народ сквозь века к вершинам прогресса. Расширяйте территории, развивайте культуру и доказывайте свое величие на полях сражений или в дипломатических спорах. Этот мир в ваших руках. Ara: History Untold - новая ступень в жанре исторической стратегии. Классические механики компьютерных стратегий сочетаются с такими инновациями, как (   Читать дальше...   )Тип издания: RepackРазработчик: Oxide GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECA02A431E4CDA017FB1A7696D1362106AF16C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754811   (40603) от 12.10.2024
-
-Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяжёлый воздух, наполненный тошнотворным запахом смерти, ни на секунду не позволяет забыть о царящем вокруг кошмаре. Улицы лежат в руинах, лишь шарканье шагов и стоны заражённых эхом разносятся между домами. Четверо случайных встречных, сведённых вместе стремлением выжить, вынуждены довериться друг другу и действовать сообща, чтобы спастись от разъярённых орд зомби. (   Читать дальше...   )Тип издания: SceneРазработчик: Snail BiteЖанр: Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C330CD7E9DE26958D9B83AF6E9179E3DE9E5412
 ```
 
 https://mybot314.ru/tekegram_catalog/

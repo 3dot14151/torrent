@@ -1,3 +1,32 @@
+###  Публикация: 1429303   (177707) от 05.12.2020
+
+Frostnatt - Når Vinteren Kommer (Nar Vinteren Kommer) (2020) EP [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Når Vinteren Kommer (5:02)
+02. Nordavind (5:06)
+03. Den Mørke Skogen (3:58)
+04. Iskald (5:59)(   Читать дальше...   )Жанр: Black Metal, Atmospheric Black MetalПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF93B0CD0DE9D146AF5F3C1463FD41BDF82C1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667273   (177699) от 07.10.2023
 
 Kadabra - Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <psychedelic rock, stoner rock, Spokane>
@@ -6,7 +35,7 @@ Kadabra - Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <psychedelic rock, stoner r
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177699.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Primal Fear - Apocalypse (2018) Bonus Track Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177693.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ As The Structure Fails - In Vain (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177689.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Keening - Little Bird (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177684.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ SolNegre - The Spiral Labyrinth (2023) [FLAC|Lossless|WEB-DL|tracks] <doom death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177681.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Lebowski - 2 Albums (2010-2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177680.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Dusk - Wheels of Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal, har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177675.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Enid - An Alternative History Volume One (1994) Remaster, Compilation, 2023,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177671.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Gothminister - Gothic Electronic Anthems (2003) [FLAC|Lossless|image + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177665.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Killer Be Killed - Reluctant Hero (2020) [FLAC|Lossless|image + .cue] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177662.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Gothminister - Happiness In Darkness (2008) [FLAC|Lossless|image + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177661.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Texas - Ricks Road (1993) Vertigo 518 252-2 [FLAC|Lossless|image + .cue]< Adult 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177658.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Bone Pixie - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Da
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177654.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Luca Brasi - The World Don’t Owe You Anything (2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177643.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Robert Plant - London FM 1983 (2020) live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177637.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Rave The Reqviem - EX​-​EDEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177619.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Stonemiller Inc. - Welcome To The Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177603.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Apotheus - Ergo Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177596.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Jon Anderson - Independent Stateside (1982) BROADCAST, 2023, Wickerman [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177574.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Ufo - Hot N’ Ready In Texas Live 1979 (2011) Remaster, 2023, Cleopatra Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177566.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Advent Horizon - A Cell To Call Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177532.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Smokie - Bright Lights & Back Alleys (1977) Ariola 261028 [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177531.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Van Halen - Dallas Live (1982) Broudcast, 2023, Golden Rain [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177481.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Creation's End - A New Beginning (2010) [WavPack|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177471.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Teach Me Violence - 2 Singles, 3 EP (2014-2022) [MP3|320 Kbps] <Dark Hardcore, M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177466.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Teach Me Violence - 2 Singles, 3 EP (2014-2022) [MP3|320 Kbps] <Dark Hardcore, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38A15D0805353F3D99D9F64E0E33F511F93031CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429340   (177463) от 05.12.2020
-
-VA - Best Of Rock 2020 [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Me At Six - Underdog (2:25)
-02. Rise Against - House On Fire (3:14)
-03. Royal Republic - Getting Along (2:17)
-04. The Killers - Caution - Radio Edit (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59FB495B911418E7C77FB9748AAF4ECDECED97A
 ```
 
 https://mybot314.ru/tekegram_catalog/

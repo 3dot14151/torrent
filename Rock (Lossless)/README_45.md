@@ -1,3 +1,119 @@
+###  Публикация: 1387996   (790125) от 04.06.2020
+
+The Stooges - Fun House (1970) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down On The Street (3:44)
+02. Loose (3:34)
+03. TV Eye (4:18)
+04. Dirt (7:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833E4460F543DF17D040EF3F26A02BB951453B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511026   (789758) от 19.11.2021
+
+Jimi Hendrix - 3 Albums (1972 - 1975) [FLAC|Lossless|tracks + .cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789758.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Message To Love 3:14
+2. Somewhere Over The Rainbow 3:31
+3. Crash Landing 4:16
+4. Come Down Hard On Me 3:17(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4833AC12C6CF3A4DDDA6763C746CBE776BC70D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511023   (789752) от 19.11.2021
+
+Janis Joplin - The Very Best  Of Janis Joplin (1988) [FLAC|Lossless|tracks + .cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And Bobby McGee
+02. Cry Baby
+03. Kozmic Blues
+04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D86ECD87F9424A95355A843586992E191208210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510908   (789733) от 19.11.2021
+
+Issa - Queen Of Broken Hearts (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels Calling (3:30)
+02. The Way Out (3:49)
+03. The Night It Rained Forever (3:39)
+04. I'm Here To Stay (3:49)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611FED632388D59F378A01E07465B8C5C072FA65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510957   (789729) от 19.11.2021
 
 Robert Plant & Alison Krauss - Raise The Roof (2021) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
@@ -6,7 +122,7 @@ Robert Plant & Alison Krauss - Raise The Roof (2021) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789729.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sting - The Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789700.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Rod Stewart - The Tears Of Hercules (2021) [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789650.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jerry Goodman - Violin Fantasy (2016) [FLAC|Lossless|tracks + .cue] <Instrumenta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789521.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Locate S,1 - Healing Contest (2018) [FLAC|Lossless|WEB-DL|tracks] <Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789490.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Toto - Old Is New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789392.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Booth And The Bad Angel - Booth And The Bad Angel (1996) [FLAC|Lossless|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788670.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ The Cardigans - First Band On The Moon (1996) [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788635.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Blackmore's Night - Secret Voyage (2008) [FLAC|Lossless|tracks + .cue] <Folk Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788585.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788414.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ New Candys - Bleeding Magenta (2017) [FLAC|Lossless|tracks + .cue] <Psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788177.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Blackmore's Night - All Our Yesterdays (2015) Deluxe Edition [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788139.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Peter Gabriel - Us (1993) [FLAC|Lossless|tracks + .cue] <Pop Rock, Art Rock, Dow
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788128.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Pink Floyd - Meddle (1971) 2011, Reissue, Remastered, EMI [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788118.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sting - The Bridge (2021) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop, Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787830.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ King Crimson - Music Is Our Friend (2021) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787373.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ Beth Hart - Live At The Royal Albert Hall (2018) 2CD [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787223.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ VA - Imagine: John Lennon 75th Birthday Concert (Live) (2019) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787212.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ Jeff Wayne - The War of the Worlds (1986) 2xCD, Reissue, Remastered [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787190.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ Bonnie Tyler - 3 Original Classics Box Set (1992) [FLAC|Lossless|image + .cue]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787104.jpg" />
 </div>
 
 
@@ -588,7 +704,7 @@ Deep Purple - Turning to Crime (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787090.jpg" />
 </div>
 
 
@@ -617,7 +733,7 @@ The Shocking Blue - Castle Master Collection (1990) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787084.jpg" />
 </div>
 
 
@@ -631,122 +747,6 @@ The Shocking Blue - Castle Master Collection (1990) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EDEDA86E20BD233339C40E54752DC9CFA2DB021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277155   (787012) от 19.01.2019
-
-Bay City Rollers - Best Of (1994) Series Music Reflexion [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Dancing
-02. Remember
-03. Shang A Lang
-04. Summerlove Sensation(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB4E8CC3E11D11DFFF194EA70409E053E3BB705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277199   (786984) от 19.01.2019
-
-John Paul Jones - 5 albums, 7 CD (1985-2010) [FLAC|Lossless|image + .cue] <Prog Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Пол Джонс (John Paul Jones; настоящее имя Джон Ри́чард Бо́лдуин (John Richard Baldwin); 3 января 1946 года, Сидкап (Кент, Англия) — британский музыкант-мультиинструменталист, музыкальный продюсер, композитор, аранжировщик. Наиболее известен как басист и клавишник группы Led Zeppelin. Из четверых участников Led Zeppelin Джон Пол Джонс менее прочих смахивал (   Читать дальше...   )Список альбомов:
-1985 | Scream For Help Sountrack
-1999 | Zooma
-2001 | The Thunderthief(   Читать дальше...   )Жанр: Prog Rock, Avantgarde, Experimental, Rock, Indie Rock |Продолжительность: 05:34:46 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560142FCA858B92F5BF35B4B06CFAD83F88C9972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277124   (786974) от 19.01.2019
-
-VA - Rock Legends vol.1: All-Time Greatest Rock Ballads (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Styx - Boat On The River
-02. Supertramp - Breakfast In America
-03. Status Quo - In The Army Now
-04. Eagles - Hotel California(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF54EAAEEA1264F818AA73327E9E52AC94262B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388028   (786891) от 05.06.2020
-
-Brian Eno - Here Come The Warm Jets (1973) Remastered 2004 [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Needle in the Camel's Eye (3:11)
-02. The Paw Paw Negro Blowtorch (3:05)
-03. Baby's On Fire (5:19)
-04. Cindy Tells Me (3:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DF40B0957DDFC66803C6DEBBCA837B525BBC03
 ```
 
 https://mybot314.ru/tekegram_catalog/

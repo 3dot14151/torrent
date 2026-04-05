@@ -1,3 +1,55 @@
+###  Публикация: 1328304   (304574) от 24.10.2019
+
+The Surge 2 (2019) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы выжить в The Surge 2, вам придётся исследовать каждый уголок Джерико — полуразрушенного города на грани гибели. Сражайтесь с опасными врагами, рвите их на части и забирайте их экипировку.Тип издания: RepackРазработчик: Deck13Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08767CF5DC84B069E69E39E677A975B8FC23C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130334   (302329) от 11.11.2018
+
+Crashlands (2016) [En/Ch] (1.4.6) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crashlands – ARPG с захватывающим сюжетом и возможностью создания предметов, действие которой происходит в чужеземном мире потаенной магии и высоких технологий. Вы – космический перевозчик Флакс Дейбс. Вашу последнюю поставку перехватил злобный пришелец по имени Хьюгодуко, а вы застряли на чужой планете. Попытка вернуть груз втягивает вас в мерзкие планы по захвату (   Читать дальше...   )Тип издания: LicenseРазработчик: Butterscotch ShenanigansЖанр: Strategy (Manage, Busin., Real-time), RPG (Rogue,Action), Top-downЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925EEC391E91ED4B6A11399B13735F4E062F4D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121360   (302328) от 11.11.2018
 
 Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph1 [Game of the Year Edition]
@@ -6,7 +58,7 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302328.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tyranny (2016) [Ru/Multi] (1.2.1.0160/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300369.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300349.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.7.0.1280/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298528.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sword Art Online: Lost Song (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298338.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297417.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296494.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Blackguards (2014) [Ru/Multi] (1.6/dlc) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294627.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294574.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/En] (1.0) Repack xa
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294353.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ DRAGON QUEST HEROES™ Slime Edition (2015) [En/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294266.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dungeon Souls (2016) [En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293449.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292749.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack xatab [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292592.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290760.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289163.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Dragon Age: Origins / Эпоха Дракона: Начало (2009) [Ru/En] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288858.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Monster Hunter Stories 2 Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_287030.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Sacred / Князь тьмы (2004) [Ru/En] (2.28/dlc) License GOG [Gold Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285394.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Albion (1995) [Multi] (1.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285370.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Nioh (2017) [Ru/Multi] (1.21.02/dlc) Repack R.G. Revenants [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285203.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285199.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285191.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281969.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12F79468324673B43209C32C86E724DADB1A98E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336019   (281789) от 05.11.2019
-
-The Outer Worlds (2019) [Ru/Multi] (1.0) Repack R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281789.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Outer Worlds — новая однопользовательская научно-фантастическая ролевая игра с видом от первого лица, над которой работают Obsidian Entertainment и Private Division. В The Outer Worlds вы пробуждаетесь после гибернации на корабле поселенцев, пропавшем по пути к Альциону — самой дальней земной колонии на краю галактики. Вы оказываетесь в центре масштабного заговора, (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: RPG, Adventure, Sci-fi, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529A3352ACA042B2F50C46F2040BA31339C81109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187140   (281625) от 27.11.2017
-
-Nox (2000) [En] (1.2) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходное сочетание жанров боевика и ролевой игры с уникальным игровым процессом. Ваше имя – Джек Моэур; вы жили себе в XX веке... пока в один прекрасный день телевизор не затянул вас в мир Nox. Мир этот, конечно же, в опасности. Прежде чем ринуться на его спасение, выберите путь воина, мага или заклинателя. Выбрав путь воина, вы сможете пользоваться любыми типами (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49CC6742991C426339CF3C0F005AEF6A4C968DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

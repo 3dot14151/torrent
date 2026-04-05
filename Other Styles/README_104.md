@@ -1,3 +1,61 @@
+###  Публикация: 1055340   (488259) от 22.09.2016
+
+Nicholas Gunn - Under the Influence of Music:The Complete Series (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inception (01:18)
+02. Beauty (04:24)
+03. Nature (06:08)
+04. Love (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95281207FBDE2B0C8EAD12EAD12FDE952CE095B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937379   (487953) от 15.09.2015
+
+Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hartnoll - Where Do You Want to Begin? (01:40)
+02. Marcelo Zarvos - Hawaii (01:29)
+03. Marcelo Zarvos - Rivalry Call (01:17)
+04. Paul Hartnoll - Killing Time (01:08)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89640AF4DE6BA94869AF10880847526F95522A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159114   (487892) от 18.08.2017
 
 Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
@@ -6,7 +64,7 @@ Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487892.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Estas Tonne, ONE Heart Family - Mother of Souls (2016) [FLAC|Lossless|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487872.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487735.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487725.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487329.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487020.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486809.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Billy Vaughn - 3 альбома (1987-2005) [FLAC|Lossless]<Instrumental | Orche
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486725.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyb
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486692.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Various Artists - Sucker Punch (2011) Original Motion Picture Soundtrack [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486322.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486247.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486129.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486109.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Borneo - Heart of Borneo - Spa and Relaxation (Instrumental) (2016) [MP3|320 Kbp
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485998.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485992.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Frank Duval - Meine Schonsten Erfolge (1991) [FLAC|Lossless|image + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485900.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Delerium - Mythologie (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485668.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484104.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484053.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483803.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Elec
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483741.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Left
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483701.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483655.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483491.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59045AFFE964C75629B06EB508B90685E8D2E698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056006   (483293) от 24.09.2016
-
-Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered [MP3|320 Kbps] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Around (Northern Lights Club Mix) (Remastered 2016) (10:28)
-02. Age Of Loneliness (Enigmatic Club Mix) (Remastered 2016) (6:15)
-03. Push The Limits (ATB Remix) (Remastered 2016) (7:51)
-04. Gravity Of Love (Judgement Day Club Mix) (Remastered 2016) (5:59)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3B744D8EFDE4A04DE73F0250D5DB98AE5B531B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609538   (483286) от 24.09.2016
-
-VA - Сестры (музыка к фильму) (2001) [FLAC|Lossless|image + .cue] <Soundtrack, Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Агата Кристи - Пуля (3:01)
-02. Кино - Кукушка (6:12)
-03. Кино - Спокойная ночь (6:09)
-04. Агата Кристи - Ein Zwei Drei Waltz (4:42)(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D42CA5B4958AE89E25D88E40E2ABBEF7D3C7A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

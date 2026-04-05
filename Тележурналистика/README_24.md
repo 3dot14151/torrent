@@ -1,29 +1,3 @@
-###  Публикация: 1005735   (832842) от 09.04.2016
-
-Вести в субботу с Сергеем Брилевым (09.04.2016) HDTVRip [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832842.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом выпуске "Вестей в субботу" кроме самых актуальных и интересных новостей дня зрители смогут увидеть интервью Сергея Брилева с первыми лицами России и зарубежья.В этом выпуске: Освобождение американца, который сидел в Сирии с 2012 года. Как помогла Россия? Новые успехи сирийской правительственной армии. Падение автобуса в пропасть в Перу. Что случилось? Завершение гастролей александрийского театра в Москве. Дальний восток: предпаводковые тренировки в Якутии. Возвращение после 11-месячного плавания плавбазы "Владивосток". Что за (   Читать дальше...   )Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B92585FDCD4D94BBE5450F2C26212ADAB79BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005645   (832717) от 09.04.2016
 
 Новые русские сенсации. Приговор Саакашвили (2016.04.09) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832717.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832464.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831957.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831761.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831202.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831200.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831199.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831195.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831192.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831055.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831017.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830924.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830809.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830806.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_830025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830025.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829894.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829354.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829313.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829249.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829192.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829117.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828885.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828784.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827255.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827214.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D4976F261E2EE64E5FF8AA2DE74CC0093A6F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006794   (826988) от 12.04.2016
+
+Вести.Doc с Ольгой Скабеевой. "Майдан-поле". Фильм Александра Рогаткина (12.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый информационно-документальный проект - это не просто политическое ток-шоу. "Вести.doc" - это возможность увидеть самые громкие документальные премьеры - в первую очередь качественный продукт. В программе сенсационные расследования и вдумчивый анализ событий.В этом выпуске: Украинский кульбит: зачем в Раде меняют шило на мыло? Ждать ли перезагрузки в официальной политике Киева? Кто достроит знаменитую "Стену "и докопает противотанковый ров? А также документальный фильм Александра Рогаткина, как начиналась трагедия на Майдане.Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1623954C5828FEB0432677EF0EB1618967368BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

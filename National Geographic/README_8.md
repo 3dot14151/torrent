@@ -6,7 +6,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774937.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Рожденные в Африке. Опасная игровая площ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774233.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG: C точки зрения науки: Вымирание человечес�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774226.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NGW: Дикая Корея. За границей / Wild Korea. Voice of nature 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774150.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772812.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_771148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_771148.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771113.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NG. Комета века / Comet of the century (2013) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770114.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG: Королевство белого волка / Kingdom of The White Wolf (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769659.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768738.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG. Тайны истории: Бостонский душитель / The Hunt 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768355.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NG. Тайны истории. Эксперименты ЦРУ / CIA Secret Expe
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768326.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NG. Тайны истории: Ди Би Купер. Сбежавший терр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768316.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Затерянные сокровища змеиных царей майя /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767301.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG: Джейн / Jane (2017) IPTVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767228.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Nat Geo Wild: Потерянные миры Индии / India's Lost Worlds (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766148.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG. Тайны истории: Джордж Вашингтон / The Real George
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766128.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NG: Откуда берутся диктаторы / Making a Dictator (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766108.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765965.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765961.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NGW: Рожденные в Африке. Уроки охоты / Born in Africa 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765398.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NGW: Дикая Ботсвана / Wild Botswana (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765396.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765395.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765333.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765249.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765087.jpg" />
 </div>
 
 

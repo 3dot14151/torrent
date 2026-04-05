@@ -1,3 +1,107 @@
+###  Публикация: 1665382   (182062) от 30.09.2023
+
+Радио Онлайн Zaycev.FM v3.1.9 Mod by KitKat [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zaycev.fm - приложение онлайн радио, которое открывает радио заново!Тип издания: PremiumРелиз состоялся: 22.09.2023Разработчик: Zaycev.NetПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9214D83652E2D1B46A4C5408CE7B9AC9BC408EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665372   (182017) от 30.09.2023
+
+Научный калькулятор 991 плюс / Scientific Calculator 991 v6.6.3.674 Mod by Timozhai [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научный калькулятор 300 es plus, 991 ex - калькулятор для студентов и студентов инженерных специальностей. Калькулятор 991 es plus предоставляет мощные функции в реальном калькуляторе 991 ex 300 ex. Это делает продвинутый калькулятор 991 ex самым полезным калькулятором для университета и школы.Тип издания: ProРелиз состоялся: 10.09.2923Разработчик: Tools for studentПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427644   (182002) от 29.11.2020
+
+AudioBaby - Детские аудиосказки, музыка, диафильмы v4.8 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182002.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioBaby - Детские аудиосказки, музыка, диафильмы - БОЛЕЕ 3,000 ИЗВЕСТНЫХ ДЕТСКИХ СКАЗОК ДЛЯ ВСЕХ ВОЗРАСТОВ! СОХРАНИТЕ СКАЗКУ И СЛУШАЙТЕ БЕЗ ПОДКЛЮЧЕНИЯ К ИНТЕРНЕТУ.Тип издания: ПираткаРелиз состоялся: 27 апреля 2020 г.Разработчик: KinKin LtdПоддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5009DA1430592F266E5DAFCE04F466B9FA4FDB48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665367   (181978) от 30.09.2023
+
+Узлы 3D / Knots 3D v8.3.7 Paid [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завязывайте, развязывайте и вращайте пальцем более 180 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Paid / FullРелиз состоялся: 29.09.2023Разработчик: Nynix LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663949   (181911) от 30.09.2023
 
 WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
@@ -6,7 +110,7 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181911.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181564.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181539.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181520.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181442.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181293.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181236.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181156.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Portal v78 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181136.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ QuickEdit Text Editor Pro 1.9.7 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181058.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Code Editor Pro 0.7.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181028.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180955.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Colorize - Color to Old Photos v3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180884.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Leo's Fortune v1.0.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180476.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Sleep Timer v22.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180405.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_179866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179866.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ WeatherPro: прогноз погоды 5.6.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179683.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179030.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Mult
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178957.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178956.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Half-Life 2: Эпизод первый v78 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178693.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Calm - Sleep, Meditate, Relax 6.12.2 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178624.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Calm - Sleep, Meditate, Relax - простое приложение, не тре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7DF5382998E3CAD9404DF3AB72B252FD74F97AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594210   (178535) от 30.11.2022
-
-Monefy Pro - Трекер бюджета 1.15.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monefy Pro - Трекер бюджета - программа для учёта финансов. Она подойдёт для отслеживания денежных потоков для одного человека или семьи средних размеров по численности. Статьи поступления и расхода разделённые по разным категориям, сферам и направлениям помогут не запутаться и получать только правильное представление о существующей картине в кошельке. Даже если (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 29.11.2021Разработчик: ReflectlyПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663B261EE495BC5ED22D253C2202013975BE9C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594314   (178492) от 30.11.2022
-
-Olauncher 3.5.6 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Olauncher - это минималистичный лаунчер без рекламы, который уважает вашу конфиденциальность. Это приложение избавит вас от отвлекающих факторов, чтобы вы могли сосредоточиться на действительно важных вещах. Вы должны использовать свой телефон, а не наоборот.Тип издания: FreeРелиз состоялся: 11.11.2022Разработчик: tanujnotesПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский, Французский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975CB22E10B57E47A561361ED2F430CD7C9B5C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594357   (178432) от 30.11.2022
-
-Точная погода YoWindow Pro 2.35.17 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178432.jpg" />
-</div>
-
-
-###  Подробнее
-
-YoWindow - это нестандартная но очень удобная погодная программа. Секрет YoWindow - живой пейзаж отражающий настоящую погоду. Например, если погода дождливая - в YoWindow идет дождь. Солнце в YoWindow восходит и садится в то же время, что и в реальной жизни. Но главное - это возможность прокрутить время вперед. Для этого достаточно просто провести пальцем по экрану (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 11.11.2022Разработчик: RepkaSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E4143E7D7EB128DF856345421153384ACA7E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594333   (178410) от 30.11.2022
-
-Slaughter 1.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит побывать в шкуре Рассела - наемника, который попал в плен в городе, населенном одними психопатами! Перед ним долгий путь к свободе, лежащий через тёмные улицы заброшенного городка. Берите в руки пушку и вперед - прорываться через орды отъявленных психов и устрашающих боссов!Тип издания: PaidРелиз состоялся: 11.07.2019Разработчик: Ray SparkПоддерживаемая ОС: Android 4.1+Жанр: Action, Adventures, ShooterЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC74E8CAE74459B8511AF45DB49ABDFB4387332C
 ```
 
 https://mybot314.ru/tekegram_catalog/

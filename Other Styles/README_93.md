@@ -1,3 +1,61 @@
+###  Публикация: 1045792   (556675) от 25.08.2016
+
+Kyle Dixon & Michael Stein - Stranger Things / Очень странные дела, Vol. 2 (A Netflix Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hopper Sneaks In (01:39)
+02. I Know What I Saw (02:44)
+03. Rolling Out the Pool (01:13)
+04. Over (01:39)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4320261796528C2488FE44EC162EA377D653D716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556663   (556519) от 12.06.2022
+
+Schandmaul - Knüppel aus dem Sack (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knüppel aus dem Sack (4:30)
+02. Königsgarde (3:31)
+03. Das Gerücht (2:47)
+04. Der Pfeifer (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41229C7481D8D15A8F7CED1F46421D6B889D7DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556667   (556475) от 12.06.2022
 
 Satyricon - Satyricon & Munch (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Ambient, Instrumental>
@@ -6,7 +64,7 @@ Satyricon - Satyricon & Munch (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Ambien
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556475.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Piano Peace - Piano Study Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556268.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556262.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011)
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556144.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Cou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556142.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556132.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Yulia Monastyrenko - 140 Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556087.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Latina Fever (2019) 4CD [MP3|320 Kbps] <Latin>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555904.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Инструментальные хиты кино (2004) [FLAC|Lossless|im
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555896.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Spencer Lewis - Riffs on a Broad Reach (2019) [FLAC|Lossless|tracks + .cue] <Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555681.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Hildur Guðnadóttir (Hildur Gudnadottir) - Chernobyl (Music From The Original T
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555502.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Over the Rhine - Love & Revelation (2019) [FLAC|Lossless|tracks + .cue] <Folk Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555476.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555337.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, I
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555220.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555173.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Armik - Alchemy (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Flamenco
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555013.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Unto Ashes - Burials Foretold (2012) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554900.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Unto Ashes - Pretty Haunted Things (2019) [FLAC|Lossless|WEB-DL|tracks] <Neofolk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554885.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Lewellynl - Reiki Gold 2 (2018) [MP3|320 Kbps] <New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554451.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Piano Peace - Piano Sleep Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554444.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554182.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554176.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Piano Peace - Sleep Piano Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554027.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Calexico & Iron & Wine - Years to Burn (2019) [FLAC|Lossless|WEB-DL|tracks] <Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553723.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Calexico & Iron & Wine - Years to Burn (2019) [FLAC|Lossless|WEB-DL|tracks] <Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFE06D5E6076553A4F4B579A141F7CEC4F4B3FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308200   (553528) от 16.06.2019
-
-Jeff Scroggins & Colorado - Over the Line (2019) [FLAC|Lossless|tracks + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Train (03:10)
-02. Piney River Girl (03:36)
-03. Curse the Ohio (02:46)
-04. Darcy Farrow (03:58)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54839A98CA384B9D8F01E9253A9B5A7195425559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045968   (552964) от 26.08.2016
-
-Valley - Original Soundtrack (2016) [FLAC|Lossless|tracks] <Score,  Orchestral>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Recollections (04:10)
-02. Ancient Voices (03:12)
-03. Warm Waves of Happiness (02:23)
-04. Life Yet in These Metal Bones (01:58)(   Читать дальше...   )Жанр: Score,  OrchestralПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92488F0061A35C6DDF0CFCFB2B06B59A12F21334
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ MassTube Ultra 21.0.0.157 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5719.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Pro 2025.001.20643 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5619.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Premiere Pro 2025 25.4.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5615.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MAX Desktop 25.8.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5600.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ OneCommander Pro 3.100.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5599.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Media Encoder 2025 25.4.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5584.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Opera One 121.0.5600.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5583.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ W10Privacy 5.2.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5581.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Vivaldi 7.5.3735.66 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5562.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Chromium 139.0.7258.155 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5552.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ IObit Uninstaller Pro 15.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5550.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Kdenlive 25.08.0 + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5548.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ YT Downloader 9.16.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5546.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5545.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Any Video Downloader Pro 9.5.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5541.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Bandicam 8.2.1.2529  RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5533.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Fan Control V234 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5398.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Imagine 2.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5397.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ MyLanViewer 6.5.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5390.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ StartAllBack 3.9.14 build 5303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5384.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ iDownerGo Video Downloader 10.7.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5375.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ MAX Desktop 25.8.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5287.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ StartAllBack 3.9.14 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5271.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PDF-XChange Editor Plus 10.7.1.399 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5258.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Bandicam 8.2.1.2530  RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5252.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ PDF-XChange PRO 10.7.1.399 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5246.jpg" />
 </div>
 
 

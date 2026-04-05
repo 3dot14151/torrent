@@ -1,3 +1,29 @@
+###  Публикация: 1569994   (241304) от 15.08.2022
+
+SideFX, Adrien Lambert | Ultimate Terrain Workflow (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я много экспериментировал с Houdini для своего короткометражного фильма. Я так много узнал, что решил поделиться серией уроков об окружающей среде и о том, почему бы вам не заинтересоваться созданием ландшафта в Houdini!Производство: SideFXЖанр: Houdini 18Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8927782C7EC8B8202B903807EE69ED3A3F0214DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569995   (241283) от 15.08.2022
 
 SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PCRec [EN, RU]
@@ -6,7 +32,7 @@ SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241283.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Zenja Gammer, Zenzcourses | Photoshop Digital Art Bundle By Zenja Gammer (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241089.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Substance Academy, Nikola Damjanov | Tree Bark with Nikola Damjanov (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240752.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Yiihuu, Mrousix | Product Animation. Design 3D Product (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240649.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Wingfox, Job Menting | Creating a Cyberpunk City with C4D and PS (2021) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240616.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Yiihuu, Yang Fan | Super Dynamic Designer (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240414.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Artstation Learning, Javier Perez | Substance Designer: 10 Most Useful Nodes (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240403.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Schoolism, Scott Robertson | Rendering Reflective Surfaces (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240385.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240212.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Proprofiling, Алексей Филатов | Профайлинг для нач
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240132.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Rebelway, JAMES HODGART | Mastering Environment creation in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239575.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239567.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239473.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ SideFX, Arise.Works | Houdini Clouds with VOPs (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239290.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239229.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ The Gnomon Workshop, Patrick Przybyla | Creating a Combat Finishing Takedown Wit
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239018.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Udemy, Jose Moreno | Substance Designer 2020: Stylized Material Creation PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238902.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ mj_home.kz | Курс по гипсу "От и до" (2022) WEB-DL [AD] [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238855.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238846.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Proprofiling, Алексей Филатов | Нейромаркетинг и п
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238767.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238640.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 3 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238634.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ ArtStation, Tyler Smith | UE4 VFX Ocean Material Tutorial (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238618.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ CGcircuit, Steven Knipping | Applied Houdini Rigids II version 2.0 (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238607.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ Gumroad, Lance Wilkinson | Keyshot Passes and Photoshop Composite (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238515.jpg" />
 </div>
 
 
@@ -661,35 +687,6 @@ Gumroad, Lance Wilkinson | Keyshot Passes and Photoshop Composite (2017) PCRec [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2D64674DBB72035BECBED2BECC0BB53E35D2778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628882   (238497) от 24.04.2023
-
-Ольга Базанова | Сочный десерт (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что Вы получаете приобретая мастер-класс:
-- Видео запись того, как Ольга Базанова пишет картину с подробными объяснениями, как это делать
-
-Вы научитесь:(   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:32:34Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434A065120C11603B3BEBEEAF5ECFCCBB7F9634B
 ```
 
 https://mybot314.ru/tekegram_catalog/

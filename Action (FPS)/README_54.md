@@ -1,3 +1,55 @@
+###  Публикация: 1703157   (17742) от 20.05.2025
+
+Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Extras Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива. Вы скиталец, которому по силам решить судьбу Города, но ваши исключительные способности имеют (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Action, RPG, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C49D65BF846504B18FA623D369326A7DE0B194A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758006   (17721) от 20.05.2025
+
+Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пристегните ремни, потому что эта игра бросит вас с головой в мрачную подноготную города, кишащего преступностью. Вы не какой-то там мелкий бандит, вы - криминальный авторитет, жаждущий власти. Продуманные ограбления, напряженные решения и перехитрить всех. Однопользовательская кампания - это ваше личное восхождение к славе. Каждый ваш шаг - подбор команды, обследование (   Читать дальше...   )Тип издания: RepackРазработчик: INGAME STUDIOSЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D2D19C0C3891CBFD80A96DB5C56B3637520331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798120   (17720) от 20.05.2025
 
 S.T.A.L.K.E.R. Legends of the Zone Trilogy: Shadow of Chornobyl, Clear Sky, Call of Prypiat (2025) [Ru/Multi] (Build 18465678/Build 18465670/Build 18465660) Scene Rune [Enhanced Edition]
@@ -6,7 +58,7 @@ S.T.A.L.K.E.R. Legends of the Zone Trilogy: Shadow of Chornobyl, Clear Sky, Call
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17720.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17640.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17571.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Wizordum (2023) [Ru/En] (1.0.06.3) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17327.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Brass Brigade (2019) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17271.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17156.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16795.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16629.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Atomic Heart (2023) [Ru/Multi] (Dev Build) Repack Chovka
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16488.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16310.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.9/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15688.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Roboquest (2020) [Ru/Multi] (51755 build 651/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15514.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1-51755) Repack Let'sРlay [Digital Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15503.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Dying Light 2: Stay Human (2022) [En] (1.22.4/dlc) Scene Tenoke [Reloaded Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15403.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14686.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Far Cry 2 (2008) [Ru] (1.03) Repack EXROW [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14343.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack FitGirl [Complete Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14268.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack seleZen [Complete Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14260.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12.0/dlc) Repack Other s [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14257.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Call of Duty: WWII (WW2) (2017) [Ru/En] (1.25.2244937.32767.0/dlc) Repack Decept
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14253.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Viscerafest (2021) [Ru/Multi] (1.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14025.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13763.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13637.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack EXROW [Gold Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13428.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DB1B80A8435C323A15C0C19B6DFF2EC4DBBDFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804064   (13340) от 27.06.2025
-
-NEDRA (2025) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ледяных пустошах Антарктики заброшенная советская станция скрывает древнее, внеземное присутствие. Когда сигнал SOS привлекает экспедицию к таинственному кратеру, происходит катастрофа, и вы оказываетесь в ловушке на протяжении шестимесячной полярной ночи. Борьба за выживание начинается, когда вы находите убежище на станции, где вам предстоит раскрыть её ужасающие (   Читать дальше...   )Тип издания: RepackРазработчик: Davit AndreasyanЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E58D38BE6397911C78D624D2B2D21A60C7B234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804123   (13324) от 27.06.2025
-
-S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля (2007) [Ru] (1.0006) Repack EXROW
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постапокалиптический шутер с ролевыми элементами и видом от первого лица. События разворачиваются в альтернативной вселенной, где 12 апреля 2006 года в 14:33 на территории Чернобыльской атомной электростанции, произошёл взрыв неизвестной природы. Случившееся привело к возникновению «Зоны» на просторах которой появились невиданные артефакты и разнообразные аномальные (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Шутер от первого лица, Ролевая играЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB132E1C27CA09FA114BF48D8B4450D4211C46C
 ```
 
 https://mybot314.ru/tekegram_catalog/

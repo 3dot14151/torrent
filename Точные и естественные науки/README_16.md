@@ -1,3 +1,81 @@
+###  Публикация: 907828   (635971) от 13.06.2015
+
+В. Брэгг | Мир света (1935) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей книга взначительной степени заполняет пробел, существующий в научно-популярной литературе по физике. Блестящий стиль, отличающий все произведения автора, уже известные нашему читателю, делает эту популярную книгу интересной и для специалистов.Жанр: Физика, ОптикаПеревод: В. ПульверФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCE195C4ADB396B617D10091747335CCAFE9B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907985   (635569) от 13.06.2015
+
+Ж.-И. Кусто, И. Паккале | Лососи, бобры, каланы (1983) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие книги разворачивается на Великом Севере — на Аляске, в Канаде, на острове Кадьяк и у берегов Калифорнии. Французские исследователи погружались в ледяные воды озера Фрезер и водопадов Аляски, чтобы зафиксировать на пленке миграционный ход лососей; зимовали вместе с бобрами на севере Канады; наблюдали и снимали на пленку уникальное морское млекопитающее — (   Читать дальше...   )Жанр: Зоология, экологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F87254573EFD5CEBF22526702E401AAEAB47858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228346   (635429) от 01.06.2018
+
+Сергей Ястребов | От атомов к древу. Введение в современную науку о жизни (2018) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из чего состоят живые тела и при чем тут углерод? Что такое генетический код, кто такие вирусы, как устроено эволюционное древо и почему произошел кембрийский взрыв? Предлагаемая книга дает актуальные ответы на эти и многие другие вопросы. «Фокусом» рассказа служит эволюция жизни на Земле: автор считает, что только под этим углом зрения самые разные биологические (   Читать дальше...   )Жанр: БиологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62084B41B8CBC6B95508E3A047CA242FFB5C0B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228504   (635427) от 01.06.2018
 
 Андрей Журавлев | Сотворение Земли. Как живые организмы создали наш мир (2018) [PDF]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635427.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632229.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632059.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628338.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624087.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624074.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623945.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623934.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623850.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623841.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621910.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621563.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619839.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619612.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619006.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616192.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616063.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613765.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613313.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612443.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612436.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610692.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610307.jpg" />
 </div>
 
 
@@ -602,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F3609D2E55FF440232896DA5B6A3D804EA2B6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147510   (609252) от 02.07.2017
-
-П. В. Албычев | Самодельные приборы по физике [Часть 1] (1950) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609252.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даны указания, как изготовить в школьном кружке самодельные физические приборы и как ими пользоваться. Книга содержит следующие главы: Измерительные приборы (с включением геодезических), Приборы по механике (с включением рецептов изготовления механических игрушек), Приборы, демонстрирующие колебания и волны (с включением приборов по акустике), Приборы по (   Читать дальше...   )Жанр: История, науковедение, физика, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EBE82476FCB253434B1CD59F7201E96B852AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912334   (609225) от 27.06.2015
-
-И. М. Распопов и др. | Ладога (1969) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о географических и климатических особенностях Ладоги - одного из самых крупных озер севера России. В книге затронута история приладожских земель и главные достопримечательности этих мест.Жанр: Естественные науки, Науки о ЗемлеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08E6A9D92B1A8DD50828C0E70DCC86AF03E4E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912960   (609006) от 27.06.2015
-
-Э. Шеклтон | В сердце Антарктики (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Написанная популярным языком, книга «В сердце Антарктики» содержит интересные и ценные сведения об особенностях природы и животного мира южного полярного континента. Эта познавательность в сочетании с описаниями множества захватывающих опасных приключений, пережитых путешественниками на суше, на глетчерных льдах и в морях Антарктики, делает труд Э. Шеклтона одним (   Читать дальше...   )Жанр: Биографии и Мемуары, Документальная литература, ГеографияПеревод: Петр Шмидт, А. Бурашко, В. Житомирский, З. ЖитомирскаяФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B287E1E55A74BDFF288BFDF708D7AB50D0F70B
 ```
 
 https://mybot314.ru/tekegram_catalog/

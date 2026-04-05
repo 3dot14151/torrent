@@ -1,3 +1,119 @@
+###  Публикация: 1791528   (21421) от 14.04.2025
+
+VA - Chillout Music Essential Selections (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klasse XXI - Sweet Confessions (04:20)
+02. Gazdabolt - Plot-Twist (04:24)
+03. Kusuma Orchestra - Hazy Reveries (04:15)
+04. Lusser - Visual Swing (04:24)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED723AE50E45DC770680326FD3FA87EFF9120C52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791453   (21410) от 14.04.2025
+
+The Relaxation Hub - 6 Albums (2023-2025) [MP3|320 Kbps] <Relaxation>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Winter's Serenity: Cold River  Serenades
+2024 - Ocean Sounds: Relaxing Meditation Music
+2025 - Moments of Relaxation: Gentle Musical Flow(   Читать дальше...   )Жанр: RelaxationПродолжительность: 6 CD, 03:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677445C63106BD512E4529D21F510F01E30EA667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791433   (21409) от 14.04.2025
+
+VA - Relaxation Hub, Vol.1-4 (2024-2025) [MP3|320 Kbps] <Relaxation>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2024 - Relaxation Hub, Vol. 1
+2024 - Relaxation Hub, Vol. 2
+2025 - Relaxation Hub, Vol. 3(   Читать дальше...   )Жанр: RelaxationПродолжительность: 4 CD, 09:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC65663C48654D6CAC832142572A686CB968702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792038   (21237) от 16.04.2025
+
+Tiesto - Live @ Quasar Stage, Coachella Festival Weekend 1, United States (2025-04-13) [MP3|320 Kbps] <Dance, Electro Pop, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - ID
+02. Tiësto - ID w/Cannons - Fire For You (Acappella)
+03. Tiësto - ID
+04. The Marías - No One Noticed (Tiësto Remix)(   Читать дальше...   )Жанр: Dance, Electro Pop, Melodic House, TechnoПродолжительность: 01:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D888C002D9AFF855F6FB6F25B2148B111E5EB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792045   (21211) от 16.04.2025
 
 Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [MP3|320 Kbps] <Tech House, Melodic House/Techno>
@@ -6,7 +122,7 @@ Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21211.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ DJ Suhov - Fantazia Mix (2004) Promo CD [MP3|image+*.CUE|320 Kbps] <House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21203.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Armin van Buuren - A State Of Trance 1221 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21013.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Psyclon Nine - And Then Oblivion (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark-Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21011.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Tibetania Gold 2022 (Selected by Salvo Migliorini) (Tibetania Records) [FLA
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21004.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Black Hole Trance Music 04-25 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20907.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Tomorrowland Winter (2025) [MP3|320 Kbps] <Trance, Tech House, Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20903.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Sonic Space, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Music, Ambi
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20712.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Rated Revisited Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20694.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Erasure - Don't Say You Love Me (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20687.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Erasure - Make Me Smile (Come Up and See Me) (2003) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20678.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20386.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Kontor Sunset Chill 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20381.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20374.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20280.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Italian Restaurant Chill Music Vol. 2 (Beats to relax) (2022) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20278.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Golden Hour Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20161.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Trance Top 100, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19861.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Summer Pool Party 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19842.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Chill Out Tempel (Ambient Chill Out Tunes), Vol. 2 (2025) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19765.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19764.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Chill Electronica (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19763.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Chill Electronica (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A609172393E02E7FE77D2B93D6960D57296672EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662867   (19654) от 01.05.2025
-
-VA - So you... (Mixed and compiled by Kaatée) (2022) [MP3|320 Kbps] <Deep House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikhail Kobzar & Fillimonov - Morning Sara (4:12)
-02. YoD. Beresnev - Bed-Hero (3:23)
-03. Leonardo Gonnelli & Forrest. - Back To You (2:52)
-04. IamX, Leefa The Dj - Touch Your Heart (4:56)(   Читать дальше...   )Жанр: Deep House, TechnoПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170B181748B23918E46B10A4104B1AA9FBAF5A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794974   (19570) от 02.05.2025
-
-Markus Schulz - The Rabbit Hole Circus (Extended Mixes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & HALIENE - Death of a Star (Extended Mix) (04:44)
-02. Markus Schulz & Melody Mane - Stay Gold (Extended Mix) (06:43)
-03. Markus Schulz & Sarah De Warren - Light On (Extended Mix) (06:27)
-04. Markus Schulz & Diandra Faye - Eternally feat. Diandra Faye (Extended Mix) (07:59)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA59038D2484AE1E6A05AD411FA88169F9127442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794981   (19562) от 02.05.2025
-
-Blacktree - The Sexual Revolution (2015) [FLAC|Lossless|image + .cue] <Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan Bodzin - Odyssee (D-Nox & Beckers Remix) [2015, Herzblut Recordings]
-02. Justus Kohncke - Loop [2013, Kompakt]
-03. Bjorn Storig - The Return of the Trompetenfrosch [2012, Stil Vor Talent]
-04. Animal Trainer feat. Jan Blomqvist - Keep Control (Nicone & Sascha Braemer Remix) [2014, Stil Vor Talent](   Читать дальше...   )Жанр: Deep House, TechnoПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0ED357E9C3326EDADD13EFD8CC845F70EA00BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795065   (19560) от 02.05.2025
-
-VA - Armin van Buuren - A State Of Trance 1223 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorz ft. Adriana Stone - Lost In You (Progressive Pick)
-02. Cubicore - Silent Night
-03. AVIRA & Ennea - This Is The Meta
-04. Dan Stone - Connection(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637B8DE87CC3EA70A2521CD5C0B4F4C3508058C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

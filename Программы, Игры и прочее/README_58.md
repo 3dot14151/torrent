@@ -1,3 +1,107 @@
+###  Публикация: 1402582   (699248) от 15.08.2020
+
+BitVPN - Fast VPN Proxy Master v1.3.2 [En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699248.jpg" />
+</div>
+
+
+###  Подробнее
+
+BitVPN является одним из лучших неограниченных прокси-серверов VPN для частного и безопасного доступа в Интернет без каких-либо ограничений. Много серверов различных стран, в том числе и России!Тип издания: Пиратка (открыт Premium)Релиз состоялся: 07.08.2020Разработчик: TOP Blockchain Crypto Wallet Exchange App LtdПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF3980C6A590366D0B729894D02A75E53BBBC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220706   (698400) от 22.04.2018
+
+LocalAPK 2.1.1 RePack by Alex Zaguzin [Ru]
+
+>>Программы, Игры и прочее
+>>Вспомогательное ПО для др. мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698400.jpg" />
+</div>
+
+
+###  Подробнее
+
+LocalAPK - это Windows программа - органайзер для управления коллекцией ваших APK файлов. Позволяет проверять новые версии программ и игр в Google Play, удалять устаревшие версии, переименовывать их, а также отправлять на устройство через генерацию QR кода. См. скриншоты программы. Также может интегрироваться в систему и показывать подробные данные о файле APK (4 (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0828CBE4B7A2C82AAA1CFBBE84A7A2B81B89E407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064395   (698398) от 22.04.2018
+
+Региональные монеты v2.0 Full [Ru] - региональные монеты царского периода России (Царская Финляндия, Польша и др.)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение-справочник послужит хорошим инструментом как для нумизматов, так и для людей увлекающихся кладоискательством. Каталог содержит региональные монеты царского периода России (Царская Финляндия, Польша и др.).Тип издания: Пиратка (Full)Релиз состоялся: 26.01.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D5D4175FCD5A9BF1AB69870BBD592B4BDAACDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220735   (698282) от 22.04.2018
+
+Rom Helper 18.0.1711.01 RePack by Alex Zaguzin [Ru/Cn]
+
+>>Программы, Игры и прочее
+>>Вспомогательное ПО для др. мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная программа для редактирования образов прошивок для устройств на базе Android от китайских товарищей.Язык интерфейса: Русский/Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB7D8B248AFAA4D3DA9CD450785E9AFA4B40907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064379   (698273) от 22.04.2018
 
 Драгоценные монеты России v2.1 Full [Ru] - Более 1200 памятных и инвестиционных монет России и СССР из драгоценных металлов
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698273.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Stupid Zombies 3 2.2 Mod [Money] [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696196.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ GTA: Chinatown Wars 1.01 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693156.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691800.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ VMP - ВК Музыка v4.5.0 AdFree [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691793.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_691708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_691708.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Cut the Rope [Ru] Сборник всех игр этой серии 5
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691510.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО и Игры на Java
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689218.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687053.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686388.jpg" />
 </div>
 
 
@@ -276,7 +380,7 @@ Knights of Pen & Paper 2 v2.5.30 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685964.jpg" />
 </div>
 
 
@@ -302,7 +406,7 @@ Any Balance v3.9.808 [Ru/En] - баланс телефона на экране
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678882.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ Smart Compass Pro 2.6.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678579.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ Microsoft Outlook 2.1.209 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678301.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678216.jpg" />
 </div>
 
 
@@ -409,7 +513,7 @@ CalcKit v2.4.2 Premium [Ru/Multi] - Калькулятор Всё-в-одном
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677928.jpg" />
 </div>
 
 
@@ -436,7 +540,7 @@ TIDAL Music v2.56.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676297.jpg" />
 </div>
 
 
@@ -462,7 +566,7 @@ Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676148.jpg" />
 </div>
 
 
@@ -488,7 +592,7 @@ HTC Sync 3.2.20 - синхронизация для HTC Android-устройст
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673740.jpg" />
 </div>
 
 
@@ -515,7 +619,7 @@ AndroiTS Compass Pro 1.01 - Компас (2012) <En>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_669845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669845.jpg" />
 </div>
 
 
@@ -542,7 +646,7 @@ Mobi Calculator PRO 1.4.0 Mod by Kirhe [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667712.jpg" />
 </div>
 
 
@@ -568,7 +672,7 @@ Mobi Calculator PRO 1.4.2 Mod by andrey.utasco [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667671.jpg" />
 </div>
 
 
@@ -579,114 +683,6 @@ Mobi Калькулятор PRO приложение, которое будет 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D99AE79D38CCB65CF0D50DBADD28097FD40D1698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901389   (662907) от 26.05.2015
-
-Chicken Invaders / Куриные захватчики 5 версий [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chicken Invaders ставит вас на передней край битвы против вторжения межгалактических кур, стремящихся к мести против человеческой расы за наше угнетения цыплят Земли. Вас ждет классика аркадного жанра для андроид. На сей раз вам надо отбиться от полчищ куриц, заполонивших космическое пространство. Используйте все, что есть в арсенале - пулеметы, ракеты, лазеры и (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 25 мая 2015 годаРазработчик: Betacom (UK) S.A.Поддерживаемая ОС: Android 2.3.3+Жанр: ШутерЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A69884E03EB1D1F4E5952B73DF27CCA2D198E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064388   (662635) от 13.05.2018
-
-Монеты стран бывшего СССР v2.5 [Ru] - Более 1000 юбилейных монет и монет регулярного чекана стран бывшего СССР
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение может использоваться как инструмент для работы с коллекцией, либо как справочник. Содержит перечень юбилейных монет и монет регулярного чекана стран бывшего СССР (Азербайджан, Армения, Казахстан, Киргизия, Молдавия, Таджикистан, Туркменистан, Узбекистан, Украина, Латвия, Литва, Эстония, Грузия, Приднестровье). Более 1000 монет!Тип издания: Маркет + кейгенРелиз состоялся: 11.05.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F388A62D29C1624186FF6583E63AA8AA258905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884375   (661753) от 27.05.2015
-
-DuckTales: Remastered / Утиные истории 1.0.2 + Mod [Money] [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых любимых 8-битных игр возвращается! Встречайте ""Утиные Истории"" для мобильных платформ - официальное приложение Disney полностью на русском языке!
-
-Вместе со Скруджем Макдаком вам предстоит совершить кругосветное путешествие в поисках легендарных сокровищ! С помощью Секретной карты Скруджа вы сможете перенестись в Гималаи, к реке (   Читать дальше...   )Тип издания: Лицензия+ModРелиз состоялся: 20 мая 2015 годаРазработчик: DisneyПоддерживаемая ОС: Android 4.2+Жанр: ActionЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B608C811AAC7687C5418965CC914D568B4DE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138282   (660903) от 01.06.2017
-
-HERE WeGo v2.0.11424.114741 [Multi]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660903.jpg" />
-</div>
-
-
-###  Подробнее
-
-С HERE WeGo вы всегда найдете нужный путь в городе. Велосипед или автомобиль, прокатное авто, такси или общественный транспорт – HERE WeGo предложит вам оптимальные маршруты до места назначения. Сравните возможные варианты и выберите наилучший.
-
-В поездке вы сможете следовать подробным голосовым указаниям, поэтому не пропустите свою остановку и не повернете случайно (   Читать дальше...   )Тип издания: FreeРазработчик: HERE Apps LLC (ex-NavTeq from Nokia)Поддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Руский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D490DE2C174940DF9D3730ADC32945805E3F9825
 ```
 
 https://mybot314.ru/tekegram_catalog/

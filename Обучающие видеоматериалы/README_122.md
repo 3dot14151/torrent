@@ -1,3 +1,32 @@
+###  Публикация: 1140099   (653475) от 08.06.2017
+
+Андрей Журавлев | Подготовка изображений к офсетной печати (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер-класс, посвященный вопросам цветоделения и подготовки изображений к офсетной печати.
+
+Чему вы научитесь?
+-Управлять собственными ожиданиями.(   Читать дальше...   )Производство: ProfileschoolЖанр: Фото, Цветоделение, ПечатьПродолжительность: 07:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E3C1CB20099B8A8E360E14108F07F695A03EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140355   (653468) от 08.06.2017
 
 Дмитрий Шатров | Весенняя Тоскана: съемка и обработка (2017) PCRec
@@ -6,7 +35,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653468.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653460.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ foreven.ru | Конференция: Взгляд через объектив 2.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653059.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653011.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652959.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652843.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ IТVDN | АngulаrJS Еssеntiаl (2015) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652777.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ ITVDN | Entity Framework 6 (2015) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652755.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652074.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651772.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651566.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650660.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650256.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649894.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649784.jpg" />
 </div>
 
 
@@ -403,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649087.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648883.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ Levelup.Digital, Carlos Perfume | Substance Designer Dome of Cologne (2021) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648302.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ Lynda.com | Основные навыки обучения / Study Skills Fundam
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648285.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648092.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647090.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647013.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ Search Engine Education | SEO-Коучинг 7.0 (2015) PCRec [H.264/720p]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646890.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646622.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ CGcircuit, Matthew Skonicki | Photogrammetry Pipeline (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646533.jpg" />
 </div>
 
 
@@ -660,34 +689,6 @@ CGcircuit, Matthew Skonicki | Photogrammetry Pipeline (2018) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9531352CDD6ABF00624F9606A43485F283B03DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292218   (646333) от 29.03.2019
-
-Алекс Мэй | Новая Академия Секса для мужчин (2018) DVDRip [H.264]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не выходя из дома, в удобной обстановке потратьте 10 часов на изучение материала от Академии Секса. И Вы будете в числе менее чем 0,1% мужчин. Мужчин, о которых мечтает каждая женщина – лучших любовниках планеты.
-
-Узнайте, как напрочь «сносить крышу» абсолютно любой женщине, займите в её душе особое место. Навсегда.Жанр: Сексология, ОтношенияПродолжительность: 10:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670F094C322F9D92DC9A4DDFBF937476D35353ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

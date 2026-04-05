@@ -1,3 +1,133 @@
+###  Публикация: 1504279   (812217) от 23.10.2021
+
+Сапожки аиста (1984) TCRip [H.264/1080p] [Remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812217.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам сказки Аурелиу Бусуйок. Собрался аист к лисе на день рождения, и вдруг обнаружил, что сапог у него нет...Производство: СССР / Молдова-фильмЖанр: мультфильм, короткометражкаРежиссер: Наталия СидоренкоПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DB859E4A8BBE6670ADFEFB8A38B642D83F1767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504434   (812215) от 23.10.2021
+
+Капитан Саблезуб и Волшебный бриллиант / Kaptein Sabeltann og den magiske diamant (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательные приключения отважного и грозного капитана Саблезуба, бороздящего моря и океаны в поисках несметных сокровищ. Его главная цель — получить волшебный бриллиант, исполняющий любые желания. Однако, обычный мальчишка ухитряется похитить могущественный камень прямо из-под носа бывалого пирата.Производство: Норвегия / Qvisten AnimationЖанр: мультфильм, семейныйРежиссер: Марит Мум Оне, Расмус А. СивертсенПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9142F6F6AC7971AB5526F4AF95354C9843FC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504406   (812209) от 23.10.2021
+
+Ежик Бобби: Колючие приключения / Bobby the Hedgehog (2016) WEB-DLRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812209.jpg" />
+</div>
+
+
+###  Подробнее
+
+События картины разворачиваются вокруг очаровательного и харизматичного ежика по имени Бобби. Правда, он забыл абсолютно всё. Невероятно, но факт: проснулся в лесу, не смог ничего припомнить. Отчего могло это приключиться? Теперь его очень беспокоит данный вопрос, на который никто из животных не может найти ответа. Дело в том, что местные его не знают, да и ему они (   Читать дальше...   )Производство: Китай, США / Daysview Animation, Lions Gate Films Inc.Жанр: Мультфильм, приключенияРежиссер: Хуан ЦзяньминПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246DA144684C54C393DD25D750A1A9B5142FCAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504447   (812208) от 23.10.2021
+
+Такая любовь (1982) TCRip [H.264/1080p] [Remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шуточный сюжет про инопланетянина, влюбившегося в земную девушку и решившего остаться на Земле.Производство: СССР / Грузия-фильмЖанр: рисованная анимация, мультфильм, короткометражкаРежиссер: Константин МацаберидзеПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26ECEC1482290CCE22E756DE288BCA421BF2CBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504428   (812106) от 23.10.2021
+
+Капитан семи морей / Capt'n Sharky (2018) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Шарки может и маленького роста, но он твердо верит, что он самый грозный пират семи морей. Он и его корабль готовы отправиться в свое первое плавание и всё, что нужно Шарки — компас и настоящая команда. На борту судна случайно оказываются сразу два пассажира: примерный и воспитанный мальчик Мики и бойкая девочка Бонни — дочь Адмирала. Вместе эту разношерстную (   Читать дальше...   )Производство: Германия / Caligari Film GmbH, Caligari Film- und Fernsehproduktions, Universum FilmЖанр: Мультфильм, мюзикл, боевик, комедия, приключения, семейныйРежиссер: Ян Штольц, Хьюберт ВейландАктеры: Норман Эндрес, Жюль Херман, Антон Петцольд, Аксель Праль, Ребекка УолшПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858D0F72CCA77688A7142A0EB6C6F50BF5A2FA90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504425   (812094) от 23.10.2021
 
 Клара и волшебный дракон / Clara (2019) WEB-DLRip [H.264/720p-LQ]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812094.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811989.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811980.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811978.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811830.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811479.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811465.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811383.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811302.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811277.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811183.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811163.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810862.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810820.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810655.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810650.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810583.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810578.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810576.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810469.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810068.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FA599F3FD76BA55C9A4799282880C39927D6F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504692   (810067) от 24.10.2021
-
-Королевские каникулы / Trouble (2019) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник миллионного состояния и кучки неблагодарных родственников, его псиятельство Принц вышел из зоны комфорта и оказался на улице. Теперь он мечтает вернуться домой. Для этого ему нужно найти новых друзей, избавиться от назойливых белок и сбросить с хвоста матерого охотника. Королевские каникулы начинаются.Производство: Канада, США, Каймановы острова / 3QU Media, Cinesite AnimationЖанр: Мультфильм, комедия, семейныйРежиссер: Кевин ДжонсонАктеры: Биг Шон, Памела Адлон, Люси Хейл, Марисса Джэрет Винокур, Джоэл МакХэйл, Уилмер Вальдеррама, Сет Роллинз, Ди Брэдли Бэйкер, Кевин Чэмберлин, Лудо ЛефеврПеревод: Дублированный  (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBFDB5C75F857F0365BDE1BC542A663EABE2D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504761   (809916) от 24.10.2021
-
-Майя и три воина / Maya and the Three (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) Netflix
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из четырёх волшебных королевств живёт отважная и непокорная принцесса-воительница по имени Майя. Однажды древнее пророчество вынуждает её отправиться в захватывающее путешествие, чтобы сокрушить богов и спасти человеческий род.Производство: Мексика, США / Maya Entertainment, Netflix AnimationЖанр: мультфильм, фэнтези, боевик, драма, комедия, приключения, семейныйРежиссер: Хорхе Р. ГутьерресАктеры: Зои Салдана, Хейли Эрмида, Каролина Равасса, Изабела Мерсед, Стефани Беатриз, Дэнни Трехо, Рита Морено, Гаэль Гарсиа Берналь, Куин Латифа, Альфред МолинаПеревод: ДублированныйСубтитры: русские (forced, full), английские (full), украинские (full)Продолжительность: ~00:35:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74EE249C25A58B6972A6D18BC7E89A5F6A824FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317665   (809810) от 02.04.2011
-
-Обезьяна с острова Саругасима (1970) VHSRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дракон, повелитель моря, тяжело заболел. Помочь его болезни может только обезьянья печень. Осталось найти обезьяну, ведь они-то в море не водятся. Эту задачу поручили черепахеЖанр: Рисованая анимацияРежиссер: Михаил БотовПерсонажи: морские и наземные животныеПродолжительность: 00:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD56DF067D358E36F4DFC2C337CB2816DA8AFD82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504686   (809733) от 24.10.2021
-
-Бэтмен: Убийственная шутка / Batman: The Killing Joke (2016) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бэтмен появляется в клинике Аркхем, где выясняет, что Джокер сумел бежать из-под охраны. Этот опасный пациент был под наблюдением, но теперь его функции развлекать лечебницу переданы другому. Тот в роли клоуна, не отдающего себе отчета в последствиях происходящего. Джокер на свободе и намерен показать окружающим, на что способен. Ошибались те, кто считал его умалишенным. (   Читать дальше...   )Производство: США / Warner Bros. Animation, DC EntertainmentЖанр: мультфильм, боевик, триллер, драма, криминалРежиссер: Сэм ЛьюПеревод: ДублированныйСубтитры: русские (full), английские (full, SDH)Продолжительность: 01:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016957CFD78E32938E9296132336AC7076A78A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383574   (809389) от 16.05.2020
-
-Несокрушимый Железный человек / The Invincible Iron Man (2007) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусствовед, специализирующийся по странам Востока миллиардер Тони Старк, вот уже несколько лет плодотворно работает над главным проектом своей жизни — возрождением древнего китайского города, императором которого был великий Мандарин, оставшийся в истории, как самый жестокий правитель Китая. Древняя китайская легенда гласит, что непобедимый император, заключив (   Читать дальше...   )Производство: США / Marvel EnterprisesЖанр: ПриключенияРежиссер: Патрик Арчибальд, Джей ОливаПеревод: Многоголосый профессиональныйСубтитры: русские (полные), английские (полные)Продолжительность: Продолжительность: 01:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F062EEF7336ACA35C5AC3A0A7BF450C27645B33
 ```
 
 https://mybot314.ru/tekegram_catalog/

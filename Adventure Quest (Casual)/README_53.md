@@ -6,7 +6,7 @@ Christmas Stories 8: Enchanted Express (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219934.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fairy Godmother Stories 3: Little Red Riding Hood / Сказки Феи-Крёс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218093.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Darkness and Flame 4: Enemy in Reflection / Тьма пламени 4: Враг 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217973.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Christmas Wonderland 12 (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217660.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Twin Mind 2: Power of Love / Близнецы-детективы 2: Сила л�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217301.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mystery Case Files 23: Incident at Pendle Tower / За семью печатям
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217246.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Christmas Wonderland 10 (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216669.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dark City 7: International Intrigue (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216435.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Memoirs of Murder 2: Resorting to Revenge (2018) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215731.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Christmas Stories 10: Yulemen / Рождественские истории 10: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215149.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Unseen Fears 3: Last Dance / Невидимые страхи 3: Послед
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214110.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Legendary Tales 4: Map of Hope (2025) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213554.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Strange Investigations 2: Two For Solitaire / Удивительные расс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212860.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Happy Holidays 4: Trick or Treat / Счастливые праздники 4: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212545.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Intersection of Worlds: 100 Doors / Перекрёсток миров: 100 �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211966.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Strange Investigations 3: Secrets Can Be Deadly (2023) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211864.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211728.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Gloomy Tales: Horrific Show / Мрачные Истории: Кошмарное 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211724.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Royal Romances 3: The Power of Chosen One (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211588.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Unsolved Case 2: Murderous Script / Нераскрытое дело 2: Сцен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211192.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Unsolved Case 3: The Scarlet Hyacinth (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211162.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ How to Say Goodbye (2022) [Multi] (1.0.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211085.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs / Мост в другой м
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211054.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Royal Romances 3: The Power of Chosen One / Королевские романы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210860.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Cursed Fables 3: A Voice to Die For (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209464.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Unsolved Case 3: The Scarlet Hyacinth / Нераскрытое дело 3: Ал�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209239.jpg" />
 </div>
 
 

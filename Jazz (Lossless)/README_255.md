@@ -6,7 +6,7 @@ Jessica Williams - Live At Maybeck Recital Hall, Vol. 21 (1992) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235439.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paul Bley, Evan Parker, Barre Phillips - Time Will Tell (1995) ECM [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235433.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jake Fryer & Bud Shank Quintet - In Good Company (2009) 2011, Capri Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235427.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sonny Rollins - Jazz Profile (1956, 1957) 1998, Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235419.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mal Waldron - The 1978 Solo Piano Concert (2022) 2CD, Tompkins Square [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235399.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Abdullah Ibrahim - Solotude (2021) Gearbox Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235398.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chet Baker - As Time Goes By (1986) 2020, Solid Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235369.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pasquale Grasso - Be-Bop! (2022) Sony Music [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235346.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ben Tankard - Shine! (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235324.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jessica Williams - The Next Step (1993) Hep Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235315.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Albert Ayler Trio - Spiritual Unity (1964) 2005, ESP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235278.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jessica Williams - Gratitude (1996) Candid [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235254.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ray Gelato And The Giants Of Jive - A Taste Of Gelato (1992) High Five Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235251.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Carmen Lundy - This Is Carmen Lundy (2001) Justin Time [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235247.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Duke Ellington - Hot Summer Dance (1960) 2003,  Red Baron [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235212.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Toshiko Akiyoshi Jazz Orchestra - Desert Lady / Fantasy (1994) Columbia [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235192.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Anita Baker - Christmas Fantasy (2005) Par Media Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235163.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Charles Mingus - Let My Children Hear Music (1971) 1988, Sony [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235143.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Orrin Evans And The Captain Black Big Band - The Intangible Between (2020) Smoke
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235082.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jazzamor - From The Edge Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235009.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mort Weiss - Mort Weiss Meets Sam Most (2006) SMS Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235004.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Eddie Heywood - Eddie Heywood (1955) 1990, EmArcy [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234972.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sonny Stitt - With The New Yorkers (1957) 2002, Roost [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234957.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Eddie Heywood - The Touch Of Eddie Heywood (1957) 1999, RCA [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234939.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sam Taylor - Sam Taylor Best Selection (2013) Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234909.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ McCoy Tyner - Milestone Profiles (1972 - 1980) 2CD, 2006, Milestone [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234901.jpg" />
 </div>
 
 

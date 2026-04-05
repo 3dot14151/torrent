@@ -1,3 +1,32 @@
+###  Публикация: 1311073   (544519) от 27.06.2019
+
+Tyler Bryant & The Shakedown - Truth And Lies (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shock & Awe (03:12)
+02. On To The Next (02:59)
+03. Ride (03:26)
+04. Shape I’m In (03:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32DE9A44B2CBC328869E87B9B9A46BA23BAA0807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311011   (544221) от 27.06.2019
 
 VA - Big Hair Metal (2019) [MP3|320 Kbps] <Hard Rock, Hair Metal>
@@ -6,7 +35,7 @@ VA - Big Hair Metal (2019) [MP3|320 Kbps] <Hard Rock, Hair Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544221.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Phil Rudd (AC/DC) - Head Job (2014) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542941.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Joshua - Surrender (1985) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541214.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ ZZ Top - Live: Greatest Hits From Around The World (2016) Live [MP3|320 Kbps] <H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536362.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Interstate Blues - Southern Lips (2000) Reissue, Unofficial Release [MP3|320 Kbp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535000.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Stonewall - Stoner (1974) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531718.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Deep Purple - Johnny's Band (2017) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531234.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Whitesnake - 17 альбомов (1978-2011) [MP3|320 kbps]<Hard Rock|Blues Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530984.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Legs Diamond - Legs Diamond (1977) Remastered /2007, Diamond Records/ [MP3|320 �
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529934.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nitrate - Real World (2018) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528667.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ We Are Harlot - We Are Harlot (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528572.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Fair Warning - Pimp Your Past (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524276.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Hair Of The Dog - The Siren's Song (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524053.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Dead Man's Whiskey - Under the Gun (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522895.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ L.A. Guns - Electric Gypsy Live (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522263.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Joseph - Stoned Age Man (1970) [MP3|320 кб/с]<Hard Rock, Psychedelic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521792.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Deep Purple - Live In London 1982 [Japanese Edition] (2CD) (2011) [MP3|320 кб/
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521341.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Whitford / St. Holmes - Whitford / St. Holmes (1981) [MP3|320 кб/с]<Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519587.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Stray Dog - Stray Dog (1973) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519584.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Agnes Strange - Strange Flavour (1975) Remaster, 1996 [MP3|320 Kbps] <Hard Rock,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519281.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ AC/DC - BBC Live 1976-1979 (1998) [MP3|320 кб/с]<Сlassic Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518402.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Hartmann - Hands On The Wheel (2018) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518299.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Lynch Mob - Rebel (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516270.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Deep Purple - This Time Around - Live In Tokyo (2001) 2CD [MP3|320 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515880.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Lynyrd Skynyrd - Last Of A Dyin' Breed (Special Edition) (2012) [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513460.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ Lynyrd Skynyrd - Last Of A Dyin' Breed (Special Edition) (2012) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28A284EA938697CD78DB49590D1D11C22FF6961B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561854   (512587) от 07.07.2022
-
-Zeremony - Survivin' Rock'n'Roll (2022) [MP3|320 Kbps] <Hard Rock Tradition>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 All Hell Breaks Loose [00:07:43]
-02 I Want You Tonight [00:03:56]
-03 Yeah [00:05:06]
-04 Vintage Boogie [00:04:09](   Читать дальше...   )Жанр: Hard Rock TraditionПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11430BF00D833F57BB83199A542470AA99B71745
 ```
 
 https://mybot314.ru/tekegram_catalog/

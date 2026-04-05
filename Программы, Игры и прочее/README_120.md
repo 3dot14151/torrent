@@ -1,3 +1,114 @@
+###  Публикация: 1525277   (130115) от 19.01.2022
+
+Numia: Астрология и Гороскопы v2.0.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130115.jpg" />
+</div>
+
+
+###  Подробнее
+
+С каждым годом наша жизнь становится все более непредсказуемой! Но Мы сделали все, чтобы помочь тебе и сделать твою жизнь проще, интереснее и лучше. Наше приложение станет твоим личным убежищем от любых невзгод и самым лучшим астрологом на пути к твоим целям.Тип издания: Пиратка (Full)Релиз состоялся: 11 января 2022 г.Разработчик: APPS DEVELOPERSПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75520E3D16FAE1AD452E07D40934BCDFF15532B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525303   (129745) от 20.01.2022
+
+eWeather HDF погода и барометр v8.5.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129745.jpg" />
+</div>
+
+
+###  Подробнее
+
+eWeather HDF - это точный прогноз погоды от двух метеоагенств, домашняя метеостанция и барометр.
+Уникальные виджеты погоды на экране телефона имеют более 50-ти тем оформления на выбор, включающие виды Санкт-Петербурга, Москвы, Парижа, римские и арабские часы на экране и т.д. Виджет часы показывает время будильника и текущее время на домашнем экране телефона как в (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 14 января 2022 г.Разработчик: Elecont softwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E311BFBAAE185E003699730E45972E114EF2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525546   (129723) от 20.01.2022
+
+Tap To Translate Screen v1.41 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129723.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Перевести весь экран одним касанием.
+- Поддержка более 100 языков.
+- Перевести игры,
+- Голос, камера, переводчик изображений(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 11 января 2022 г.Разработчик: Dictionary & Translate NH-AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38A8CCD5C0AC35A2ACFCE14CA3164335E35FD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525306   (129711) от 20.01.2022
+
+Wheel Size v2.10.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее приложение для подбора колес на рынке.
+- Самая большая в мире база данных по подбору колес (обновляется ежедневно)
+- Самый продвинутый калькулятор размера шин / диска
+- Удобно и просто(   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 28 декабря 2021 г.Разработчик: Wheel-Size.com TeamПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08C58FC5D9957109BF644A689DB375AECBDE3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525483   (129654) от 20.01.2022
 
 Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
@@ -6,7 +117,7 @@ Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129654.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Jillian Michaels | Fitness App v4.4.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129651.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ MyFuelLog2 v1.8.12 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129649.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129432.jpg" />
 </div>
 
 
@@ -114,7 +225,7 @@ FamilyGo v4.2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129345.jpg" />
 </div>
 
 
@@ -140,7 +251,7 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128953.jpg" />
 </div>
 
 
@@ -166,7 +277,7 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128951.jpg" />
 </div>
 
 
@@ -192,7 +303,7 @@ Words of Wonders: Игра в слова v5.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128949.jpg" />
 </div>
 
 
@@ -218,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128942.jpg" />
 </div>
 
 
@@ -244,7 +355,7 @@ BabyBus Kids: Мир видео и игр v3.1.10.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128938.jpg" />
 </div>
 
 
@@ -270,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128767.jpg" />
 </div>
 
 
@@ -296,7 +407,7 @@ PaperColor v2.8.7 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128752.jpg" />
 </div>
 
 
@@ -322,7 +433,7 @@ Adobe Photoshop Express 11.8.194 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128726.jpg" />
 </div>
 
 
@@ -348,7 +459,7 @@ Smart AudioBook Player 10.3.1 Mod by KirIif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128715.jpg" />
 </div>
 
 
@@ -374,7 +485,7 @@ MX Player Pro v1.74.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128496.jpg" />
 </div>
 
 
@@ -400,7 +511,7 @@ Mubert: AI Music Streaming v4.2.2 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128418.jpg" />
 </div>
 
 
@@ -427,7 +538,7 @@ Melon VPN - Secure Proxy VPN 8.1.234 Mod By AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128347.jpg" />
 </div>
 
 
@@ -456,7 +567,7 @@ Doctronics - electronics DIY v2.5 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127734.jpg" />
 </div>
 
 
@@ -482,7 +593,7 @@ BikeComputer Pro v8.10.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127719.jpg" />
 </div>
 
 
@@ -508,7 +619,7 @@ Search By Image v9.0.1 Mod by vadj [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127675.jpg" />
 </div>
 
 
@@ -534,7 +645,7 @@ Smart Book / Параллельный перевод книг v3.3 (b1065) Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127669.jpg" />
 </div>
 
 
@@ -560,7 +671,7 @@ Football Live TV HD v2.0 Mod by Dymonyxx [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127653.jpg" />
 </div>
 
 
@@ -571,114 +682,6 @@ Football Live TV HD v2.0 Mod by Dymonyxx [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FCB8D3852ADC3D1270B91B91109487EFF4C2BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684718   (127651) от 16.12.2023
-
-AR Ruler App: Линейка Рулетка v2.7.5 Mod by srajawwal09 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127651.jpg" />
-</div>
-
-
-###  Подробнее
-
-ARuler - лучшее и бесплатное приложение на Android для измерений, использующее технологию дополненной реальности (Augmented reality или кратко AR)! Приложение AR Ruler использует технологию дополненной реальности (AR) для измерения различных предметов с помощью камеры вашего смартфона. Просто нацельтесь на обнаруженную горизонтальную плоскость и начните измерять!Тип издания: ProРелиз состоялся: 14.12.2023Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45DB5530621F9C770E18E2936CDDD429F4C7D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684605   (127650) от 16.12.2023
-
-Кроссворды на русском v1.18.4 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более трехсот уникальных кроссвордов на каждый день! Способен ли ты решить их все?
-Несколько категорий на выбор:
-- Классические
-- Тематические(   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.12.2023Разработчик: Litera GamesПоддерживаемая ОС: Android 5.0+Жанр: КроссвордыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFFB90FCC813B9D43337E5C4BF465AEBBA282AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684633   (127627) от 16.12.2023
-
-Sense V2 Flip Clock & Weather v6.45.5 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнофункциональное погодное приложение с набором виджетов погоды и перекидных часов.
-Приложение предоставляет прогнозы погоды для вашего текущего местоположения или любого другого места по всему миру. Вы можете добавить до 10 мест и проверить погоду и время для любого места в мире.Тип издания: PremiumРелиз состоялся: 12.12.2023Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26646ABFEEB937A971DEFD9385C8106E2556FDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684645   (127617) от 16.12.2023
-
-VivaVideo v9.12.6 b6.6912062 Mod by maxi123444 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный видеоредактор с эффектами и бесплатное программа для монтажа видео. Монтаж, вырезать и объединить видео с помощью самого полноценного видеоредактор в телефоне.Тип издания: VIPРелиз состоялся: 14.12.23Разработчик: QuVideo inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9C231FA95AC789E8FD0E33564333DFBB924014
 ```
 
 https://mybot314.ru/tekegram_catalog/

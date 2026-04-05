@@ -1,3 +1,159 @@
+###  Публикация: 1642917   (210209) от 29.06.2023
+
+Мир комнатных растений (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект приоткрывает зрителям тайны загадочного мира популярных домашних растений. Каждый эпизод подробно рассматривает воздействие одного из основополагающих природных факторов на жизнь растений как в их естественной среде обитания, так и в неволе. Земля, вода, воздух, свет, насекомые, люди. Какое влияние эти аспекты оказывают на цветы и травы, оказавшиеся в различных (   Читать дальше...   )Производство: Россия / Киностудия им. М. ГорькогоЖанр: документальныйРежиссер: Константин Бушманов, Никита Лойк, Константин РайхУчастники: Елена Носова, Ольга Марченко, Никита Здравчев, Владимир ВаненковПродолжительность: ~00:16:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BCF95B395AFD12F9490002B4FD93B7AD69D702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643581   (209977) от 02.07.2023
+
+Дикие кошки / Lynx (2021) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рысь обыкновенная исчезла во Франции еще в XIX веке. Но лет 50 тому назад их снова сюда завезли. И теперь, хотя эти животные находятся на грани исчезновения, они снова занесли в эти места дух свободы.Производство: Швейцария, Франция / JMH et Filo Films, MC4, La SalamandreЖанр: документальныйРежиссер: Лоран ГесленУчастники: Лоран ГесленПеревод: Дублированный (Pride Production)Язык озвучки: Русский, ФранцузскийСубтитры: РусскиеПродолжительность: 01:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32B6D4F9F4123EC37727BEE40A79F88CA06CD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643605   (209969) от 02.07.2023
+
+Горы / Mountain (2017) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горы – самое неприступное и коварное творение природы. Их склоны влекут к себе человечество испокон веков. Этот поединок длится столетиями, но что в нем заслуживает большего восхищения: сами горы или дерзость одиночек, что стремятся подняться «выше неба»?Производство: Австралия / Stranger Than Fiction FilmsЖанр: документальныйРежиссер: Дженнифер ПидомУчастники: Уиллем ДефоПеревод: Дублированный (Студия Позитив)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7816004FBAE4349B39CD8C95A311171B6C5F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643784   (209943) от 03.07.2023
+
+Алкогольная зависимость. Выход (2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть документального фильма про алкоголь и последствия его употребления. Эксперты расскажут, как устроена зависимость и с чего начать, чтобы справиться с ней.Производство: Россия | «Квадратный телевизор»Жанр: ДокументальныйРежиссер: Оксана МатвееваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887B3431CC9E53CC187AD85EEDC6F5614CF1C955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643930   (209897) от 03.07.2023
+
+Бора Бора, Французская Полинезия / Bora Bora, French Polynesia (2022) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на маленький остров в Тихом океане! Бора-Бора — это вулканическая кальдера, которая была необитаема очень долгое время. Вследствие тектонических движений здесь образовалось огромное количество невероятно красивых лагун, готовых предоставить любителям активного водного отдыха всевозможные виды развлечений. Исследуйте подводный мир с аквалангом, знакомьтесь (   Читать дальше...   )Производство: США, Pro Art Ink.Жанр: документальный, видовой, путешествияРежиссер: Роман ХомлякЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F601A1B2B4BE7E37C59427CE0C1C358BEE7BB688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643933   (209879) от 04.07.2023
+
+Национальный парк Северные Каскады / North Cascades National Park (2023) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в один из самых красивых природных парков США  - Северные Каскады. Перед вами уникальный пейзажный документальный фильм, который рассказывает историю одной из самых удивительных заповедных зон в Америке. Расположенный в штате Вашингтон, этот парк поражает своими масштабами, красотой и уникальной флорой и фауной.Производство: США, Pro Art Ink.Жанр: документальный, видовой, путешествияРежиссер: Роман ХомлякЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5473C40310A87A462A82627617330287BDE17C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373157   (209840) от 16.01.2023
 
 Актерские трагедии (2018-2022) DVB [H.264] (серии 1-102 из ?) (Обновляемая)
@@ -6,7 +162,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209840.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209770.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ RTG. Прогулка по Владивостоку (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209747.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209735.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209669.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209574.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209525.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209522.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209499.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209453.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209452.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ History Channel. Детейлинг по-американски / Dirty Old Cars
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209449.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209441.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209424.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209414.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209401.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209399.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209393.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209384.jpg" />
 </div>
 
 
@@ -502,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209383.jpg" />
 </div>
 
 
@@ -513,163 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4756A6675AA28DD3B13698448626299F2DB0369E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645411   (209372) от 09.07.2023
-
-Боком по стране (2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пилоты соревнуются в управляемом силовом скольжении на автомобилях. Зрелищный док о приемах и техниках дрифта.
-Путешествие в мир дрифта вместе с пилотом Андреем Аюхаевым — от тренировок до финала соревнований. Фильм покажет зрелищные заезды и расскажет, как и чем живет российское дрифт-коммьюнити.Производство: Россия | «ИРИ»Жанр: Документальный, короткометражкаРежиссер: Иван ГусаровЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C57F4E3F9DFA8348E90D21AD77BB595300B8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645391   (209361) от 09.07.2023
-
-Музыкальная шкатулка. DMX: Не пытайся понять / DMX: Don't Try to Understand (2021) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о жизни и творчестве знаменитого рэпера DMX.Производство: США / HBO Documentary Films, Mass Appeal, Mercury StudiosЖанр: документальныйРежиссер: Кристофер Фрирсон, Кларк СлэйтерУчастники: Joseph Cassiere, DMX, Пейдж Херд, Ташира Симмонс, Ксавьер Симмонс, Касим Дин, Тара Томас, Iyanla Vanzant, Форест УитакерПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D9C1BFA846DD6E39DA15F0BA2B2C96A403A260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645516   (209328) от 09.07.2023
-
-Невозможные животные / Impossible Animals (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) SDI Media
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал о самых поразительных животных планеты. Каждая среда обитания на Земле - уникальна и сложна. Природа постоянно "подкидывает" проблемы, которые животным нужно решать. Некоторые из них развили невероятные способности, помогающие выживать в самых трудных условиях. "Невозможные животные" - самое подходящее для них описание. Разум (   Читать дальше...   )Производство: США / Offspring FilmsЖанр: документальный, природаРежиссер: Лара БикертонУчастники: Патрик АрьеПеревод: Одноголосый профессиональный (SDI Media)Язык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: ~00:44:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F8DD678D5FCA8F09300720B36AAA3AB3E8CABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645541   (209310) от 09.07.2023
-
-Астероидный бум / Asteroid Rush (2022) HDTVRip (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мало того, что большие астероиды могут столкнуться с нашей планетой, они также хранят невероятные секреты... 65 миллионов лет назад, предположительно, огромный астероид уничтожил 80% живых организмов на Земле, включая динозавров. Сегодня астероиды так же представляют реальную угрозу. Каждый день, в среднем, 230 астероидов проходят курсом, близким к нашей планете (   Читать дальше...   )Производство: Франция, Saint Thomas Productions, ARTE France, CuriosityStreamЖанр: документальный, космосРежиссер: Бертранд Луайе, Жак БедельПеревод: многоголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FCAC41B167B0A21A086436833934D38BB374C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569692   (209301) от 31.08.2022
-
-Репетиция / The Rehearsal (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) Novamedia
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нэйтан Филдер создает правдоподобные симуляции важных моментов (по уникальному дизайну, конечно же), где «тренирует» клиентов вести себя «правильно». Правда, не факт, что после такой подготовки в реальной жизни все пройдет как по маслу. Как говорится, одна ошибка — и ты ошибся.Производство: США |  Rise Management, Home Box Office (HBO)Жанр: документальный, комедияРежиссер: Нэйтан ФилдерАктеры: Нэйтан Филдер, Гиги Бурдорф, Исаак Ламб, Чарли Черман, К. Тодд Фриман, Vincent Cefalu, Улла Фельдман, Тони Нейшн, Одри Гэлвин, Sawyer J. BellПеревод: Многоголосый профессиональный (Novamedia)Язык озвучки: русскийСубтитры: русские (Forced, Full), английскиеПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99E047B7946E09E32BF4C145BBEE14B2A19FE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606804   (209196) от 24.01.2023
-
-Крот: Под прикрытием в Северной Корее / The Mole: Undercover in North Korea (2020) WEBRip [H.264/720p] [VO]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайный триллер из реальной жизни о двух обычных людях, которые отправляются на возмутительно опасную десятилетнюю миссию по проникновению в самую скрытную и жестокую диктатуру в мире: Северную Корею.Производство: Норвегия, Дания, Великобритания, Швеция / BBC Television Centre, Danmarks Radio (DR), Electric Parc, Norsk Rikskringkasting (NRK)Жанр: документальный, триллерРежиссер: Мадс БрюггерПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63DCC5F241B665ACC6E1F0A4F45D14A93B61C4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

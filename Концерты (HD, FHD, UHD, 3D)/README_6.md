@@ -6,7 +6,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916610.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915564.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915428.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913245.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911782.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910778.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Lindemann - Live at Moscow (VTB Arena) (15.03.2020) WEB-DLRip [VP9/2160p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910520.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Rolling Stones: Havana Moon (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910124.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) 30th Anniversary S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909861.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907183.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906490.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906167.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901318.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900155.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899531.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Kreator - Gods Of Violence - Live @ Wacken 2014 (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899368.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897849.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895581.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895124.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894075.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893328.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892181.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891997.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885733.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Echoes - Barefoot To The Moon – An Acoustic Tribute To Pink Floyd (2015) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885242.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Coldplay: Призрачные истории / Coldplay: Ghost Stories (2014) H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884207.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hank Crawford - Night Beat (1989) Milestone [FLAC|Lossless|tracks + .cue] <Soul-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231681.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ben Webster - The Classic Collaborations (1958 - 1963) 4CD, 2021, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231679.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231665.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rob McConnell & The Boss Brass - Big Band Christmas (1998) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231633.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jimmy Smith - Milestone Profiles (1981 - 1993) 2CD, 2006, Milestone [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231608.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lionel Hampton And His Orchestra - Jazz Flamenco (1957) 1996, RCA [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231407.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Clark Terry Quintet - Top And Bottom Brass (1959) 1992, Original Jazz Classics [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231350.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Yasukuni Terashima Presents: Jazz Bar (2017) Terasima Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231339.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Clifford Jordan Quartet - Bearcat (1962) 1990, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231337.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dave Brubeck - Ballads (1956 - 1991) 2015, Sony Music [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231334.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Charlie Rouse / Paul Quinichette - The Chase Is On (1957) 2004, Toshiba-EMI [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231239.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Steps Ahead - Steps Ahead (1983) [FLAC|Lossless|tracks + .cue] <Fusion, Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230548.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Glenn Miller - The Very Best Of (1938 - 1942) 2CD, 2011, One Day Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230022.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Avishai Cohen - Triveni II (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229968.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Peter Beets - Our Love Is Here to Stay: Gershwin Reimagined (2019) Magic Ball Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229747.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Helmut Zacharias und sein Orchester (1948 - 1959) 2011, 2CD, Membran Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229596.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Claude Williamson - 'Round Midnight (1956) 2000, Bethlehem [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229412.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Elek Bacsik - The Electric Guitar Of The Eclectic Elek Bacsik (1962) 1989, Fonta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229366.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Alex Malheiros - Tempos Futuros (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229349.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Cliff (Clifford) Jordan & John Gilmore - Blowing In From Chicago (1957) 2010, An
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229322.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Chick Corea, Christian McBride, Brian Blade - Trilogy 2 (2019) 2CD, Concord Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229312.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Sensuous Smooth Jazz For Lovers (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229171.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Dick Wellstood - This Is the One... Dig! (1975) 1994, Solo Art [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229078.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Dmitri Kolesnik - Blues For Dad (2001) Boheme Music[APE|tracks+.cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228721.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Wes Montgomery - Way Out Wes (1957-1959) 2CD, 2010, Not Now Music[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228652.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Lea DeLaria - Play It Cool (2001) Warner [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228257.jpg" />
 </div>
 
 

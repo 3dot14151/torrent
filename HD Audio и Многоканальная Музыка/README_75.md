@@ -1,32 +1,3 @@
-###  Публикация: 1677542   (150543) от 18.11.2023
-
-Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Alternative rock, progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:22)
-02. Apocalypse Please (4:12)
-03. Time is Running Out (3:57)
-04. Sing for Absolution (4:56)(   Читать дальше...   )Жанр: Alternative rock, progressive rockПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C752E8BF354E556D5EE0D805D25E0412BB4A08D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589035   (150358) от 14.12.2012
 
 Gorky Park - Moscow Calling (1992) Denmark [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
@@ -35,7 +6,7 @@ Gorky Park - Moscow Calling (1992) Denmark [FLAC 2.0 24/192|image (Vinyl-Rip)]<H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150358.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ Peter Sellers - The Peter Sellers Collection 1955-1990 (Series EMI Comedy Classi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150169.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ VA - Country Gold (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149995.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ The Marshall Tucker Band - Still Holdin' On (1988) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149983.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149939.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149897.jpg" />
 </div>
 
 
@@ -212,7 +183,7 @@ Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149848.jpg" />
 </div>
 
 
@@ -241,7 +212,7 @@ Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149756.jpg" />
 </div>
 
 
@@ -270,7 +241,7 @@ Warfect - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149430.jpg" />
 </div>
 
 
@@ -299,7 +270,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149391.jpg" />
 </div>
 
 
@@ -328,7 +299,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149296.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Rele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149216.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Centr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148767.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148732.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148714.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148620.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Kurt Vile - Back to Moon Beach (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147923.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ A Day To Remember - For Those Who Have Heart (2007) Remastered, Reissue, 2023, C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147895.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Wrabel - based on a true story (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147813.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147747.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147728.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Pl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147719.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147712.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Blackbird - Pink Shades (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147691.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147635.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A74641334F820AE493BF65679B6F7DCF9ACC32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678067   (147527) от 20.11.2023
+
+Olivia Newton-John - Totally Hot (1978) 45th Anniversary, Remastered, Reissue, 2023, Geffen [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Don't Keep Me Waiting (5:48)
+02. Dancin' 'Round And 'Round (4:01)
+03. Talk To Me (3:29)
+04. Deeper Than The Night (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304DAFE2FDACFA4926DC284230E04122725C5431
 ```
 
 https://mybot314.ru/tekegram_catalog/

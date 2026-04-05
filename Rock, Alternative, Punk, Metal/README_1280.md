@@ -1,3 +1,32 @@
+###  Публикация: 1816704   (4045) от 06.09.2025
+
+Violator - Unholy Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang The Merchants of Illusion(5:06)
+02. Cult of Death(4:46)
+03. Persecution Personality(5:19)
+04. Destroy the Altar(4:24)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFADDE70898D1B6F5EE6E8F456424EC1115DDD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816982   (3887) от 07.09.2025
 
 Helloween - March Of Time (The Best Of 40 Years) (2025) 3 x CD, Compilation [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
@@ -6,7 +35,7 @@ Helloween - March Of Time (The Best Of 40 Years) (2025) 3 x CD, Compilation [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3887.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Helloween - Helloween (2021) SHM-CD, 2XCD, Japanese Edition, Reissue, 2023, Vict
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3872.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Twist and Shout: Rock 'n' Roll Party Hits (2025) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3742.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Missing You: Passionate Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3722.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Rock - Lieder für jede Stimmung (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3721.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Steelpreacher - Gimme Some Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3707.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Degreed - The Leftovers, Vol. 1 (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3702.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Stan Bush - Born For Battle (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3698.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Blue Submarine - Reimagine (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3696.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Another Saturday Night: Rock Until Dawn (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3695.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3591.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3589.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Riffstone - Richard III (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3556.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Bleeding Through - Nine (2025) [FLAC|Lossless|image + .cue] <Metalcore, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3555.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ November - The Long Way Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3458.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Havoc - The Grip (1986) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3444.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Angels - Go For Broke (Live) (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3441.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3359.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3317.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3307.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ J.R. Richards - My Darkest Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3303.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Hearts on Fire - Signs & Wonders (2025) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3301.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Stargazer - Stone Cold Creature (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3143.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - Heavy Metal Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2977.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Lethernal Utopia - Illusion Of Time (2025) [MP3|320 Kbps] <Black, Death, Doom, H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2925.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Lethernal Utopia - Illusion Of Time (2025) [MP3|320 Kbps] <Black, Death, Doom, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAAF973125D71BE04ABD434DC8955BDB92C77D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817790   (2924) от 13.09.2025
-
-Silverstein - Pink Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You But I Have to Let You Go [00:01:45]
-02. Negative Space [00:03:18]
-03. Drain The Blood [00:02:50]
-04. The Fatalist [00:02:50](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D6EEF69A7F808A92BB56A55E4AF0A8F5589F60
 ```
 
 https://mybot314.ru/tekegram_catalog/

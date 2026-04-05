@@ -1,3 +1,32 @@
+###  Публикация: 994695   (22347) от 06.04.2025
+
+Александр Барыкин - Ступени; Больше не встречу (1985-1986) Мелодия [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ступени
+02 - Элегия
+03 - Но всё-таки лето
+04 - Мона Лиза(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29745FA174E2247A62D845D13313F9B1D794D99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605933   (22308) от 06.04.2025
 
 Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
@@ -6,7 +35,7 @@ Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22308.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22281.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22104.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21968.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21792.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21109.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20958.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20464.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20431.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20404.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20398.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20179.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20167.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20048.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Тем�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19838.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19754.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19565.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ VA - Heavy Artillery (1990) Unofficial Release [FLAC 2.0|44.1/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19564.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ W.A.S.P. - Studio Albums (16 releases) (1984-2018) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19219.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19040.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19039.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19035.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18829.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Bad Boys Blue - The Fifth (1989) 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18767.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Sleep Token - Studio Albums (6 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18739.jpg" />
 </div>
 
 
@@ -717,36 +746,6 @@ Sleep Token — британская рок-группа из Лондона, А
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DA69DB4173949E951FB5676D6A919143CD95926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636878   (18737) от 10.05.2025
-
-Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nemesea — голландская симфо-метал-группа.
-Группа была образована в 2002 году вокалисткой Мандой Опхёйс и гитаристом Хенриком Яном де Йонгом в консерватории города Гронинген.2004 - Mana
-2007 - In Control
-2011 - The Quiet Resistance
-2016 - Uprise(   Читать дальше...   )Жанр: Symphonic Metal/Alternative RockПродолжительность: 04:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E76DC99622A81536F818C8E1EA7B33AF356C9FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

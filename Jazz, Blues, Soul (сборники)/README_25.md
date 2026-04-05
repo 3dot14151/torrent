@@ -6,7 +6,7 @@ VA - Midnight Halloween Jazz (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39174.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Blues for Autumn Time (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38716.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Blues And Rock Blues Fusion (2024) [MP3|320 Kbps] <Blues, Rock Folk, Rock B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38706.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Hot and Erotic (2024) [MP3|320 Kbps] <Jazz, Electro, Nu Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38068.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Melancholic Rock Blues (2024) [MP3|320 Kbps] <Rock, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37503.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Watercolor Melodies (2024) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37197.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Rocking The Blues (2024) [MP3|320 Kbps] <Blues, Rock, Folk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37193.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Christmas Blues Santa's Secret (2024) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36265.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The Ultimate Jazz Collection (2024) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35712.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Jazz Improvisations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Improvisatio
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34787.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Jazz Sexiest Ladies Top 100 (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32618.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ JJ Cale - Compilation (1971-2019) [MP3|320 Kbps] <Blues, Country rock, Tulsa sou
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32409.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Watercolor Jazz Inspiration (2024) [MP3|320 Kbps] <Jazz, Instrumental, Impr
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30829.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - All About Blues Music (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30775.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Gary Tunes, Eric Blues, Red Whiskey - Save My Soul (Compilation) (2025) [MP3|320
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23516.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The Eternal Blues  part 20 (2019) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23198.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - On top of THE BLUES (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21747.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21676.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Rag'n'Bone Man - Compilation (2012-2024) [MP3|320 Kbps] <Neo blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21656.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gary Moore - Compilation (1973-2021) [MP3|320 Kbps] <Blues rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21050.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Acker Bilk - Compilation (2025) [MP3|320 Kbps] <Jazz, Instrumental, Clarnet>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20281.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Alexandra Ilieva - Sax Remix Compilation (2025) [MP3|320 Kbps] <Jazz, Instrument
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19848.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Gary Moore - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19791.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Tony Joe White - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Blues Rock)>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19390.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Hammond Blues Music (2025) [MP3|320 Kbps] <Jazz, Blues, Hammond>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17973.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumenta
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17578.jpg" />
 </div>
 
 

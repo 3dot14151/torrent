@@ -6,7 +6,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28099.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Let's Cook Together 2 (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27745.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.0.34) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27707.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27531.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27243.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27040.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26867.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26818.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26735.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Smushi Come Home (2023) [Multi] (1.1.0.4.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26727.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26386.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Nunholy (2025) [Ru/Multi] (1.0.01) Repack Let'sРlay [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26010.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Overcooked! 2 (2018) [Ru/Multi] (#1034.799570/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25924.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25785.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25706.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25445.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25404.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Shapik: The Moon Quest (2020) [Graphic] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25294.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25210.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25190.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Granblue Fantasy Versus: Rising (2023) [Multi] (2.01/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25175.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.5) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25134.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ THE KING OF FIGHTERS XIII GLOBAL MATCH (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25058.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Bonesaw (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25056.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Rising Sun: Iron Aces (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24944.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24535.jpg" />
 </div>
 
 

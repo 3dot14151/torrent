@@ -6,7 +6,7 @@ Adobe Animate 2024 v.24.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cisdem DVD Burner 6.10.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159907.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iMedia Cutter 5.6.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159869.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avid Media Composer 8.4.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157726.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ itsMine Video Watermark Maker Pro 2.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157238.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rogue Amoeba Farrago 1.6.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156300.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fission 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155941.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Arturia Analog Lab V v5.4.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155059.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Filmage Editor 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154268.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ EWQL Symphonic Orchestra (Platinum Pro) [XP] [KOMPAKT] [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153804.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Movavi Video Editor Plus 15.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151896.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Davinci Resolve Studio 17.4.3 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150288.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Gif Recorder - Record Your Screen 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150026.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Desktopr - make wallpaper from any website 1.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149922.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ IZotope Iris 2 2.02.455 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148406.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Movavi Screen Recorder Studio 10.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148365.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ TunesKit Screen Recorder 2.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146008.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ NCH WavePad Audio Editor Pro 17.92 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145632.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Joyoshare Video Joiner 1.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145096.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Gear Player 2.2.38 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144515.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Cinema Grade Pro 1.1.3 (build 486) [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144212.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Movavi Video Converter Premium 8.3.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143855.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Audio Editor - Merge Split And Edit 1.5.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140819.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Tempomate 4.7 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138440.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Convusic for Mac 1.17 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134621.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Yate 6.17.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134617.jpg" />
 </div>
 
 

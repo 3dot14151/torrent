@@ -1,178 +1,3 @@
-###  Публикация: 1387167   (792628) от 31.05.2020
-
-VA - Summer Hits of the 10s (2020) [MP3|320 Kbps] <Pop, Lyrics>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wynter Gordon - Dirty Talk
-02. Cody Simpson - La Da Dee
-03. Nickelback - When We Stand Together
-04. Guy Sebastian & Lupe Fiasco - Battle Scars(   Читать дальше...   )Жанр: Pop, LyricsПродолжительность: 01:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555EDFFCF4EBFD03DB4768D2D1E004026DD52F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123361   (792527) от 07.04.2017
-
-VA - Айсберг 5. Международный (2001) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Mutz - Wassup!
-02. 98 Degress - Gimme just one night (une noche)
-03. Point Break - Do we rock
-04. a-ha - Minor Earth, major sky (ATB club remix)(   Читать дальше...   )Жанр: Pop
-Издание: Iceberg Music - HH-34CD/01Продолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBED060A29E9737F1EAA43E94020D811FF90E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387220   (792520) от 31.05.2020
-
-Icehouse - 9 Studio Albums (1981-1995) Collection [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icehouse - это австралийский рок-проект, который сформирован в 1977. Первоначально назывались Flowers, играли паб-рок, позже перешли на pop rock и synthpop с элементами new wave. Добились успеха на мировом рынке, издали несколько десятков хитов в США и Европе. Основным творческим деятелем считается Ива Дэвис (Iva Davies), часто для записей нанимались сольные исполнители. (   Читать дальше...   )Список альбомов:
-1981 - Icehouse
-1982 - Primitive Man
-1984 - Sidewalk(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 10:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8355A2BD36198782C5AE56347AFB7BF4B5668A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387151   (792466) от 31.05.2020
-
-VA - Clubfete 90er: 60 Club & Party Hits Of The 90's Vol.2 (2020) [MP3|320 Kbps] <Club, Euro-House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snap! - The Power (7' Version) 3:47
-02. Music Instructor - Hymn (Single Edit) 3:50
-03. Charly Lownoise & Mental Theo - Stars (Video Mix) 3:37
-04. Scooter - How Much Is The Fish (Radio Edit) 3:46(   Читать дальше...   )Жанр: Club, Euro-House, EurodanceПродолжительность: 03:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC33F8CA51713B7952E7F4E44D5FFC72E811B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123291   (792450) от 07.04.2017
-
-Levante - Nel Caos di stanze stupefacenti (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Caos (Preludio)
-02.	1996 La Stagione Del Rumore
-03.	Io Ti Maledico
-04.	Non Me Ne Frega Niente(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077680E35C0163DCB200C95E74306F68B3F5969A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123146   (792405) от 07.04.2017
-
-The Chainsmokers - Memories...Do Not Open (2017) [MP3|320 Kbps] <Pop, Indie Pop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The One  2:58
-02.  Break Up Every Night  3:28
-03.  Bloodstream  3:44
-04.  Don't Say ( feat. Emily Warren) 3:49(   Читать дальше...   )Жанр: Pop, Indie Pop, ElectropopПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BA570653D8DF1CA027D7E5A0F1153D0EA66F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123433   (792373) от 07.04.2017
 
 Мари Краймбрери - ННКН (2017) [MP3|320 Kbps] <EuroPop>
@@ -181,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792373.jpg" />
 </div>
 
 
@@ -210,7 +35,7 @@ Gilla - The HQ Vinil Collection (1975-1980) All Studio Albums [MP3|320 Kbps] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792336.jpg" />
 </div>
 
 
@@ -239,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792335.jpg" />
 </div>
 
 
@@ -268,7 +93,7 @@ Noel - Is There More To Life Than Dancing? (1979) LP [MP3|320 Kbps] <Electronic,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792269.jpg" />
 </div>
 
 
@@ -297,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792101.jpg" />
 </div>
 
 
@@ -326,7 +151,7 @@ ABBA - Voyage (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791929.jpg" />
 </div>
 
 
@@ -355,7 +180,7 @@ ABBA - Voyage (2021) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791923.jpg" />
 </div>
 
 
@@ -384,7 +209,7 @@ VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (20
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791705.jpg" />
 </div>
 
 
@@ -413,7 +238,7 @@ Craig David - The Time Is Now (2018) [MP3|320 Kbps] <Pop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791628.jpg" />
 </div>
 
 
@@ -442,7 +267,7 @@ Gayle Adams - 2 Albums (1980, 1982) Reissue CD, 1992, Unidisc [MP3|320 Kbps] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791579.jpg" />
 </div>
 
 
@@ -471,7 +296,7 @@ Watson Beasley - Watson Beasley (1980) Reissue CD, 2003, Unidisc [MP3|320 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791528.jpg" />
 </div>
 
 
@@ -500,7 +325,7 @@ Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791455.jpg" />
 </div>
 
 
@@ -529,7 +354,7 @@ Star City - I'm A Man (1978) Reissue CD, 1998, Unidisc [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791335.jpg" />
 </div>
 
 
@@ -558,7 +383,7 @@ Jebadiah - Rock 'N' Soul (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791332.jpg" />
 </div>
 
 
@@ -587,7 +412,7 @@ VA - DMC Dance Mixes 254 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791330.jpg" />
 </div>
 
 
@@ -616,7 +441,7 @@ VA - DMC Dance Extra Mixes 150 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791307.jpg" />
 </div>
 
 
@@ -645,7 +470,7 @@ VA - DMC Dance Mixes 255 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791293.jpg" />
 </div>
 
 
@@ -674,7 +499,7 @@ Captain Hollywood Project - Love Is Not Sex (1993) [FLAC|Lossless|tracks + .cue]
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791207.jpg" />
 </div>
 
 
@@ -703,7 +528,7 @@ Michael Jackson - Discography (1967-2009) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791109.jpg" />
 </div>
 
 
@@ -732,7 +557,7 @@ Top Secret - Top Secret (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790756.jpg" />
 </div>
 
 
@@ -746,6 +571,177 @@ Top Secret - Top Secret (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81D6B7436A4A263F294FF25588AB7BDAEFF0D378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387805   (790674) от 03.06.2020
+
+Hitmasters - Hey Sexy Lady (2003) [FLAC|Lossless|image + .cue] <Pop, Parody>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Steuersong (Lass Kanzlern) (3:10)
+02. Ein Rudi Völler (3:14)
+03. Everytime (3:02)
+04. Can't Get You Out Of My Head (3:50)(   Читать дальше...   )Жанр: Pop, ParodyПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F21D52D343C6BC73017CF9D92222BF6D78F79B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387800   (790673) от 03.06.2020
+
+VA - The Non-Stop Party Album (2000) [FLAC|Lossless|image + .cue] <Disco, Euro House, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shout - Lulu (2:55)
+02. Back to the 60s Vol. 1- Dancing in the Street- (I Can't Get No) - Tight Fit (3:56)
+03. Stars on 45 Vol. 1-The Beatles Medley- Stars on 45-Venus-Sugar Sugar - Starsound Orchestra (4:30)
+04. You Sexy Thing - Hot Chocolate (3:55)(   Читать дальше...   )Жанр: Disco, Euro House, CoverПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C032BF42FD44A7ECBA5C9A3D9781B9EAB63EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202353   (790534) от 28.01.2018
+
+DNCE - DNCE (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNCE
+02. Body Moves
+03. Cake by the Ocean
+04. Doctor You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E4584019AA1669DD33A4D9E7ADAF16680B18F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202163   (790527) от 28.01.2018
+
+Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/11. IRM (2:41)
+02/11. Set Yourself On Fire (3:53)
+03/11. Jamais (4:02)
+04/11. Heaven Can Wait (2:22)(   Читать дальше...   )Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202319   (790493) от 28.01.2018
+
+Сати Казанова - Спасибо тебе (2018) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Радость, Привет
+02. Спит Мое Счастье
+03. Всем Салам (fеаt. Ринат Каримов)
+04. Моя Правда(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A19F77D27200B7A4B0721D5C6A1B9CDE5BE744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275438   (790435) от 11.01.2019
+
+Alizee - Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moi… Lolita (Reloaded)Жанр: Deep House, PopПродолжительность: 02:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30D9F096810210F66043AC747A6864FF4A840F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

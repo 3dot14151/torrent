@@ -1,3 +1,55 @@
+###  Публикация: 1141623   (648491) от 11.06.2017
+
+Николай Рерих | Держава света. Священный дозор (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник представляет собой собрание сочинений выдающегося русского художника, ученого, философа, путешественника и общественного деятеля – Н.К. Рериха – на основе прижизненных сборников, составленных самим автором, с добавлением статей, до сих пор не публиковавшихся или печатавшихся лишь в периодических изданиях.Жанр: ЭзотерикаПродолжительность: 14:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCB823D53E707A9BB59883A45259DC436A24588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031757   (647634) от 06.07.2016
+
+Стивен Хантер | Сезон охоты на людей (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охота на крупную дичь неизбежно приводит к гибели более мелких существ, случайно оказавшихся на прицеле у охотника. Поединок снайперов, начатый много лет назад, наконец-то закончен. Защищая свою семью от безжалостного убийцы, Боб Ли Суэггер раскрывает преступление, корни которого уходят в далекое прошлое.Жанр: Боевик, триллерПродолжительность: 25:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1B584C5F397F9CDC9A512ECBD2CCC3A46260F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031859   (645443) от 07.07.2016
 
 Билл Брайсон | Краткая история почти всего на свете (2016) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645443.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645430.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642839.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642720.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642715.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642563.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641797.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641781.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640105.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639087.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638906.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638043.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637184.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636347.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636135.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636010.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635819.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634986.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632661.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631347.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630299.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629961.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Viki - Сказки на Ночь I-II  [2011-2012] [MP3, WAV, FLAC]
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628448.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628358.jpg" />
 </div>
 
 
@@ -643,59 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A893BD2401BBCF44F44F339F6942A0276EF6E7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293141   (628237) от 08.04.2019
-
-Богдан Сушинский | Правитель страны Даурия (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман известного писателя, Богдана Сушинского посвящен событиям, связанным с деятельностью генерал-лейтенанта, Верховного Главнокомандующего вооруженными силами Дальнего Востока, «правителя страны Даурия» или «Российской Восточной Окраины», походного атамана Амурского, Уссурийского и Забайкальского казачеств Григория Семёнова. В основу романа положены малоизвестные (   Читать дальше...   )Жанр: Военные приключенияПродолжительность: 15:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE28ACDD95F824534D6C4EFE59008E1C1C5CEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293020   (628133) от 08.04.2019
-
-Борис Кригер | Руководство по сотворению миров (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о том, что мир, в котором мы живем, не является единственно возможным. Причем "реальность" нашего мира не абсолютна. После того, как человечество на практике познакомилось с концепцией виртуальной реальности, стало очевидно, что миры могут быть любыми. Вместе с тем то, каким может быть другой мир, ничем не ограничено.
-Эта книга ставит вопросы, (   Читать дальше...   )Жанр: Основы практической космоинвентологииПродолжительность: 03:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D875A39514C261B0997BF648BA0A32C05452B527
 ```
 
 https://mybot314.ru/tekegram_catalog/

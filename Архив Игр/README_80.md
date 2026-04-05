@@ -1,3 +1,58 @@
+###  Публикация: 467276   (81901) от 13.03.2012
+
+[RePack] Worms: Reloaded {1.0.0.474 + 7 DLC} [Multi5/+] 2010 | Fenixx
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет минуло с момента выхода Worms Armageddon, но пошаговый комический хаос продолжается вместе с Worms Reloaded, это полностью новое издание для PC через Steam. Worms Reloaded поддерживает игру до 4-х соперников онлайн, автономный режим мультиплеера на одном компьютере, голосовой канал, множество сумасшедшего нового оружия (возвращено некоторое знаковое оружие из Worms Armageddon), достижения, доски почета, все темы пейзажев с высоким разрешением, целый ряд блестящих карт фортов в новом режиме Forts, новый редактор ландшафтов, новые режимы игры, головные уборы, могилки и голоса (звуки).
+В довершение ко всему, есть также одиночная игра с компьютером, смертельные матчи (deathmatches), гонки, форты и головоломки. Наслаждайтесь новым High Definition полноцветным графическим движком, пересмотренная физика и карьера с новым компьютерным A.I. интеллектом с 7 типами сложности, начиная от легкого до очень трудного, компьютер стал очень умным и у него появились такие черты как мстительность, дерзость и "темные черты характера"! Игра также обладает различными вариантами настроек и включает в себя тысячи возможностей настройки для вашей команды червей, тонны игровых параметров и пользовательские уровни, поэтому вы можете играть в игру, как вы хотите!
+
+(   Читать дальше...   )Тип издания: RePackРазработчик: Team17 SoftwaretЖанр: Strategy (Turn-based)Язык озвучки: русский, английский,немецкий, французский, итальянскийЯзык интерфейса: русский, английский,немецкий, французский, итальянский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466611   (81739) от 12.03.2012
+
+[XBox360] Top Gun: Hard Lock [ENG]  (PAL/NTSC-U) (2012)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Top Gun: Hard Lock – аркадная авиаигра, часть серии Top Gun, основанной на одноименном фильме 1986 года с Томом Крузом в главной роли. Игра позволяет участвовать в военных воздушных боях. Игрок контролирует пилота легендарного истребителя F-14 Tomcats, противостоящего враждебным «Мигам».Разработчик: Headstrong GamesЖанр: Arcade/Flight Combat/3D/3rd PersonЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0C365408B018AA5699A447A151660AD196260D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466746   (81706) от 12.03.2012
 
 [XBox360] Snipers [ENG] (PAL) (2012)
@@ -6,7 +61,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81706.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ S.T.A.L.K.E.R. Source [Ru] (RePack) 2012 | [Freedom]_killer
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81524.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ The Second Guest [Ge] (P) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81440.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81278.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81096.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Poker Night at The Inventory [En] (RePack) 2010 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81087.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ I Was an Atomic Mutant! / I was an Atomic Mutant: Убойные будни [Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80985.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80288.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80262.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80230.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ Depth Hunter [Multi5/-] (Lossless RePack/1.10) 2011 | R.G. Packers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80224.jpg" />
 </div>
 
 
@@ -302,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80190.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79805.jpg" />
 </div>
 
 
@@ -358,7 +413,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / Зов Припяти. PostScript Anarchy [Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79692.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ Tank VS Worms (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79621.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ Billiardino (L) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79615.jpg" />
 </div>
 
 
@@ -438,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79268.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Cracked Steam 26.02.2012. [Ru] [Обновляемая]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79267.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78844.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ The New Year Bustle / Новогодняя Суматоха (P) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78743.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78715.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ Depth Hunter [Multi5/-] (L) 2011 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78452.jpg" />
 </div>
 
 
@@ -601,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77839.jpg" />
 </div>
 
 
@@ -627,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77430.jpg" />
 </div>
 
 
@@ -639,63 +694,6 @@ Eufloria - это  инди-игра, в  которой  вам  предсто
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451005   (76996) от 18.02.2012
-
-[Patch] Counter-Strike: Source {1.0.0.70} (Non-Steam) [Multi] 2012 | Sun-t software
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной апдейт для лучшего в мире онлайнового экшена. В патче присутствует автоапдейтер, который по мере выхода обновлений, будет обновлять ваш клиент CS:S до актуальной (последней) версии.(   Читать дальше...   )Разработчик: Valve
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F722FA34ED008C27768B646394B723B5BF93619B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452832   (76931) от 18.02.2012
-
-[PS2] Army Men: Sarge's Heroes 2 [NTSC] [ENG] (2001)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парни вернулись и готовы к сражению в Army Men: Sarge's Heroes 2!
-Сержант и Компании Браво удалось помешать первому нападению Армии Tan,
-но смогут ли они сделать это снова? Генерал Plastro объединялся с Brigitte Bleu,
-дьявольски предательским Синим Шпионом, чтобы разрушить Зеленую Нацию раз и навсегда.
-Приключение продолжается и Сержант с Викки ведут свой бой через бассейны,
-под кроватями, и через настольные компьютеры к конечному броску против Plastro и его войск.2001Жанр: Action > Shooter > Third-PersonЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E8EC0AF8298B2F887BA1BA8572402B5E709975
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 997839   (871481) от 18.03.2016
+
+Сферические колеса на магнитной подвеске обеспечат маневренностью автомобили-роботы будущих поколений
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_871481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Goodyear, которая является производителем автомобильных покрышек с мировым именем, разработала дизайн сферической автомобильной покрышки, которая позволит автоматическим транспортным средствам перемещаться боком так же легко, как нынешние автомобили могут перемешаться вперед или назад. Применение подвески со сферическими колесами позволит избавиться от ограничений (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997557   (871464) от 18.03.2016
+
+Россиян хотят штрафовать за пропаганду обхода интернет-блокировок
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_871464.jpg" />
+</div>
+
+
+###  Подробнее
+
+За информацию о способах обойти блокировку сайта будут штрафовать
+Роскомнадзор дополнил поправки в закон «Об информации...»: «зеркала» предложено приравнять к заблокированным сайтам, а за пропаганду средств обхода блокировки — ввести штрафы.За пропаганду способов обхода блокировки интернет-ресурсов будут штрафовать. Такие поправки в закон "Об информации, информационных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845912   (871290) от 26.02.2015
+
+Менталист / The Mentalist (2014) WEB-DLRip (Сезон 7, серии 1-13 из 13) (BaibaKo)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патрик Джейн — детектив и независимый консультант из Калифорнийского Бюро Расследований (CBI), он использует свои отточенные, как лезвие, навыки наблюдения для раскрытия тяжких преступлений. В самом Бюро Джейн известен за частые нарушения протокола, а также за его звездное прошлое: он работал медиумом, однако теперь сам признает, что симулировал паранормальные способности. (   Читать дальше...   )Производство: СШАЖанр: Драма, криминалРежиссер: Рэндалл Зиск, Крис Лонг, Саймон Бейкер, Роберт Данкан МакНилАктеры: Саймон Бейкер, Робин Танни, Аманда Риджетти, Тим Кенг, Овайн Йомен, Эммануэль Шрики и др.Перевод: Профессиональный многоголосый закадровый - BaibaKoОзвучка: Елена Григорьева, Татьяна Оболевич, Алексей Кузнецов, Виталий Ткаченко и Александр ФурманФормат: AVIПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33447C3C112780EA59AAF4F152D0B912B71FB1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842018   (871284) от 26.02.2015
+
+Молодёжка (2014) SATRip (сезон 2, серии 1-40 из 40)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Россия, ООО "Арт Пикчерс Вижн"Жанр: драма, спортРежиссер: Сергей АрлановПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E135A81A9288B3C7B5BB2008FC2F8F75E28DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997564   (870986) от 18.03.2016
+
+Microsoft пытается окончательно монополизировать рынок ОС
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_870986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft анонсировала выпуск SQL Server под Linux, а также готовит операционную систему на базе Debian для сетевых устройств. Кроме этого, компания вступила в Eclipse Foundation.Но наряду с этими событиями произошли и другие, гораздо менее приятные сердцу сторонника GPL и открытого ПО. Речь идёт о попытке запатентовать технологию, уже реализованную в Ubuntu, а также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975790   (870981) от 18.03.2016
+
+Война и мир / War and Peace (2015) WEB-DL\BDRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) (NewStudio)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала развивается в России XIX века, охватывая период с 1805 по 1812 годы. В основу сюжета положен роман Льва Толстого "Война и мир", основное внимание сфокусировано на судьбах Пьера Безухова, Андрея Болконского и Наташи Ростовой.Производство: США, ВеликобританияЖанр: драма, мелодрама, военныйРежиссер: Том ХарперАктеры: Анейрин Барнард, Пол Дано, Лили Джеймс, Джеймс Нортон, Оливия Росс, Рори Кинэн, Гийом Форе, Дэвид Куилтер, Кит Коннор, Отто Фаррант, Хлоя Пирри, Теренс Бисли и др.Перевод: Многоголосый закадровый, профессиональный (NewStudio)Продолжительность: ~00:59:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB30544A9D4A8FD2B97C2306E79FDB5347B6176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998098   (870978) от 18.03.2016
 
 Malwarebytes Anti-Malware Premium 2.2.1.1043 RePack by D!akov [Multi/Ru]
@@ -6,7 +163,7 @@ Malwarebytes Anti-Malware Premium 2.2.1.1043 RePack by D!akov [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870978.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870977.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870976.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870975.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ Spintires (2014) [Ru/Multi] (1.0/DEV.03.03.16) Repack Dаrius
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870974.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ Apple отключила для России функцию Частный уз�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_870915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_870915.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ WADA может разрешить спортсменам употреблять
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_870829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_870829.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ Skype 7.33.32.104 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870698.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ Anno 2070 (2011) [Ru/En] (2.0.7780/dlc) Repack R.G. Механики [Complete E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870686.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ Windows XP SP3 RUS VL+ Быстрая установка из ESD by yahoo00 v3 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870685.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870684.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870463.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ Minecraft (2014) [Ru/Multi] (1.7.5 Final) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870454.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870408.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ Microsoft Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated (AIO)
 >>54
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870341.jpg" />
 </div>
 
 
@@ -401,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_870260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_870260.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ Microsoft «подружила» Проводник Windows с файловой 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_870230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_870230.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869621.jpg" />
 </div>
 
 
@@ -479,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_869529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_869529.jpg" />
 </div>
 
 
@@ -505,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869406.jpg" />
 </div>
 
 
@@ -518,168 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D54ED81DDAA4873D058121F02C6849EE4682BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107047   (869389) от 21.02.2017
-
-Пиратские зеркальные сайты заблокируют навсегда
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_869389.jpg" />
-</div>
-
-
-###  Подробнее
-
-В российском законодательстве впервые появится термин "производный сайт в сети Интернет". Будет прописан порядок внесудебного ограничения по доступу к таким сайтам, нелегально распространяющим музыку, фильмы и книги. Фотографии под запрет не попадают.Правительство разместило на официальном сайте распоряжение о внесении в Госдуму законопроекта, направленного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496226   (869359) от 19.09.2021
-
-ЦБ заблокирует платежи россиян в адрес криптобирж
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_869359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банк России ведет обсуждение поправок в законодательство, которые расширят запрет на использование криптовалют.Центральный банк РФ видит высокие риски в развитии рынка криптовалют, ведет работу с банками с целью ограничить переводы платежей в пользу криптовалютных бирж, готовит законодательные изменения, заявил первый зампред ЦБ Сергей Швецов.По его словам, в настоящее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188128   (869275) от 01.04.2010
-
-[Игры] Сборник игр для сенсорных экранов WVGA (480х800) (Windows Mobile 6-6.5 )
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой сборник игр для кпк с экраном WVGA (480х800), состоящий из ~ 154 игр. Большинство игр проверено на работоспособность, все крякнуты, либо имеют кейген. Не забываем читать Read Me в папках с играми, где есть. …Жанр: 3D
- RPG
- Аркады
- Бильярд(   Читать дальше...   )Язык интерфейса: английский(multi) и русский
-Разрешение экрана: 480х800
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998124   (869263) от 19.03.2016
-
-JetBrains PhpStorm 2016.1 Build #PS-145.258 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869263.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PhpStorm представляет coбoй легкий и удобный редактор PHP, который максимально повысит вашу производительность. Редактор отлично понимает код, дает удобные подсказки, быструю навигацию и отслеживает ошибки "на лету". IDE всегда готова помочь Вам собрать ваш код, запустить юнит-тесты и обеспечить визуальную отладку. PhpStorm поддерживает PHP, CSS, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF27B226D133837F1C8BFD18E5CDE3F6B4AEF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998034   (869260) от 19.03.2016
-
-Windows XP SP3 IInsideP4 v15.03.2016 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ на основе Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian.
-ru_windows_xp_professional_with_service_pack_3_x86_cd_vl_x14-74146
-Интегрированы Драйвера самых распространённых AHCI-контроллеров AMD, nForce, Intel, JMicron, SiS, VIA от simplix, Установлено обновление по 01.05.2014 от simplix, DirectX Redistributable - Июнь 2010, ERUNT - утилита (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD01BC2FAD4D092C547B3B65BA8AC9649E59B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998330   (869259) от 19.03.2016
-
-Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (19.03.2016) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E31A7552EDC5FAE547AADD39C508BC82CA431C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

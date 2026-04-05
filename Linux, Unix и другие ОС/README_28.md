@@ -1,29 +1,3 @@
-###  Публикация: 1650672   (194848) от 03.08.2023
-
-Kali Linux 2023.2 [amd64, i386, arm64] 8xDVD, 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194848.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 мая 2023 состоялся релиз обновления дистрибутива Kali Linux 2023.2, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272EF1FF7E4130FC541624AE5CC42E764C495792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653753   (194149) от 17.08.2023
 
 AltLinux 8 СП [amd64] 3xDVD
@@ -32,7 +6,7 @@ AltLinux 8 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194149.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mageia 9 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193564.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mageia 9 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193556.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Athena OS amd64 [Хакинг, аудит, безопасность] 22.11.04 [a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190727.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ SystemRescue 10.02 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187899.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ KingStation 0.2a [x86-64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184182.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ BlackArch Linux 2020.12.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178856.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Kali Linux 2023.3 [amd64, i386, arm64] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177899.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175732.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Debian Edu - Skolelinux 10.7.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175678.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175646.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ BlackArch Linux 2016.12.20 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173741.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ BackBox Linux 8 [Аудит безопасности, хакинг] 1xDVD [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172933.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ CentOS 8.3 (2011) [amd64] 1xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169345.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163086.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ Debian Edu - Skolelinux 11.6.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163063.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163042.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158819.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Whonix 12.0.0.3.2  [анонимный доступ в сети] [x86] Обра�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158545.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Cyborg Hawk 1.1 (хакинг и анализ безопасности) [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158322.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС *Nix - обсуждение
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_156685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156685.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155142.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Wowza Streaming Engine (linux) 4.7.8 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154734.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153629.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ elementary OS 6.1 Jolnir [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151959.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ elementary OS 6.1 Jolnir [x86-64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AC8290650DB5AE9115C4B1640F312CA721F896E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589187   (151072) от 14.12.2012
+
+Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступен релиз Univention Corporate Server 3.1, промышленного дистрибутива, основанного на Debian GNU/Linux 6 (Squeeze) и ориентированного на обеспечение поддержки корпоративной IT-инфраструктуры. Для установки задействован собственный инсталлятор, оптимизированный для быстрого развёртывания готовых сервисов. Для локального и централизованного администрирования используется специальный web-интерфейс. Для управления конфигурацией подготовлен инструментарий Univention Configuration Registry, позволяющий через наглядный интерфейс генерировать файлы конфигурации для разных сервисов и программ.
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

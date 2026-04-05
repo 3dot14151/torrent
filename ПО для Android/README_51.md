@@ -1,3 +1,107 @@
+###  Публикация: 1295934   (616738) от 14.04.2019
+
+Билеты ПДД 2019 v9.40 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобное приложение-автошкола для подготовки к теоретическому экзамену в ГИБДД.Тип издания: Пиратка (удалена реклама)Релиз состоялся: 29.03.2019Разработчик: Bit-WorldПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422E67D80C8344608292D99E3C3C0A8E78DDE01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296544   (611748) от 17.04.2019
+
+Стихи зарубежных поэтов v1.0.4.5 AdFree [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи зарубежных поэтов - содержит более 6000 стихи 122 зарубежных поэтов.Тип издания: AdFree (удалена реклама)Релиз состоялся: 07.04.2019Разработчик: TTdictionaryПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEDEA09F4DE45CC7456E58CC592F4B95623C2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296638   (609913) от 18.04.2019
+
+TВ - Онлайн v2.3 Mod [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш телевизор всегда с вами! Смотрите каналы от спорта до музыки, от новостей до мультфильмов, без ограничений! Каждый день мы добавляем страны и новые каналы. Телевизионные каналы обновляются автоматически. Вы можете добавить в избранное, искать среди каналов выбранной страны, просматривать в минимизированном режиме. Многие функции в доработке будут еще лучше!Тип издания: (Mod: удалена реклама и хлам)Релиз состоялся: 13.04.2019Разработчик: Angry developerПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889C5BED43CEF466F3225ECC1581EA5D193D433C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902947   (608451) от 27.06.2015
+
+Scientific Calculator Pro / Научный калькулятор Pro v2.5.4 [Ru/Multi] - калькулятор с построением графиков
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это удобный калькулятор, который может быть использован для ваших математических задач.Тип издания: ПираткаРелиз состоялся: 27.06.2015Разработчик: RealMaxПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2A738D22F1942C41632F0D39CBA828CE9E0973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913296   (606915) от 28.06.2015
 
 Бесплатные книги - Wattpad 5.2.1 [Ru/Multi]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606915.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606581.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ AlReader 1.65 150531 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604585.jpg" />
 </div>
 
 
@@ -90,7 +194,7 @@ Infinite Painter v6.3.21  [Ru/Multi] - редактор растровой гр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603994.jpg" />
 </div>
 
 
@@ -117,7 +221,7 @@ Digital Call Recorder Pro 2.49 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600869.jpg" />
 </div>
 
 
@@ -146,7 +250,7 @@ Hydro Coach - пейте воду 2.9.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598330.jpg" />
 </div>
 
 
@@ -172,7 +276,7 @@ Car Launcher Pro 1.5.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597718.jpg" />
 </div>
 
 
@@ -199,7 +303,7 @@ Microsoft Office Mobile 15.0.4220.2300 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597436.jpg" />
 </div>
 
 
@@ -225,7 +329,7 @@ YMusic - YouTube Music Player & Downloader v3.7.10 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597370.jpg" />
 </div>
 
 
@@ -251,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596424.jpg" />
 </div>
 
 
@@ -277,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596369.jpg" />
 </div>
 
 
@@ -303,7 +407,7 @@ Aquarium Live Wallpaper v1.7 (Mod Ad Free) [En] - Живые обои с акв�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594407.jpg" />
 </div>
 
 
@@ -329,7 +433,7 @@ SeeTV.tv v1.03 Ad-Free [Ru/Ua/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593603.jpg" />
 </div>
 
 
@@ -355,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593163.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592653.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592595.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592593.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592578.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ Super Backup Pro: SMS&Contacts 1.8.07.03 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592197.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ ZenMate Security & Privacy VPN 2.3.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592181.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ The Weather Channel 5.6.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591849.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591561.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:110EB368760CC4DEC8A53B75B678C3575383AC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450432   (591552) от 12.05.2022
-
-ЕГЭ Русский Язык  v1.0-114 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение содержит в себе огромное количество материалов для подготовки к ЕГЭ по Русскому Языку в 2021-м году, а также свыше 2000 практических заданий и множество тестов!Тип издания: Пиратка (открыт Premium)Релиз состоялся: 30.04.2022Разработчик: ЕГЭ 2022Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16A1FCA002DECC48FE63C9B53B7A6839B8BF05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915846   (591344) от 07.07.2015
-
-Randomer / Генератор случайных чисел 1.0 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Randomer - программа, с помощью которой Вы можете сгенерировать одно или несколько случайных чисел в заданном промежутке. Программа обладает интуитивно понятным интерфейсом.Тип издания: freeРелиз состоялся: 29.06.2015Разработчик: RamGauntПоддерживаемая ОС: Android 4.0.3 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1433A231E130482DD26A4118EA5E6041774108C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450392   (591151) от 13.05.2022
-
-ЕГЭ Обществознание v1.0-108 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение содержит в себе огромное количество материалов для подготовки к ЕГЭ по Обществознанию в 2022-м году, а также свыше 2000 практических заданий и множество тестов!Тип издания: Пиратка (открыт Premium)Релиз состоялся: 10.05.2022Разработчик: ЕГЭ 2022Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82897DEDA150EEB2265D364E2E354F1B3B94E0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441379   (590536) от 14.05.2022
-
-tinyCam Monitor PRO v15.3.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее приложение под Android для удаленного видеонаблюдения, управления и записи изображений с IP камер, видеосерверов и цифровых видеорегистраторов с CCTV камерами (более чем 5 миллионов загрузок). Мониторьте вашего ребенка, домашних животных, дом, бизнес, трафик и погоду удаленно и безопасно (данные не пересылаются третьим лицам). Купите сейчас, чтобы получить (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 9 мая 2022 г.Разработчик: Tiny Solutions LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5335BB833F1DFEE9F7838D2D8AA41D6357D3200A
 ```
 
 https://mybot314.ru/tekegram_catalog/

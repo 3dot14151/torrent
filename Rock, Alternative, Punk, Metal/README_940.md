@@ -1,3 +1,32 @@
+###  Публикация: 966211   (221184) от 17.12.2015
+
+Dendera - Pillars Of Creation (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claim Our Throne (05:48)
+02. Bloodlust (05:06)
+03. In High Tide (06:01)
+04. Disillusioned (06:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492C3C9C4516DAF5209E5B3E5F3F5FA4C045D83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342995   (221163) от 04.12.2019
 
 Борис Гребенщиков - Почему не падает небо (2019) Single [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221163.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ In Each Hand A Cutlass - The Kraken (2015) [MP3|320 кб/с] <Post-Rock, Post-Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221159.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Cain's Dinasty - The Hollow Earth (2015) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221126.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ mewithoutYou - Pale Horses (2015) [MP3|320 кб/с] <Indie Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221117.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Roger Waters - Live American Radio Broadcast (2020) 3CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221090.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221087.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ SikTh - Opacities (2015) EP [MP3|320 кб/с]<Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221082.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ BrainStorm - Sbornik, Vol.1 (2019) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221065.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ Meg Myers - Sorry (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221063.jpg" />
 </div>
 
 
@@ -262,7 +291,7 @@ Amanda Palmer - Piano Is Evil (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220999.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ Linman - Heaven Calls (1992) 2xCD, Reissue, 2023, MelodicRock Classics [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220995.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Black Cats NYC - Free Cake (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220952.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Kepler Ten - A New Kind of Sideways (2020) [MP3|320 Kbps] <Heavy Prog>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220939.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Meg Myers - Take Me To The Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220928.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Sonata Arctica - Christmas Spirits (2015) EP [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220924.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Bachelor's Grove - EVP (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220818.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Half Gramme of Soma - 3 Albums (2013-2022) [MP3|320 Kbps] <Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220811.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Tau & The Drones of  Praise - 3 Albums (2019-2022) [MP3|320 Kbps] <Psychedelic, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220803.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Killer Be Killed - Reluctant Hero (2020) [MP3|320 Kbps] <Metalcore, Groove-Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220796.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Bruce Gaitsch - Aphasia (1997) Japanese Edition, Reissue, 1999, Cool Sound [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220791.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ The Vault - 2 Albums (2019-2020) [MP3|320 Kbps] <Heavy Rock, Stoner, Groove>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220781.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Renacer - Siembra y cosecha (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220770.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ VA - The Sound Hall of Fame (2016) [MP3|320 Kbps] <Glam Metal, Hard Rock, Rhythm
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220763.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Steelover - Stainless (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220744.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ C.T.P. Christian Tolle Project - Now & Then Encore (2022) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220723.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ C.T.P. Christian Tolle Project - Now & Then Encore (2022) [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7D4AA33D93C2E89AC8AD685B9AEE747B4E49CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585687   (220716) от 23.10.2022
-
-Blakk Ledd - Heavy Metal Fans (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Metal Fans
-02. Cold Trash Coming
-03. Bad Sign
-04. Ignite Your Life(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8A0CD65F40AA5CF13E9843844830098B361627
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 999469   (717242) от 08.06.2016
+
+Day of the Tentacle Remastered (2016) [En/Multi] (1.3.11) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Day of the Tentacle Remastered — одна из легенд золотого века приключенческих игр, подарившего нам Grim Fandango, Monkey Island, Sam & Max и Full Throttle. Явившись в мрачное будущее, наш 2016 год, прямиком из начала 90-х, она готова поразить своим великолепием тех, кто не застал той эпохи, и утешить тех, кто тоскует по ней.Тип издания: LicenseРазработчик: Double Fine ProductionsЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE529C09893590FBBC8C536C189BF0A7C2307A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219090   (716916) от 12.04.2018
+
+The Road to Hades (2018) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716916.jpg" />
+</div>
+
+
+###  Подробнее
+
+TRTH (Дорога к хадесам) – приключенческая игра ужасов, наполненная азиатскими мифами и искусством. Ваша задача заключается в безопасном сопровождении мертвой девушки. Игра приглашает вас в мир, полный ужасающих существ и потрясающих сцен. Новая красота и ужас ждут вас сейчас.Тип издания: LicenseРазработчик: AUTOSAVEЖанр: Adventure (Horror), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFD4617FCD609C1B87E553354606E42BAF6CD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400516   (716584) от 06.08.2020
+
+Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716584.jpg" />
+</div>
+
+
+###  Подробнее
+
+На далёком таинственном острове на берег выбросило череп, и местное божество пробудило его. Череп получил имя Skully, и теперь он должен остановить войну между тремя родственниками божества, потому что она угрожает их родному острову.Тип издания: LicenseРазработчик: Finish Line GamesЖанр: Adventure, Casual, Platformer, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEDCF5E65706055C4776E169F84F8C34DE48D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332225   (716446) от 06.08.2020
 
 Subnautica (2018) [Ru/Multi] (65786) Repack xatab
@@ -6,7 +84,7 @@ Subnautica (2018) [Ru/Multi] (65786) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716446.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) Repack Other s [Episodes 1-6]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715286.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715056.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715053.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714368.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Call of Cthulhu (2018) [Ru/En] (1.0/u2) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714356.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714355.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713928.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712270.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Resolutiion (2020) [Ru/Multi] (1.1.4.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708818.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708435.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706799.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706693.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706684.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706666.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) License CODEX [Collectors Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706665.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Sherlock Holmes: Chapter One / Шерлок Холмс: Глава 1 (2021) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706574.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ The Station (2018) [En] (B1.53.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703970.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Matanga (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700804.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700788.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_699499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699499.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Matanga (2019) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699021.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698908.jpg" />
 </div>
 
 
@@ -590,85 +668,6 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:835BAA1570F5FD569ADEEE3ED782511BA23DDBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402879   (695434) от 17.08.2020
-
-Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуальная новелла об абьюзе, идеализации и интимности. Проведите лето неблагополучной любви с разветвленными сюжетными линиями, неожиданными поворотами, внезапными изменениями и инновационной механикой, где вы сами выбираете, какие органы чувств задействовать с вашим партнером. В эти моменты вы будете узнвать новое о нем, его личности и его прошлом, что заставит (   Читать дальше...   )Тип издания: LicenseРазработчик: Eyeguys, Lorenzo RedaelliЖанр: Приключение, Визуальные новеллы, ДрамаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07608501F8913B7BD01E42FB011D0F0460A55C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027903   (693882) от 20.06.2016
-
-CRIMSON ROOM DECADE (2016) [Ru/Multi] (1.0) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя десять лет после выхода «Crimson Room», оригинальной игры на Flash, встречайте ее сиквел – игру «Crimson Room Decade». Инспектор Жан-Жак Годо оказывается запертым в Красной комнате. Закрытая дверь, подвешенная лампочка, разбросанные повсюду бутылки вина... Он уже был здесь?
-Чтобы выбраться, вам нужно использовать все, что находится вокруг вас. Исследуйте каждый (   Читать дальше...   )Тип издания: RepackРазработчик: Dream Holdings, TAKAGISM Inc.Жанр: Adventure, 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B7BD88931F5ED0E4BB7D8E54D26C2F09896BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288772   (693511) от 12.03.2019
-
-Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычный отпуск в 60-х годах в параллельной вселенной! Научно-фантастическая приключенческая игра с созданными вручную декорациями. Trüberbrook – это захватывающая, полная тайн и загадок приключенческая игра в научно-фантастическом-антураже.Тип издания: LicenseРазработчик: btfЖанр: Adventure, Quest, Mystery, Sci-FiЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492F450F85FC05FD3AEC315D4C661EF0A98B5D91
 ```
 
 https://mybot314.ru/tekegram_catalog/

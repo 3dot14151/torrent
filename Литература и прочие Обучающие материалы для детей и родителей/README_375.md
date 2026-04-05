@@ -1,3 +1,57 @@
+###  Публикация: 1625201   (200162) от 09.04.2023
+
+Т.С. Степанова (сост.) | Математика. Весь школьный курс в таблицах (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие составлено в виде таблиц, систематизирующих и обобщающих теоретические сведения по школьному курсу математики.
+В книге в доступной форме изложены все разделы математики, изучаемые в средней школе.
+Пособие рекомендуется использовать для коллективной работы в школе и индивидуальных занятий дома.Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80083AC815AF7A35F08D6D7CF7A94DE04BF6E86C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625616   (200121) от 10.04.2023
+
+Книжная серия | 100 вопросов и ответов [15 книг] (2020-2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как доступно рассказать маленькому почемучке о Вселенной и космосе, удивительном мире животных и растений, странах и континентах, интересных местах нашей планеты и истории России? В этом поможет серия красочно иллюстрированных энциклопедий «100 вопросов и ответов». Научно-популярное издание для младшего и среднего школьного возраста.Жанр: Научно-популярная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FB230B5D219BC00406B785E8BCB53097AC04D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625576   (200049) от 10.04.2023
 
 Н.М. Шахмаев и др. | Физика. Учебник для 11 класса (1991) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200049.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199982.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199979.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199907.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199501.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198337.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197779.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197449.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197448.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197089.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196838.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196424.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195329.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195074.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194679.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_194669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194669.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194663.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194026.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193420.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193249.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193239.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193033.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193015.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193014.jpg" />
 </div>
 
 
@@ -633,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:304EF2F8BE271CAA1379F3311A18EB7B88DD32DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657013   (192994) от 02.09.2023
-
-Н.Н. Никитин | Геометрия. Учебник для 6-8 классов (1964) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192994.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом учебнике геометрии стиль изложения учебного материала для младших классов существенно отличается от стиля изложения для более старших классов. Элементы дедукции нарастают постепенно и становятся преобладающими лишь в седьмом классе. Увеличено число иллюстраций, при этом, кроме чертежей, даны и рисунки. Они, с одной стороны, оживляют содержание учебника, с (   Читать дальше...   )Жанр: МатематикаИздательство: УчпедгизФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9D81270DFACFBD98AD02C5A6B4301C25605BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587313   (192957) от 30.10.2022
-
-Икс Аверн | Жуткие архивы доктора Икса [3 книги] (2022) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Жуткие архивы доктора Икса Аверна» – это три истории о необъяснимых сверхъестественных явлениях, рассказанные таинственным доктором Иксом Аверном. Кто он? И происходило ли это на самом деле? Книги держат в напряжении до последней страницы! Внутри чёрно-белые иллюстрации. Рекомендуем детям и подросткам от 10 до 13 лет.Жанр: Детская фантастикаПеревод: М. С. НиколаеваФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF798B5425F4534E2FDA6BEBD1F1D2E8765E7CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1178132   (360463) от 19.10.2018
+
+Wolfenstein II: The New Colossus (2017) [Ru/Multi] (191018) License PLAZA [Language Pack]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальные языковые пакеты для смены локализации в игре, упакованные в обычный установщик. Wolfenstein II: The New Colossus — долгожданное продолжение Wolfenstein: The New Order, восторженно принятого критиками боевика с видом от первого лица от титулованной студии MachineGames.Язык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC9FA7ABFD65E70C0F8E195EC6FB6BEB91DA364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255795   (360457) от 19.10.2018
+
+Ожидайте дальнейших инструкций / Await Further Instructions (2018) WEB-DLRip [H.264/1080p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360457.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь перед Рождеством семья Милгрем обнаруживает, что их дом окружила некая чёрная субстанция. Что это: техногенная катастрофа, атака террористов или, может быть, ядерная война? В панике семейство включает телевизор, из которого им сообщают: «Оставайтесь дома и ожидайте дальнейших инструкций». Но с телепередачей что-то не так — трансляция влияет на семью, и их (   Читать дальше...   )Производство: Великобритания / Goldfinch StudiosЖанр: Ужасы, фантастика, детективРежиссер: Джонни КеворкянАктеры: Дэвид Брэдли, Эбигейл Круттенден, Сэм Гиттинс, Холли Уэстон, Грант Мастерс, Ниржа Наик, Крис Саддлер ...Перевод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (full, SDH)Продолжительность: 01:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C859DF882FEA546082A035D05F40210D53C757E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328706   (360445) от 01.10.2019
 
 VideoHive - Birth Announcement - Baby Birthday Album - 19307377 [AEP]
@@ -6,7 +58,7 @@ VideoHive - Birth Announcement - Baby Birthday Album - 19307377 [AEP]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360445.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360235.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Mozilla Firefox 56.0.2 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359842.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ TecDoc DVD Catalog 4Q.2017 Full [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359833.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359822.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359821.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Garmin: City Navigator Europe NT 2016.20 + по регионам [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359743.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359736.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 19.10.20 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359713.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_359485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359485.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Baldur's Gate II/2: Enhanced Edition (2013) [En] (1.0) SteamRip R.G. GameWorks
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359460.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358655.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358556.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358488.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358485.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358154.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358140.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ BioShock Remastered (2016) [Ru] (1.0.122872/upd3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358137.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358131.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358130.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_358027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_358027.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357643.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ CleanMyMac 3.9.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357506.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Adobe InDesign CC 2018. 13.0.0.125 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357492.jpg" />
 </div>
 
 
@@ -622,61 +674,6 @@ Adobe InDesign CC — профессиональный продукт для п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DFFE337CC778715C68074C5F36D16945EFD7E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392112   (357330) от 20.10.2020
-
-Обои - Landscape  [JPG]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тематика обоев: Windows 10 интересное
-Количество: 1910   (30.08.2020)
-
-Обновляемая раздачаФормат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED42964324889BB28BB3EE26026BF96A77A22AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601663   (357279) от 31.10.2015
-
-Метод Фрейда (1-12 серии из 12) (2012) [720p] HDTVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357279.jpg" />
-</div>
-
-
-###  Подробнее
-
-В следственный отдел прокуратуры введен специальный консультант, гражданский человек Роман Фрейдин, психолог по образованию. Его появление обусловлено необходимостью применения нетрадиционных методов борьбы с преступностью. В молодости Фрейдин объездил всю Россию и Европу, общался с людьми самых разных профессий – от квалифицированных психоаналитиков до народных (   Читать дальше...   )Жанр: детективРежиссер: Михаил ВайнбергАктеры: Иван Охлобыстин, Наталия Антонова, Елена Николаева, Павел Прилучный, Артур Ваха, Алексей Гришин, Александр Кузнецов, Наталья Рычкова, Алла Подчуфарова, Маргарита Быстрякова, Яна Чигир, Анна Каменкова, Денис Старков, Азамат Нигманов, Александр Воробьёв, Вячеслав Яковлев, Виктор Маркин, Юрий БорисовСубтитры: отсутствуютФормат: MKVПродолжительность: серия ~ 00:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

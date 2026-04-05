@@ -1,3 +1,56 @@
+###  Публикация: 911175   (612573) от 25.06.2015
+
+А. К. Синицын и др. | Основы проектирования предприятий автомобильного транспорта (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие написано в соответствии с программой курса «Основы проектирования предприятий автомобильного транспорта». В учебном пособии изложены принципы технологического проектирования автотранспортных предприятий, в особенности проектов реконструкции и модернизации существующих предприятий автомобильного транспорта, а также особенности организации и технологического (   Читать дальше...   )Жанр: Учебники и учебные пособия для ВУЗов, Транспортные средстваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED39F5E4D3A8579B390026D29F9F1EF635AE8AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911422   (612426) от 25.06.2015
+
+В. М. Кожухар | Инновационный менеджмент (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612426.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основополагающие понятия инновационного менеджмента.
+Для студентов и магистрантов технических и экономических вузов, а также специалистов по управлению инновациями и руководителей предприятий и организаций инновационной сферы.Жанр: Учебное пособие, Экономика, Управление, Бизнес, МенеджментФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A416138BEE5ACA84BEC826DCDF21C5546A75FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911598   (612396) от 25.06.2015
 
 Е. А. Соловьев, В. В. Блохин | История древней и средневековой России (IX-XVII вв.) (2013) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612396.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612392.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609224.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608919.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608912.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608907.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608701.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608698.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608697.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608400.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608083.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607008.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606919.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606912.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606742.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606736.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606671.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606556.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606429.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606327.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604922.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604906.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604842.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604292.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B61B544029DBCA468AB2B953CADEAFB2C1F037DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546869   (604282) от 25.04.2022
-
-Д.С. Стребков (ред.) | Солнечные электростанции. Концентраторы солнечного излучения (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие посвящено основным видам и принципам работы солнечных концентраторов — оптических устройств, повышающих плотность потока солнечного излучения. Рассматривается разработка и изготовление солнечных высокотемпературных установок, концентраторов, применяемых для создания фотоэлектрических модулей и для солнечных станций с тепловыми циклами преобразования (   Читать дальше...   )Жанр: ЭлектроэнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF09BBAA91843AF506EEDF85D0E5C76FFB9F1BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546793   (604254) от 25.04.2022
-
-А.И. Тихонов и др. | Датчики и измерительная техника в электроэнергетике (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен программный материал, включающий краткий лекционный курс, практические и компьютерные лабораторные работы по дисциплине «Измерительная техника, датчики в электроэнергетике». Для удобства студентов при подготовке к практическим занятиям в издание включен практический тренинг, а также материал по выполнению самостоятельных индивидуальных заданий, предусмотренных (   Читать дальше...   )Жанр: ЭлектроэнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87B074AB3FEF7AA5AA3C99CDBA5775DF6BFC6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

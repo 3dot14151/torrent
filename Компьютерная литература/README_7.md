@@ -1,159 +1,3 @@
-###  Публикация: 1850966   (1054882) от 31.01.2026
-
-Н.И. Гурин, А.Г. Скоморохов | Аналитические вычисления в системе REDUCE (1989) [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные возможности системы аналитических вычислений на ЭВМ REDUCE, одной из самых развитых в мире систем компьютерной алгебры. Приведено множество примеров, иллюстрирующих особенности работы системы в различных ситуациях. В качестве примеров использованы в основном фрагменты программ, созданных авторами для решения конкретных физических задач. Даны (   Читать дальше...   )Жанр: МатематикаИздательство: Наука и техникаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F9AD6F76C3F75CD8373A9063267157F12429C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850894   (1054879) от 31.01.2026
-
-АСТ | Секреты GIT. Никогда не теряй свой код! (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание может стать незаменимым помощником для любого пользователя системы контроля версий Git, в наши дни широко распространенной в сфере разработки программного обеспечения благодаря своей «продвинутое» и универсальности. Авторы разделов этой книги — опытные разработчики, постоянно и активно использующие Git в решении повседневных задач при написании и систематизации (   Читать дальше...   )Жанр: Учебное пособиеИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765071B4D8816D533319A2CEFCB62E2F259E8C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850906   (1054872) от 31.01.2026
-
-Д. Бернштейн | Паттерны для начинающих программистов на Java (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054872.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге, призванной научить начинающего программиста решать конкретные задачи по программированию на языке Java, вводится понятие паттерна — некоего заранее заготовленного «рецепта» решения, который можно применить в виде готового фрагмента кода. Используя впоследствии данный набор паттернов, молодой разработчик сможет на их основе быстро решать довольно сложные (   Читать дальше...   )Жанр: Учебное пособиеИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F89AFF64106BCFC1F824C9A9F6C87A1A9C40F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850563   (1054616) от 31.01.2026
-
-Илья Кантор | Современный учебник JavaScript [3 книги] (2026) [EPUB, PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1054616.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этого учебника вы можете изучить jаvascript, начиная с нуля и заканчивая продвинутыми концепциями вроде ООП. Мы будем использовать браузер в качестве окружения, но основное внимание будет уделяться именно самому языку jаvascript. Давайте посмотрим, что такого особенного в jаvascript, чего можно достичь с его помощью, и какие другие технологии хорошо с ним (   Читать дальше...   )Жанр: ПрограммированиеЯзык: русскийИздательство: javascript.ruФормат: EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63B0AE81725267A9B84C735385FC9C6E8EA1603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850634   (1054613) от 30.01.2026
-
-Juan Pablo Buritica, James Turnbull | Engineering Leadership. The Hard Parts: Navigating Chaos to Build Teams That Deliver (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Whether they're building a startup or scaling an established org, engineering leaders know the real job is keeping chaos under control. In a world of shifting priorities, scarce resources, and rapid change, leadership means embracing the unknown, managing moving targets, and creating clarity where there's none. Sometimes, you're building the plane as you're flying (   Читать дальше...   )Жанр: Business Project Management, Software Design, Testing & Engineering, Leadership & MotivationЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F9442939925FA2DF30549DA2207B9C18C45B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850637   (1054612) от 30.01.2026
-
-Wei Qi Yan | Robotic Vision. From Deep Learning to Autonomous Systems (Advances in Computer Vision and Pattern Recognition) (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robotic vision represents the cutting edge of modern computing, combining artificial intelligence, deep learning, and advanced robotics to enable intelligent machines. As universities worldwide pivot from conventional machine learning to robotic vision, this book serves as an essential guide for researchers, educators, and students entering this transformative field. (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BB486B77591E1B7158C68F04FA769FF44DE0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850202   (1054307) от 26.01.2026
 
 Shane Brubaker | Bioinformatics with Python Cookbook. 4th Edition (2025) [PDF, EPUB] [EN]
@@ -162,7 +6,7 @@ Shane Brubaker | Bioinformatics with Python Cookbook. 4th Edition (2025) [PDF, E
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054307.jpg" />
 </div>
 
 
@@ -191,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054303.jpg" />
 </div>
 
 
@@ -217,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054302.jpg" />
 </div>
 
 
@@ -243,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054301.jpg" />
 </div>
 
 
@@ -269,7 +113,7 @@ Pallavi Sapkale, Shilpa Mehta, S. Balamurugan | Quantum Computing and Machine Le
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054300.jpg" />
 </div>
 
 
@@ -297,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054298.jpg" />
 </div>
 
 
@@ -323,7 +167,7 @@ Pau McFedries | Microsoft Excel Formulas and Functions (Office 2021 and Microsof
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054297.jpg" />
 </div>
 
 
@@ -349,7 +193,7 @@ Jaewoong Eum | Practical Kotlin Deep Dive. Unlocking the 'How' and 'Why' behind 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054290.jpg" />
 </div>
 
 
@@ -377,7 +221,7 @@ Omid Motamedisedeh | 96 Common Challenges in Power Query. Practical Solutions fo
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054288.jpg" />
 </div>
 
 
@@ -403,7 +247,7 @@ David Langer | Python in Excel Step-by-Step (2026) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054287.jpg" />
 </div>
 
 
@@ -431,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054285.jpg" />
 </div>
 
 
@@ -457,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054282.jpg" />
 </div>
 
 
@@ -483,7 +327,7 @@ Greg Beaumont | Power BI Machine Learning and OpenAI. Explore data through busin
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054281.jpg" />
 </div>
 
 
@@ -512,7 +356,7 @@ Lee Ambrosius | AutoCAD & AutoCAD LT All-in-One For Dummies. 2nd Edition (2026) 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054279.jpg" />
 </div>
 
 
@@ -540,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054278.jpg" />
 </div>
 
 
@@ -566,7 +410,7 @@ Steven Sanderson, David Kun | Extending Excel with Python and R. Unlock the pote
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054277.jpg" />
 </div>
 
 
@@ -595,7 +439,7 @@ Owen Heaume | Getting Started with Pester 5. A Beginner's Guide (2024) [PDF, EPU
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054276.jpg" />
 </div>
 
 
@@ -622,7 +466,7 @@ Alessandro Grimaldi | Advanced interactive interfaces with Access. Building Inte
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054275.jpg" />
 </div>
 
 
@@ -649,7 +493,7 @@ Jack A. Hyman | Microsoft Power Platform For Dummies (2025) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054274.jpg" />
 </div>
 
 
@@ -677,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054273.jpg" />
 </div>
 
 
@@ -688,6 +532,167 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:888492F75AA326B63439B822C431CA4A19B12439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850089   (1054272) от 26.01.2026
+
+Vikas Sukhija | PowerShell Fast Track. Hacks for Non-Coders. 2nd Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Create complex scripts in PowerShell and learn how to connect them to cloud services like Azure and Azure AD. This updated version of the book will help you learn PowerShell by providing small “cheat” snippets that you can combine to write efficient and effective scripts.Жанр: Microsoft Programming, Computer HackingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9766ABB2681C26B5E440C98BC315D5DF4CB3176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850087   (1054271) от 01.02.2026
+
+В.Ю. Арьков | Командная строка CMD. Учебное пособие (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучая операционные системы, важно и понимать теорию, и уметь практически работать на компьютере. Функции любой операционной системы сводятся к понятию управления. Реализация этих функций — это выбор интерфейса пользователя: командная строка, файловый менеджер или оконная система. В курсе ОС мы рассматриваем все три вида интерфейса — практически, но с пониманием (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A002012015C22EC7D8C80F4D83D738B5F16885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850086   (1054270) от 26.01.2026
+
+Dawn Griffiths | Excel Cookbook. Recipes for Mastering Microsoft Excel (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filled with tips, tricks, and techniques, this easy-to-use book is the perfect resource. You'll find more than 350 recipes for over a dozen topics covering formulas, PivotTables, charts, Power Query, and more. Each recipe poses a particular problem and outlines a solution that you can put to use right away—without having to comb through tutorial pages.
+
+Whether you're (   Читать дальше...   )Жанр: Microsoft Excel Guides, Business Intelligence Tools, Spreadsheet BooksЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577AABC8F56449D4B999EBB0B224C7AC6E25ED11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850078   (1054269) от 26.01.2026
+
+Н. Комолова, А. Клименко | Программирование на VBA в Excel 2019 (2020) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга научит самостоятельно создавать приложения для автоматизации работы в программе Microsoft Office Excel 2019 с использованием макросов и языка программирования Visual Basic for Applications (VBA). Приведена информация о новинках программы, а также сервисах Power по работе с данными. Даны теоретические сведения о программировании, элементах объектной модели Excel, (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A19FEFF4886410EF021BAAE64FA366A79F232FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850064   (1054268) от 26.01.2026
+
+Gregory Deckler, Rick de Groot, Melissa de Korte | The Definitive Guide to Power Query (M). Mastering complex data transformation with Power Query (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn how to use the Power Query M formula language and its functions effectively for better data modeling and impactful business intelligence reports.
+Key Features
+Get comprehensive coverage of fundamental and advanced Power Query concepts
+Gain hands-on experience with practical examples based on real-world problems(   Читать дальше...   )Жанр: Microsoft Excel Guides, Enterprise Applications, Data ProcessingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E971C9FB35A8FF269FD187DEB95FBF42EF7922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850234   (1054251) от 26.01.2026
+
+Daniel J. Barrett | Responsible Software Engineering. With Real-World Case Studies from Google (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Today's software applications need more than a friendly interface and correct algorithms. They also need to be responsible: to be beneficial for society and not cause harm. In an era of AI chatbots, deep fake images and videos, social media bubbles, expanding privacy regulations, and a warming planet, it's more important than ever to practice responsible software (   Читать дальше...   )Жанр: Business Ethics, Environmental Economics, Software DevelopmentЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22F7796CB0845CB2118F37FFB8DA13E3289968D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1018414   (756019) от 20.05.2016
-
-Колин Тиле | Остров одинокой сороки. Штормик и мистер Персиваль (1977) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две повести современного австралийского писателя, посвященные вечно прекрассной Природе и защите ее от враждебной цивилизации.Жанр: Детская прозаПеревод: А. Кистяковский, В. МуравьевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9648AC6B046B9F81B1B89C083DF6950B52DC5098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018591   (755924) от 20.05.2016
 
 Дэвид Фарланд | Мыши и магия (2009) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755924.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755920.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755734.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755665.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755664.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755663.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755661.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755660.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755657.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755656.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755655.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755654.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755653.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755586.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755579.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755572.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755478.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755315.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755192.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755156.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755155.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755054.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754654.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753824.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753805.jpg" />
 </div>
 
 
@@ -676,6 +650,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21947EB744C6896707D2A496AD9C44623F0F55B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395704   (753742) от 11.07.2020
+
+Владимир Железников | Чудак из пятого «Б» (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Железников Владимир Карпович (1925–2015) – писатель, кинодраматург, автор знаменитой повести «Чучело», по которой был снят одноимённый фильм.
+Повесть про непоседливого мальчугана Борю была написана в 1962 году. Позже по ней сняли фильм под названием «Чудак из пятого “Б”» (1972).
+Пятиклассник Боря Збандуто, главный герой, – плут и озорник. Однажды его назначают вожатым (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6300A93BC4A15BDCF0662026680C2A8ADD5B24E
 ```
 
 https://mybot314.ru/tekegram_catalog/

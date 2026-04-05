@@ -1,3 +1,109 @@
+###  Публикация: 1655454   (204358) от 26.08.2023
+
+Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Только представьте, что изучение иностранного языка может быть игрой и никак не связано со скучным запоминанием. Lexilize Flashcards – это приложение, которое максимально упрощает процесс изучение языка. С помощью функции автоперевода из словаря Multitran и словаря Яндекс Вы можете быстро составить свой словарь слов с транскрипцией, примерами. Вы также можете добавить (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 30.07.2023Разработчик: LexilizeПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601198   (204257) от 09.01.2023
+
+FaceLab v2.19.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204257.jpg" />
+</div>
+
+
+###  Подробнее
+
+FaceLab редактор лица - лучшее приложение для смены пола и старение. Этот новогодний фоторедактор заставит вас выглядеть старым и молодым. Вы даже можете раскрасить себя с помощью наших потрясающих новых фотофильтров, чтобы превратить себя в мультяшного персонажа. FaceLab также является одним из лучших приложений для фотографий, которое предлагает фильтры красоты, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 06.01.2023Разработчик: Lyrebird StudiosПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5E32424840E539CA4C86BE1DC3FE61E65DFCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655669   (204193) от 27.08.2023
+
+GPS Локер Prime v2.4.4 Mod by No_Hammer [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204193.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPS Локер создан для того чтоб не терять фиксацию сигнала GPS при переключении между прилжениями и при выключенном экране вашего устройства. Так-же он помогает быстрее получить фиксацию сигнала GPS. Где это может быть полезно:
+- В мобильных играх которые используют в игровом процессе GPS навигацию.
+- GPS Локер будет полезен тем кто пользуются GPS навигацией (к примеру, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.08.2023Разработчик: SilentLexx UAПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A917C2D0CB082B44295ED52A09AA90466A4231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655906   (203922) от 28.08.2023
+
+Screen Lock Pro 5.1.2p_ap Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screen Lock - приложение для быстрой блокировки / выключения экрана. Аппаратная кнопка питания на некоторых устройствах плохо разработана и со временем начинает заедать. Приложение предоставляет программные кнопки для этих функций.Тип издания: ProРазработчик: PrahalladПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DC4A96990868827DC461B0C7DAC1CDA0C6FD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574063   (203821) от 19.01.2023
 
 Background Eraser (InShot Inc.) v2.142.42 [Ru/Multi]
@@ -6,7 +112,7 @@ Background Eraser (InShot Inc.) v2.142.42 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203821.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203808.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ LibriVox Аудиокниги Pro v10.13.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203466.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ MintAI - Photo Enhancer Remini v1.2.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203408.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ Tiny Robots Recharged v1.06 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203240.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Memrise: говори на новом языке 2023.08.18.0 Mod by Balatan [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202969.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ WPS Office + PDF 18.1 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202881.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ PhotoRoom 4.6.7 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202753.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ CCleaner Pro: ПО для очистки 25.21.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202479.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ Picsart AI Photo Editor, Video v28.6.7 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202478.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ WPS Office + PDF v18.21.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202476.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ Display Tester v5.35.6 Mod by Balatan, AnBo39  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202463.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ FacePic - AI Face App v3.1.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202462.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ Flud v1.12.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202461.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ PicWish: AI Photo Editor v2.2.1 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202400.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ Color By Number For Adults / Раскраски по номерам v4.5.5 [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202223.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202184.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ SnapEdit - AI photo editor v7.4.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202161.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ ProShot v8.32 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202120.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ VN - Video Editor / VN - Видеоредактор v2.9.5 Mod by MustHave [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202049.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ All-In-One Offline Maps v3.17b Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202043.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ Mathlab Graphing Calculator Pro v2025.10.167 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202015.jpg" />
 </div>
 
 
@@ -566,111 +672,6 @@ Mathlab Graphing Calculator Pro v2025.10.167 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B36815B50A690265936C6C5BF32EBD6FEE092681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829239   (201922) от 25.10.2025
-
-FFmpeg Медиа-кодер v6.0.015 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и удобный графический интерфейс наипопулярнейшего и быстрого кодировщика медиа-данных ffmpeg. Работает без интернета. Поддерживает множество форматов.
-FFmpeg — набор библиотек с открытым исходным кодом, которые позволяют записывать, конвертировать цифровые аудио и видео записи в различных форматах. Он включает libavcodec — библиотеку кодирования и декодирования (   Читать дальше...   )Тип издания: ModРелиз состоялся: 23.10.2025Разработчик: SilentLexx UAПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4301444306C281E7044E755E5A7B84D9C9375A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829244   (201879) от 25.10.2025
-
-Persona: Бьюти-камера v1.7.32 Mod by ModExPro [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Persona - твоя новая селфи-камера на каждый день. Снимай только идеальные видео с натуральными бьюти-фильтрами, использующими искусственный интеллект. После запуска приложения необходимо разрешить доступ к камере мобильного устройства. Затем следует расположить объектив таким образом, чтобы лицо человека полностью поместилось в рамку на экране. Далее нужно создать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.10.2025Разработчик: TICKET TO THE MOON, INC.Поддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9196257C32A7BF0B57508F03B475BA24B35F3841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829245   (201877) от 25.10.2025
-
-PictureThis - Plant Identification v5.14.0 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 24.10.2025Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C54701811B1A631F123426D5D4DEB140F62155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829334   (201867) от 25.10.2025
-
-Poweramp Music Player build-1011-uni Mod by ModExPro [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poweramp (Premium) - Аудиоплеер с продвинутым звуковым движком, поддерживающий высококачественные аудиовыходы, если они доступны на устройстве. Обладает мощным эквалайзером, гибкими настройками тона, стерео-расширением, а также эффектами реверберации и изменения темпа. Уникальная функция Direct Volume Control обеспечивает плавное регулирование громкости без искажений. (   Читать дальше...   )Тип издания: FullРелиз состоялся: 22.10.2025Разработчик: Poweramp Software Design (Max MP)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08782761F104172CD9921884CCE310B72448F5EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

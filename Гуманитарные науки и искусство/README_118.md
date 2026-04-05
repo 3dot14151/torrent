@@ -1,88 +1,3 @@
-###  Публикация: 1773208   (30984) от 14.01.2025
-
-В.В. Корнев | Шедевры мирового кино (2023) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга предлагает вам провести пятьдесят вечеров в компании Антониони, Бергмана, Брессона, Бунюэля, Вендерса, Годара, Джармуша и других гениев кинематографа. В идеале нужно сначала посмотреть фильм, а потом прочесть главу из «Шедевров мирового кино». От Чарли Чаплина до Чарли Кауфмана – ровно 80 лет истории киноискусства.
-Объемные комментарии к признанным и малоизвестным (   Читать дальше...   )Жанр: культура и искусство, кинематографИздательство: Канон-Плюс, РООИ «Реабилитация»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6278E441CE8FE2920A4C6D0DBC50232E3BD8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773301   (30900) от 15.01.2025
-
-Библиотека ЖАФИК, Vol. 3: Искусство Современное (живопись, pop-art, pin-up, плакат, постеры, инсталляции) [139 книг] (1973-2024) [PDF, DJVU] [ENG]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека ЖАФИК, Vol. 3: Искусство Современное (живопись, pop-art, pin-up, плакат, постеры, инсталляции)
-
-Технические и выходные данные книг
-(   Читать дальше...   )Жанр: Живопись, инсталляции, альбомыИздательство: РазличныеФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162E2585C255E848E1EAAAD48CA483FFEB201759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773285   (30878) от 15.01.2025
-
-Библиотека ЖАФИК, Vol. 4: Уличная культура (Граффити, Стрит-арт, Стиль) [68 книг] (1983-2024) [PDF] [ENG]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека: Библиотека ЖАФИК, Vol. 4: Уличная культура (Граффити, Стрит-арт, Стиль)
-
-Технические и выходные данные книг
-(   Читать дальше...   )Жанр: Живопись, фотоальбомЯзык: АнглийскийИздательство: РазличныеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F42BF75B37BFA52D54905DD4D52A8BA057157C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773372   (30855) от 15.01.2025
 
 Н.А. Александрова (сост.) | Пути русского импрессионизма (2003) [PDF]
@@ -91,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30855.jpg" />
 </div>
 
 
@@ -117,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30800.jpg" />
 </div>
 
 
@@ -143,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30793.jpg" />
 </div>
 
 
@@ -171,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30791.jpg" />
 </div>
 
 
@@ -200,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30767.jpg" />
 </div>
 
 
@@ -229,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30675.jpg" />
 </div>
 
 
@@ -257,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30640.jpg" />
 </div>
 
 
@@ -284,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30523.jpg" />
 </div>
 
 
@@ -310,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30520.jpg" />
 </div>
 
 
@@ -336,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28253.jpg" />
 </div>
 
 
@@ -364,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26503.jpg" />
 </div>
 
 
@@ -390,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26481.jpg" />
 </div>
 
 
@@ -416,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26362.jpg" />
 </div>
 
 
@@ -442,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26082.jpg" />
 </div>
 
 
@@ -468,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26064.jpg" />
 </div>
 
 
@@ -494,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25981.jpg" />
 </div>
 
 
@@ -522,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25847.jpg" />
 </div>
 
 
@@ -548,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25747.jpg" />
 </div>
 
 
@@ -575,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25008.jpg" />
 </div>
 
 
@@ -601,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24980.jpg" />
 </div>
 
 
@@ -627,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24952.jpg" />
 </div>
 
 
@@ -654,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24914.jpg" />
 </div>
 
 
@@ -680,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24902.jpg" />
 </div>
 
 
@@ -691,6 +606,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39AC9F8792B232CD82E4ECFF5F4D7BDD2791CD00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784914   (24803) от 13.03.2025
+
+А.В. Павлов | Бесславные ублюдки, бешеные псы. Вселенная Квентина Тарантино (2018) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга, с одной стороны, нефилософская, с другой - исключительно философская. Ее можно рассматривать как исследовательскую работу, но в определенных концептуальных рамках. Автор попытался понять вселенную Тарантино так, как понимает ее режиссер, и обращался к жанровому своеобразию тарантиновских фильмов, чтобы доказать его уникальность.Жанр: КинематографИздательство: Издательский дом «Дело»Формат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CD796B96CAEC99C3D6CF35357EDDC1C3A10667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784911   (24787) от 13.03.2025
+
+А.А. Акмальдинова, О.А. Лекманов, М.И. Свердлов | «Ликует форвард на бегу…» Футбол в русской и советской поэзии 1910–1950 годов (2016) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге впервые прослеживается эволюция футбольной темы в отечественной поэзии 1910–1950-х годов — все ее основные вехи. Еще важнее для авторов было показать, как новые для поэзии мотивы менялись, отражая сиюминутные требования современности, деформируясь под их воздействием, а иногда отчаянно им сопротивляясь. Задача книги — двойная: с одной стороны, собрать вместе (   Читать дальше...   )Жанр: Поэзия, культурологияИздательство: Высшая школа экономикиФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07BA7D38D710484F2EBB8CD03CFE499A64698DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785981   (24285) от 18.03.2025
+
+Кьяра де Капоа | Эпизоды и персонажи Ветхого Завета в произведениях изобразительного искусства (2011) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24285.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены сюжеты и персонажи Ветхого Завета, начиная от библейского повествования о сотворении мира и древней истории Израиля до героев и пророков еврейского народа. В истолковании тем использован не только текст Священного Писания, предлагаются также сопоставления из других культур. Кроме того, в мотивах Ветхого Завета выделены прототипы событий Нового (   Читать дальше...   )Жанр: ИскусствоИздательство: ОмегаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED6DCEE143DC9F6A39EB60CC1553B1D0B60B7D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

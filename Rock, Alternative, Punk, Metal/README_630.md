@@ -1,3 +1,32 @@
+###  Публикация: 1570413   (438379) от 19.08.2022
+
+Kajsa - Они (Дай огня) (2022) [MP3|320 Kbps] <Alternative, Social Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - INTRO [00:01:32]
+02 - Нас бросили здесь умирать [00:02:22]
+03 - Мы не будем молчать [00:04:25]
+04 - Напролом [00:03:28](   Читать дальше...   )Жанр: Alternative, Social RockПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB4C02978152A03A9C0D6B13D6D2B803BBADC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570894   (438373) от 19.08.2022
 
 Empresses - The Beginning (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock, Female Vocal>
@@ -6,7 +35,7 @@ Empresses - The Beginning (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438373.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438371.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Hammer King - Kingdemonium (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Power Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438361.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nagart - Vol. 3 (2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438360.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ All Time Low - Future Hearts (2015) Deluxe Edition [FLAC|tracks + .cue]<Pop-Punk
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438325.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Thundermother - Black And Gold (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Hard Rock>
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438309.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Deep Purple - Bombay Calling (Live in 95) (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438183.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438057.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Reign Of Glory - All Will Bow (2022) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438052.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Caspian - Tertia (2009) [FLAC|Lossless|tracks + .cue] <Rock, Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438035.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mark Rowen - Radiance (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438015.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437903.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Lindemann - Fish On (2015) Single [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437892.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Nico’s Alchemy - Fundamental Darkness (2007) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437862.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437718.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437691.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Sacred Steel - Heavy Metal Sacrifice (2016) [MP3|320 Kbps] <Heavy Metal, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437648.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Existance - Breaking The Rock (2016) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437646.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Yes - Close To The Edge (1972) Hybrid SACD /2012, Audio Fidelity/ [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437596.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Billy Gibbons - The Big Bad Blues (2018) Concord Records [FLAC|Lossless|tracks +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437505.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Uriah Heep - Living the Dream (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock, C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437504.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ David Knopfler - 9 альбомов (1983-2006) [FLAC, APE|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437423.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ NRKTK - Black (2009) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437387.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Pink Floyd The Wall Rebuilt - Mojo Magazine 30th (Tribute) (2009) 2CD [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437358.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Katatonia - The Great Cold Distance (2006), Reissue, 2017, Peaceville, [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437047.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Katatonia - The Great Cold Distance (2006), Reissue, 2017, Peaceville, [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4288CFBCB8D5628387BA7842E5F7F9A5B2B6DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164568   (436918) от 11.09.2017
-
-Eluveitie - Evocation II – Pantheon (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dureððu
-02. Epona
-03. Svcellos II (Sequel)
-04. Nantosvelta(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA00EDAC7DA27309EB447A48CA1633F5BD56B9E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

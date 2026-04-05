@@ -1,3 +1,107 @@
+###  Публикация: 886138   (370035) от 12.09.2022
+
+Periodic Table / Таблица Менделеева HD 7.7.0 [Ru/En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая таблица Менделеева на Google Play. Узнай химию по-новому. Химия — это наука о веществах, их свойствах, строении и превращениях, происходящих в результате химических реакций, а также о законах, которым эти превращения подчиняются. Все вещества состоят из атомов, которые, благодаря химическим связям, способны формировать молекулы. Химия, прежде всего, занимается (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.10.2021Разработчик: JQ SoftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E2D73F50B4FC29B5F10B47568E379BA8DD61E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102191   (367590) от 16.10.2018
+
+Terrarium TV-Premium v1.9.10 Mod v8 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terrarium TV это Android-приложение, которое позволяет просматривать поток и скачать бесплатно HD ТВ-шоу и фильмы на ваше Android устройство. Она обеспечивает практически любые телепередачи и фильмы. Абсолютно бесплатно. Вы можете загрузить их на вашем Android устройстве или смотреть онлайн. Фильмы и ТВ-шоу на оригинальном языке. К некоторым есть субтитры на русском (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked | Analytics disabled) + ModРелиз состоялся: 16.10.2018Разработчик: Terrarium TVПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395C1F161975F58BF1194FDD4BAA92B6AE5242F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091730   (365625) от 14.09.2022
+
+Таблица Менделеева 2022 PRO v0.2.120 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Химия - самая ценная наука, наука о веществах, их составе и строении, она является одним из главных школьных предметов. Знакомство с Химией начинается с Периодической Системы химических элементов – Таблицы Менделеева. Современный доступ к учебному материалу имеет лучший результат в сравнении с обычным. Потому как в нем применяются технологии, которые стали родными (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 18 февр. 2022 г.Разработчик: www.chernykh.techПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571253D4A320F0582F450A364762056499DB2D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223867   (362904) от 18.10.2018
+
+ElLi (free) - Расчет проводки v1.3.35 AdFree [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ElLi ("Электра Лайт"), поможет Вам, произвести расчет электропроводки дома, офиса, малого предприятия, и другие расчеты по электрике.  Расчеты сечения кабеля и провода, для электропроводки основаны на актуальных данных из ПУЭ издания 6 и 7.Тип издания: Пиратка (удалена реклама с Free версии)Релиз состоялся: 16.10.2018Разработчик: Vladimirus - teamПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF4F78B00A24916C961B5A6676BAD19C3866CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417109   (362469) от 18.10.2020
 
 Stellarium Mobile PLUS - Star Map v1.6.0 [Ru/Multi] - Карта звездного неба
@@ -6,7 +110,7 @@ Stellarium Mobile PLUS - Star Map v1.6.0 [Ru/Multi] - Карта звездно�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362469.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ GPS Up v1.7.1 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362468.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Apex Launcher Pro 3.3.3 [RU]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362281.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ ActionDirector Video Editor v6.0.1 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362077.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Android Auto 2.0.642308 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361112.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ ABBYY Lingvo Dictionaries 4.6.6 [Ru/Multi] - Оффлайн словарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360682.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Microsoft Word 16.0.7426.1015 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358487.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ ADV Screen Recorder v4.3.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357678.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Wink Plus Mobile 1.11.2 v1.1 Mod  [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357332.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ VPN Украина: VPN IP в Украине 1.107 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354283.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354251.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Package Disabler Pro 6.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354017.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353878.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ Maths Formulas v9.6 Paid [Ru/Multi] - Сборник формул и кальк�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352707.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ Rotation - Orientation Manager v25.0.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352306.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ Radio Garden v2.1.3 [En] - радиостанции мира на интерак
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349702.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Yokee Караоке по-русски v3.14.016 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349601.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349523.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ ProgTV Android 2.26.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349237.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ OpenVPN v0.7.21 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348234.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Prisma 1.1.63 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347396.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ ImageMeter - photo measure v3.6.2 (1) Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347222.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ ImageMeter предоставляет инструменты, которые п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C00701421DD36D0E2B049CBF3532C3DC2F64B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251292   (347037) от 25.10.2018
-
-Manual Camera Pro : DSLR Camera HD Professional v2.9D [Ru/En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это профессиональное приложение DSLR Camera hd превратит ваш телефон в профессиональную камеру, например, с полностью ручным управлением камерой по ISO, выдержкой затвора, экспозицией, ручной фокусировкой и другими функциями, такими как профессиональная камера, которая может привести вашу мобильную фотографию к следующему уровню. Сделайте лучший захват своей фотографии (   Читать дальше...   )Тип издания: Пиратка (Pro с Маркета)Релиз состоялся: 24.10.2018Разработчик: PixeLatteПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7045A50184B048BF8536FDD718E216451B15521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418646   (346449) от 25.10.2020
-
-SkySafari 6 Pro v6.7.2.0 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346449.jpg" />
-</div>
-
-
-###  Подробнее
-
-SkySafari 6 Pro революционизирует ваши астрономические впечатления от просмотра. Он имеет самую большую базу данных среди всех астрономических приложений, включает в себя все когда-либо обнаруженные объекты солнечной системы, предлагает непревзойденную точность, безупречное управление телескопом и обеспечивает наилучшие впечатления от пребывания под звездами, когда (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 11 июня 2020 г.Разработчик: Simulation CurriculumПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26197BD3D5DB396B7B1A20D8468746C8D64223F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418688   (346292) от 25.10.2020
-
-TikTok v17.7.6 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346292.jpg" />
-</div>
-
-
-###  Подробнее
-
-TikTok – это социальная сеть, в которой вы можете создавать и публиковать забавные музыкальные видео на суд ваших друзей и подписчиков. Для работы с приложением необходимо создать учётную запись, что занимает лишь считанные секунды, и может быть сделано с использованием аккаунта Instagram, Facebook, или Google.Тип издания: ПираткаРелиз состоялся: 20 октября 2020 г.Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03401AE904A5D0ACBA8BC3BA4A41017621BC3B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298729   (345121) от 08.10.2019
-
-InstaSave v1.3.3 [Ru/Multi] - загрузки фото и видео из Instagram
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345121.jpg" />
-</div>
-
-
-###  Подробнее
-
-InstaSave - приложение для загрузки фото и видео из Instagram. Приложение Instagram может бесплатно загрузить изображение и видео из Instagram. С этим загрузчиком Instagram вы можете быстро сохранить любую фотографию и видео из Instagram или IGTV. Всего одним щелчком мыши Insta Saver для instagram сохранит ваши фото и видео в вашей галерее. Более того, это 100% бесплатно (   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 04.10.2019Разработчик: MeepoDevПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B60B263AD4997901A81FCBCB507108768FD320C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1736857   (50109) от 14.07.2024
+
+Udemy, Вадим Прокопчук | Верстка сайта c использованием Gulp в модульном(Bento) стиле (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50109.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном курсе, я полностью верстаю и комментирую верстку сайта в модульном стиле, все делаем на сборке Gulp.
+Каждый верстальщик много раз столкнется с версткой в которой будет модульная секция, masonry расположение элементов, ну или же как в данном проекте все будет построено в модульном стиле. В такой верстке часто есть разные моменты, которые вызывают сложности (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455CFD0077B649AE38ACEA16685980BC38383793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736867   (50103) от 14.07.2024
 
 Богдан Кухар | 1C 8.3 Старт 2 Pro (2024) WEB-DL [AD] [RU]
@@ -6,7 +33,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50103.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50071.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50066.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ Alan Turner | Отделка выполненная вручную (2020) WEBRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50013.jpg" />
 </div>
 
 
@@ -117,7 +144,7 @@ George Vondriska | Деревообработка: Все о дереве (2018)
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49861.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ Stepik, Codemoon | Создаем корпоративного Telegram бота
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49371.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49214.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ George Vondriska | Основы работы с ленточной пилой (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49177.jpg" />
 </div>
 
 
@@ -229,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49080.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49041.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49018.jpg" />
 </div>
 
 
@@ -312,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49000.jpg" />
 </div>
 
 
@@ -340,7 +367,7 @@ George Vondriska | Основы работы с циркулярной пило�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48893.jpg" />
 </div>
 
 
@@ -368,7 +395,7 @@ ColorSchool, Наталья Маркевич | Свет в саду (2024) WEB-D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48870.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48816.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48691.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48649.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ Doug Stowe | Основы изготовления шкатулок (2007) DVDRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48581.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48549.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ YanSculpts | Master Sculpting Heads - 3D Blender Course (V1.3) (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48014.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ George Vondriska | Техники работы с ручным фрезером 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47995.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ George Vondriska | Основы работы с фрезерным столом 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47949.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ George Vondriska | Настройка и использование фуганк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47845.jpg" />
 </div>
 
 
@@ -650,7 +677,7 @@ Sefki Ibrahim | Hyperreal 3D Character Creation Course [Tutorial] [EN/EN Sub] (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47801.jpg" />
 </div>
 
 
@@ -676,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46952.jpg" />
 </div>
 
 
@@ -690,32 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2851FEF9135D0C1D2C166986434CE1F3AA98C4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742762   (46945) от 13.08.2024
-
-Антон Гломозда | Как стать мужчиной, о котором мечтают 98% женщин (2018) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я знаю, что тебе не терпится ринуться сразу в бой и так везде обучают на пикап тренингах. Давай иди подходи, а там к тебе все само придет. Только вот я наблюдал очень много печального опыта, когда само это все не приходило, этот армейский метод через силу действовал не у всех. Далеко не у всех. И у ребят оставался негативный опыт и якоря на подходы к девушкам, на (   Читать дальше...   )Жанр: Психология, пикапЯзык озвучки: РусскийПродолжительность: 18:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DF9A6FA170E07A9415DB6912C7840E163E7304
 ```
 
 https://mybot314.ru/tekegram_catalog/

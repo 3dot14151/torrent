@@ -6,7 +6,7 @@ Karin Krog & Steve Kuhn - Break Of Day (2014) Meantime Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046052.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Karin Krog - Oslo Calling (2008) [FLAC|Lossless|tracks + .cue] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046051.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Charles Mingus Duo & Trio with Spaulding Givens & Max Roach - Debut Rarities
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045953.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Karin Krog - The Many Faces Of Karin Krog (1967 - 2017) 6CD, 2017, Odin [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045950.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045878.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grapp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045874.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tri-Fi - A Tri-Fi Christmas (2011) Self-Released [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045873.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rex Stewart - 1947 - 1948 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045773.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Beegie Adair - By Request (2017) Green Hill Productions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045769.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Red Norvo - 1944 - 1945 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045765.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bobby Watson - Made In America (2017) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045759.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Karin Krog - Jubilee: The Best Of 30 Years (1964 - 1991) 2CD, 1995, Verve Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045691.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Classics in Jazz: Sax Stylists (1945 - 1949) 2014, Capitol Records [WavPack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045689.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hank Jones & Frank Wess - Hank And Frank (2003) 2006, Lineage [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045606.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Hank Jones, Milt Hinton, Bob Rosengarden - The Trio (1977) 2003, Chiaroscuro Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045604.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Scott Hamilton & Karin Krog - The Best Things In Life (2015) Stunt Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045599.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Herb Alpert - Sunny Side of the Street (2022) [FLAC|Lossless|tracks + .cue] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045584.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tri-Fi - Postcards (2007) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045522.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Charles Mingus Group - Debuts Rarities, Vol. 3 (1957) 1993, Universal [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045521.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Karin Krog - Where You At? (2003) Enja Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045402.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Carmen Cavallaro - Dancing In The Dark (1961) 1988, Decca [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045366.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sarah Menescal - Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045301.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Don Ellis - Live In India (1978) 2010, Sleepy Night Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045232.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Wild Bill Davison - Quadromania (1943 - 1952) 4CD, 2005, Membran Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045195.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Paul Bernewitz - Someday (2022) Unit Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045103.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dany Doriz & Michel Pastre - Fathers & Sons: The Lionel Hampton/Illinois Jacquet
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045092.jpg" />
 </div>
 
 

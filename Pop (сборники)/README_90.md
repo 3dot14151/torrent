@@ -1,3 +1,178 @@
+###  Публикация: 567956   (395157) от 31.10.2012
+
+VA - Зажигай С Осенними Хитами (2012) [MP3|256 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Жека Баянист - Bara Bara Bere Bere (Russian Version Club Mix)
+002. Qwote Feat. Mr Worldwide - Letting Go (Cry Just A Little) (Radio Edit)
+003. DJ Boyko & DJ Noiz feat. Katy Queen - Между Нами (Radio Mix)
+004. Soul Bros. - Tonight (Brisby & Jingles Edit)
+005. Sasha Dith & Steve Modana feat. Nadya - Улечу (UniSelf Radio Edit)
+006. Xonia - Remember (Radio Edit)
+007. Sasha Prozet & DJ Andy First - Ради Тебя (Radio Edit)
+008. Laselva Feat. Angel - Your Life (Video Edit)
+009. Данко - Московская ночь (Alex Grand and Glazunov Remix)
+010. Mia Martina - Burning (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 6:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92DB5CE6EC1AF36E0209BFA86D18CDB9B17D800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568463   (394175) от 01.11.2012
+
+VA - Супертанцевальный TOP 200 50+50 (2012) [MP3|128 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шима - Без Тебя (Ignition Studio Edit)
+02. Rihanna Feat. Carlo Secreto - Tengo Un Amor (We Found Love) (Remix)
+03. Эльдар Далгатов - Без Тебя Я Не Могу (Version 2012)
+04. Voxis Feat. Kamelia - Am Invatat (Radio Edit)
+05. Biffguyz - Bum-Bum-Bum (Dj Andy Wait Remix)
+06. Lolita Jolie - Non Non Non (Rob And Chris Remix)
+07. Отпетые Мошенники - Руссо Туристо
+08. Cascada - Summer Of Love (Michael Mind Project Radio Edit)
+09. Napoli - Бомба (Radio Edit)
+10. Alex Gaudino Feat. Taboo - I Don't Wanna Dance (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6120D3F11851F5DB6E2A95AE5F2AED44D18C45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568459   (394171) от 01.11.2012
+
+VA - XXXL Союз. Осенний драйв. Версия русская (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394171.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mainstream One - Под Тёмными Очками
+002. Егор Сесарев - Громче Музыка
+003. Archi-M Feat. Zip92 - История Моя
+004. Eva Kade - Твои Глаза
+005. White House - Я Так Люблю Тебя
+006. Т9 - Шаг
+007. David - Подожди
+008. Жасмин - От Любви До Любви
+009. Александр Панайотов - To Sade
+010. Филипп Левшин - Лечу На Море(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294426CF0AB292879B86C3DDDB21B4C62E2735F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568758   (394119) от 01.11.2012
+
+VA - Звездный Mix. Улетная 100-ка (2012) [MP3|256 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лавика - Все в моей душе
+02. Размер Project - Дождь
+03. Иванушки International - Я Буду Ждать Тебя
+04. DJ HaLF & Женя Юдина - Два Сердца (Radio Mix)
+05. Девушки Эйнштейна - Шуга
+06. DJ Сателлит & Marlena - Дай Мне Слово (DJ Yahser Remix)
+07. Moonbeam feat. Aelyn - You Win Me (Original Soundtrack Mix)
+08. Серебро - Bastard
+09. Ника Баринова - До Свидания, Мужчина
+10. Город 312 - Невероятный День(   Читать дальше...   )Жанр: popПродолжительность: 06:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD9B19E08A3FE6E947C0520F3B59F140F4D8B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568465   (393875) от 01.11.2012
+
+VA - Европа Плюс: Включи Музон! (2012) [MP3|128 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393875.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дилайс - Нежно-Нежно (Krayons Remix)
+002. Arash Feat. Sean Paul - She Makes Me Go
+003. Света - Лондон-Москва
+004. Beyonce - I Was Here
+005. Руки Вверх Feat. St1m - Девочка Из Прошлого
+006. Maroon 5 - One More Night (Lvlf Remix)
+007. Звери - Никуда Не Надо
+008. Liraw - Adrenalin (Kid Killa Production)
+009. Dj Yankovski Feat. Пропаганда - Горностай
+010. Ersvery - Free Like Music (Dj Kostas & Dj Yonce Radio Remix)(   Читать дальше...   )Жанр: popПродолжительность: 12:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0655F6B754EA53FFA5CB8D46595BB725A4403A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568940   (393144) от 02.11.2012
 
 VA - Осенняя бомба года 17 Зарубежный (2012) [MP3|128 кб/с]<Pop, Dance>
@@ -6,7 +181,7 @@ VA - Осенняя бомба года 17 Зарубежный (2012) [MP3|128 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393144.jpg" />
 </div>
 
 
@@ -41,7 +216,7 @@ VA - 100 пудовые хиты осени 50/50 (2012) [MP3|128 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393139.jpg" />
 </div>
 
 
@@ -76,7 +251,7 @@ VA - Взорви Танцпол. Русский Сборник (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393130.jpg" />
 </div>
 
 
@@ -111,7 +286,7 @@ VA - Из Каждого Утюга (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393127.jpg" />
 </div>
 
 
@@ -146,7 +321,7 @@ VA - Золотой Граммофон Осенний Выпуск (2012) [MP3|1
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392965.jpg" />
 </div>
 
 
@@ -181,7 +356,7 @@ VA - Новое Радио - 100 хитов Нового Радио. выпус�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392675.jpg" />
 </div>
 
 
@@ -216,7 +391,7 @@ VA - Новинки Эфира Радиостанций (2012) [MP3|128 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392267.jpg" />
 </div>
 
 
@@ -251,7 +426,7 @@ VA - Пираты Финского Залива Радио DFm (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392260.jpg" />
 </div>
 
 
@@ -286,7 +461,7 @@ VA - Радио Энергия: Лучшая 200-ка (2012) [MP3|128 кб/с]<D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392217.jpg" />
 </div>
 
 
@@ -321,7 +496,7 @@ VA - Танцевальный Динамит осенний (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392183.jpg" />
 </div>
 
 
@@ -356,7 +531,7 @@ VA - Лучшее от МУЗ-ТВ (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392122.jpg" />
 </div>
 
 
@@ -391,7 +566,7 @@ VA - Хит года от Европа плюс 7 50/50 (2012) [MP3|128 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391939.jpg" />
 </div>
 
 
@@ -426,7 +601,7 @@ VA - Самые Яркие Русские Хиты За Последние 15 л
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391540.jpg" />
 </div>
 
 
@@ -461,7 +636,7 @@ VA - Дискотека 80-х от Авторадио. Зарубежная ве
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391419.jpg" />
 </div>
 
 
@@ -496,7 +671,7 @@ VA - Disco Remix Hits - Best Of The Best (2012) [MP3|256 кб/с]<Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391386.jpg" />
 </div>
 
 
@@ -531,7 +706,7 @@ VA - Dance Экстаз. Зарубежный (2012) [MP3|256 кб/с]<Dance, Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391113.jpg" />
 </div>
 
 
@@ -566,7 +741,7 @@ VA - Лучшая 100-ка осенних хитов (2012) [MP3|256 кб/с]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391104.jpg" />
 </div>
 
 
@@ -601,7 +776,7 @@ VA - Дискотека Руки Вверх (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390759.jpg" />
 </div>
 
 
@@ -636,7 +811,7 @@ VA - Самые Яркие Русские Хиты За Последние 15 Л
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390726.jpg" />
 </div>
 
 
@@ -671,7 +846,7 @@ VA - Осенний Dинамит DFM 4 50/50 (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390322.jpg" />
 </div>
 
 
@@ -706,7 +881,7 @@ VA - MAXI. Музыкальные сливки зарубежные (2012) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390272.jpg" />
 </div>
 
 
@@ -726,175 +901,6 @@ VA - MAXI. Музыкальные сливки зарубежные (2012) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6537D14DA0D76C8A63073AFF39EE41B4850B669F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173394   (390230) от 11.10.2017
-
-VA - Best Hits 80s от ALEXnROCK часть 1 (2017) [MP3|320 Kbps] <Pop, Disco, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390230.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые мелодичные песни 80х. Весь материал взят с оригинальных CD альбомов, без убивающего звук ремастеринга. Позитивная и добрая музыка. Вспоминайте себя много лет назад и кружитесь в танце с памятью. Это 1я часть сборника. Да прибудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK001 Bad Boys Blue - Queen Of Hearts
-002 Modern Talking - Geronimo's Cadillac
-003 Silent Circle - Touch In The Night
-004 The Police - Every Breath You Take(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 03:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5456D2DC5FC6E20DC421EAC1D2DB4618B75ADB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570716   (390201) от 05.11.2012
-
-VA - 100% Русское радио 2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390201.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Глюкоза И Макс Барских - Адреналин
-002. Tisha - Я Не Забуду Тебя Никогда
-003. Юлия Савичева - Я Так Тебя Жду
-004. NikitA - Давай, Стреляй!
-005. Градусы - Время Мое
-006. Марка - Витамин С
-007. Сати Казанова - Сказка
-008. Винтаж feat. Bobina - На-На-На
-009. Иван Дорн - Город
-010. Ирина Билык - Мы Будем Вместе(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E947131F87C38CCDF03F15D60F4733FB23C568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570704   (390147) от 05.11.2012
-
-VA - Рашн Дэнс DFM Осень (2012) [MP3|128 кб/с]<Dance, Сlub>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390147.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вера Брежнева и DJ Smash - Любовь На Расстоянии
-002. DJ Niki feat. IKA - Так Люблю (Radio Edit)
-003. Reflex - Я Буду Небом Твоим (DJ Favorite & DJ Kharitonov Radio Edit)
-004. Вельвет - Всё Забудется (Denis Rodin Remix)
-005. DJ Ihlas feat. Xenia - Love Me (Одну Меня Люби)
-006. MatreShka Girls - А Я Милого (Tom Reason Remix)
-007. Лавика - Коснемся Губами (Melloffon Remix)
-008. Artik pres. Asti - Облака (DJ Alex Radioso Radio Edit)
-009. Иракли - Я Тебя Люблю (DJ Noiz Remix)
-010. Alexey Romeo & Smoky Mo - На Своей Волне(   Читать дальше...   )Жанр: Dance, СlubПродолжительность: 12:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FA7EC31647140256797BF7FF8A698E25DF7BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570990   (389407) от 06.11.2012
-
-VA - Улетная 200ка: Самое лучшее! 7 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389407.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Седокова - Что я наделала
-002. Ирина Ортман и Александр Киреев - Навсегда
-003. Денис Майданов - Пролетая над нами
-004. Юлия Савичева - Я Так Тебя Жду
-005. Филипп Киркоров - Дева-вода
-006. St1m feat. Дакота - Рядом С Тобой
-007. Нереальные - Любовь-Война
-008. А.Р.М.И.Я - Клянусь
-009. Марсель - Настроение осень
-010. Настя Кудри - Оригами(   Читать дальше...   )Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6818029F27A5865AF1668283A7BD8207B55B629C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570980   (389401) от 06.11.2012
-
-VA - Заводной музон. Только лучшие треки (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полина Гагарина - Нет
-02. Fly Project - Back In My Life (Radio Edit )
-03. Винтаж и ChinKong - Свежая Вода
-04. Лаурита - Сердце мое
-05. Серебро - Мальчик
-06. Таня Брянцева feat. KiBo - Киев
-07. Dash Berlin Feat. Emma Hewitt - Like Spinning Plates
-08. DJ Smash feat. T - Moor Rodriguez - Jump (DJ Noiz & DJ Maxtal Radio Edit)
-09. Джиган - Нас больше нет (Michael Yousher Remix)
-10. Даша Суворова - Поэты Не Спят По Ночам(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707D732E83BBB748EA5E488E024FF064B470372A
 ```
 
 https://mybot314.ru/tekegram_catalog/

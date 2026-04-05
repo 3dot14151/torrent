@@ -1,3 +1,61 @@
+###  Публикация: 330984   (703486) от 02.05.2011
+
+Winifred Atwell - 4 альбома (1964 - 2009) [MP3|320 kbps]<Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+1964 - Revival (Australian Bluebird Single)
+1969 - Chartbusters(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 02:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6B64A4FA62D54F249E2D1D16AB810C82CF4681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402348   (701706) от 14.08.2020
+
+VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calming Music Sanctuary - Relieving Stressful Feelings (03:27)
+02. Meditation Music Zone - Spriritual Rest (03:39)
+03. Beautiful Magical Music Collection - Funny Mood (03:31)
+04. Japanese Zen Shakuhachi - Welcome to Ancient China (03:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6836328A4593F649DE0C8B36848E42129EC04EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132586   (701126) от 09.05.2017
 
 Timothy Wenzel - What We Hold Dear (2017) [MP3|320 Kbps] <New Age>
@@ -6,7 +64,7 @@ Timothy Wenzel - What We Hold Dear (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701126.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701115.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700997.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtem
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700848.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700846.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [FLAC|Lossless|tr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700781.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Parijat - Blessings (2017) [MP3|320 Kbps] <New age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700772.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [MP3|320 Kbps] <New age, Relax
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700637.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700619.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700530.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700454.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ The Dead South - Good Company (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blueg
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700450.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Арт
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700442.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Салют-7 (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700434.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ David Darling - Gratitude (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700405.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Арт
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700358.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Thomas Newman - Finding Dory / В поисках Дори (Original Motion Pictu
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700322.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Pict
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700321.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700207.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Yanni - Dare to Dream (1992) [FLAC|Lossless|tracks] <New Age, Instrumental>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700205.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Karunesh - Beyond Time Compilation 1 (2010) [MP3|320 kbps]<New Age, Relax, Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699539.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Greatest Ever! Brazil (2012) [MP3|320 Kbps] <World Music, New Age, Brazil>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698797.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698789.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Los 50 Grandes Éxitos del Tango Instrumentales (2014) [MP3|192 Kbps] <Tang
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698780.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Los 50 Grandes Éxitos del Tango Instrumentales (2014) [MP3|192 Kbps] <Tang
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE35695490F476D9982B0D9A94395B08D95B7A21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132775   (698684) от 10.05.2017
-
-VA - Dishonored 2 (Original Game Soundtrack) (2016) [MP3|200-275 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Licht - Dishonored 2 Main Theme (02:37)
-02. Daniel Licht - Aristocrats of Karnaca (Ambient) (01:07)
-03. Daniel Licht - Aristocrats of Karnaca (Suspense) (02:47)
-04. Daniel Licht - The Dreadful Wale (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00A03643092FF3BCEC7CDA3E2BECEA266F349A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132063   (698497) от 10.05.2017
-
-VA - Horizon Zero Dawn (Original Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flight - The Spreading Eclipse - Part 4 - Secrets Of The Earth (05:36)
-02. The Flight - The Demon Remade - Part 4 - Secrets Of The Earth (01:26)
-03. Joris de Man - Force Multiplication - Part 4 - Secrets Of The Earth (04:00)
-04. The Flight - Buried Shadow - Part 4 - Secrets Of The Earth (00:57)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 04:00:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38AAE636F5B7BBBAA34B1F2ED98E6B155A539BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

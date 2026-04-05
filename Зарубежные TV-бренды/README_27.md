@@ -6,7 +6,7 @@ Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789215.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788971.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788783.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ History Channel: Тайны коптских мумий / Coptic Mummies of Anti
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788561.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Animal Planet. Кошек не любить нельзя / Must love cats (2012)
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788533.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788465.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788338.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788313.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788148.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788142.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788141.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788035.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC: Вулканы Солнечной системы (Космические В
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788014.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787964.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787593.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787592.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787545.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787220.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Animal Planet: Дом для рептилий. Подпольный бар дл�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786996.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Animal Planet: Дом для рептилий. Принцесса и Питон 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786995.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Animal Planet: Дом для рептилий. Семья древолазов /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786978.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Animal Planet: Дом для рептилий. Невероятные бород
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786962.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Discovery. Мастера оружия / Mad Dog Made (2018) HDTVRip (серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786944.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786803.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786661.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786097.jpg" />
 </div>
 
 

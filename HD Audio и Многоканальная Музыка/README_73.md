@@ -1,32 +1,3 @@
-###  Публикация: 1675598   (160288) от 09.11.2023
-
-D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock , Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard to Be Easy (5:10)
-02. Linger at the Edge of My Memory (5:05)
-03. Tiny Little Fires (3:33)
-04. Right Where You Should Be (3:43)(   Читать дальше...   )Жанр: Progressive Rock , Melodic RockПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C6ADCB6C6AF2160BAF0D97A88C1EFEC15C6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675605   (160280) от 09.11.2023
 
 Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -35,7 +6,7 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160280.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Portishead - Roseland NYC Live 25 (1998/2023) Remastered [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160262.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Execution Day - HEAL (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160259.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Empire of Disease - Shadows in The Abyss (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160250.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ War Curse - Confession (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160234.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Varg - Ewige Wacht (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pagan Metal, Viki
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160217.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Battle Beast - Дискография (6 releases) (2011 - 2022) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160021.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Earth, Wind & Fire - Touch The World (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159988.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159864.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ James Blunt - Who We Used To Be (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159850.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Ayreon - Universal Migrator, Pt. I & II (2000) 2022 remixed & remastered [DTS 5.
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159564.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159385.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159314.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158997.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158995.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ Doro & Warlock - Studio Albums (18 releases) (1984-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158834.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ V/A - Best of Chillout Moods (2005) [DTS 5.1|tracks (upmix)] <Blues, Electronic,
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158601.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Camel - 5 Albums (1974 - 2002) [DTS 5.1|tracks (Upmix)]<Progressive rock, sympho
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158320.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Telarc Heads Up SACD Sampler Vol 5 (2005) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158178.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Telarc Heads Up SACD Sampler Vol 7 (2009) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158169.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Various Artists – Telarc SACD Sampler I (2002) [DTS 5.1 44.1 /16 | .wav+.cue (
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158120.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ The Beatles - Легенды Зарубежного Рока (1999) Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157954.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Roxy Music – Avalon (2003) 1982 [DTS 5.1|44.1/16|image +.cue|SACD] <Art Rock, 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157857.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ At the Gates - Studio Albums (7 releases) (1992 - 2021) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157538.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156942.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967301   (156915) от 23.12.2015
+
+VA - Мастера блюза 4: Большая машина (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156915.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Бум-Бум-Бум. Boom Boom Boom. (Джон Ли Хукер)
+A2 - Чего ты хочешь? Baby What Yoy Want Me To Do. (Джимми Рид)
+A3 - Уезжай отсюдаю Leave This Neighborhood. (Эдди Тейлор)
+A4 - Я все еще люблю. I Love Her Still. (Пи Ви Крэйтон)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

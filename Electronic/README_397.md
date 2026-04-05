@@ -1,3 +1,119 @@
+###  Публикация: 1630572   (245512) от 02.05.2023
+
+Roger Shah & Ambedo - Tribute To Earth (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Shah & Ambedo - Tribute To Earth (Mixed) [6:34]
+02. Roger Shah & Ambedo - Sun And Moon (Mixed) [5:41]
+03. Roger Shah & Ambedo - Oceans (Mixed) [5:39]
+04. Roger Shah & Ambedo & Yélow feat. Capri - The Greatest Gift (Mixed) [6:19](   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4E32522EFB145A13B10161E00266D86F99F273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449392   (245321) от 21.02.2021
+
+Tiesto - Tomorrowland Friendship Mix (2021-02-18) [MP3|320 Kbps] <House, Future House, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - The Business
+02. KREAM - Take Control
+03. VINNE ft. Thayana Valle - Clothes Off
+04. Imanbek & GOODBOYS - Goodbye (GOODBOYS VIP Edit)(   Читать дальше...   )Жанр: House, Future House, Bass HouseПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E00B5CB87855FD39B9A8D8513D2B650BC3B5501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631177   (245264) от 04.05.2023
+
+VA - Spring Break Miami 2023: Best Of Dance & House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teknova - Weekend 2K23 (Original Mix) [2:15]
+02. Deep Emotion & Dani Corbalan - Now You're Gone (Original Mix) [2:46]
+03. MaxRiven - Back To The 2000s (Original Mix) [2:28]
+04. Stephan F & Ya-Ya - Feel The Vibe (Original Mix) [2:47](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF7342C8CA5E897595E72BBB0A527E4C0B234D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631155   (245244) от 04.05.2023
+
+VA - Best Essentials Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noise Generation - Tulum Mantra (Original Mix) [8:43]
+02. ATIK ATH - Atermon (Focus FL Remix) [7:17]
+03. Daniel Testas - Koko (Zy Khan Remix) [7:28]
+04. Nick Mason - Dreams Stay Dreams (Original Mix) [8:24](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CBE372C7E199857F433025F7C8C5D8581799DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266348   (245212) от 01.12.2018
 
 VA - Artist Focus 82 (Miikka Leinonen) (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA - Artist Focus 82 (Miikka Leinonen) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245212.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Classic Trance Anthems (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245197.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Urban Stories Deep House Vol.5 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245082.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Bellatrix - Travel (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245065.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Zuckerschlecken Vol.6: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245060.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Yre Den - Soilstretch (2020) OK SPIRIT [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245022.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ VA - 10 Years (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245013.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ V.A. - Cafe Del Mar Essentials (Collection) (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244988.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ VA - Chill Mode On No.2 (Selected by Smooth Deluxe) (2023) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244984.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244971.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Sunny Lax - Crystals (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244955.jpg" />
 </div>
 
 
@@ -321,7 +437,7 @@ VA - Ultima Audio: Essentials 2022 (Mixed by Alex John) (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244951.jpg" />
 </div>
 
 
@@ -350,7 +466,7 @@ VA - Global Underground Afterhours (2002) Global Underground [FLAC|Lossless|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244929.jpg" />
 </div>
 
 
@@ -379,7 +495,7 @@ VA - The Sound of 2023 Mix 1: Hong Kong (2023) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244898.jpg" />
 </div>
 
 
@@ -408,7 +524,7 @@ VA - Bossa N Michael (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244867.jpg" />
 </div>
 
 
@@ -437,7 +553,7 @@ VA - Top 5 April 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244827.jpg" />
 </div>
 
 
@@ -466,7 +582,7 @@ VA - Trance Anthems Vol. 18 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244824.jpg" />
 </div>
 
 
@@ -495,7 +611,7 @@ VA - Electro Pop Of The 80s Reloaded (2016) (2016) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244810.jpg" />
 </div>
 
 
@@ -524,7 +640,7 @@ Crunkz - Never Stop Ep. 4 (2022-01-29) [MP3|320 Kbps] <Tech House, Future House,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244772.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ Velvet Dreamer + Tim Gelo - Discography 38 Releases (2013-2022) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244752.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ VA - 10 Years Of Suanda Music - Mixed by Roman Messer (2023) [MP3|320 Kbps] <Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244731.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ VA - Evidence Of Intense Beauty (2016) [MP3|320 Kbps] <Ambient, Drone>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244721.jpg" />
 </div>
 
 
@@ -625,122 +741,6 @@ VA - Evidence Of Intense Beauty (2016) [MP3|320 Kbps] <Ambient, Drone>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:641E0E75A6D3612280252F439400CACF1C2425E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069697   (244713) от 05.11.2016
-
-VA - Lounge Future: Sunrise (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karim Le Mec - Orphan (4:59)
-02. Debris of Theia - Come Back to My Jungle (4:36)
-03. Devillas - Lounge Black Coffee (4:37)
-04. Joybiza - Gambling House (3:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0308EC845DE6B056DA94C59DAA14E9790EE80CF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069709   (244693) от 05.11.2016
-
-VA - Time For Chillout Vol.2 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Kosenko - Awakening (4:32)
-02. Andrew Riqueza - Concentrate (6:16)
-03. AUTUMN STORM - Dreamland (3:28)
-04. CraSET - Miss You (3:33)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D309D8ABBF7C5EFBF1F4FC93A448F19A43E01AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069665   (244681) от 05.11.2016
-
-VA - Chillout Macchiato (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hints of Soul - Uncommonly Heedful (Original Mix) (5:41)
-02. Aqua Mundi - Balletic (Original Mix) (5:34)
-03. Rey Salinero - Flor de Almendro (Original Mix) (5:52)
-04. Arrojas - Azimuth (Original Mix) (6:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A334F82060E0135F3E3FA26044D3240A1F079C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452102   (244647) от 05.03.2021
-
-Aura Minimum - Fragments (2021) Strange Key [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragment I (10:59)
- 02. Fragment II (10:46)
- 03. Fragment III (16:02)
- 04. Fragment IV (09:46)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACC0F67A39064D119AABC68C1877EF309A9A2E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

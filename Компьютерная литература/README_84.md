@@ -1,161 +1,3 @@
-###  Публикация: 1190586   (266583) от 10.12.2017
-
-В. Потопахин | Современное программирование с нуля! (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для тех, кто хочет получить хорошие навыки программирования с использованием языка Компонентный Паскаль - современной версии языка Паскаль. Изложение сопровождается большим количеством примеров, способствующих успешному усвоению материала людьми с различным
-уровнем подготовки – необходимо только желание и терпение. Материал курса представлен в виде последовательности (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B5856A216860901E5C7DFD326FC9E8216F1290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191123   (265002) от 12.12.2017
-
-Джеймс Артур /James Arthur | Raspberry Pi. Полное руководство по Raspberry Pi для начинающих / The complete guide to Raspberry Pi for beginners (2017) [EPUB, PDF] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга служит руководством для новичков в мире Raspberry Pi, о разных моделях, как их использовать и каковы их возможности. Из книги вы узнаете о способностях микрокомпьютера Raspberry Pi, какая модель для вас правильная, как настроить свой Pi для использования и как начать работу с вашим первым проектом. Вы откроете для себя различные языки программирования, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2943EF12B7EDADEEBDC7D1BBD822CC3A6A8AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339810   (264542) от 21.11.2019
-
-Гарет Халфакри | BBC micro:bit. Официальное руководство пользователя (+file) (2020) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микрокомпьютер BBC micro:bit был разработан корпорацией BBC совместно с крупными технологическими компаниями, сообществами и образовательными организациями для того, чтобы предоставить детям интересный, практичный и недорогой способ изучения программирования. Несмотря на свою простоту и доступность, эта плата обладает огромным потенциалом, а благодаря широкой совместимости (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B681EE6BB4560C61BFCA35CC260CE68D399A9886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339760   (264500) от 21.11.2019
-
-Крис Бернхард | Квантовые вычисления для настоящих айтишников (2020) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Квантовые вычисления для настоящих айтишников — Квантовые вычисления часто упоминаются в новостях: Китай телепортировал кубит с Земли на спутник; алгоритм Шора поставил под угрозу ныне используемые методы шифрования; квантовое распределение ключей снова сделает шифрование надежным средством защиты; алгоритм Гровера увеличит скорость поиска данных.
-Но что все это (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E32F470D7E86FFB0823695E63A0C9D0C0755F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340332   (263876) от 23.11.2019
-
-Джеймс Бони | Руководство по Cisco IOS (2008) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263876.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом удобном руководстве, состоящем из двух частей, рассматривается конфигурация IOS (Internetwork Operating System) для семейства протоколов TCP/IP. В первый раздел входят главы, посвященные пользовательскому интерфейсу, настройке линий и интерфейсов, спискам доступа, протоколам маршрутизации, маршрутизации вызовов по запросу и безопасности. Практические руководства (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6B78FFBED047DE279544EC11BB61C33E0C7804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191814   (263699) от 15.12.2017
-
-А.Г. Дубина и др. | MS Excel в электротехнике и электронике (2001) [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является практическим руководством по разработке и реализации в среде Excel 97/2000 расчетных решений, предназначенных для автоматизации расчетов различных характеристик электрических цепей и их узлов, электронных устройств и компонентов. На прилагаемой дискете находятся готовые к использованию XLS-файлы, с помощью которых читатели смогут выполнять расчеты (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255D0CC53C5E5A01EDF081684E8D8F87B30CF1FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340724   (263430) от 24.11.2019
 
 Е.Г. Канель, З. Фрайман | Основы программирования на Java. Для школьников... и не только (2019) [PDF]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263430.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262855.jpg" />
 </div>
 
 
@@ -216,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262669.jpg" />
 </div>
 
 
@@ -243,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262380.jpg" />
 </div>
 
 
@@ -269,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261703.jpg" />
 </div>
 
 
@@ -295,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261687.jpg" />
 </div>
 
 
@@ -321,7 +163,7 @@ Joseph Steinberg | Кибербезопасность для чайников (2
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261532.jpg" />
 </div>
 
 
@@ -347,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261294.jpg" />
 </div>
 
 
@@ -374,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261271.jpg" />
 </div>
 
 
@@ -401,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260592.jpg" />
 </div>
 
 
@@ -427,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260004.jpg" />
 </div>
 
 
@@ -453,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258214.jpg" />
 </div>
 
 
@@ -479,7 +321,7 @@ ANK Со., Ltd | HTML/CSS. Вся веб-разработка в схемах и
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257825.jpg" />
 </div>
 
 
@@ -506,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257790.jpg" />
 </div>
 
 
@@ -534,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257699.jpg" />
 </div>
 
 
@@ -562,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257696.jpg" />
 </div>
 
 
@@ -588,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257677.jpg" />
 </div>
 
 
@@ -615,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257662.jpg" />
 </div>
 
 
@@ -642,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257661.jpg" />
 </div>
 
 
@@ -668,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257660.jpg" />
 </div>
 
 
@@ -682,6 +524,173 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C12B7BDAD11C96D07403A491065E5EA9661E003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500469   (257240) от 23.05.2012
+
+В.А. Гамалей | Самоучитель по цифровому видео. Как снять и смонтировать видеофильм на компьютере [2007] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257240.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается об особенностях цифровой видеоаппаратуры, способах различных видов видеосъемки и творческих подходах к созданию видеофильма на различную тему. Подробно рассматриваются вопросы нелинейного монтажа в последних версиях видеоредакторов и способах сохранения готового видеофильма на современных носителях информации (CD-, DVD-, HD DVD-компакт-диск). Приводится описание видеооборудования для домашней видеостудии.
+Книга адресована видео-любителям, как начинающим, так и продолжающим совершенствать свое мастерство.2007Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90224E011FB5B6FEAFA7070CE7EDF3C234269919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500034   (257036) от 22.05.2012
+
+Крис Касперски, Ева Рокко | Искусство дизассемблирования [2008] [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена вопросам и методам дизассемблирования, знание которых позволит эффективно защитить свои программы и создать более оптимизированные программные коды. Объяснены способы идентификации конструкций языков высокого уровня таких, как C/C++ и Pascal, показаны различные подходы к реконструкции алгоритмов. Приводится обзор популярных хакерских инструментов для Windows, UNIX и Linux - отладчиков, дизассемблеров, шестнадцатеричных редакторов, API- и RPC-шпионов, эмуляторов.
+
+Рассматривается исследование дампов памяти, защитных механизмов, вредоносного программного кода - вирусов и эксплоитов. Уделено внимание противодействию антиотладочным приемам.
+К книге прилагается компакт-диск с кодами рассматриваемых примеров.
+Книга предназначена для программистов и продвинутых пользователей.
+
+Оглавление:
+Часть 1. Обзор хакерских программ
+Часть 2. Базовые техники хакерства
+Часть 3. Идентификация ключевых структур языков высокого уровня(   Читать дальше...   )2008Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7988891022FDE85F7052BCBB0EB0156A2E037B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837291   (256802) от 15.11.2025
+
+Эдуард Дадян | Современные технологии программирования. Язык 1С 8.3 (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256802.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике рассмотрены вопросы построения основ языка программирования 1С 8.3. Предназначен как для начинающих, так и для продвинутых пользователей. Изложение материала разбито на два раздела. В первом разделе даются основы языка программирования 1С 8.3 для начинающих. Во втором разделе применение языка 1С 8.3 дается для продвинутых пользователей — в справочной форме, (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Инфра-МФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E067253EE863507B6E13834F0DE8F7167650358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837320   (256791) от 15.11.2025
+
+Андрей Гартвич | 1С:Бухгалтерия 8.3 с нуля. 100 уроков для начинающих [3-е издание] (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга ориентирована на новичков, желающих с нуля изучить основы бухгалтерского и налогового учета в программе «1С:Бухгалтерия 8.3». Описаны бухгалтерский, налоговый и другие виды учета, страховая и статистическая отчетность, показано, как сдавать отчеты через Интернет. Рассмотрено эффективное решение
+типичных задач: управление денежными средствами, продажи, производство (   Читать дальше...   )Жанр: ПрограммированиеИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD2610278C00530C69B2BF64DC43ECBD8C5020C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837332   (256780) от 15.11.2025
+
+Джон Боднер | Go: идиомы и паттерны проектирования [2-е изд.] (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Go быстро завоевал популярность у разработчиков веб-сервисов. Существует множество учебников, помогающих программистам со знанием других языков освоить его синтаксис, но этого недостаточно. Автор Джон Боднер познакомит вас с паттернами проектирования, созданными опытными инженерами Go, и обоснует их применение. В книге собрана наиболее важная информация, необходимая (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B3AE4CD8E60D1B3F4A307E62980DF4F30A90A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499718   (256510) от 21.05.2012
+
+А. Просницкий, В. Иванов | Изучение Microsoft Project 2010 за 1 день методом сквозного примера [2010] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256510.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C19CD3E3F3D4D3575CCB5B977E5C14C00F44F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

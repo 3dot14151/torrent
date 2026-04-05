@@ -1,3 +1,32 @@
+###  Публикация: 1412749   (416032) от 30.09.2020
+
+Stryper - Even The Devil Believes (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood from Above (3:21)
+02. Make Love Great Again (5:54)
+03. Let Him In (3:53)
+04. Do Unto Others (4:40)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BD09DE8C379D968CDFA918305C4DCC22633ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412594   (416026) от 30.09.2020
 
 Eddie Lee - Breakout (2020) [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +35,7 @@ Eddie Lee - Breakout (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416026.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ King Mothership - The Ritual (2020) [MP3|320 Kbps] <Alternative Rock, Punk Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416023.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Karnataka - Secrets Of Angels (2015) [FLAC|tracks + .cue]<Progressive Rock, Symp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415986.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ram Jam - Greatest Hits (2020) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415887.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Body Pump Rock Classics (2020) [MP3|320 Kbps] <Rock, Dance>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415883.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415876.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415830.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Otto Dix - Анимус (2015) [MP3|320 кб/с]<Darkwave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415732.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Blackend - The Black Metal Compilation Vol. 4 (1999) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415613.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415509.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415504.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Crematory - Oblivion (2018) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415424.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Stratovarius - Enigma: Intermission II (2018) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415420.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Led Zeppelin - An Introduction To Led Zeppelin (2018) Remastered [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415243.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Fumed - Fumed (2017) [MP3|320 Kbps] <Hard Rock, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415084.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415067.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ The Volume - The Volume (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog, Psych,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415054.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Winterfylleth - The Hallowing of Heirdom (2018) Deluxe edition, 2CD [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415052.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ VA - Big Day Out: Discrespective 1992-1997 / 1999-2002 (2002) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414946.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Winterfylleth - The Reckoning Dawn (2020) Special edition, 2CD [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414921.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Ayoki - 8 Relises (2018-2022) [MP3|320 Kbps] <Alt. Metal, Female Vocal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414914.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Stone Nomads - Fields of Doom (2022) [MP3|320 Kbps] <Stoner, Doom, Sludge>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414913.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Nonoise - Beetah Duh'Dhul' (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Psych Doom, 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414912.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Nonoise - Beetah Duh'Dhul' (2022) [MP3|320 Kbps] <Psych Doom, Sludge, Stoner, Sp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414910.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Freight Train Rabbit Killer - Hammer Of Judgment (2022) [MP3|320 Kbps] <Psych Do
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414908.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Freight Train Rabbit Killer - Hammer Of Judgment (2022) [MP3|320 Kbps] <Psych Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15AC1A542D10DF368BD410274B60D5EC1EC0319E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573171   (414906) от 30.08.2022
-
-Дездемон Сидоров - Велоанархист (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Да здравствует панк! [00:03:16]
-02 - Колосья [00:04:01]
-03 - Велосипед [00:04:30]
-04 - Батарейки (Никто не выйдет отсюда живым) [00:04:05](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C65E802947C5291FAA8B499A735C951E6D48D75
 ```
 
 https://mybot314.ru/tekegram_catalog/

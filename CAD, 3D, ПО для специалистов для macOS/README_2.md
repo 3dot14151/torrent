@@ -6,7 +6,7 @@ Pixologic ZBrush 2018 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722840.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Live Home 3D Standard 3.5.4 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720956.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Native Instruments Kontakt 6 v6.7.0 STANDALONE, VSTi, AU [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720529.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ HTML Egg Pro 7.76.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712280.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Maple 2015.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711289.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ iZotope - RX 9 Audio Editor Advanced v9.3.0 STANDALONE, VST, VST3, AAX [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700993.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Home Design 3D 4.1.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696504.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Timeline 3D 5.3.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692398.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ OmniPlan Pro 3.7.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680649.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Records v1.5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667815.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Aqua Data Studio 18.0.13 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665247.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Schwartz v1.7.8 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664255.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Live Home 3D Standard 3.5.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650493.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ JetBrains PhpStorm 2018.1.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649899.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Virtual Vertex Muster 9 v9.0.12 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642924.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ PhpStorm 2016.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618524.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ ArchiCAD 19 (3003) [INT]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615545.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Agisoft PhotoScan Pro 1.3.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600895.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Pixologic ZBrush 4R7 P3 (х64 bit) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592177.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Live Home 3D: Standard Edition 3.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572551.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Architect 3D Professional 2017 Mac 19.0.8 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550224.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ArchiCAD 18 (3006) [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543951.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Couverture 1.1.4 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498533.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Artlantis 2021.2 v9.5.2.32351 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486279.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ SQL Dynamite 2.1.4.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479237.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ iStopMotion 3.8.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465815.jpg" />
 </div>
 
 

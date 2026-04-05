@@ -6,7 +6,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543267.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543261.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542658.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542270.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542219.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NG: Как это связано? От мечей до беспилотнико�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542144.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Discovery:  Жизнь отвратительных животных / Nasty by 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542139.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Discovery: Искусство выживания Рэя Мирса / Ray Mears B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541825.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC: Пираты Карибского моря. Черная борода / Bla
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541760.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541713.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541709.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540330.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538685.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NG. С точки зрения науки: Пули / Naked Science: Bullets (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538597.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ BBC: Древние затерянные города. Тёмные правит
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538584.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Discovery. Новые захоронения Египта / Egypt's New Tomb Rev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538460.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538456.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537690.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536828.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536826.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Discovery: Неделя акул / Shark Week (2017) HDTVRip [H.264/720p-LQ] (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536755.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Discovery: Люди: Кто мы? Нашествие людей / People: Who ar
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536152.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ NG. По его собственным словам / In His Own Words (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536097.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NG. Жизнь до рождения: Собаки / In The Womb. Dogs (2009) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534999.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ NG: Больше, чем тираннозавр / Bigger Than T.Rex (2014) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534552.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Discovery: Войны за моллюсков / Dive Wars Australia (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534448.jpg" />
 </div>
 
 

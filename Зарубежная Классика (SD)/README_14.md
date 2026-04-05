@@ -1,3 +1,57 @@
+###  Публикация: 621418   (962603) от 20.02.2013
+
+Знахарь / Znachor (1981) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962603.jpg" />
+</div>
+
+
+###  Подробнее
+
+С гениальным хирургом Рафалом Вильчуром происходит трагедия, изменившая всю его жизнь. Уходят жена и дочь, в тот же день он оказывается на улице без денег и документов. Ему приходится пережить несколько лет скитаний и горя.
+
+И все-таки судьба поворачивается к нему лицом. Найдя приют в семье мельника, он спасает его больного сына и становится членом семьи. Молва о (   Читать дальше...   )Производство: ПольшаЖанр: ДрамаРежиссер: Ежи ГоффманАктеры: Артур Барчиш, Ежи Биньчицкий, Анна Дымна, Томаш Стокингер, Анджей КопичиньскийПеревод: ДублированныйПродолжительность: 02:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B66402F33413312E36F07ACA12475B77F74360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971391   (962157) от 24.01.2016
+
+Нельзя быть слишком молодым / You're Never Too Young (1955) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилбур Хулик — ученик парикмахера, случайно завладевший украденным бриллиантом Маджуба. Чтобы не быть схваченным похитителем бриллиантов и убийцей Нунаном, Уилбур переодевается в матросский костюм, выдавая себя за 11-летнего мальчика, и ищет убежища в школе для девочек, где учителем работает Боб Майлс.Производство: США / Paramount PicturesЖанр: КомедияРежиссер: Норман ТаурогАктеры: Дин Мартин, Джерри Льюис, Диана Линн, Нина Фош, Рэймонд Бёрр, Митци МакКолл, Веда Энн Борг, Марджери Мод, Ромо Винсент, Нэнси КалпПеревод: Многоголосый закадровый (студия "Пифагор" по заказу ГТРК "Культура")Субтитры: ОтсутствуютПродолжительность: 01:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A0A99C0E77D823926C7D84A06F00DF3F3A267D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 749160   (962151) от 24.01.2016
 
 Макбет / Macbeth (1948) DVDRip
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962151.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961919.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961106.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961045.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959658.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959528.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959417.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958456.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958453.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958367.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958364.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958102.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956755.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956672.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956181.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955540.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955361.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955293.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954700.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954621.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954504.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953886.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953408.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952281.jpg" />
 </div>
 
 
@@ -623,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BA01C5C921E752D54CD3CBE3D3065A2E56BA94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361358   (952136) от 21.02.2020
-
-Улыбки летней ночи / Sommarnattens leende / Smiles of a Summer Night (1955) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания из нескольких абсолютно разных людей, судьбы которых переплетены самым причудливым образом, проводят летнюю ночь в одном месте. Бывшие и нынешние любовники, жёны и мужья... Все они испытывают какое-то неудовлетворение и о чём-то или, скорее, о ком-то грезят. Но магия летней ночи как будто опьяняет персонажей картины, заставляя их чувства вырываться наружу, (   Читать дальше...   )Производство: Швеция / Svensk Filmindustri (SF)Жанр: Мелодрама, комедияРежиссер: Ингмар БергманАктеры: Улла Якобссон, Эва Дальбек, Харриет Андерсон, Маргит Карлгвист, Гуннар Бьёрнстранд, Ярль Кулле, Оке Фриделль, Бьёрн Бьельфвенстам, Найма Вифстранд, Юллан КиндальПеревод: Многоголосый профессиональный, одноголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF7588F355CDE86FDF386917F391DB972AE502D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280304   (952073) от 09.01.2011
-
-Частная жизнь Генриха VIII / The Private Life Of Henry VIII (1933) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помимо своих жен Генрих VIII не гнушался и уничтожением своих политических противников, среди которых был и великий гуманист Томас Мор, а также церковной реформой, приведшей к появлению англиканской церкви. Генрих VIII был женат шесть раз. Судьба его супруг заучивается английскими школьниками при помощи мнемонической фразы "развелся - казнил - умерла - развелся (   Читать дальше...   )Производство: Великобритания, London Film Production, London Film Productions limited, Toeplitz productionЖанр: Мелодрама, комедия, биография, историяРежиссер: Александр КордаАктеры: Чарлз Лотон, Роберт Донат, Фрэнклин Дайэлл, Майлз Мандер, Мерл Оберон, Уэнди Бэрри, Эльза Лэнчестер, Бинни Барнс, Эверли Грегг, Лэйди Три, Лоуренс Хэнрэй, Уильям Остин, Джон Лоудер, Клод Аллистер, Гибб МакЛафлин, Марк Дейли, Энни Эсмонд, Артур Ховард, Джуди Келли, Уолли Патч, Хэй Питри, Джон ТернбуллПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE2B52E6F58062C56644B21EC0378EC74A77C5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

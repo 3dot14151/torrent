@@ -1,3 +1,29 @@
+###  Публикация: 1138799   (661928) от 31.05.2017
+
+Лекарство от здоровья / A Cure for Wellness  (2016) BDRemux [H.264/1080p] [EN / EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой амбициозный сотрудник отправляется в затерянный в швейцарских Альпах оздоровительный центр, чтобы вернуть оттуда руководителя своей компании. Но по прибытии он понимает, что чудодейственные процедуры спа-салона вовсе не те, чем кажутся. В то время как парень начинает распутывать страшные тайны этого места, его здравый ум проходит настоящую проверку на прочность. (   Читать дальше...   )Производство: Германия, СШАЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Гор ВербинскиАктеры: Дэйн ДеХаан, Джейсон Айзекс, Миа Гот, Иво Нанди, Адриан Шиллер, Селия Имри, Гарри Гронер, Томас Норстрем, Ашок Манданна, Магнус Креппер, Питер Бенедикт, Михаэль МендльПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французские, китайские, хорватские, чешские, португальские, греческие, иврит, исландские, хинди, венгерские, малайские, румынские, сербские, словацкие, словенские, тайские, турецкие, вьетнамские, арабские, болгарскиеПродолжительность: 02:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D481C0889148AC53A1629D64F865DB52C97A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902524   (660698) от 28.05.2015
 
 Век Адалин / The Age of Adaline  (2015) WEB-DL [H.264/1080p-LQ] [EN / Ro, EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660698.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659897.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659804.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658656.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658425.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658410.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657533.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656584.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656471.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656220.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655543.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655128.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654836.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654754.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654568.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654130.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653680.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653496.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651973.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651657.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649964.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649015.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648942.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648394.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648369.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C28F9A973C5E8BF67B8DD1F529705CA3CF50F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141435   (648247) от 11.06.2017
-
-Сердце дракона 4 / Dragonheart: Battle for the Heartfire (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Король Гарет умирает, что теперь будет с драконом, отдавшим ему часть своего сердца? Станут ли потомки короля достойными продолжателями его славных дел, и какой дар будет у каждого из них?Производство: США, Castel Film Romania, Universal 1440 EntertainmentЖанр: ФэнтезиРежиссер: Патрик СиверсенАктеры: Патрик Стюарт, Том Рис Харрис, Джессамин-Блисс Белл, Тэмзин Мёрчант, Андре Эриксен, Ричард Кордери, Мартин Хатсон, Делрой Браун, Тёрло Конвери, Льюис Маккиннон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7337BC19F9D05FA66422565A07C35D7C3F68C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

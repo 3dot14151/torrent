@@ -6,7 +6,7 @@ Al Bano & Romina Power - 6 Albums, Box Set, 9 CD (1985 - 1997) [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854003.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marc Almond - Chaos and a Dancing Star (2020) [FLAC|Lossless|tracks + .cue] <Syn
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853567.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Belinda Carlisle - A Woman & A Man (1996) [FLAC|Lossless] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852983.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Niykee Heaton - The Bedroom Tour Playlist (2016) [FLAC|Lossless|tracks] <Pop, Rn
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852099.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ ABBA - The Essential Collection (2012) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851502.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - All I Think About Is You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851365.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Pure... movies (2010) Box Set, 4CD [FLAC|Lossless]<Pop, Rock, Saundtrack>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850719.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Tokio Hotel - Dream Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850248.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sixtine - Sweet Sixteen (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Altern
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850170.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Banoffee - Look at Us Now Dad (2020) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850001.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ed Sheeran - Divide (2017) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849787.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lexi Strate - Waves (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848994.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Aurora & The Betrayers - Vudu (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847104.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Super Sanremo (2015) Compilation, 2 CD [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846931.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Elisa (Elisa Toffoli) - On (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846930.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Amelia Brightman - Amelia Brightman (2016) Limited Edition [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846928.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845197.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844802.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844226.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843306.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Elec
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843042.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843035.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842976.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842910.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Maggie Reilly - Echoes (1992) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842092.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Haroula Rose - Here The Blue River (2016) [FLAC|Lossless|tracks] <Pop, Folk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841895.jpg" />
 </div>
 
 

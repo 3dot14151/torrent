@@ -1,3 +1,81 @@
+###  Публикация: 1717055   (59325) от 18.04.2024
+
+DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition] [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте невероятное дело об убийстве в далеком будущем в этом приключенческом детективном боевике в виртуальной и невиртуальной реальности! DYSCHRONIA: Chronos Alternate завоевала множество наград VR, в том числе доминировала в семи категориях на NYX Game Awards, а также была номинирована на финалистскую премию «Игра года» на церемонии VR Awards 2023. Версия Steam (   Читать дальше...   )Тип издания: RepackРазработчик: IzanagiGames, MyDearest Inc.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Японский, Корейский и другиеЯзык интерфейса: Английский, Французский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A535CDEBBD2822E9C90F1DD785A406684BE57BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717148   (59319) от 18.04.2024
+
+Purpose 1951 (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Purpose 1951 переносит вас в мир отставного врача в Америке середины 20-го века. Их жизнь изменилась к худшему, и вы берете управление в свои руки. Это симулятор ходьбы, поэтому большую часть времени придется провести, исследуя окружающую среду пешком. В игре есть дикторский текст, который ведет вас по сюжету, и некоторые говорят, что атмосфера - настоящая звезда (   Читать дальше...   )Тип издания: RepackРазработчик: Tonguç BodurЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E36B05C9245E25A06167C7A62B31BEAE5AD338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717231   (59242) от 19.04.2024
+
+Grand Canyon (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grand Canyon - это игра, которая предлагает вам погрузиться в мир приключений и исследований. Вы играете за главного героя, который отправляется в путешествие по Гранд-Каньону, одному из самых удивительных мест на Земле. Вам предстоит преодолевать различные препятствия, исследовать пещеры и реки, а также находить скрытые сокровища. Игра отличается высоким уровнем (   Читать дальше...   )Тип издания: RepackРазработчик: CraniaXЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E4DF973FBC98241B3C4C8B3D5E62503FB02E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717234   (59230) от 19.04.2024
 
 Lil Doll House (2024) [En] (1.0) Repack FitGirl
@@ -6,7 +84,7 @@ Lil Doll House (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59230.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Inspector Schmidt - A Bavarian Tale (2023) [Multi] (1.0.1.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59222.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58954.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58936.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58927.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58923.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/En] (1.1.0) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58907.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Sophia the Traveler (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58888.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Aquamarine (2022) [En] (2.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58841.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ FLAKE The Legend of Snowblind (2024) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58807.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Shinkansen 0 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58805.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58796.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Scott Whiskers in: the Search for Mr. Fumbleclaw (2024) [Multi] (1.0.155) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58697.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58566.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58553.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Once a Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58539.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58453.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58393.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58271.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Staffer Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58165.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/En] (27042024/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58111.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Tad the Lost Explorer (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58068.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719/dlc) Sc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58059.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Five Nights at Freddy's: Security Breach - хоррор-выживастик, г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9A9002DFDDE0F34D4C96C09864FDA95360DB4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719849   (58008) от 01.05.2024
-
-POOLS (2024) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pools (Бассейны) – игра, разработанная в жанре психологического хоррора, с упором на внимательность, где важно прислушиваться к каждому звуку. Мы становимся частью пугающей, жуткой, держащей в напряжении среды, где важно не потерять рассудок, если мы хотим дойти до конца. Игра разделена на шесть уникальных частей, каждую из которых мы будем проходить не более тридцати (   Читать дальше...   )Тип издания: SceneРазработчик: TensoriЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80690B702138A76F1B8AB74FA098E83ADF3B05C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720835   (57479) от 06.05.2024
-
-INDIKA (2024) [Ru/Multi] (14207837) Repack Decepticon
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57479.jpg" />
-</div>
-
-
-###  Подробнее
-
-INDIKA - игра от третьего лица с историей о странном мире, в котором религия вступает в противоборство с жестокой реальностью. Игра повествует о молодой монахине, которая отправляется на поиски самой себя бок о бок с рогатым другом. Внешне Индика - обычная, ничем не выдающаяся монахиня. Она всеми силами пытается нести бремя монастырской жизни. Однако скромность и (   Читать дальше...   )Тип издания: RepackРазработчик: Odd MeterЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC445B029337320BA10031161CDDCD7D7845A21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721830   (57108) от 09.05.2024
-
-11F (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57108.jpg" />
-</div>
-
-
-###  Подробнее
-
-11F – в записке написано, что вас будут ждать на 11 этаже. Так окунитесь же с головой в истинный ужас, приправленный тайнами и приключениями. Но как подняться в то место, которое попросту не существует? После того как прошла свадьба отца, протагонист получает от неизвестных людей сертификат о передаче прав на определенную недвижимость. Произошло все это на мероприятии (   Читать дальше...   )Тип издания: RepackРазработчик: PUMPKIMЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C7741972E54271E36010659BAC627F134E9012
 ```
 
 https://mybot314.ru/tekegram_catalog/

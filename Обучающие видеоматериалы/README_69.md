@@ -1,3 +1,30 @@
+###  Публикация: 1365727   (926887) от 09.03.2020
+
+Pluralsight.com | Синтаксис и операторы JavaScript / JavaScript Syntax and Operators (2019) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите различные структуры JavaScript, такие как Switch, For/in и For/of. Посмотрите, какие математические, логические и сравнительные операторы вы можете использовать. Узнайте о том, как обрабатывать исключения и работать с ключевым словом "this".
+Этот учебный курс будет полезен школьникам и студентам, которые хотят изучить JavaScript за короткое время.Производство: Pluralsight.comЖанр: Программирование, JavaScriptПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01B2C9ABC0718FAABFCE83DB324212049C2AB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489336   (926806) от 15.08.2021
 
 Blender Cloud, Kjartan Tysdal | Low Poly Character Creation (2017) PCRec [EN]
@@ -6,7 +33,7 @@ Blender Cloud, Kjartan Tysdal | Low Poly Character Creation (2017) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926806.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926693.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ OTUS | Архитектор высоких нагрузок (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926626.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ OTUS | Безопасность Linux (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926614.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ OTUS | Разработчик Golang (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926613.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926534.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925812.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Udemy, Darrin Lile | Create Game Characters with Blender (2017) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925183.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ CG Cookie, Jonathan Williamson | Low Poly Character Creation in Blender (2011) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925077.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ OTUS | MS SQL Server разработчик (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924924.jpg" />
 </div>
 
 
@@ -277,7 +304,7 @@ OTUS | Data Engineer (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924922.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923844.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923839.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923761.jpg" />
 </div>
 
 
@@ -389,7 +416,7 @@ Convert Monster | Быстрые результаты в SEO + Бесконеч�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923760.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ Gumroad, Lu Dongjun | Lava Stone (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923683.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ Gumroad, Lu Dongjun | Snow Rock (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923565.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ Udemy, Coding Revolution | React practice course, learn by practicing ( 2021 edi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923473.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ Specialist, Эпов Дмитрий Андреевич | Autodesk 3ds Max 2013 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923430.jpg" />
 </div>
 
 
@@ -523,7 +550,7 @@ Udemy, GameDev.tv Team м др.| C++ Fundamentals: Game Programming For Beginner
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923421.jpg" />
 </div>
 
 
@@ -551,7 +578,7 @@ OTUS | Облачные сервисы (2020) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923368.jpg" />
 </div>
 
 
@@ -577,7 +604,7 @@ OTUS | Инфраструктурная платформа на основе Kub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923349.jpg" />
 </div>
 
 
@@ -603,7 +630,7 @@ Udemy | Практический JavaScript (Продвинутый уровен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923269.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922320.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922056.jpg" />
 </div>
 
 
@@ -668,34 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE9814EF11A313745A4193796AD8FD24C7C5F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987910   (921917) от 19.02.2016
-
-Сергей Змеев | Хозяин Судьбы 20.12 (2012) DVDRip [H.264]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921917.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хозяин Судьбы 20.12» — это полугодовой курс по крутому изменению жизни. Это один из успешнейших информационных продуктов. Это проект, который охватил действующее и активное русскоязычное сообщество со всего Мира. Ведущий и автор курса – Сергей Змеев, миллионер, инвестор, предприниматель, ректор ВИПБ, президент клуба «Ближний Круг».
-
-В ходе курса, вы ответите на (   Читать дальше...   )Жанр: Практическая психология, Личностный ростПродолжительность: 52:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC61F0A84206629A63743B5855E5AD6542C0D09
 ```
 
 https://mybot314.ru/tekegram_catalog/

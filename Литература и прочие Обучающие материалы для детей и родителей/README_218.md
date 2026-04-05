@@ -1,3 +1,56 @@
+###  Публикация: 1549583   (593322) от 07.05.2022
+
+О.Н. Земцова | Дошкольная мозаика. Развиваем внимание 4-5 лет (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет вашему малышу развить зрительное восприятие и произвольное внимание. Стимулируйте речевую активность ребёнка - беседуйте с ним во время занятий. Пусть малыш больше говорит. В процессе работы задавайте ему дополнительные вопросы по картинкам. Ребёнок с удовольствием поделится своими впечатлениями -расскажет, какие задания показались ему самыми трудными, (   Читать дальше...   )Жанр: Рабочая тетрадь, Развивающая литература для дошкольниковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFDEF04C79F03256FC38E9110309AA7722E2623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549580   (593304) от 07.05.2022
+
+Анатолий Шапиро | Секреты знакомых предметов. Спички. Кубики (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знания привыкли передавать ребёнку в основном через глаза и уши. Автор этой книги стремится к тому, чтобы они приходили и через руки, через деятельность, а тем самым мы смогли бы подарить ребёнку радостное удивление, пытливый анализ, первый окрыляющий успех естествоиспытателя.
+Эта книжка может стать интересной как для малыша 5-6 лет, так и для младшего школьника. (   Читать дальше...   )Жанр: Детский досуг, Опыты, Эксперименты, ФокусыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6006F632CF3463DEED53374EEE92D2E68EF947C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300339   (593209) от 06.05.2019
 
 Шеннон Мессенджер | Вечное пламя. Книга третья (2018) [FB2]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593209.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593198.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593139.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593042.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593024.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593023.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593020.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593009.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592959.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592941.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592922.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592896.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592853.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592852.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592800.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592797.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592796.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592760.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592669.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592522.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592351.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592350.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592340.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592307.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DC1DB01E40579E038DA3C06890E3B04AA90BBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915392   (592286) от 05.07.2015
-
-В. Брунс, Ю. Селю | Корабли и лягушки (1938) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник по складыванию из бумаги встроен в сюжетную — и даже отчасти приключенческую рамку. Завязка, по нынешним временам, жутковатая: в праздничный день две маленькие девочки оказываются заперты в застрявшем лифте с неизвестным взрослым парнем, одетым и замаскированным клоуном. Ничего ужасного, однако, не происходит. Девочки несколько куксятся, да ещё и заняться (   Читать дальше...   )Жанр: Поделки из бумагиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B763F84BF3DB68DB0157ADCC2B10A57F103615D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915384   (592279) от 05.07.2015
-
-Е. и М. Быковские | Картонажная игрушка (1927) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картонажная игрушка - таким именем называются игрушки, сделанные из картона и различных сортов цветной бумаги. Это самая легкая из работ, доступных детям. Начертить, обдумавши, конечно, заранее то, что хочется сделать, вырезать из картона и оклеить той или иной цветной бумагой, — дело очень несложное и быстрое, не требующее ни дорогих материалов, ни инструментов, (   Читать дальше...   )Жанр: Поделки из бумаги, самоделкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3935ADDCF948E1EBB8B3ACB1947D352FB50AC533
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 136594   (876502) от 28.03.2010
+
+Светлячок / Firefly (2002) DVDRip [H.264] (сезон 1, серии 1-14 из 14) Tycoon
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Малькольм Рейнольдс — закаленный в боях ветеран галактической гражданской войны, сражавшийся не на той (проигравшей) стороне, зарабатывает на жизнь мелкими преступлениями и перевозит грузы на своем корабле «Серенити».Он возглавляет небольшую разношерстную команду, которая порядком смахивает на самую обычную семью — ее члены вечно ссорятся, не соблюдают дисциплину, (   Читать дальше...   )Производство: США | Mutant Enemy,20th Century Fox TelevisionЖанр: Фантастика, ПриключенияРежиссер: Джосс Уидон, Верн Джиллам, Тим МайнирАктеры: Натан Филлион, Джина Торрес, Алан Тьюдик, Морена Баккарин, Адам Болдуин, Джевел Стэйт, Шон Мехер, Саммер Гло, Рон Гласс, Кристина ХендриксПеревод: Двуголосый профессиональный (Tycoon)Продолжительность: ~01:27:00 (1-я серия), ~ 00:44:00 (2-14 серии)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373421   (876214) от 08.04.2020
 
 Рассказы из Петли / Tales from the Loop (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) HDREZKA
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876214.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876211.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Ubuntu 16.04.2 LTS Xenial Xerus [i386, amd64] 2xDVD, 2xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875873.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ AusLogics BoostSpeed 9.1.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875872.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ HitmanPro 3.7.15 Build 281 [x64] [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875868.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875864.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ iGO Primo NextGen 9.18.27.687519 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875856.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875495.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875493.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875452.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875447.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875432.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875431.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Adobe Photoshop 2021 22.5.1.441 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875430.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875336.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875257.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Fallout New Vegas: Ultimate Edition (2012) [PS3] [EUR] 4.21+ [Repack / ALL DLC +
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874589.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Discovery: Эд Стаффорд: Выживание без купюр (Голо
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874408.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Symantec Endpoint Protection 14.0 MP1 Build 2332 (14.0.2332.0100) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874291.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874275.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Unlocker 1.9.2 Final RePack (& Portable) by NEO [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874271.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874209.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ S.W.A.T.: Огненная буря / S.W.A.T.: Firefight (2011) HDRip
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874046.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874041.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Paragon NTFS for Mac 15.5.106 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874014.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Paragon NTFS for macOS - единственный на рынке продукт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13D55432B9C3D66B43E5921F53F707D0C1A95DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997420   (873429) от 17.03.2016
-
-Очередное достижение: 2000 релизов от wgiw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_873429.jpg" />
-</div>
-
-
-###  Подробнее
-
-2000 релизов от wgiw! Поздравляем!Друзья, для меня честь сообщить Вам, что активный релизер, член RG Всё лучшее - детям, Uploader 100+ wgiw,  перешагнул порог в 2000 созданных релизов!От лица  и Администрации NNM-Club, поздравляю тебя и выражаю наше искреннее - Большое Спасибо и Уважение! Желаем тебе удачи во всех твоих начинаниях и всегда хорошего настроения!
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

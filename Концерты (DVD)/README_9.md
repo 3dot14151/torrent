@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396819.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Manowar - The Day The Earth Shook - The Absolute Power (2006) 2*DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395788.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Scorpions - World Wide Live (1985) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395211.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_392666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392666.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Concert For New York City (2001) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391141.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Aerosmith - Music From Another Dimension! (Deluxe Edition) (Bonus DVD) (2012) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_383065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_383065.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Nirvana - Live At Reading Festival [1992] (2009) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379910.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376804.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Santana - Santana IV: Live at the House of Blues, Las Vegas (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375660.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_371123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_371123.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Queen: концерт на cтадионе Уэмбли / Queen: Live At Wembley
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369753.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Masami Okui - GIGS 2006 evolution (2007) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363138.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361270.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Celebrating Jon Lord. Live at The Royal Albert Hall (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358124.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357513.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Evanescence - Synthesis Live (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356321.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Masami Okui - GIGS 2007 Masami Life (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355946.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Masami Okui - GIGS 2006 GodSpeed (2006) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355942.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ AC/DC - Live At Donington (1991) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355091.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354767.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354760.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354389.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Popa Chubby - Wild (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354308.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Iron Maiden - Maiden England '88 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353297.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351721.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350234.jpg" />
 </div>
 
 

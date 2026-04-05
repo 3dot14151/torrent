@@ -1,188 +1,3 @@
-###  Публикация: 527058   (595528) от 25.07.2012
-
-Schnuffel - 3 альбома + 5 синглов (2008-2009) [MP3|320 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 03:02:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527037   (595445) от 25.07.2012
-
-Fancy - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DiscoПродолжительность: 04:42:27
-
-01. A Neverending Ride
-02. A Voice In The Dark (Version 2008)
-03. Can't Help Falling In Love
-04. Changing My Ways (You Got Me)
-05. Cirque De La Lune
-06. Colours Of Life
-07. Come Back And Break My Heart
-08. D.I.S.C.O. (Lust For Life)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955FC184652DC95D9260E8126D72021E738416FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527007   (595406) от 25.07.2012
-
-VA - Les Annees Cultes 80 (6 CD) (2011) [MP3|320 кб/с]<Disco, Pop, Soundtrack>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная коробочка
-6 CD
-Добрая хорошая музыка1. (Superman) - Theme Principal (4:09)
- 2. (Star Wars Episode IV) - Un Nouvel Espoir (3:09)
- 3. (Indiana Jones Et Les Aventuriers De L'arche Perdue) - March (2:51)
- 4. (La Soupe Aux Choux) - Generique (1:29)
- 5. (La Panthere Rose) - The Pink Panther Theme (3:21)
- 6. (E.T.) - Flying Theme (3:41)
- 7. (Vive Les Femmes) - Ca Vous Dirait...Avec Moi? (3:31)
- 8. (James Bond) - Theme Principal (1:08)
- 9. Francis Lalane (Le Passage) - On Se Retrouvera (2:42)
- 10. (Terminator) - Theme Principal (4:36)(   Читать дальше...   )Жанр: Disco, Pop, SoundtrackПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD77BCFADD22202A7C8FCFDE83E75B6501BB033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150298   (595285) от 14.07.2017
-
-Peter Cornelius - Liederbuch (1998) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du entschuldige i kenn Di (04:23)
-02. Reif für die Insel (04:41)
-03. Ganz Wien hat den Blues (04:21)
-04. Der Kaffee ist fertig (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163D36185473C2322FFA2B125DC386C97230F76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915086   (595197) от 04.07.2015
-
-n.Lannon - Falling Inside (2015) [OGG|444-549 кб/с]<Indie Pop Folktronica, Chillwave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill All These Machines (04:27)
-02. Endless Night (03:46)
-03. Dreamer (03:28)
-04. Another Love (03:58)(   Читать дальше...   )Жанр: Indie Pop Folktronica, ChillwaveПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90803976D2464EF7E4782A6CCE9D5EE825F3731F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299727   (594969) от 04.05.2019
-
-VA - Schlager für Alle 4 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594969.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Eloy de Jong - Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
-02. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E8CA5FA17B3038ABE10DEF86FE3C88489B8A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549118   (594744) от 05.05.2022
 
 VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
@@ -191,7 +6,7 @@ VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594744.jpg" />
 </div>
 
 
@@ -220,7 +35,7 @@ VA - 110 Hits 2019 Vol.2 (2019) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594724.jpg" />
 </div>
 
 
@@ -249,7 +64,7 @@ VA - Lazy Sunday (2004) [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Rock, Soft Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594688.jpg" />
 </div>
 
 
@@ -278,7 +93,7 @@ VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594172.jpg" />
 </div>
 
 
@@ -313,7 +128,7 @@ VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594165.jpg" />
 </div>
 
 
@@ -348,7 +163,7 @@ Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes (1999) [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594158.jpg" />
 </div>
 
 
@@ -383,7 +198,7 @@ VA - Mastermix presents MX: Balearic (2022) [MP3|320 Kbps] <Chillhop, Lo-Fi, Bro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594007.jpg" />
 </div>
 
 
@@ -412,7 +227,7 @@ VA - Acoustic Summer (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593991.jpg" />
 </div>
 
 
@@ -441,7 +256,7 @@ VA - Mastermix Jet Boot Jack Remixes 2: Edits (2022) [MP3|320 Kbps] <Dance, New 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593964.jpg" />
 </div>
 
 
@@ -470,7 +285,7 @@ The Hurricanes - Tropical Nights (1988) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593961.jpg" />
 </div>
 
 
@@ -499,7 +314,7 @@ VA - Mastermix Jet Boot Jack Remixes 2: Extended (2022) [MP3|320 Kbps] <Dance, N
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593958.jpg" />
 </div>
 
 
@@ -528,7 +343,7 @@ O.C.A - Ночной дожор (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593954.jpg" />
 </div>
 
 
@@ -557,7 +372,7 @@ Johnny Wakelin - Reggae, Soul And Rock'N'Roll (1976) LP [MP3|320 Kbps] <Funk, So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593943.jpg" />
 </div>
 
 
@@ -586,7 +401,7 @@ VA - ZYX Club 2020/1 (2020) 2CD, Compilation [MP3|320 Kbps] <Dance, House, Techn
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593904.jpg" />
 </div>
 
 
@@ -615,7 +430,7 @@ Vicky Brown - The Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Classical
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593880.jpg" />
 </div>
 
 
@@ -644,7 +459,7 @@ VA - Двигай Попой!2 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593837.jpg" />
 </div>
 
 
@@ -673,7 +488,7 @@ VA - 538 Hitzone 89 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593780.jpg" />
 </div>
 
 
@@ -702,7 +517,7 @@ Pavel Panchenko - To the Stars (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593748.jpg" />
 </div>
 
 
@@ -731,7 +546,7 @@ VA - Alexis Le-Tan & Jess Present Space Oddities (2008) [FLAC|Lossless|WEB-DL|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593386.jpg" />
 </div>
 
 
@@ -760,7 +575,7 @@ VA - Italo Disco Tracks Vol. 1 (2005) [FLAC|Lossless|WEB-DL|tracks] <Disco, Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593346.jpg" />
 </div>
 
 
@@ -774,6 +589,178 @@ VA - Italo Disco Tracks Vol. 1 (2005) [FLAC|Lossless|WEB-DL|tracks] <Disco, Ital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C124D168E82C2F4B0556246C17C01BBF61E7075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549189   (593289) от 07.05.2022
+
+VA - Summer Dance Party 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACRAZE - Do It To It (2:37)
+02. Elton John - Cold Heart (PNAU Remix) (3:22)
+03. Jax Jones - Where Did You Go (2:57)
+04. Becky Hill - Remember (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE7DDDB1976F8886C80A24D99A65B2EF92FEC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300541   (593210) от 06.05.2019
+
+Cyclades - Fire To Desire (1979) 12'' [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсер и аранжировщик - Max Berlin.01. Fire To Desire (6:46)
+02. Ah! Ah!...Encore (6:19)Жанр: Electronic, DiscoПродолжительность: 00:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D62250849C82DE90B4D15E51F04BCE0531D48B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300509   (593117) от 06.05.2019
+
+Денис Майданов - Командиры (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ВДВ
+2. Тишина
+3. Танкист-летёха
+4. Командиры(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865D7CFAB67C97A3497D2270C384A7D31F803927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233212   (593025) от 30.06.2018
+
+Aldo Bergamachine - AstroMoog (2010) [MP3|320 Kbps] <Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was A Robot (04:06)
+02. AstroMoog (03:56)
+03. Gamma X Ray (03:39)
+04. Ashes To Wattoo (Pt.2) (03:30)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E2A1CDCDA6CD25C29C97ABF96750A1D3043BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233218   (593018) от 30.06.2018
+
+Infinity Night - The Lost Tracks (2012) [MP3|320 Kbps] <Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightfall (04:25)
+02. Summer81 (04:15)
+03. Another Lead (04:47)
+04. Spectral (Vocoder FB) (04:56)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFCE7473C1DEF1E8B7813CC7D9FCF92269C3A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233510   (593005) от 30.06.2018
+
+Love Childs Afro Cuban Blues Band - 3 Albums (1975-1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йоркский студийный диско проект от Michael Zager.Список альбомов:
+1975 - Out Among 'Em
+1977 - Spandisco
+1978 - Rhythm Of Life(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363B65FBB04C723191980ED86465080BABB9F524
 ```
 
 https://mybot314.ru/tekegram_catalog/

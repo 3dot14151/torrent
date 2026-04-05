@@ -1,3 +1,32 @@
+###  Публикация: 1426798   (184665) от 26.11.2020
+
+LinguaTrip, Веня Пак и др. | От Elementary до Intermediate за 30 дней. Тариф Мастер (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чёткая система. Поставите на ноги свой шаткий английский и обретёте уверенность в своих знаниях.
+Долой языковой барьер. Узнаете, как его преодолеть и разговаривать легко хоть с премьер-министром.
+Нескучные уроки. На марафоне не бывает зубрёжки, Веня с Мариной рассказывают так, что схватываешь на лету.
+Без акцента. Проработаете интонацию и произношение, зазвучите (   Читать дальше...   )Производство: LinguaTripЖанр: Английский языкПродолжительность: 06:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68BA2F06EDD1003DCEA080C1B20F738BE9CF5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426796   (184661) от 26.11.2020
 
 Udemy, Andrei Neagoie и др. | Полный веб и мобильный дизайн 2021: UI/UX, Figma, + многое другое / Complete Web & Mobile Designer in 2020: UI/UX, Figma, + more (2020) PCRec [En / En Sub]
@@ -6,7 +35,7 @@ Udemy, Andrei Neagoie и др. | Полный веб и мобильный ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184661.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ CGcircuit, Bishoy Khalifa | Sand Bag Tearing in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184577.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Liveclasses, Анатолий Ясинский | Массовый человек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184401.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ Rebelway, Val David | Using Solaris in Houdini (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184377.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ Legal Academy, Никита Иванов  | Защита интеллектуа�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184357.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184272.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ Rebelway, Corbin Mayne | VEX For Houdini Artists (2020) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184266.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ English With Lucy | The Business English Challenge (2023) WEB-DL [AD] [EN / EN S
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184250.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184207.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ Udemy, Алексей Злотник | Как начать карьеру на �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184161.jpg" />
 </div>
 
 
@@ -283,7 +312,7 @@ Wingfox, Steffen Hampel | Creating a Photorealistic Japanese Alleyway with Maya 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184079.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ Granich.Design, Вадим Гранич | Графсистема UI-дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184076.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ Wingfox, MikeHong | Creating a photorealistic character Joan of Arc (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184068.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ Wingfox, David Masana Lafuente | 3D Game-Ready Environment In Unreal Engine 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184055.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ CGcircuit, Stefan Bredereck | FX MAYHEM 102 - Smokeless Fire & Flames (2021) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183899.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ CG Forge, Tyler Bay | Pyro III – Large Explosions (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183856.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Enterclass, Анна Иванова | Ахалтекинец (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183836.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Enterclass, Сергей Лысый | Солнце за костелом (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183821.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ New Masters Academy, Steve Huston | Художественная анатоми�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183800.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 1: Geometry Based Simulations (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183796.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Creature Art Teacher, Aaron Blaise | Как рисовать хищных пти
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183794.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 2 : Demon Fire Trails (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183746.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ Enterclass, Константин Стерхов | Путешествие в Ки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183740.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ CGcircuit, Arihant Gupta | Houdini Essentials - Flip Rendering (2021) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183731.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ GeekBrains | Создатель игровой вселенной: геймди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183730.jpg" />
 </div>
 
 
@@ -671,35 +700,6 @@ GeekBrains | Создатель игровой вселенной: геймди�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDE2C73412EF91B46E1807866F3F50B52E270C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427331   (183698) от 27.11.2020
-
-Udemy, Артем Баданов | Изучение C++ с нуля (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучение языка программирования С++ с легкостью и простым языком.
-Чему Вы научитесь на курсе?
-Улучшите навыки логического мышления
-Сможете создавать собственные программы(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 03:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D73FD5E44D39E7DEB0AB53AF6093F90F3E3E644
 ```
 
 https://mybot314.ru/tekegram_catalog/

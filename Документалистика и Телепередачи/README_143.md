@@ -1,3 +1,159 @@
+###  Публикация: 1497821   (861352) от 24.09.2021
+
+Ночь в Версальском дворце / A night at the Palace of Versailles (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время для сна, время для ночи. Посетите спящий Версаль!Производство: Франция, Château de VersaillesЖанр: Документальный, видовойПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEC5CAB99C1E375A2E791304BDC26E80488CC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497959   (861258) от 24.09.2021
+
+Агитпроп. Удав Каа Путина  (20.09.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все преимущества и значимость газопровода российская буржуазия оценила вполне. Зима близко. Для кого-то сквозняк из окна. Для кого-то - окно возможностей.Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705B1A3DA4453D4765F2E529A7C0FAF94FC5AF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497823   (861249) от 24.09.2021
+
+Массовый солярис / Saycet - Mass Solaris (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версальский дворец считается одним из важнейших исторических объектов Франции и Европы в целом.Производство: Франция, Château de VersaillesЖанр: Документальный, видовойПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D55A786B2505AD62745319398C72804F67E84B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109204   (860992) от 26.02.2017
+
+Лучше всех (2017.02.26) SATRip (сезон 2, выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805B999A8E5975E98AC95CDE5E6735B3039A87E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109068   (860944) от 26.02.2017
+
+Минута славы (2017.02.25) HDTVRip [H.264/720p] (выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860944.jpg" />
+</div>
+
+
+###  Подробнее
+
+В четвертой части отборочного тура — стойка на кинжалах, эквилибр на скользкой поверхности, гимнастический танец, человек-оркестр и многое другое!Телекомпания: Первый канал HDЖанр: ТВ-шоу, развлекательныйПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE30734F804F2D2FDF46182B4278546DAE7ED91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108983   (860942) от 26.02.2017
+
+Чудо техники (2017.02.26) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860942.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57500C0EA8DEEDA3BAC524CF6706D7B74219A793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109201   (860928) от 26.02.2017
 
 Орел и решка. Рай и ад (2017.02.26) WEB-DLRip (сезон 13: Райская Кения)
@@ -6,7 +162,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860928.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860926.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860876.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860875.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860872.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860840.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860832.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860825.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860811.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860810.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860795.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860768.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860718.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860707.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860671.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860668.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860660.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860585.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860458.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860456.jpg" />
 </div>
 
 
@@ -518,163 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BCA20AFB9D019D25F8CDA9287822FEF38E8203A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374752   (860144) от 17.04.2020
-
-Луна (1965) SATRip [H.264] [MP4|960x720] [hand made реставрация]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, синтезирующий два жанра - научно-популярное кино и научно-художественную фантазию - создан непревзойденным мастером в этой области Павлом Клушанцевым. В первой части фильма - собственно научно-популярной - сообщается о последних на тот момент достижениях ученых в области исследования Луны, ученые делятся гипотезами относительно происхождения лунных морей, (   Читать дальше...   )Производство: СССР, ЛеннаучфильмЖанр: ДокументальныйРежиссер: П. КлушанцевСубтитры: отсутствуютПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2783E1831E0D831244828078C189505196E82D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283023   (860034) от 17.04.2020
-
-Discovery Channel. Военный архив: под грифом «Топ-10» / Top Ten of Warfare (2016) HDTVRip (1-10 серия из 10)
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал «Top Tens of Warfare» рассказывает историю современной эры войны в десяти эпизодах.
-От самолетов до военачальников, от сражений до изобретений. Мы рассмотрим и оценим всё самое значимое, что связано с войной. Новаторские разработки, повлиявшие на ход войн и изменившие наш образ жизни.Производство: Великобритания, ITN ProductionsЖанр: Документальный, вооружение, война, историяПеревод: Документальный дубляж компания «SDI Media» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 10 х ~ 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E23FC93DBCF1DC46F4D50430BCA8EED362C2697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963137   (859954) от 17.04.2020
-
-Габриэль Суарез - бой с автоматом Калашникова / Kalashnikov Rifle Gunfighting - Gabe Suarez (2008) DVDRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомат Калашникова серий АК-47/74 является одним из самых распространенных видов оружия в мире. Более 100 миллионов экземпляров АК, были сделаны в различных странах мира, и шансы на встречу с ним на поле боя или в гражданских беспорядках очень высоки. Автор фильма и инструктор по боевой стрельбе Габриэль Суарез, расскажет об автомате Калашникова, его положительных (   Читать дальше...   )Телекомпания: США, Paladin PressЖанр: Документальный, оружие, видеоурокПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B62C31C32065D0726C5A6FEBDC852DC0CFD68AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498238   (859888) от 25.09.2021
-
-Альпийская прогулка 2 / Alpine Stroll 2 (2020) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в кинематографическое FPV-путешествие вслед за лыжниками по красивым альпийским пейзажам США.Производство: СШАЖанр: Документальный, видовойРежиссер: Николя ГайярПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE54302B9076011FA4C797672ACDA5B2C01D8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498134   (859887) от 25.09.2021
-
-Сто к одному (25.09.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A2AD1A1674C58D4ECA67E8EFB1432EE4343150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498229   (859886) от 25.09.2021
-
-Зимний Солт-Лейк-Сити / Wintertime Salt Lake City (2021) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солт-Лейк с его впечатляющим горным пейзажем - это великолепный город независимо от времени года, но в том, чтобы увидеть его зимой, действительно есть что-то особенное. Невероятные живописные виды, холодный свежий воздух, заснеженные вершины, возвышающиеся над горизонтом - это поистине волшебство.Производство: США, Visit Salt LakeЖанр: Документальный, видовойПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE623E832CD7A819001F17BB42CF83DB765CB3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

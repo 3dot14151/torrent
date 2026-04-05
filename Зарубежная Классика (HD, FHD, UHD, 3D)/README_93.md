@@ -1,3 +1,107 @@
+###  Публикация: 478013   (87362) от 09.04.2012
+
+Семь шансов / Seven Chances (1925) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчина узнаёт, что он получит наследство, если женится. Сегодня в семь вечера.Жанр: мелодрама, комедия, семейныйРежиссер: Бастер КитонАктеры: Бастер Китон, Т. Рой Барнс, Шнитц Эдвардс, Рут Двайер, Фрэнсис Рэймонд, Эрвин Коннелли, Жуль Коулз, Джин Артур, Лори Бара, Бартин БуркеттПеревод: НемойПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0ED1AD04D4905771221D22EE315C242F84BE67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478428   (87325) от 09.04.2012
+
+Пароходный Билл младший / Steamboat Bill, Jr. (1928) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм переносит нас на реку Миссисипи времен колесных пароходов и рассказывает историю приключений испорченного молодого человека из Бостона, которого его суровый отец пытается научить премудростям навигации.Жанр: драма, мелодрама, комедия, семейныйРежиссер: Чарльз Райснер, Бастер КитонАктеры: Бастер Китон, Эрнест Торренс, Том Льюис, Мэрион БайронПеревод: НемойПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4DF9D78E00869EE17C7842EE8D520F94790CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478904   (86796) от 06.04.2012
+
+На север через северо-запад / North by Northwest [50th Anniversary Edition] (1959) [1080p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды успешного рекламного агента Роджера Торнхилла ошибочно принимают за агента разведки Кэплана, которого никто не знает в лицо, и хотят его убрать. Обескураженный Роджер пытается бежать. В вагоне-ресторане поезда милая женщина по имени Ив помогает ему скрыться от преследователей...Жанр: Триллер, драма, мелодрама, детектив, приключенияРежиссер: Альфред ХичкокАктеры: Кэри Грант, Ева Мари Сэйнт, Джеймс Мейсон, Джесси Ройс Лэндис, Лео Г. Кэррол, Жозефин Хатчинсон, Филип Обер, Мартин Ландау, Адам Уильямс, Эдвард ПлаттПеревод: Многоголосый закадровый, АвторскийПродолжительность: 02:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DD3D680C0905620F51539920A04C2BF993B3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476863   (86324) от 04.04.2012
+
+Три эпохи / Three Ages (1923) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86324.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Три эпохи» – первый полнометражный фильм Бастера Китона – пародия на эпохальную картину Дэвида Гриффита «Нетерпимость» (1916). Повторяя сюжетное движение и монтажный принцип, примененный классиком мирового кино, Бастер Китон построил свой не менее интересный эпос. У Гриффита - нравоучительный призыв к терпимости: людей к людям, религий к религиям, государств к государствам и так далее. У Китона - юмористический, но не менее серьезный ответ: человек не может проявлять терпимость в таком чувстве, как любовь, он всегда боролся, борется и будет бороться за своё счастье, где и когда бы это ни было.Жанр: комедияРежиссер: Бастер Китон, Эдвард Ф. КлайнАктеры: Маргарет Лихи, Уоллес Бири,Перевод: Одноголосый закадровыйПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5B295B5E9182154AFD0B20093E1D2D6824012A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474296   (86011) от 02.04.2012
 
 Хороший, плохой, злой / Il Buono, il brutto, il cattivo / The Good, The Bad And The Ugly (1966) BDRemux [1080p]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86011.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85164.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85053.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84997.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84758.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84611.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84541.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84540.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84481.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83973.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83774.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83520.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83331.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83079.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82285.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82245.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81721.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79988.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77729.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77557.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71891.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70409.jpg" />
 </div>
 
 
@@ -571,111 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2165180459B108B3A4C80A1853E5A80F3A820E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798509   (66624) от 22.05.2025
-
-Стромболи, земля божья / Stromboli (Terra di Dio) (1950) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Литовская беженка Карин в ходе Второй мировой войны оказывается в итальянском лагере для перемещённых лиц и там, чтобы получить гражданство и вид на жительство, выходит замуж за рыбака Антонио. Супруги отправляются жить на малую родину Антонио остров Стромболи. Однако это удалённое от цивилизации местечко сразу же разочаровывает привыкшую к большим городам Карин. (   Читать дальше...   )Производство: Италия, США / Berit Films, RKO Radio Pictures Inc.Жанр: драмаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Марио Витале, Ренцо Чезана, Марио Спонцо, Джетано Фамуларо, Роберто ОноратиПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CC805DF9E4C99246D8C97A22C556D88F72272E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821711   (63881) от 03.10.2025
-
-Академия Рашмор / Rushmore (1998) BDRip [H.264/720p] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс Фишер учится в десятом классе престижной академии Рашмор. Его грандиозным успехам можно только позавидовать: редактор школьной газеты, капитан всевозможных команд, президент бесчисленных школьных клубов. И безнадёжный двоечник. Максу назначают испытательный срок, во время которого он не придумывает ничего лучше, как влюбиться в молодую учительницу, получив при (   Читать дальше...   )Производство: США / American Empirical Pictures, Touchstone PicturesЖанр: драма, мелодрама, комедияРежиссер: Уэс АндерсонАктеры: Джейсон Шварцман, Билл Мюррей, Оливия Уильямс, Сеймур Кэссел, Брайан Кокс (I), Мейсон Гэмбл, Сара Танака, Стивен МакКоул, Конни Нильсен, Люк Уилсон, Дипак Паллана, Эндрю Уилсон (I), Мэриетта Мэрич, Ронни МакКоли, Кейт МакКолиПеревод: профессиональный двухголосый (Видеосервис), авторский Никита Севастьянов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6934A4B9ED1F4941B5AAD1E725D9523D9336853E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700762   (63841) от 06.03.2024
-
-Горец / Highlander (1986) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [Director's Cut]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63841.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1536 году шотландец Коннор Маклауд был сражен в битве, но мистическим образом воскрес, и родной клан изгнал его. Учителем Маклауда стал испанский дворянин, объяснивший, что они принадлежат к бессмертной расе воинов, которых можно лишить жизни, лишь обезглавив мечом.
-Сражение между Маклаудом и его вечным врагом Курганом, начавшееся в Шотландии XVI века, продолжается (   Читать дальше...   )Производство: Великобритания, США / Davis-Panzer Productions, Highlander Productions Limited, Thorn EMI Screen EntertainmentЖанр: фэнтези, боевик, приключенияРежиссер: Рассел МалкэйАктеры: Кристофер Ламберт, Роксанна Харт, Клэнси Браун, Шон Коннери, Бети Эдни, Алан Норт, Шила Гиш, Джон Полито, Хью Куарши, Кристофер МалкольмПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, английскиеПродолжительность: 01:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4FA0C7F647AECCC3F3EBCE860D4F4114EDA70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700865   (63742) от 07.03.2024
-
-Ночь ужасов / Ужас в замке / Terrore Al Castello / Nuit de terreur (1968) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фернан едет в довольно странный замок, на оглашение завещания своего покойного дядюшки. В замке собралась довольно-таки теплая компания претендентов на дядюшкино наследство: родственники, друзья и слуги покойного. С началом ночи начинается настоящая чертовщина: обитатели замка получают в качестве черной метки туза пик и умирают или бесследно исчезают. В панике, некоторые (   Читать дальше...   )Производство: Франция, Италия / Clodio CinematograficaЖанр: Комедия, ужасыРежиссер: Камилло МастрочинкуэАктеры: Фернандель, Романо Луиджи, Ниетта Дзокки, Франко Латини, Фортунато Арена, Марко Тулли, Стефания Грациёли, Марио Силетти, Элеонора Морана, Марио Кастеллани, Риккардо Билли, Джино Равадзини, Умберто д'Орсо, Мариза Мерлини, Эмануэла ФаллиниПеревод: Одноголосый любительский (Stalk)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFFE384C2F52A0CF9D6C33F086AE0EDC3892B29
 ```
 
 https://mybot314.ru/tekegram_catalog/

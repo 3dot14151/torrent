@@ -1,3 +1,29 @@
+###  Публикация: 1390266   (783305) от 14.06.2020
+
+Пятеро одной крови / Da 5 Bloods (2020) WEB-DL [H.264/1080p-LQ] [EN / RU, EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Four African-American vets battle the forces of man and nature when they return to Vietnam seeking the remains of their fallen Squad Leader and the gold fortune he helped them hide.Производство: США / 40 Acres & A Mule Filmworks, Rahway Road ProductionsЖанр: Драма, военныйРежиссер: Spike LeeАктеры: Делрой Линдо, Джонатан Мэйджерс, Кларк Питерс, Норм Льюис, Исайя Уитлок мл., Мелани Тьерри, Пол Уолтер Хаузер, Яспер Пяякконен, Джонни Нгуйен, Й. ЛанПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: Russian (Full), English (SDH), Arabic, Czech, Danish, German, Greek, Spanish, European Spanish, Finnish, French, Hebrew, Hungarian, Indonesian, Italian, Japanese, Korean, Norwegian, Dutch, Polish, Portuguese, Brazilian Portuguese, Romanian, Swedish, Thai, Turkish, Vietnamese, Simplified Chinese, Traditional ChineseПродолжительность: 02:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F69F93E6E50A6EDA62D353FF590F7F9720F73FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205879   (783182) от 11.02.2018
 
 Кровавая месть /  Le sang des iles d'or (2017) WEB-DLRip [H.264/720p-LQ] [FR / RU Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783182.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783146.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782507.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782478.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782473.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782466.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782009.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781667.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781620.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781249.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781162.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781161.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780774.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780549.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780483.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780377.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780372.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780346.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780344.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780334.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780207.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780036.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780027.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779902.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779744.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A2B67ECD5789A5D05FE66F8E678137383CC4D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208994   (779638) от 24.02.2018
-
-Элементы материи / Elements of Matter  (2018) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779638.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Элементы материи» - комедийная мелодрама, в центре событий которой оказывается жизнь молодой, но талантливой и очень успешной актрисы. В свои годы героиня сумела сделать головокружительную карьеру. У неё множество поклонников и прекрасные перспективы в творческой жизни. Но у богатых и знаменитых тоже случаются свои неприятности. А известность и обеспеченная жизнь (   Читать дальше...   )Производство: США / Fooya Films, Schema MediaЖанр: мелодрама, комедия, семейныйРежиссер: Ассаф Бен ШетритАктеры: Дилан Кенин, Холли Фэйн, Шон Бакхолз, Бен Уайз, Бэт Парнасс, Чип Сиклер, Катрин Вентура, Пол Де СузаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C1D8E15B9A99D4299EAA317875F0CD6FF84317
 ```
 
 https://mybot314.ru/tekegram_catalog/

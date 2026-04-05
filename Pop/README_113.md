@@ -1,177 +1,3 @@
-###  Публикация: 1284936   (726246) от 23.02.2019
-
-Voggue - 2 Albums (1981, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love To Dance (5:02)
-02. Loverboy (5:25)
-03. Heart On The Line (2:42)
-04. Presto Changeo (4:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023290   (726205) от 04.06.2016
-
-Белый Орел - Как упоительны в России вечера (2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как упоительны в России вечера [03:56]
-02. Потому что нельзя быть красивой такой [04:45]
-03. С высоких гор [03:44]
-04. Без тебя [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6E27B3218F3278BC6D198E1D2BE4E11194DA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023074   (725849) от 04.06.2016
-
-Градусы - Градус 100 (2016) EP [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. #Валигуляй
-2. Градус 100
-3. Хочется
-4. Я не был дома(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CD6688C3E3D153F13888BCBFDB0E55951862D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668016   (725436) от 14.06.2013
-
-Modern Talking - The Final Album (The Ultimate Best Of) (2003) [FLAC|Lossless]<Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_725436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 You're My Heart, You're My Soul 	(4:02)
-02 You Can Win If You Want 	(3:42)
-03 Cheri, Cheri Lady 	(3:36)
-04 Brother Louie 	(4:02)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:13:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399908   (725081) от 02.08.2020
-
-Blue Talking - Forever Fantasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Fantasy (3:59)
-02. Dance With Me (4:51)
-03. Fools Cry (4:07)
-04. Calling Out For Love (4:02)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C96F3B8493C782A2D7E4B06EDF3FFE7984D738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399911   (725072) от 02.08.2020
-
-Dario Silver (Mirko Hirsch) - Electric Heartbeat (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Tonight (Extended Version) (4:37)
-02. Electric Heartbeat (6:36)
-03. Computer Girl (5:34)
-04. Disco Delirio (5:25)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B756B5044504A829CFECBAA409A97FC57C9B5D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399740   (725068) от 02.08.2020
 
 Beyoncé - The Lion King: The Gift (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB>
@@ -180,7 +6,7 @@ Beyoncé - The Lion King: The Gift (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725068.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Fancy - 30 Years - The New Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Di
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725028.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ VA - Claw Collection, Vol. 1 (Essential Dance Tunes Only for Dj's) (2013) [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724995.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Earphones - This Is Pop? (2004) [MP3|320 Kbps] <Eurodance, Italodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724922.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ Adriano Celentano - Antologia (Remastered) (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724850.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Bodies Without Organs - Prototype (2005) [FLAC|Lossless|image + .cue] <Europop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724789.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ Vera Lynn - Something To Remember - Wartime Memories (1995) Mono [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724783.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Babette - Gypsy (1979) LP [MP3|320 Kbps] <Electronic, Pop, Chanson, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724666.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Superbus - Sixtape (2016) [MP3|320 кб/с] <French Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724538.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Shannon - Let The Music Play (1984) LP [MP3|320 Kbps] <Electronic, Freestyle, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724500.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Blue System - The UltraTraxx Remixe 1-2 (2009) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724477.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indi
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724414.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ Bottle Of Moonshine - Believe The Numbers (2015) [FLAC|Lossless|tracks] <60's-70
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724403.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ Orax - 2 Albums (2012, 2016) [MP3|320 кб/с] <Electronic, Synthwave, Italo-Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724399.jpg" />
 </div>
 
 
@@ -587,7 +413,7 @@ Fun Fun - 2 Albums (1984, 1987) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724362.jpg" />
 </div>
 
 
@@ -616,7 +442,7 @@ Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|ima
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724228.jpg" />
 </div>
 
 
@@ -643,7 +469,7 @@ Cerrone - 32 Albums (1976-2021) Collection [MP3|320 Kbps] <Electronic, Funk-Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723978.jpg" />
 </div>
 
 
@@ -672,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723838.jpg" />
 </div>
 
 
@@ -701,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_723662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723662.jpg" />
 </div>
 
 
@@ -727,7 +553,7 @@ The Eastern Gang - The Flasher (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723302.jpg" />
 </div>
 
 
@@ -741,6 +567,178 @@ The Eastern Gang - The Flasher (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CD0963C13072213499F70DDCE2F15CAFB002F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218427   (723299) от 09.04.2018
+
+Revanche - Music Man (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Get High In N.Y.C. (8:39)
+02. Revenge (8:53)
+03. Music Man (8:17)
+04. 1979 (It's Dancing Time) (8:44)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B540858DA0A1164F7D4F1E7F62E84AE6ED7E5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218446   (723297) от 09.04.2018
+
+Наталия Могилевская - Самое... Самое (2003) |Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Плачь
+02. Снегопад
+03. Зима
+04. Лимоновый фонарь(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9659F248402CBF504E72DB4F591EFA738A7B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218407   (723115) от 09.04.2018
+
+VA - NRJ Hit Music Only 2018 (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723115.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Maître Gims - Mi Gna (00:03:36)
+02. David Guetta - Like I Do (00:03:23)
+03. Vald - Désaccordé (00:03:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7E7D45AE2DA567B2CCD9361400BF1A443A12BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218369   (723023) от 09.04.2018
+
+Dschinghis Khan - Moskau - Das Neue Best Of Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dschinghis Khan
+02. Moskau
+03. Mexico
+04. Madagaskar(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCEF097BDD729BF45B0C9C82DE8C22AEC2D1A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285154   (722766) от 25.02.2019
+
+Kipper - This is Different (2006), Bang & Olufsen [WV|Lossless|image + .cue] <Instrumental Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Rebello   (feat.Ding Ding) [07:10]
+02. Jenny Linn Smith   (feat. My Generation) [03:56]
+03. Neil Stacey   (feat. To Be Free) [04:27]
+04. Tommy Blaize   (feat. We Come In Peace)  [03:49](   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AF8FD7A740126F19E09925C1047C99AAA14572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129315   (722498) от 28.04.2017
+
+VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trammps – Disco Inferno (11:00)
+02. Chic – Everybody Dance (Edit Version)Жанр: Pop, R&B, SoulПродолжительность: 02:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125201B4C84B47DF375C012DD243B047FFF8A63C
 ```
 
 https://mybot314.ru/tekegram_catalog/

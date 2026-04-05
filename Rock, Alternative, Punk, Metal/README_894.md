@@ -1,3 +1,32 @@
+###  Публикация: 1642882   (233145) от 29.06.2023
+
+Rhegia - The Battle of Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forest Whispers (03:08)
+02 - Beyond the Last Bend of the River (05:50)
+03 - Cocares (05:44)
+04 - Guardians of Pain (05:56)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E7920C4C262D394A2C88FE333AC3526A62D12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645051   (233141) от 07.07.2023
 
 Nita Strauss - The Call of the Void (2023) [FLAC|24/48|tracks|WEB-DL] <Instrumental Heavy Metal, Modern Metal>
@@ -6,7 +35,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|24/48|tracks|WEB-DL] <Instrumen
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233141.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Proportions - 4 Albums (2018-2022) [MP3|320 Kbps] <Progressive Rock, Eclectic Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233139.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Vomitory - All Heads Are Gonna Roll (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233138.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Aeffect - Theory Of Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233133.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Decoy - Without Warning (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233132.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Majesty - Back to Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233131.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Tankard - Pavlov's Dawgs (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233125.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Reliqa - I Don't Know What I Am (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233117.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kikimora - For A Broken Dime (2023) [MP3|320 Kbps] <Hard-Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233116.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Blacktown Band - 2 Albums, 1 Single (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233110.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Def Leppard - Slang (1996) (2 CD), Reissue, Remastered, 2014, Bludgeon Riffola [
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233102.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Bloodbound - Tales From The North (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233097.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Virgin Steele - The Passion of Dionysus (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233096.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Legal Hate - Moral Destruction (2022) [MP3|320 Kbps] <Thrash, Death Metal, Femal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233095.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Leather Lung - 4 Albums (2014-2022) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233089.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Critical Pint - Thirst of All (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233085.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Def Leppard - Retro Active (1993) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233081.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Mount Saturn - O, Great Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233080.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Dolloster - New Tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233075.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Def Leppard - Rock Of Ages: The Definitive Collection (2005) (2 CD) [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233073.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Livin'Evil - Prayers and Torments (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233072.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Crystal Viper - The Last Axeman (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233071.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Reternity - Cosmic Dreams (2022) [FLAC|Lossless|image + .cue] <Melodic Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233070.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Running - Retro Rock Mix - You Can Do This! (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233064.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ D.A.Y.N.E. - Meteor (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233063.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ D.A.Y.N.E. - Meteor (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A109BC0067EF1F659EE0A8FF131201663538A6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580174   (233061) от 30.09.2022
-
-Hammerstar - Hammerstar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of Stone
-02. Power Of Metal
-03. Midnight Ride
-04. Burned Alive(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF29442C888F68ACEB52AB4907F34C16FE8927C
 ```
 
 https://mybot314.ru/tekegram_catalog/

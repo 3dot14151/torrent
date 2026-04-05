@@ -1,3 +1,160 @@
+###  Публикация: 1614259   (1038228) от 23.02.2023
+
+Компьютерный гений превратил YouTube в бесплатное и безлимитное хранилище файлов.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038228.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube оказалось возможным использовать в качестве хранилища файлов. Разработана утилита, превращающая ZIP-архив с любым содержимым в видеоролик, который затем можно загрузить на YouTube, скачать из любой точки мира и разархивировать его содержимое. На этом видеохостинге нет ограничений по объему загружаемых роликов, что превращает его в безлимитное и, что немаловажно, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607223   (1038215) от 23.02.2023
+
+Чебурашка (2022) WEBRip [H.264/1080p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда, чтобы вернуть солнце и улыбки в мир взрослых, нужен один маленький ушастый герой. Мохнатого непоседливого зверька из далекой апельсиновой страны ждут удивительные приключения в тихом приморском городке, где ему предстоит найти себе имя, друзей и дом.
+Помогать — и мешать! — ему в этом будут нелюдимый старик-садовник, странная тетя-модница и ее капризная внучка, (   Читать дальше...   )Производство: Россия / «РОССИЯ 1», Союзмультфильм, СТС, Yellow, Black & WhiteЖанр: семейный, комедияРежиссер: Дмитрий ДьяченкоАктеры: Сергей Гармаш, Ольга Кузьмина, Полина Максимова, Фёдор Добронравов, Сергей Лавыгин, Елена Яковлева, Дмитрий Лысенков, Софья Зайка,  Илья Кондратенко, Ева СмирноваПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFF9171A69C36140C6F388BF051C499899C41F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440410   (1038160) от 19.01.2021
+
+Систему распознавания лиц научили определять политическую ориентацию по фотографии
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038160.jpg" />
+</div>
+
+
+###  Подробнее
+
+По словам разработчиков, она может угадывать, либерал или консерватор на снимке, с точностью до 72%Специалист из Стэнфордского университета разработал алгоритм распознавания лиц, который якобы может определить, либеральных или консервативных взглядов придерживается человек, всего лишь по фотографии. Статью с описанием алгоритма опубликовал научный журнал Nature .Чтобы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440761   (1038153) от 19.01.2021
+
+WhatsApp капитулировал и перенёс новые правила передачи данных на май
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038153.jpg" />
+</div>
+
+
+###  Подробнее
+
+WhatsApp решил пока не рисковать и отложить вступление в силу новой политики, которая будет диктовать правила обмена пользовательскими данными между проектами Facebook.Скорее всего, руководство сервиса обмена сообщениями обратило внимание на реакцию людей и их отток после анонса новых правил.Изначально обновлённая политика должна была вступить в силу 8 февраля. Однако (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440409   (1038139) от 19.01.2021
+
+Почему муху трудно убить
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы прихлопнуть муху, нужно недюжинное мастерство, большой опыт, острый глаз и меткая рука. Неопытный охотник на мух обычно обнаруживает под мухобойкой лишь пустое место; попытки поймать муху в полёте тоже заканчиваются ничем. Как мухам удаётся так хорошо уходить от карающей длани?Очевидно, они вовремя замечают, что к ним приближается опасность. Замечают в прямом (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286148   (1038133) от 19.01.2021
+
+Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0.14/dlc) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battlefleet Gothic: Armada 2 — это новая стратегия в реальном времени, основанная на знаменитой настольной игре компании Games Workshop и повествующая о грандиозных космических битвах во вселенной Warhammer 40,000.Тип издания: RepackРазработчик: Tindalos InteractiveЖанр: Strategy (RTS), Sci-FiЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FC96DD6E0257438DDA77962AC89DCD1F0BE808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422166   (1038132) от 19.01.2021
 
 Death Stranding (2020) [Ru/Multi] (1.06/dlc) Repack West4it
@@ -6,7 +163,7 @@ Death Stranding (2020) [Ru/Multi] (1.06/dlc) Repack West4it
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038132.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Win 10 Tweaker 17.0 Portable by XpucT [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038131.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Battlefleet Gothic: Armada (2016) [Ru/En] (2.0.26100/dlc) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038130.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Empress всё-таки взломала Hogwarts Legacy — пиратская 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037966.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ True Phone - Телефон, Контакты 2.0.18-2022-08-18 Pro (Полна�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037957.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ Adobe Photoshop 2023 24.2.0.315 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1037956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1037956.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ Udemy, Bogdan Stashchuk | Python - Полный Курс по Python (2023) WEB-
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037949.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ KEF Uni-Core — оригинальная технология извлечен�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037879.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037871.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ OpenVPN 2.5.0 Final [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037870.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037868.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 01.2021 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037867.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037864.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037700.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ AliExpress собирается отказаться от склада в Рос
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037693.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037690.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ Hogwarts Legacy (2023) [Ru/Multi] (10461750/dlc) Scene EMPRESS [Deluxe Edition]
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037686.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037685.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 21.01.15 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037602.jpg" />
 </div>
 
 
@@ -502,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037600.jpg" />
 </div>
 
 
@@ -513,163 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3BD7A97678C830C9084C81AE69633BA792160D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614644   (1037415) от 26.02.2023
-
-Китай привлёк свои суды к технологической войне с США — началась массовая отмена западных патентов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напряжение между Китаем и США продолжает усиливаться, оказывая всё большее давление на китайское производство чипов, разработку электроники и в целом технологическое развитие Поднебесной. Юридическая и патентная системы Китая принимают активное участие в этом противостоянии. Постановления китайских судов аннулируют патенты в важных для Китая отраслях, включая технологии, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614958   (1037413) от 26.02.2023
-
-Стук в хижине / Knock at the Cabin (2023) WEB-DLRip [H.264] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастливая пара с семилетней дочерью отдыхает в лесном коттедже у озера. Внезапно у них на пороге возникают четыре незнакомца, вооруженных диковинными орудиями, и ставят отдыхающим ультиматум: либо те выбирают и убивают кого-то из собственной семьи, либо наступает апокалипсис, и остальное человечество погибает в адских муках.Производство: США / Blinding Edge Pictures, FilmNation Entertainment, Perfect World Pictures, Universal Pictures, WishmoreЖанр: триллерРежиссер: М. Найт ШьямаланАктеры: Дэйв Батиста, Джонатан Грофф, Бен Элдридж, Никки Амука-Бёрд, Руперт Гринт, Эбби Куинн, Кристен Цуй, МакКенна Керриган, Йен Мэрилл Пикс, Denise NakanoПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370FE83411A9D5EE5AE4331B750A25242F069D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441278   (1037363) от 22.01.2021
-
-Что такое цифровая реинкарнация человека
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровые технологии проникают во все сферы жизни человека: науку, производство, образование, медицину, быт, отдых. Специалисты американской компании Microsoft пошли дальше – они вторглись в загробную жизнь человека, запатентовав идею цифровой реинкарнации.В чем суть цифровой реинкарнации человека
-Авторы идеи предложили создать чат-бот на основе информации об умершем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441277   (1037323) от 22.01.2021
-
-Автомобильные моторы, способные влёгкую пройти без ремонта полмиллиона километров
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главным узлом любого автомобиля является его силовой агрегат. Именно по двигателю, его надёжности и долговечности большинство судит о качестве и стоимости всей машины. Инженеры всех автомобильных гигантов уделяют особое внимание этому агрегату автомобиля.Иногда у конструкторов получаются просто шедевры, которые не только сполна отрабатывают заложенный в них мотороресурс, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990520   (1037310) от 22.01.2021
-
-Flowx Smart Weather (ранее WeatherBomb) v3.316 [Ru/En] - приложение для просмотра прогноза погоды (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037310.jpg" />
-</div>
-
-
-###  Подробнее
-
-WeatherBomb - Универсальное приложение, которое покажет вам прогноз погоды, в реальном времени. Не все так просто как кажется, здесь присутствует интерактивная карта, которая показывает вам прогноз погоды в реальном времени. Есть одно меню, благодаря которому пользователь может выбрать нужную ему информацию. Имеется такой уникальный пункт как высота волн, эти данные (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 16.01.2021Разработчик: Enzure DigitalПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A41BF6F3F6BE0DABEEE54773BE041512892914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441255   (1037309) от 22.01.2021
-
-HITMAN 3 (2021) [Multi] (3.10) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть ждёт. Агент 47 возвращается в HITMAN 3 — эффектном завершении трилогии «Мир наемных убийц». Заключительная часть трилогии. Вам снова необходимо примерить на себе роль Агента 47 и приступить к выполнению заказов, ликвидируя необходимые цели. Как и в предыдущих частях игры вы можете выбирать абсолютно любую маскировку, подстраивать «несчастные случаи», взаимодействовать (   Читать дальше...   )Тип издания: LicenseРазработчик: IO Interactive A/SЖанр: Action, Stealth, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4804DFEDC79C17C1B8DF230603118827C1CBAA48
 ```
 
 https://mybot314.ru/tekegram_catalog/

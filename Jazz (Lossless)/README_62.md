@@ -6,7 +6,7 @@ Miles Davis - Porgy & Bess / Miles: The New Miles Davis Quintet & Blue Haze (195
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819267.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jack Jezzro - Sinatra On Guitar (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819250.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ John Frigo And His Quintet - I Love John Frigo, He Swings (1957) 2004, Universal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819213.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Frank Wess & Harry Edison Orchestra - Dear Mr. Basie (1989) Concrod Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819202.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Peggy Lee - Sings Leiber & Stoller (1952 - 1969) 2002, Hip-O Select [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819197.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Jazz Covers 80s Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819140.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ David Reinhardt Trio - Colombe (2011) Cristal Records[APE|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818103.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gonzalo Rubalcaba - XXI Century (2011) SPassion[FLAC|Lossless|tracks + .cue] <Af
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818100.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joe Henderson - Page One (1963) 2009, Analogue Productions[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818099.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brother Jack McDuff - Do It Now! (1967) Remaster, 2013, Warner[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818095.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sadao Watanabe - I'm With You (2016) Red River [FLAC|Lossless|tracks + .cue] <Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817891.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Vincent Ingala - Fire & Desire (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817795.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Wild Bill Davison - Pretty Wild & With Strings Attached (1956, 1957) 2000, Arbor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817730.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eddie 'Lockjaw' Davis - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817726.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Maynard Ferguson & Chris Connor - Two's Company 1961 (1996) Roulette Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817690.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Maynard Ferguson - Storm 1982 (2015) Omnivore Recordings [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817675.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Louis Armstrong - The Silver Collection (1984) [FLAC|Lossless|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817578.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Zoot Sims - The Modern Art Of Jazz 1956 (1998) Dawn [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817545.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dave Brubeck - S' Wonderful (2003) Tyrolis Musik [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817347.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ken Peplowski Quartet - Memories Of You (2007) Venus Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817339.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tundra Art Ensemble - Sessions 2020 [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Mo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816131.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sadao Watanabe & Richard Bona - One for You: Sadao & Bona Live (2006) JVC [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816079.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kaylene Peoples - My Man (2015) Boogsey Music[FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816037.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Norah Jones - I Dream Of Christmas (2021) Japanese Edition [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815969.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Geri Allen - Maroons (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815919.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815918.jpg" />
 </div>
 
 

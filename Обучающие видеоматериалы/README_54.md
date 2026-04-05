@@ -1,3 +1,30 @@
+###  Публикация: 1476611   (1011562) от 11.06.2021
+
+Udemy, Никита Хохлов | Парсинг сайтов PYTHON (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011562.jpg" />
+</div>
+
+
+###  Подробнее
+
+После прохождения данного курса вы сможете разрабатывать парсеры, авторегеры, различных ботов для автоматизации действий в браузере и имитировать все действия, которые может совершить человек используя браузер и определенные сайты.
+Услуги парсинга и автоматизации веб-ресурсов очень часто встречаются на фрилансе, поэтому окупить данные знания можно практически сразу (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73620255A7C0E2E1CCD4AB53CBD2379764145B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449400   (1011554) от 11.06.2021
 
 CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Blender 2.8 Launch Pad [Chapters 1-15] (2019) PCRec [RU, EN]
@@ -6,7 +33,7 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011554.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ TeamTreehouse, Guil Hernandez и др. | CSS Complete Course Plus Workshop & Pra
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011465.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ PythonYoga | Bonus Courses (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011453.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ Udemy, Evgeniy Solovey | WORDPRESS: как сделать сайт (2017) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011444.jpg" />
 </div>
 
 
@@ -117,7 +144,7 @@ Udemy, Codestars by Rob Percival и др. | The Complete Mobile Ethical Hacking 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011435.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ FREEMAX, Максим Русаков | Фотография: 4 в 1 (2018) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011412.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ Udemy, Robert Gioia | Complete C# Programming Course 2021 – Beginner to Expert
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011231.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ Udemy, Вадим Лобарев | IT рекрутинг: IT технологи�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011226.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ Udemy, Timur Mashnin | Распределенные и многопоточны�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011218.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ Udemy, Никита Хохлов | MongoDB Python - Полное практич�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011205.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ Ultimate Courses, Todd Motto | React Router v6 (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011195.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ Udemy, Paul Chin | Reverse Engineering: Ghidra For Beginners (2021) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010928.jpg" />
 </div>
 
 
@@ -336,7 +363,7 @@ EngExpert, Диана Семенычева | Всё, что вы хотели з
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010908.jpg" />
 </div>
 
 
@@ -364,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010885.jpg" />
 </div>
 
 
@@ -393,7 +420,7 @@ Code4Startup, PythonYoga | Build Your Own On-demand Delivery System with Python 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010760.jpg" />
 </div>
 
 
@@ -422,7 +449,7 @@ A Cloud Guru / LinuxAcademy | Red Hat Certified Specialist in Linux Diagnostics 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010586.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ Edston, Николай Петров | Создание чат-ботов в What
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010553.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ Udemy, Trevor Sawler | Deploying a Secure Virtual Private Server with Ubuntu 20.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010434.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ A Cloud Guru / LinuxAcademy | LPIC-2: Linux Engineer Exam 201 [En] (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010428.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ Movie Park School | Монтаж и постпродакшн (2020) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010391.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ Jake Parker | Light and Shadow (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010137.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ David Malan | Drawing a Portrait (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010117.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ Jake Parker, Will Terry, Ty Carter | Painting Color and Light (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010110.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ James Paick | Environment Design for Games and Film Vol 1-2 (2014) PCRec [En, Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010088.jpg" />
 </div>
 
 
@@ -659,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009928.jpg" />
 </div>
 
 
@@ -670,33 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BAB53CE3EF371F21D0A75EBC18C76D39ADB5D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478812   (1009898) от 21.06.2021
-
-Институт психотерапии и клинической психологии, Ошемкова Наталья, Есаулов Владимир и др. | Нейролингвистическое программирование: практик и мастер (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принципы НЛП базируются на утверждении о том, что мышление каждого индивида программируемо.
-С помощью НЛП-техник задается программа сознанию и подсознанию, благодаря которой и находится нужное решение в реализации поставленных целей. Тренинги НЛП учат специалистов проводить эффективную работу с клиентами, помогать последним находить наилучшие способы решения тех (   Читать дальше...   )Производство: Институт психотерапии и клинической психологииЖанр: Нейролингвистическое программированиеПродолжительность: 133:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF5865BCEA583A3F30521FAB757F416464BA74C
 ```
 
 https://mybot314.ru/tekegram_catalog/

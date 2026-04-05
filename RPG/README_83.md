@@ -1,3 +1,55 @@
+###  Публикация: 1804018   (6574) от 22.08.2025
+
+System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как победить бессмертную совершенную машину? System Shock 2: 25th Anniversary Remaster от Nightdive Studios представляет собой обновленную версию классического ролевого шутера от первого лица, в которой доступен кроссплатформенный мультиплеер, поддержка пользовательских модов и многое другое. Действие происходит в 2114 году. Вы выходите из анабиоза на борту звездолета (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive Studios, Looking Glass Studios, Irrational GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FD758215AA19D80FE7C03023A4888E0353E26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805486   (6546) от 22.08.2025
+
+System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversary Remaster]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как победить бессмертную совершенную машину? Действие происходит в 2114 году. Вы выходите из анабиоза на борту звездолета Von Braun и не можете вспомнить ни кто вы, ни где находитесь, а вокруг очевидно произошло что-то ужасное. Гибридные мутанты и смертоносные роботы бродят по пустым залам, а крики выживших членов команды эхом отдаются в холодных коридорах корабля.Тип издания: RepackРазработчик: Nightdive Studios, Looking Glass Studios, Irrational GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701914   (6380) от 23.08.2025
 
 Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
@@ -6,7 +58,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6380.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6379.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6215.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Tale of Immortal (2021) [Ru/Multi] (1.2.111.259/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6197.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6195.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ To the Eden (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6177.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6169.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack Let'sРlay [Director's Gut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6067.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6055.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,547) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6050.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5884.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5778.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack FitGirl [Director's Cut - Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5762.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5761.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5728.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5635.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5474.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5470.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Rogue Loops (2025) [Ru/Multi] (1.3.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5454.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5434.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.69/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5428.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5427.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ The RPG (2025) [Ru/Multi] (1.021) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5315.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Telepath Tactics Liberated (2022) [En] (1.0.60l) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5313.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Telepath Tactics Liberated позволяет использовать стра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:840C76528CBFF7D011DCB6D212DBE179BF758BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754410   (5310) от 30.08.2025
-
-ELDEN RING (2022) [Ru/Multi] (1.16.1/dlc) Repack Wanterlude [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FBD093AAEFDE70BAED10DB773C583C2D41AF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683120   (5309) от 30.08.2025
-
-Legends of Amberland II: The Song of Trees (2023) [En] (1.24) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legends of Amberland 2: The Song of Trees - это увлекательная РПГ, напоминающая о классике конца прошлого века. Являясь продолжением высоко оцененной первой части, она предлагает захватывающий опыт, которым можно наслаждаться как самостоятельным приключением. Игра имеет перспективу от 1-го лица, движение по сетке и пошаговую систему сражений. Одним из основных преимуществ (   Читать дальше...   )Тип издания: LicenseРазработчик: Silver Lemur GamesЖанр: Ролевая игра, Пошаговая, Open WorldЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C658B4F235400317E7205EF48353DFF99315E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

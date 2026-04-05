@@ -1,3 +1,119 @@
+###  Публикация: 1071696   (357363) от 11.11.2016
+
+VA - Soul House Deluxe - Luxury Melodies (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mazelo Nostra - Boogie Nights 05:03
+02. Stargazer - La Vie Est Belle 04:05
+03. Fuminori Kagajo - Angel (Feat. Selina Campbell) 07:28
+04. Mazelo Nostra - Jazz Cantina 04:16(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24977B1669147A79C40AEB0EAD9168B3B61EA28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071735   (357354) от 11.11.2016
+
+VA - Uplifting Trance 2017 (2016) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Morris Ft. Jess Morgan - Made Of Light (Original Mix) 06:52
+02. Amir Hussain & Cathy Burton - Loving You Just The Same (Original Mix) 07:50
+03. Chris Metcalfe & Sue Mclaren - Stardust (Original Mix) 06:26
+04. Arnoud Van Der Werf & F.G. Noise - Nostalgia (Original Mix) 07:32(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A698FC045296EFE6137659F3EA7842862B33266F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071758   (357216) от 11.11.2016
+
+Dino Sabatini - Discography 17 Releases (2008-2016) Prologue, Outis Music [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Minimal, Tribal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes Back (Touched By Howie B) (06:16)
+ 02. If (Dino Sabatini Variation) (feat. Antonello Salis) (05:19)
+ 03. The Unexpected (ASC's Grey Area Remix) (07:17)
+ 04. And It All Ends Here (Salis & Sabatini Variation) (04:05)Жанр: Techno, Ambient, Minimal, Tribal •Продолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42BD417CD5AA6C7164B8B309BD4ECBB5A57E818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256437   (357047) от 21.10.2018
+
+Camille Jones - Difficult Guys (2008) [FLAC|Lossless|tracks + .cue] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Difficult Guys (Radio Edit) (3:55)
+02. Difficult Guys (Beatchuggers & Sidelmann Radio) (3:21)
+03. Difficult Guys (Extended Mix) (6:24)
+04. Difficult Guys (Beatchuggers & Sidelmann Club Mix) (6:41)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BBB9094067F397A73D6B15ABCC6E1C8D7FA8D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577122   (357040) от 18.09.2022
 
 Alexander Korolev - Cyber Attack (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop, Pop>
@@ -6,7 +122,7 @@ Alexander Korolev - Cyber Attack (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357040.jpg" />
 </div>
 
 
@@ -33,7 +149,7 @@ VA - Masvingo Phases (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357029.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357026.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ Phelian - Anthology (2015-2020) (2021) [FLAC|Lossless|WEB-DL|tracks] <Future Gar
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356893.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ VA - Ronski Speed - Best Of Selections (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356734.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ Infected Mushroom - IM25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356649.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ VA - Uplift Recordings - Chapter 1 (2019) [MP3|320 Kbps] <Trance, Vocal Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356647.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Robert Nickson - Tellurian (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356640.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Deadmau5 - Here's the Drop! (2019) [FLAC|Lossless|WEB|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356503.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ VA - Black Hole presents Best Of Vocal Trance Vol.1 (2019) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356420.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - Vocal Trance Euphoria (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356413.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Naibu - Case Study (2015) [MP3|320 Kbps] <Drum & Bass, Downtempo>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356054.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Scarlet Fantastic - Beyond Pluto (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Europo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355754.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Saffronkeira with Paolo Fresu - In Origine: The Field Of Repentance (2020) Denov
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355730.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Hurts - Surrender (2015) [FLAC|tracks+.cue]<Synthpop, Pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355568.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Depeche Mode - Remixes for the Masses EP. by Techni-ka (2014) [FLAC|tracks|WEB-D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355567.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Vincent Villuis (Aes Dana) - Asura (Ambient DJ Set) (2000) Mixed [FLAC|Lossless]
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355320.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Subheim - Discography 10 Releases (2008-2020) Tympanik Audio, Denovali Records [
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355216.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ VA - Cafe MEZE Relax Time (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355032.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ VA - Uncertain Chillout Nights (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355029.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ VA - Last Night Compilation (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354886.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ VA - Armada Chill - Best Of (2016) [MP3|320 Kbps] <Electronic, Chill, Deep>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354777.jpg" />
 </div>
 
 
@@ -624,119 +740,6 @@ VA - Armada Chill - Best Of (2016) [MP3|320 Kbps] <Electronic, Chill, Deep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0C1C34F724FB512BB73CC05C2C1C53CAA512FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072371   (354675) от 12.11.2016
-
-VA - Stil Vor Talent Berlin - Kottbusser Tor (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Techno HouseПродолжительность: 03:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C74907C935B10AF61DFEEA12AFE74ACC5B6D861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256648   (354556) от 22.10.2018
-
-VA - DJ Sakin Pres. Club Trance Future Edition Vol.3 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terra V. - It Does Not Make (Original Mix)
-02. DJ Sakin & DJ Wag - What Is This Place (DJ Sakin Club Mix)
-03. DJ X-Wing - Magnetic Dreams (Club Mix)
-04. Sync Diversity & Karl Schaap - Game of Trance (Skypath Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A164532EA9AFE1AC44E51983E18477F084A7FD18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329324   (354444) от 04.10.2019
-
-Makoto - Tomodachi Sessions (2019) [MP3|320 Kbps] <Drum'n'bass, Liquid Funk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illuminate (Feat. Degs) (04:11)
-02. Shine On Through (Feat. Mountain & Karina Ramage) (04:09)
-03. Kosa (Feat. Keeno) (06:00)
-04. The Encounter (Feat. Bop) (05:43)(   Читать дальше...   )Жанр: Drum'n'bass, Liquid FunkПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37181269FD44115447A5FBA3CB8567801AB6C586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329214   (354442) от 04.10.2019
-
-Hill & Wiltschinsky Guitar Duo - Latin Moods: The Romantic Sound Of Guitars (1995) 2хCD, Compilation [MP3|320 Kbps] <Easy Listening, Latin, Guitar>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl From Ipanema (2:23)
-02. One Note Samba (2:42)
-03. Meditation (3:34)
-04. Volare (3:42)(   Читать дальше...   )Жанр: Easy Listening, Latin, GuitarПродолжительность: 01:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9FAD9DA71F43F54C4C99FF8E9D78D42298AD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

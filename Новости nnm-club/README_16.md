@@ -1,3 +1,29 @@
+###  Публикация: 1484551   (1005954) от 20.07.2021
+
+Ага (2021) WEBRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бахытжан Абдулаев — бывший меч трех Жузов — после громких дел в прошлом, перенеся утрату близких людей, оставляет криминальный путь. Уединившись в горах, он проживает жизнь отшельником. Однако, весть о жестоком убийстве родного племянника нарушает его спокойствие и идиллию. Баха узнает, что виновником является Сакен — сын местного олигарха Сансызбая, опасного и влиятельного (   Читать дальше...   )Производство: КазахстанЖанр: Боевик, триллерРежиссер: Фархат СеркебаевАктеры: Мурат Бисенбин, Азамат Ибраев, Болат Абдильманов, Фархад Абдраимов, Александр Устюгов, Марйам Сатаева, Руслан Каирбаев, Нурсултан Мухаметжанов, Руслан Акылбаев, Руслан НыгмановПеревод: Не требуется (русский)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CD1D9DF23669E1C48338BAB297DF4F000F8BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276373   (1005952) от 20.07.2021
 
 Улика из прошлого (2019) SATRip (сезон 4, серий 37 из ??)
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005952.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005846.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005746.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (1.0.7026711/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005624.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Left 4 Dead (2008) [Ru/En] (1.0.3.8/dlc) Repack l4dzone.ru
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005353.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Intel объявила новый план: переименовать техп�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005059.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ VPN-сервис Windscribe не использовал шифрование д�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004914.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 07.2021 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004781.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Ascent (2021) [Ru/Multi] (Build 7106737/dlc/tr) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004780.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004417.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004166.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ MX Player Pro v1.15.9 with AC3/DTS Mod by Balatan, OsitKP [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004165.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003953.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003894.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003890.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003889.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003888.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Microsoft продолжит выпускать обновления для Wind
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003645.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ MultiBoot HDD 2020 31.12.2019 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003637.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003635.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003390.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (1.59641/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003161.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003082.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003031.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Ford против Ferrari / Ford v Ferrari (2019) DVDScr [H.264/1080p-LQ] [MVO] 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002867.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Ford против Ferrari / Ford v Ferrari (2019) DVDScr [H.264/1080p-LQ] [MVO] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0BE3169BB6B6C9B63347CFBD6D9808294398166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907681   (1002860) от 07.01.2020
-
-Stand Up (2013-2019) SATRip/WEB-DLRip [Выпуски 1-156] (Обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 00:47:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EB524BA732FB0F86AF887737C8FB0EB670A0E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

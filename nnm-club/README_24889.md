@@ -1,22 +1,251 @@
-###  Публикация: 1809927   (64541) от 02.08.2025
+###  Публикация: 1808273   (64997) от 24.07.2025
 
-Фриц Лейбер | Сага о Фафхрде и Сером Мышелове (Книга 4). Мечи против колдовства (2025) [MP3, Илья Усачев]
+Loin Hammer - Before the Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Time Before Time [00:02:48]
+02. Jewels of Testicleaz [00:03:54]
+03. Zorklon the Destroyer [00:07:54]
+04. Geldar the Enforcer [00:06:34](   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14884591FF18DF5524057E7B711D5B201DF97790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808433   (64996) от 24.07.2025
+
+Mekiel Reuben - Something Like That (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gloria Est (3:41)
+02.  Going Places (3:02)
+03.  Equal 3 (4:11)
+04.  Something Like That (3:32)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D236E7867A9A76E920F9232AB5B2842BC03CBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808409   (64995) от 24.07.2025
+
+Ночь мщения / Слепое правосудие / Haevnens Nat / Blind Justice (1916) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цирковой силач Джон Сайкс, обвиненный в жестоком убийстве, бежит из-под стражи, выкрадывает из сиротского приюта своего грудного сына, и, ища убежища, прячется на чердаке богатого особняка, обитатели которого приготовились к празднеству по случаю Нового Года. Доверившись одной из гостьей, молодой девушке Энн, Джон попадает в засаду, устроенную вооруженными гостями. (   Читать дальше...   )Производство: Дания / Dansk Biograf CompagniЖанр: триллер, драма, криминал, немое киноРежиссер: Беньямин КристенсенАктеры: Беньямин Кристенсен, Карен Касперсен, Петер Фьельструп, Йон Иверсен, Фритс Лампрехт, Йорген Лунд, Оэ Шмидт, Матильде Нильсен, Элит Пио, Освалль Хельмут, Рагнхилль Санном, Тильда ФёнсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F838F90CB7E4967E8C88B19D4F2CC0ABB828B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808410   (64994) от 24.07.2025
+
+Big Martin - Sucker Punch Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  What It Is That You Do (3:21)
+02.  I'm Hurting Too (3:16)
+03.  Looking for the Blues (3:39)
+04.  Don’t Do no Good to Pray (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A31F4DF08041E2B906BEB6D0CF8E3054DD656F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808417   (64993) от 24.07.2025
+
+Harry Cassano - Coming to a Close (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Coming to a Close (3:49)
+02.  Cry Your Life Away (4:15)
+03.  Don't Leave Me Here (5:08)
+04.  Hookin' for Love (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC579E684F4C2BCC9DF9C82ACBEBA6551203BD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808420   (64992) от 24.07.2025
+
+Kuddel Renner and his Amazing Blues Orchestra - The 3rd Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cakewalk Into Town (2:56)
+02.  Ten Thousand Spoons (3:32)
+03.  Raining In My Heart (3:54)
+04.  Rockin' At Midnight (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503F8B9EA288B0709C97712264E14B101B733DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808425   (64991) от 24.07.2025
+
+Mercedes Nicole - Too High A Price to Pay (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'LL PLAY THE BLUES FOR YOU (4:59)
+02.  BLUE FIRE (4:53)
+03.  FEELS LIKE RAIN (6:05)
+04.  LAST TWO DOLLARS (5:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D25F8659EFBFB81B094AE931631CD7785EEB631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808415   (64990) от 24.07.2025
+
+Blues Escape feat. Johanna Lillvik - Teaser Blueser (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Teaser Blueser (3:30)
+02.  Strange Things Happening Every Day (3:14)
+03.  Georgia Grind (3:22)
+04.  Information Blues (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364EFA1F3F0CDD79908CD6D4A4F04F54DB78417F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808423   (64989) от 24.07.2025
+
+Эдвин Табб | Эвейна (2020) [MP3, Puffin Сafe]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мечи против колдовства. Фафхрд и Серый Мышелов – два легендарных искателя приключений, чьи пути пересеклись в загадочном городе Ланкмар. Один – могучий северянин с мечом, другой – ловкий и хитроумный вор с кинжалом. Вместе они отправляются в невероятные путешествия, сражаются с колдунами, чудовищами и силами тьмы, раскрывая тайны древних руин и волшебных земель. (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 08:27:32
+Чарльз знал Эвейну всю свою жизнь, с того момента как ребенком прошел Отбор. Он никогда не видел как она выглядит, и ее образ менялся по мере того как он рос и состарился не выходя из маленькой комнаты. Он верил, что Эвейна такая же живая как и он сам, и однажды, она расскажет ему всю правду.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:21:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0A45465798BD6DCE6ACB9FBE0AD650C6349A1F3
+magnet:?xt=urn:btih:89A5C0944E2A470D5C1BD5C3F36C44CD7D212D6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809984   (64540) от 02.08.2025
+###  Публикация: 1808422   (64988) от 24.07.2025
 
-Nighthawk - Six Three O (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Markus K - LIVE with LOOPER No.3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hard Rock Fever
-02. Wrong Side Of Desire
-03. Home Tonight
-04. Angel Of Mine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:01
+01.  The Crumbling of The Berlin Wall (Live) (3:36)
+02.  Clyde (Live) (3:14)
+03.  Tamas - Don't Wait (feat. Tamas) (Live) (2:34)
+04.  Consciousness is All there Is (Live) (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C20C73FD82EAB724C3E06AA8BE1D06B3BCBCB6B
+magnet:?xt=urn:btih:621624014B13CB905DC5840AC2F0E87338AAF47A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +282,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810069   (64539) от 02.08.2025
+###  Публикация: 1808268   (64987) от 24.07.2025
 
-VA - Trance Fusion, Vol. 12 (2025) [MP3|320 Kbps] <Trance>
+Ермак! - Дневник памяти (2025) Делюкс [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глава 1: май [00:01:00]
+02. Ветер перемен [00:02:52]
+03. Глава 2: июнь [00:01:10]
+04. Срывает провода [00:03:40](   Читать дальше...   )Жанр: Post-Hardcore, EmoПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A1FC9194EB56E0D9951910B4E6A77AC6084816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808419   (64986) от 24.07.2025
+
+Jessie Lee & The Alchemists - Legacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm gonna play the Blues (5:30)
+02.  Show me your love (6:01)
+03.  What I feel (4:50)
+04.  The first man in my life (5:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489EA155D9AFC044873A07648497DA1746406CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808427   (64985) от 24.07.2025
+
+Thats not a Human featuring Netanel Elbaz - Blackout Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Copper Curls (4:16)
+02.  Its No Speakeasy (4:03)
+03.  Pass Round Behind 6 (4:33)
+04.  Saints Ain’t Saints (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E0E9B6278D88D769E07FA714782BE8409A822A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808429   (64984) от 24.07.2025
+
+The Matt Cahill Combo - The Midnight Show (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Midnight Show (2:37)
+02.  Deal is Done (2:59)
+03.  Sending All My Love (4:06)
+04.  Jumpin' At The Astor (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB461D7495780DB83763C4DC4F16F1B8431E71A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808269   (64983) от 24.07.2025
+
+Oblivion Machine - Око дня (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аврора [00:07:01]
+02. Огонь [00:04:42]
+03. Деволюция [00:04:07]
+04. Пути [00:05:28](   Читать дальше...   )Жанр: Heavy Metal, Modern MetalПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48806530141A8BAE7F4262E5370601FE0B6C2F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808430   (64982) от 24.07.2025
+
+The Mighty Redox - Love's A Demon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love's A Demon (5:17)
+02.  What's My Name (2:59)
+03.  Why Wait (4:30)
+04.  Bad Light (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D806C1A63167052A80D6E85B995CC68ED81E0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808393   (64981) от 24.07.2025
+
+VA - Redux Selection, Vol. 8 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Semper T. - Parallel Universe (Original Mix) [6:42]
-02. Stefano Negrini & Alaera - Your Loving Angel (Original Mix) [4:18]
-03. Young Hu - Cry Cry Cry (Fros7novA Remix) [4:45]
-04. Masaru Hinaiji & Orie Yoko - Silent Fountain (Original Mix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15;26
+01. Comacode - Straight Ahead (Extended Mix) [7:01]
+02. Raul Alex I. - Red Castle (Extended Mix) [8:03]
+03. Sander Bastiaans & SkyDrifter - Tenderness (Extended Mix) [7:12]
+04. Betibwe - Reality Universe (Extended Mix) [6:30](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A22C63BDC49B8EEC0FE2F2FF4783A0BA01FD768D
+magnet:?xt=urn:btih:D122CCF2E3F062D05CC9B64F54A8EA5E6C9E9F88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809921   (64538) от 02.08.2025
+###  Публикация: 1808279   (64980) от 24.07.2025
 
-Фриц Лейбер | Сага о Фафхрде и Сером Мышелове (Книга 1). Мечи и черная магия (2025) [MP3, Илья Усачев]
+Jessica Winter - My First Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За многие десятилетия до «Ведьмака» и Джорджа Мартина вселенной меча и магии правил Фриц Лейбер. Фэнтезийный дуэт – антигероев грандмастера – варвара-рубаки, умеющего недурно петь, и пронырливого воришки, владеющего приемами магии, изначально задуманный автором в качестве тонкой пародии на говардовского Конана, быстро обрел собственную уникальную судьбу и столь же (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 06:59:18
+01. Nirvana [00:04:03]
+02. L.O.V.E. [00:03:56]
+03. Feels Good (For Tonight) [00:03:07]
+04. Aftersun [00:03:00](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1696F899277AF8CFE4E23A86926C4C9926836B68
+magnet:?xt=urn:btih:53CC83C3A7CC20B07C7711445F16FFBEC79AF38E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809896   (64537) от 02.08.2025
+###  Публикация: 1808434   (64979) от 24.07.2025
 
-Findroid | Возвращение демонического мастера (Книга 7) (2025) [MP3, Алексей Воскобойников]
+Roberto Restuccia - Hand 2 Heart (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Blues>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, седьмая книга одноименного цикла, жанр героическое фэнтези. Нейт всё-таки достиг дома Контер, где узнал, что теперь он его глава, а сам дом практически уничтожен сектой Несокрушимого Алмазного Солнца. Пришло время Костяному палачу на руинах прошлого дома основать свой собственный, но вначале предстоит разобраться с врагами.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 08:56:35
+01.  Hit It (4:28)
+02.  De Nada (4:08)
+03.  What Goes Around (3:37)
+04.  Runnin' Ronny (4:17)(   Читать дальше...   )Жанр: Smooth Jazz, BluesПродолжительность: 00:43:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:781C1D7FAA02F776CB65B99CA52BB02A6AB1FF70
+magnet:?xt=urn:btih:023B96A7CF4A047754C5F4BD5DBE4764E83C4E96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +543,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809903   (64536) от 02.08.2025
+###  Публикация: 1808284   (64978) от 24.07.2025
 
-Findroid | Возвращение демонического мастера (Книга 3) (2024) [MP3, Алексей Воскобойников]
+Laura Jane Grace - Adventure Club (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, New-Wave>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, третья книга одноименного цикла, жанр героическое фэнтези. Испытания храма Дракона Горного Источника осталось позади. Впереди школа. Новые друзья и враги, а ещё попутчик от которого невозможно отвязаться…«Возвращение демонического мастера» – роман, третья книга одноименного цикла, жанр героическое фэнтези.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 10:09:59
+01. WWIII Revisited [00:01:23]
+02. Wearing Black [00:03:00]
+03. I Love To Get High [00:02:38]
+04. Active Trauma [00:01:49](   Читать дальше...   )Жанр: Punk, New-WaveПродолжительность: 00:28:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A06B1C2592D5B835FAB5C53E9B4FF9D41E5998B8
+magnet:?xt=urn:btih:A31AE92B71E7B03EE5B717B6AE5C7E22A307A92A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +572,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809898   (64535) от 02.08.2025
+###  Публикация: 1808357   (64977) от 24.07.2025
 
-Findroid | Возвращение демонического мастера (Книга 6) (2025) [MP3, Алексей Воскобойников]
+Blood Vulture - Die Close (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom, Gothic, Sludge Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Возвращение демонического мастера" – роман, шестая книга одноименного цикла, жанр героическое фэнтези.Нейту предстоит путь вместе с навязанной попутчицей в дом Контер, и он ещё не знает, что за Юл уже идет вернувшийся из Ада Безумный Демон Сотни Звезд.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 09:24:45
+01. Blood Vulture - Die Close: Overture (1:47)
+02. Blood Vulture - An Embrace In The Flood (5:32)
+03. Blood Vulture - A Dream About Starving To Death (5:50)
+04. Blood Vulture - Grey Mourning (feat. Jade Puget) (4:29)(   Читать дальше...   )Жанр: Doom, Gothic, Sludge-MetalПродолжительность: 00:44:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3519B611B21C953B7C4167149B6275CFC1CEF3A3
+magnet:?xt=urn:btih:21D050981A551BF655AD29914B05BF30379EDCAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +601,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809899   (64534) от 02.08.2025
+###  Публикация: 1808290   (64976) от 24.07.2025
 
-Findroid | Возвращение демонического мастера (Книга 5) (2025) [MP3, Алексей Воскобойников]
+Sly & The Family Stone - Live At Winchester Cathedral 1967 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Soul>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, пятая книга одноименного цикла, жанр героическое фэнтези. Внешние витки остались позади, теперь путь Нейта лежит в шестой виток.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 08:59:29
+01. I Ain't Got Nobody (For Real) (Live At Winchester Cathedral 1967) [00:03:51]
+02. Skate Now (Live At Winchester Cathedral 1967) [00:04:27]
+03. Show Me (Live At Winchester Cathedral 1967) [00:04:58]
+04. What Is Soul? (Live At Winchester Cathedral 1967) [00:06:02](   Читать дальше...   )Жанр: SoulПродолжительность: 00:48:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA4C44D5CE3210D4854AA780324FFF3695EA30A1
+magnet:?xt=urn:btih:A59FE94132D1BDE4EC2FE83985BC2CD155E6FD9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +630,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810361   (64533) от 04.08.2025
+###  Публикация: 1808342   (64975) от 25.07.2025
 
-Process Lasso 16.0.1.16 [Multi/Ru]
+Журнал | Народный доктор №14 (684) (июль 2025) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D0992F2BF504A9598612141A32BDDEF3959562A
+magnet:?xt=urn:btih:CCCBAC84CE1E8FA11175A645F7F56EF0A37C4CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +656,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810668   (64532) от 05.08.2025
+###  Публикация: 1808528   (64974) от 25.07.2025
 
-YT Downloader 9.15.2 RePack (& Portable) by Dodakaedr [Ru/En]
+VA - Deep House Ibiza: Sunset Mix 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. JLUIS - Veneno Lento (02:15)
+02. Deep Emotion - Down For You (02:45)
+03. Dani Corbalan - Fall In Love (02:13)
+04. Audioboy - Unconquered (02:46)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:07:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0627B57EFF17FEC23A034253327B77B3ECC30F3A
+magnet:?xt=urn:btih:0BE01385260FBB33A3DF07EE8EB5B1FFA0EFC383
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,25 +685,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790831   (64531) от 06.08.2025
+###  Публикация: 1808435   (64973) от 25.07.2025
 
-Неверный путь / Pa villspor / The Wrong Track (2025) WEBRip [DVO] [AD]
+Ильдар Южный - С Севера на Юг. Песни под гитару. (2025) [MP3|320 Kbps] <Chanson>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшабашная мать-одиночка Эмилия снова оказывается в тяжёлом положении и просит брата о помощи. У него появляется блестящая идея: записать сестру на лыжный марафон.Производство: Норвегия / Rubicon TV AS, iProduksjonЖанр: комедияРежиссер: Халлвар ВитсёАктеры: Ада Эйде, Тронд Фауса Аурвааг, Кристиан Рубек, Мари Блокхус, Shana Mathai, Дениз Кая, Saga Meisfjordskar, Nils Bendik Kvissel, André Sørum, Idun Daae Alstad и д.р.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:56Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01 - Надену я черную шляпу [00:03:08]
+02 - На дворе стоял рождественский мороз [00:02:23]
+03 - Дворик детства [00:02:55]
+04 - Неприметно, но эффектно [00:03:04](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:35:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D73FA661096E5078E528CEE22E4401485C79C463
+magnet:?xt=urn:btih:32EBFD1CAC9083039BCEDB46F54630307C6E9E09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,393 +714,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790830   (64530) от 06.08.2025
+###  Публикация: 1808602   (64972) от 25.07.2025
 
-Неверный путь / Pa villspor / The Wrong Track (2025) WEBRip [H.264/1080p] [DVO] [AD]
+Воинственные бобры (1939) WEBRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшабашная мать-одиночка Эмилия снова оказывается в тяжёлом положении и просит брата о помощи. У него появляется блестящая идея: записать сестру на лыжный марафон.Производство: Норвегия / Rubicon TV AS, iProduksjonЖанр: комедияРежиссер: Халлвар ВитсёАктеры: Ада Эйде, Тронд Фауса Аурвааг, Кристиан Рубек, Мари Блокхус, Shana Mathai, Дениз Кая, Saga Meisfjordskar, Nils Bendik Kvissel, André Sørum, Idun Daae Alstad и д.р.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:56Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Мультфильм о том, как бобры отстроились после наводнения и прогнали рысь со своего острова.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, короткометражный, сказкаРежиссер: Дмитрий Бабиченко, Александр БеляковСубтитры: отсутствуютПродолжительность: 00:09:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A54D4EE45299F8B859F6D010A33BC2019E0F50B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810913   (64529) от 07.08.2025
-
-Fort Firewall 3.18.11 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97254C14C6CD3C2F2D54FB76046E46B4FC6C5113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811389   (64528) от 09.08.2025
-
-Notification Widget v1.5.186 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобное приложение-виджет для отображения полученных уведомлений. Поддерживает множество раздельных настроек внешнего вида установленных виджетов. В наличии возможность отображения времени, даты, заряда батареи на установленном виджете. Четко отображает уведомления из верхней панели в виджете с быстрым ответом в разговорах или элементами управления медиаплеером. (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 08.08.2025Разработчик: Milan VyšataПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7CB66321FF17A2B46D4FF51EFE18A90296B6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811394   (64527) от 09.08.2025
-
-Notification Dots v1.2.69 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое приложение для предоставления быстрого доступа к уведомлениям, посредством создания настраиваемых плавающих кнопок, отображаемых поверх интерфейса приложений. Просто и удобно. Нажатие плавающей кнопки вызывает диалог с текстом уведомлений, позволяя оптимизировать процесс взаимодействия с уведомлениями приложений для удобства в организации вашего рабочего (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.08.2025Разработчик: Milan VyšataПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3DE592B68980DA59E2A4FB47AC6DBED56352F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811493   (64526) от 10.08.2025
-
-Dog Scanner: Породы собак v22.0.3-G Mod by PieMods [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Dog Scanner надежно идентифицирует породу вашей собаки всего за несколько секунд! Помимо фотосъемки, вы можете записать видео или загрузить изображение из своей галереи. Узнать собаку так же легко, как и получить! Несмотря на небольшой размер приложения, вы получите все возможности и сможете идентифицировать породу собаки или получить доступ к нашей обширной (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.08.2025Разработчик: Siwalu Software GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC40CA9EDFDC407AE12F22185A8E2165CADFAADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811508   (64525) от 10.08.2025
-
-Auto Reply: автоответчик v5.5 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой и удобный автоответчик, поддерживающий работу с Facebook, WhatsApp и Skypе. Позволяет создавать шаблоны ответных сообщений и  отвечать  в групповые чаты. Поддерживает фильтрацию по контактам. Включите автоматический ответ одним касанием, нет необходимости устанавливать сложные требования. Автоответчик отправляет автоматический ответ всем, кто обращается к (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.08.2025Разработчик: TechInnate SolutionsПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE64BE7FD58630A649DBA691857282C43827979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811502   (64524) от 10.08.2025
-
-Сканворды на русском v1.4.2 Mod от Alex.Strannik [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный сборник разнообразных сканвордов. Более тысячи хороших сканвордов. Возможность использования подсказок. Ведение статистики разгаданных головоломок. Удобный и простой интерфейс. Поддерживается, работает без интернет.Тип издания: ModРелиз состоялся: 09.08.2025Разработчик: FgCos GamesПоддерживаемая ОС: Android 5.0+Жанр: Словесные игрыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6307FDB739831B76634E9261FE2042C05DD3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474072   (64523) от 02.10.2025
-
-В поисках приключений / The Quest (1996) BDRip [H.264/1080р-LQ]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений. Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего.
-Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Жанр: боевик, триллер, приключенияРежиссер: Жан-Клод Ван ДаммАктеры: Жан-Клод Ван Дамм, Роджер Мур, Джеймс Римар, Джанет Ганн, Джек МакГи, Аки Алеонг, Абдель Кисси, Луис Мэндилор, Чанг Чинг Пенг Чаплин, Райан КутронаПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570996   (64522) от 02.10.2025
-
-В поисках приключений / The Quest (1996) Blu-Ray [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений. Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего.
-Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Жанр: Приключения, БоевикРежиссер: Жан-Клод Ван Дамм / Jean-Claude Van DammАктеры: Жан-Клод Ван Дамм (Christopher Dubois), Роджер Мур (Lord Edgar Dobbs), Джеймс Римар (Maxie Devine), Джанет Ганн (Carrie Newton), Джек МакГи (Harry Smythe), Аки Алеонг (Khao), Абдель Кисси (Khan, (Mongolian Fighter)), Луис Мэндилор (Riggi), Чанг Чинг Пенг Чаплин (Master Tchi), Райан Кутрона (Officer O'Keefe), Шейн Майер (Red), Мэтт Лион (Billy)Перевод: 2x Профессиональный |многоголосый закадровый ОРТ, ТК "Россия"| + 2x Профессиональный |двухголосый закадровый Twister, ТВЦ| + Одноголосый закадровый |Ю.Живов, А.Гаврилов, А.Кашкин|Продолжительность: 01:34:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396068   (64521) от 02.10.2025
-
-В поисках приключений / The Quest (1996) [720p] HDTVRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений. Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего.
-Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Жанр: Боевик, Приключения, ТриллерРежиссер: Жан-Клод Ван ДаммАктеры: Жан-Клод Ван Дамм, Роджер Мор, Джеймс Римар, Джанет Ганн, Джек МакГи, Аки Алеонг, Абдель Кисси, Луис Мэндилор, Чанг Чинг Пенг Чаплин, Райан КутронаПеревод: Многоголосый закадровый, Профессиональный (двухголосый закадровый)Субтитры: Русские, UTF-8, Английские,  UTF-8Формат: MKVПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477037   (64519) от 02.10.2025
-
-В поисках приключений / The Quest (1996) BDRip [H.264]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений. Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего.
-Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Производство: Universal Pictures / СШАЖанр: Боевик, Триллер, ПриключенияРежиссер: Жан-Клод Ван ДаммАктеры: Жан-Клод Ван Дамм, Роджер Мур, Джеймс Римар, Джанет Ганн, Джек МакГи, Аки Алеонг, Абдель Кисси, Луис Мэндилор, Чанг Чинг Пенг Чаплин, Райан КутронаПеревод: Многоголосый закадровый, ПрофессиональныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941D0F49E8C201E87326782ED227011D9B094162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821527   (64518) от 02.10.2025
-
-Павел Чук | Отставник (Книга 1) (2025) [MP3, Олег Троицкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64518.jpg" />
-</div>
-
-
-###  Подробнее
-
-О нас никто не знает. Нас просто нет. Мы не имеющие ни имени, Ни прошлого. Есть только настоящее. Но горе тому, кто нарушит Приказ.Жанр: Героическая фантастика , Пришельцы , Альтернативная фантастикаИздательство: ЛитресПродолжительность: 07:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4029B196A1C3232A6302E3DB650CAE80D428CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199595   (64516) от 03.10.2025
-
-Война волков 2 / Zhan lang 2 / Wolf Warrior 2 (2017) BDRip [H.264/1080p] [EN, CH / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лучших спецназовцев Китая Лэн Фэн был лишен звания и сел в тюрьму на три года за поведение, по мнению руководства, недостойное китайского офицера. Пока наш герой сидел, его невесту убили где-то в Африке, а несостоявшемуся жениху досталась только необычная пуля, извлеченная из тела любимой. Выйдя, Лэн отправляется в Африку и заводит дружбу с пухлым местным (   Читать дальше...   )Производство: Китай, Beijing Dongfang International Cultural Communications Company, Beijing Century Media Culture, Beijing Jingxi Culture & Tourism CompanyЖанр: Боевик, Драма, ТриллерРежиссер: Джеки ВуАктеры: Джеки Ву, Фрэнк Грилло, Селина Джейд, У Ган, Чжан Хань, Юй Цзянь, Юй Нань, Чуньюй Шаньшань, Дин Хайфэн, Олег Прудиус ...Перевод: ОтсутствуетЯзык озвучки: Английский, КитайскийСубтитры: Английские (Forced, Full)Продолжительность: 02:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7694B9693512D53BC2A0385388F22EFAB0EBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821484   (64515) от 03.10.2025
-
-Токсичный мститель / The Toxic Avenger (2025) WEB-DLRip
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда уборщик-неудачник Уинстон Гус падает в чан с токсичными отходами, он мутирует в героя нового типа: Токсичного мстителя. На глазах у обезумевшей толпы Токсик превращается из изгоя в спасителя. Он сражается с безжалостными корпоративными крысами и коррумпированными чиновниками, которые угрожают его сыну, друзьям и обществу. В мире, где свирепствуют жестокость (   Читать дальше...   )Производство: США / Legendary Entertainment, Troma EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Мэйкон БлэрАктеры: Кевин Бейкон, Элайджа Вуд, Питер Динклэйдж, Джейкоб Тремблей, Юлиан Костов, Джейн Леви, Тейлор Пейдж, Мэйкон Блэр, Сара Нилс, Джулия ДэвисПеревод: Дублированный (Vox Records)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE47B33E5FD16CD61E55E33FC90158D67CA0A0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821723   (64514) от 03.10.2025
-
-Дикие места / A Great Divide (2023) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Ли постоянно получает угрозы от соседей и решает переехать, чтобы начать жизнь с чистого листа на бескрайних просторах тихого Вайоминга. Но и на новом месте им никто не рад — буквально каждый день несет очередные испытания. Однако сбегать снова Ли не планируют — эти дикие места либо сломают их, либо сделают сильнее.Производство: США | BenJen Production Company, Raison D'EtreЖанр: драмаРежиссер: Жан ШимАктеры: Кен Жонг, Джэ Су Пак, Эмерсон Мин, Мия Чех, Мива Алана Ли, Шеймус Девер, Маршалл Оллман, Джейми МакШейн, Уэст Малхолланд, Грег Винтер, Брук Маркам, Эбби Кобб, Лелэнд Александр, Сара НиклинПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (Forced, Full), английские (Forced HardSub)Продолжительность: 01:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0660BB358EF97AC2763275ADD687E90062F6EE6
+magnet:?xt=urn:btih:6E73F38D05DB6A8A3104A160D3B89E13E207DE04
 ```
 
 https://mybot314.ru/tekegram_catalog/

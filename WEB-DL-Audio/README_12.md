@@ -6,7 +6,7 @@ Till Lindemann - Entre dos tierras (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125755.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ All India Radio - Diamonds in the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125478.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mildreda - Blue-Devilled (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125460.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125431.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Gods of Gaia - As Daylight Dies (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125430.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Never Elected - Turbulent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125410.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125304.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125291.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125289.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Dominum - Hey Living People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125282.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Soft Jazz Mood - Smooth Jazz Music Ensemble - Coffee in The Garden Smooth Jazz B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125023.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Cover Version [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125014.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Wayne Pretorius - Introduction to Wayne P (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125005.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Jayson Tipp - Table For One (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125002.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Smooth Jazz Christmas Serenade (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124886.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124866.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Youth Pastor - Songs To Fuck and Kill Yourself To (2023) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124858.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Public Memory - Elegiac Beat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124788.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Black Rainbows - Superskull (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psyche
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124762.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Valfreyja - Valfreyja (2023) Master Version [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124654.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Strangers - Boundless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124494.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wucan - Axioms (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124490.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Genesis - The Lamb Lies Down On Broadway (1974) Deluxe Edition, Reissue, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124431.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Velvet Dreamer - Tomorrow Is A New Day (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124423.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ The Orb - Buddhist Hipsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambien
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124404.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Vanessa Paradis - Le retour des beaux jours (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124398.jpg" />
 </div>
 
 

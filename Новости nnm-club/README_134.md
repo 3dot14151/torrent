@@ -1,3 +1,55 @@
+###  Публикация: 1232843   (596020) от 26.06.2018
+
+Comodo Internet Security Premium 11.0.0.6606 Final [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comodo Internet Security - бесплатное комплексное решение безопасности. Включает антивирус и антишпион, фаервол с контент-фильтром, проактивную защиту HIPS, виртуальную среду - песочницу. Защищает от вирусов, интернет-атак и вредоносных веб-сайтов. Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A9218EB709A07C1C2D3F8A8872821FAFB34F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888002   (596014) от 26.06.2018
+
+Молчание ягнят / The Silence of the Lambs (1991) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психопат похищает и убивает молодых женщин по всему Среднему Западу Америки. ФБР, уверенное в том, что все преступления совершены одним и тем же человеком, поручает агенту Клариссе Стерлинг встретиться с заключенным-маньяком, который мог бы объяснить следствию психологические мотивы серийного убийцы и тем самым вывести на его след. Заключенный, доктор психиатрии (   Читать дальше...   )Производство: США / Orion Pictures Corporation, Strong Heart/Demme ProductionЖанр: Триллер, Криминал, Детектив, ДрамаРежиссер: Джонатан ДеммеАктеры: Джоди Фостер, Энтони Хопкинс, Скотт Гленн, Тед Левайн, Брук Смит, Энтони Хилд, Кейси Леммонс, Дайан Бэйкер, Фрэнки Фэйзон, Дэн БатлерПеревод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D24F55DD7245E40876F9964EA80FD27680E8292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183703   (595681) от 03.05.2019
 
 Spintires: MudRunner (2017) [Ru/En] (22032019) Repack xatab
@@ -6,7 +58,7 @@ Spintires: MudRunner (2017) [Ru/En] (22032019) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595681.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595676.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ BELOFF 2016.8 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595473.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595469.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ SolidWorks Premium Edition 2016 SP4.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595466.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595319.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Titanfall 2 (2016) [Ru] (2.0.6.1) Repack xatab [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594682.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594678.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Wi-Fi получил самое большое обновление за дес�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_594637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_594637.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ OTUS | Администратор Linux (2018) PCRec [H.264]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594616.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_594477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_594477.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ PC Building Simulator (2018) [Ru/En] (1.2.2) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594282.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594281.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594260.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? / Danmachi / Может
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594196.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Discovery: Золотая лихорадка / Gold Rush: 5 season (2014-2015) H
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594187.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594181.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594109.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_593611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_593611.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Kono Subarashii Sekai ni Shukufuku wo! / Этот замечательный м�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593590.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ WinRAR 5.60 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593588.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593175.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (1.07) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593035.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592312.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC5B6869C2A15BAFE071168EB216C40269187E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915508   (592178) от 05.07.2015
-
-Adobe Photoshop CC 2015 (20150529.r.88) RePack by JFK2005 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5257C8C6195937AC2D43337ABAB56CFE0D73D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843439   (592168) от 05.07.2015
-
-Однажды в сказке / В Некотором Царстве / Once Upon a Time (2014) WEB-DL [H.264/720p-LQ] (Сезон 4, серии 1-23 из 23) (Невафильм)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Once Upon a Time — сериал в жанре фэнтези, действие которого происходит сразу в двух реальностях — сказочной и современной. Эмма Свон (Дженнифер Моррисон) отмечает свой 28 день рождения и загадывает желание избавиться от одиночества. В этот же момент она слышит звонок в дверь и видит 10-летнего мальчика, который заявляет, что он её сын. Более того, по словам мальчишки, (   Читать дальше...   )Производство: СШАЖанр: Драма, фэнтези, приключенияРежиссер: Ральф Хемекер, Рон Андервуд, Морган Беггс и др.Актеры: Джиннифер Гудвин, Дженнифер Моррисон, Роберт Карлайл, Лана Паррилла, Джаред Гилмор, Джошуа Даллас, Рафаэль Сбардж, Меган Ори, Джеми Дорнан, Беверли Эллиотт и др.Перевод: Дублированный - НевафильмФормат: MKVПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA7B1C37AAAFC5F8C610DC220A2B394762801D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

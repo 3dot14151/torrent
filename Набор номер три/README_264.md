@@ -1,3 +1,159 @@
+###  Публикация: 1133510   (692733) от 13.05.2017
+
+ICO Factory 1.0.0.0 [Ru] (авторское ПО)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692733.jpg" />
+</div>
+
+
+###  Подробнее
+
+ICO Factory - легковесный конвертер изображений в формате JPG/PNG/BMP/GIF/TIFF в мультиразмерные иконки формата ICO. Программа обладает приятным интерфейсом в стиле Mac OS.Разработчик: neovit3Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87AEF2204579C963E784388EFB5825FEE289173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133541   (692641) от 13.05.2017
+
+Госпоисковик «Спутник» всё?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_692641.jpg" />
+</div>
+
+
+###  Подробнее
+
+С начала года признан провальным уже второй грандиозный проект крупнейшей российской телекоммуникационной компании, имеющей с государством особенные отношения.Вслед за коммуникационным сервисом «Аллё», который должен был стать платным конкурентом Skype, на отдых отправилась поисковая система «Спутник», которую «Ростелеком» запустил весной 2014 г. В виду своей неприлично (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133742   (692635) от 13.05.2017
+
+Adobe After Effects CC 2017 (v14.2.0) Multilingual Update 2
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe After Effects CC 2017 - популярная программа для редактирования видео и динамических изображений, создания композиций, различных эффектов и анимации. Наиболее часто ее используют для обработки видеоматериалов (постпродакшн), создания музыкальных клипов, рекламных роликов, анимации, титров, а также множества других элементов, для которых необходимы цифровые (   Читать дальше...   )Язык интерфейса: Английский / Испанский / Итальянский / Китайский (упрощенный) / Корейский / Немецкий / Португальский / Русский / Французский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой иврита / Английский (Великобритания) / Испанский (Мексика) / Французский (Канада) / Французский (Марокко)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEF7BA98A1B9E929C41ABC12EFF896B596A95AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133458   (692634) от 13.05.2017
+
+Защитники (2016) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: Россия / Enjoy MoviesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила МаксимоваПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D0D64AF0155ADB4AF9F46D14748368636C5199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133674   (692629) от 13.05.2017
+
+Adobe Illustrator CC 2017.1.0 21.1.0.326 Portable by XpucT [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Illustrator СС является мощным инструментом работы с векторной графикой. Продукт Adobe Illustrator СС предназначен для профессиональных дизайнеров, разработчиков интерактивных проектов и web-страниц, аниматоров и специалистов в сфере видео. Adobe Mercury Performance System позволяет обрабатывать большие файлы с высокой скоростью и надежностью, предлагает современный (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876543A709206232436BA2415059F59CF8A506BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133779   (692625) от 13.05.2017
+
+Adobe Photoshop CC 2017 (v18.1.1) x86-x64 RUS/ENG Update 3
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2017 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F06C78AC6A2B3A1B6DF18F5013CF05FBD93087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 674430   (692288) от 30.06.2013
 
 Падение Олимпа / Olympus Has Fallen (2013) HDRip
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692288.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_692243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_692243.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691981.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691909.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_691908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691908.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691886.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691878.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691876.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Windows 10 Pro 1909 b18363.1016 x64 ru by SanLex (edition 2020-08-18) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691791.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Dawn of Man (2019) [Ru/Multi] (1.6.1) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691788.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>19
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691786.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_691719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691719.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ CleanMyMac X 4.3.0 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691607.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691565.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691206.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ Project CARS (2015) [Ru/Multi] (1001) License
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691154.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2014) [Ru/Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691153.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691151.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_691125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691125.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_691044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691044.jpg" />
 </div>
 
 
@@ -518,163 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221729   (690949) от 26.04.2018
-
-Производство SSD в России: непростые вопросы
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_690949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новость о запуске серийного производства SSD-дисков вызвала достаточно скептичные дискуссии в профессиональном сообществе. Так уж сложилось, что в России с ее значительным технологическим отставанием любые попытки запустить высокотехнологичное производство воспринимаются с недоверием. Оно имеет вполне веские основания, ведь кристаллы у нас не производятся, а значит, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221681   (690948) от 26.04.2018
-
-NVIDIA GeForce Desktop 397.31 WHQL + For Notebooks [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690948.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EFFF951B9A34918C39F4812C7146C154CDBCF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220963   (690947) от 26.04.2018
-
-Sublime Text 3 Build 3164 Dev + Portable [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD62AD764F961CB7BD3F3140B26F2824EC554AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134045   (690760) от 14.05.2017
-
-Прочь / Get Out (2017) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомство с родителями подружки не предвещает молодому фотографу из Нью-Йорка ничего хорошего, ведь семья девушки принадлежит к элитному обществу и живет в уединенном загородном доме. Если бы он только знал истинную причину своего приглашения, то немедленно бросился бы прочь…Производство: США / Blumhouse Productions, QC EntertainmentЖанр: Ужасы, ДетективРежиссер: Джордан ПилАктеры: Дэниэл Калуя, Эллисон Уильямс, Кэтрин Кинер, Брэдли Уитфорд, Калеб Лэндри Джонс, Маркус Хендерсон, Бетти Гэбриел, Лейкит Стэнфилд, Стивен Рут, Лил РеллПеревод: Многоголосый закадровый, профессиональный (AlexFilm)Субтитры: Русские (полные), Английские (полные)Продолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B229171077E141D318F30051AF119455AAECF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134220   (690759) от 14.05.2017
-
-Adobe Illustrator CC 2017 (v21.1.0) x86-x64 RUS/ENG Update 3
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Illustrator CC 2017 – это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях цифровой графики, иллюстраций и печати, при разработке любых видов мультимедийных ресурсов, как то печатных материалов, интернет-содержимого, интерактивных средств, видеороликов и мобильных приложений. (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA80D70D41BA0DE839FB4EEC22AD785065DBCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909511   (690758) от 14.05.2017
-
-Skyforge (2015) [Ru] (0.92.1.24) License
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skyforge - это MMORPG в фантастической вселенной. В ней боги и герои с помощью технологий будущего сражаются с мифическими созданиями и отражают вторжения из космоса. Сильнейшие игроки смогут достичь вершин славы и встать во главе Пантеона, пройдя путь от юного бессмертного до великого бога.Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: MMORPG, Action, AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CB402819319EFC4B400494F5465A6639E2410E
 ```
 
 https://mybot314.ru/tekegram_catalog/

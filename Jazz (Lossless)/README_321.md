@@ -6,7 +6,7 @@ VA - Italian Soft Jazzy Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110709.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Miles Davis - Four Classic Albums (1957 - 1960) 2CD, 2013, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110708.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Barbara Morrison featuring Houston Person - I Wanna Be Loved (2017) Savant [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110702.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Judy Wexler - Dreams & Shadows (2008) Jazzed Media [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110695.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Judy Wexler - Easy on the Heart (2005) Jazzopolis [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110692.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Judy Wexler - Under A Painted Sky (2011) Jazzed Media [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110631.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bobby Watson & Horizon - No Question About It (1988) Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110622.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rob Stoneback Big Band - Caught In The Web (1996) Sea Breeze [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110612.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Barbara Morrison featuring Houston Person - A Sunday Kind Of Love (2010 - 2012) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110608.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110506.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dave Brubeck - Jazz Impressions Of Japan & Jazz Impressions Of New York (1960, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110482.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bobby Watson & Horizon - Horizon Reassembled (2004) Palmetto Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110478.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bobby Watson & Horizon - Post-Motown Bop (1991) Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110476.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Dave Brubeck Quartet - Plays Music From West Side Story (1960, 1965) 1986, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110473.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mike Holober & The Gotham Jazz Orchestra - Thought Trains (1996) 2004, Sons Of S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110469.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110466.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110460.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110458.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bobby Watson - Keepin' It Real (2020) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110391.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gerald Ross - Absolute Uke (2015) UkeTone Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110369.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kandace Springs - Run Your Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110309.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bobby Watson - At the Gouvy Festival: In The Groove (2000) Challenge Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110306.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Raphael Imbert, Johan Farjot & Guests - Les 1001 Nuits du Jazz: Live au Bal Blom
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110289.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Yusef Lateef - Atlantis Lullaby: The Concert From Avignon (1972) 2CD, 2024, Elem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110101.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Willow - empathogen (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative pop, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110092.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Lennie Tristano - The New Tristano (1960 - 1962) 2013, Warner [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110058.jpg" />
 </div>
 
 

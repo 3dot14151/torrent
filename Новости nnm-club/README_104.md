@@ -1,3 +1,29 @@
+###  Публикация: 329895   (709343) от 29.04.2011
+
+Windows XP Pro SP3 Rus VL Final x86 Diablik94 Edition [29.04.2011/Rus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_709343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск прежде всего предназначен для «чистой» установки с загрузочного компакт диска (в Bios в меню Boot выставить, First boot device-CDROM).Данная сборка содержит только обновления на 29 число.Язык интерфейса: Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 329556   (709222) от 29.04.2011
 
 AMD Catalyst 11.4 [Multilanguage+Rus]
@@ -6,7 +32,7 @@ AMD Catalyst 11.4 [Multilanguage+Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709222.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Autodesk AutoCAD 2017 HF3 x86-x64 RUS-ENG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709178.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_708722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_708722.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708608.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7147.5001
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708540.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Assassin’s Creed Chronicles: China / Китай (2015) [Ru/Multi] (1.0.10897.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708534.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708532.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Remote Desktop Manager Enterprise 2022.1.13.0 + Portable  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708495.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708327.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708319.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Adobe After Effects CC 2017.2 14.2.0.198 Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708263.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708262.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708257.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Sygic: GPS Navigation v16.4.14 + полный комплект карт 215 ст
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708253.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_707853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_707853.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_707789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_707789.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Windows 10 Pro 1709 x86/x64 by kuloymin v12.6 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707665.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Update 04.2018 by OVGorskiy® 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707656.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707652.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.6 Build 1590 Stable + Portable
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707224.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706561.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.2) SteamRip Let'sРlay
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706463.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705749.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ macOS Sierra 10.12 Developer Preview (16A201w) [Multi/Ru] (Installer)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705281.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ The Chronicles of Riddick: Assault on Dark Athena / Хроники Риддик�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705275.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ The Chronicles of Riddick - научно-фантастический шутер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7B828951371EF3421F318FEEB0F105CA456A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024206   (705273) от 14.06.2016
-
-Homeworld Remastered Collection (2015) [Ru/Multi] (2.1) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Homeworld Remastered Collection, переиздание классической стратегии про войну в космосе. Когда-то Homeworld стал одной из первых по-настоящему трехмерных стратегий в реальном времени, но это не единственное, чем запомнилась эта серия. То была настоящая космическая опера, непростая история о том, как внеземная раса Кушан пытается выжить в противостоянии со зловещей (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Strategy (Real-time), 3D, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EDA965AAADA49F488B460F9D232DE0DCC98CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

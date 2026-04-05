@@ -1,3 +1,107 @@
+###  Публикация: 1712070   (61076) от 01.04.2024
+
+DailyRoads Voyager v8.1.1 (54) Mod by maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записывая видео с 2009 года, DailyRoads Voyager работает как черный ящик автомобиля или видеорегистратор, постоянно снимая видео и фото в течении ваших поездок. Приложение автоматически записывает все, но только важные события сохраняются для дальнейшего использования или в качестве доказательств. Вы можете выбрать, что оставить, просто прикасаясь к экрану, даже (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.04.2024Разработчик: DailyRoadsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B936278FF7A38C6C5BB9BEDB4A182AEA9EEF54E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712716   (60898) от 03.04.2024
+
+YouTube ReVanced Extended 19.11.38 (RVP v2.223.0) Mod by Number one' + microG GmsCore [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60898.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube ReVanced - это реинкарнация проекта YouTube Vanced. В YouTube ReVanced все функции такие же, как и в предшественнике. Все премиум-функции также доступны и усовершенствованы. В настоящее время вы смотрите видео без рекламы. Поддержка поиска, фонового воспроизведения, плавающего окна, детальная настройка интерфейса, возвращение дизлайков и многое другой. Для (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.04.2024Разработчик: ReVanced TeamПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Украинский и Белорусский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F87344C8328156D5809DD30EFCF1A3A7375B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712807   (60873) от 03.04.2024
+
+BZ Напоминания и Дни Рождения PRO v3.3.10 Mod by Eco19 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как часто Вы что-либо забываете сделать? С помощью этой напоминалки Вы можете ПРОСТО ПОМНИТЬ ВСЁ И ВСЕГДА! Вы можете легко контролировать все задачи, находящиеся в Вашем списке дел, и быть уверенным что Вы их сделаете. Удобное и функциональное приложение для создания, использования и управления напоминаниями. В наличии возможность поделиться напоминаниями.Тип издания: ProРелиз состоялся: 02.04.2024Разработчик: Atlas ProfitПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD248FA5FF7376EF395105742A0490F04AE7F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713522   (60581) от 06.04.2024
+
+IPTV Pro v7.1.6 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите IP-телевидение вашего интернет-провайдера или ТВ из любого другого интернет-источника на телефоне или планшете! Саму трансляцию осуществляет провайдер, поэтому если вдруг что-то перестало показывать, то скорее всего дело именно в провайдере, обращайтесь к нему. Чтобы убедиться в этом наверняка, просто откройте плейлист на компьютере при помощи VLC или IP-TV (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 05.04.2024Разработчик: Alexander SofronovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A0A934E83EF21027E085E936C370C29A3E48D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713539   (60567) от 06.04.2024
 
 Узлы 3D / Knots 3D v8.9.0 Paid [Ru/Multi]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60567.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ AI Translate Voice Translator (Talkao) v389.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60566.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Weather app - eWeather HDF v8.8.4 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60565.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ GPS Локер Prime v2.4.4 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60545.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60498.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ SnapTube - YouTube Downloader VIP v7.17.0.71750910 Final Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60492.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60448.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Adobe Photoshop Express 13.4.404 (ARM64) Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60349.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64/x86) Mod by Mixroot [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60176.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Lark Player - YouTube Music & Audio Player 5.70.10 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60116.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ RS Explorer / RS Проводник 2.1.1.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60012.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Call of Duty: Strike Team 1.0.40 Mod by Dhаmpir & Eastlion [Ru/Uk]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59974.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ YouTube ReVanced Extended 19.11.43 (RVP v2.224.0-dev.1) Mod by VooltMace + micro
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59875.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Cx Проводник / Cx File Explorer 2.2.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59853.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Filmic Pro 6.8.4 Mod by EasyAPK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59812.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Rutube v29.1.3 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59802.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59801.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59800.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ Zaycev.net v8.9.4 Mod by Timozhai, Dymonyxx  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59735.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ Super Recorder / Диктофон: Звукозапись v2.3.1 Mod by Mixroot 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59720.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59459.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ AIDA64 2.01 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59422.jpg" />
 </div>
 
 
@@ -567,113 +671,6 @@ AIDA64 2.01 Mod by Alex.Strannik [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:616FE6166C8C6FEDE0E628C4113946AB91427A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717168   (59331) от 18.04.2024
-
-XY VPN - Security Proxy VPN 4.8.022 Mod by PieMods [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59331.jpg" />
-</div>
-
-
-###  Подробнее
-
-XY VPN — это абсолютно бесплатный VPN! Быстрое и глобальное VPN-приложение для обеспечения конфиденциальности и безопасности в Интернете для всех пользователей Android.Тип издания: VIPРазработчик: MATRIX MOBILE PTE. LTD.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F21688DA7C90B7A730C4885737879354250B14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717141   (59330) от 18.04.2024
-
-VPN.lat: Unlimited and Secure 3.8.3.9.8 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59330.jpg" />
-</div>
-
-
-###  Подробнее
-
-VPN.lat — это бесплатный VPN-сервис для Android с серверами в 68 странах, он не ведет журналы и позволяет безопасно просматривать Интернет.Тип издания: PremiumРазработчик: VPN.latПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4400BAF00246A617D3DEAD1371E0FD81E7B1472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717164   (59329) от 18.04.2024
-
-BBVpn VPN: Unlimited VPN Proxy 3.8.2 Mod by FreeApkexe [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59329.jpg" />
-</div>
-
-
-###  Подробнее
-
-BBVpn VPN для Android позволяет разблокировать запрещенные веб-сайты и приложения.
-Он обеспечивает безопасное соединение, так что вы можете скрыть свою личность и безопасно и анонимно получить доступ к Интернету.
-Если вы ищете лучший бесплатный VPN, попробуйте BBVpn VPN.
-BBVpn VPN — это молниеносное приложение, предоставляющее бесплатный прокси-сервис VPN.Тип издания: ModРелиз состоялся: 17 окт. 2022 г.Разработчик: Bohdan BorkovychПоддерживаемая ОС: Android 5.0 и выше / arm64Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE05ACA0619174886B1AF28DA7B9694189DBCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717175   (59289) от 18.04.2024
-
-PictureThis - Plant Identification v3.82 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 18.04.2024Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD2249542844D8EE5801F53E910EFD367093508
 ```
 
 https://mybot314.ru/tekegram_catalog/

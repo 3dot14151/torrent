@@ -6,7 +6,7 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31746.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31526.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31512.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31375.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31302.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31272.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31007.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30998.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ My Memory of Us (2018) [Ru/Multi] (Build 16287132) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30229.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29984.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29784.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29725.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29221.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28925.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28893.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Retro City Rampage DX (2014) [Multi] (2.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28864.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28802.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28789.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28732.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28729.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28688.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28607.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28606.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28605.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28578.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ BORE BLASTERS (2024) [Multi] (1.52) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28122.jpg" />
 </div>
 
 

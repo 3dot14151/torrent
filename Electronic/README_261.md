@@ -1,3 +1,119 @@
+###  Публикация: 1045155   (561893) от 22.08.2016
+
+VA - Ibiza Summer House Sessions Vol.3 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernst Bentley - Walk With Me
+02. Modell & Mercier - One Day With You
+03. Adam 1st - That Special Look
+04. Tony Cox - Some Fun Tonight(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417C3FB47BF1D2C0A69276A8F9A0CF9213AA32BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045212   (561830) от 22.08.2016
+
+VA - Melodic Progressive House Vol.07 (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Oh & Jennifer Yun  -  We Chase The Sun (Talamanca Remix)  8:08
+02. RNX & Robert Nickson ft. Paul Mads  -  Whatever (Original Mix)  5:32
+03. Nigel Good  -  This Is Us (Original Mix)  7:50
+04. Lian July & Eli  -  Surrender (LTN Vocal Remix)  5:53(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 02:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811D1A691E700936F695BF27120F84AE86DB95D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045038   (561829) от 22.08.2016
+
+VA - Experimental Deep - 20 Underground Deep-House Tunes Vol.1 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arthur Dollmann - I Turn And I See Light
+ 02. Kesho Haran - Shake - Extended Mix
+ 03. Don Ryan - Fertezax - Deep Club Mix
+ 04. Jack Segret - Sarmento - Extended Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189CCA7C96E91E1CAEE1C8985F22CBC00012FE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045252   (561828) от 22.08.2016
+
+VA - Saltwater and Suncream Vol.1: Summer Chill Out Grooves (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sami Sivananda - Bliss
+02. Svendaq - Cocktails & Dreams
+03. Sunyata Project - Eastern Promises - Extended Mix
+04. Chris Le Blanc - Melville Sings The Blues - DJ Jondal Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2377525B9C9E1E9F8644FDCE33CCD708976C4846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044584   (561824) от 22.08.2016
 
 VA - 35 Bigroom Electro Multibundle (2016) [MP3|320 Kbps] <House, Electro House, Melbourne Bounce>
@@ -6,7 +122,7 @@ VA - 35 Bigroom Electro Multibundle (2016) [MP3|320 Kbps] <House, Electro House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561824.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Madrid Fashion Week (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561818.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Sunset Session (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561763.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Hush Digital Summer 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561760.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Precious Lounge Vol.05 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561759.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Progressive House Summer Essentials (2017) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561758.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - House Fiesta Ibiza 2017 [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561756.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Workout Music Vol.1 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561747.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Deep House Brazil (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561679.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Roman Messer - New Life (Chillout Edition) (2016) [MP3|320 Kbps] <Electronic, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561664.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ RecFrag - Discography 5 Releases (2011-2016) Solanic, Aliens Production [FLAC|Lo
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561622.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ VA - Guitar del Mar: Chillout, Lounge, Bossa Nova Guitar Music (2017) [MP3|320 K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561612.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Jan Hammer - Beyond The Mind's Eye (1993) [FLAC|Lossless|image + .cue] <Downtemp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561529.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ The Fixx - 15 Albums (1982-2014)(16 CD) [MP3|320 Kbps] <Electronic, New Wave, Po
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561393.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Isao Tomita - Kosmos (1978) RCA Victor, 1991 [FLAC|Lossless|image + .cue] <Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561389.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Huron - Inside Information (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Experim
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561320.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ C.C.C.P. - Album & Compilation (1990, 1992) [MP3|320 Kbps] <Electronic, Industri
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561264.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Label Pack - Supercell Recordings - 14 Releases (2015-2016) [MP3|320 Kbps] <Tran
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561260.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ VA - Best of Lounge 2018 (Special Selection) Vol. 3  [MP3|320 Kbps] <Balearic, D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560454.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ VA - 1st Ladies in the House (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560201.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Beach Party Ibiza 2017  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560198.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Rodriguez Jr. - Bittersweet (2011) [FLAC|Lossless|tracks + .cue] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560195.jpg" />
 </div>
 
 
@@ -627,121 +743,6 @@ Rodriguez Jr. - Bittersweet (2011) [FLAC|Lossless|tracks + .cue] <Deep House, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257CC3E966E2943C8063F5B01F652DDCFFD70843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153429   (560084) от 26.07.2017
-
-Andy Pickford - Orgonon (2017) [MP3|320 Kbps] <Electronic, Ambient, Prog Rock>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560084.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Orgonon (Parts 1-5 ) - 01:18:18
-2. Orgonon (Parts 6-10) - 01:13:54
-3. Orgonon (Parts 11-15) - 01:14:41Жанр: Electronic, Ambient, Prog RockПродолжительность: 03:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD4E414F2FBE70BDDB7D71B585BFF6C0CC7E4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153173   (560080) от 26.07.2017
-
-VA - Planet of the Bass (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Joda - Manic in Miami
-02. Anger Inc - Ready Go (Mpi Moombahton remix)
-03.  Grimehouse - Melodrama (Grimehouse VIP version)
-04. Hurtboy - End Game(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1268F203AD427100CE37D151108726E4E729CC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304988   (560071) от 28.05.2019
-
-Slacker - Leviathan (2019) Lobster Theremin [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leviathan (06:47)
- 02. Next Time (07:04)
- 03. Last Train To Sector 4C.31 (06:07)
- 04. Journey Past The Clouds (06:48)Жанр: Electro, Techno, AcidПродолжительность: 00:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4C0D14DCE8299FD5B0E2E73C0B25D1CD796234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304942   (560066) от 28.05.2019
-
-VA - A 40 Track Compilation: Hong Kong (2019) [MP3|320 Kbps] <House, Progressive House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madloch & Subnode - Shadow People (Charles Webster Remix)
-02. Paula OS - Pearl (Adam Nathan Remix)
-03. Matias Vila - Ahora (Stelios Vassiloudis Remix)
-04. Agustin Basulto - Calma (Roger Martinez Medicine Music Remix)(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 05:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E246E9B124B2F4F6C76C200EC99A3AF85788FD37
 ```
 
 https://mybot314.ru/tekegram_catalog/

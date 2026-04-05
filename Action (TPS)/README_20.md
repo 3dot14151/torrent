@@ -6,7 +6,7 @@ Rune Classic / Руна (2001) [Ru/Multi] (1.11/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596023.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/upd2/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595486.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sniper Elite Anthology / Sniper Elite Антология  (2005-2017) [Ru/En] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593719.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0 hotfix 3b) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587951.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Spider-Man: Friend or Foe [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587744.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Aragami (2016) [Ru/Multi] (01.09) License GOG [Collector`s Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585915.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ How To Survive Third Person Standalone (2015) [Ru/Multi] (1.0) SteamRip Let'sРl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585574.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Dead Space (2008) [Ru] (1.0.0.222) Portable PortGamPС
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582164.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2712) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582054.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Shadwen (2016) [En/Multi] (1356/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581183.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Eisenhorn: XENOS (2016) [En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581178.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Shadwen (2016) [En/Multi] (1.0.0/build 1356/dlc) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580280.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Yasai Ninja (2015) [En/Esp] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579621.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579188.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ CASE: Animatronics (2016) [Ru/Multi] (1.0/u1) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579122.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Eisenhorn: XENOS (2016) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579059.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [RuMulti] (1.0.3/dlc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578878.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577697.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577693.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sleeping Dogs (2012) [Ru] (2.1.437044/dlc) Repack Other s [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577282.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Assassin's Creed Liberation Remastered (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575545.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.4.2/dlc) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575544.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Cursed Crusade / The Cursed Crusade: Искупление (2011) [Ru/En] (Up
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571109.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Onechanbara Z2: Chaos (2016) [En/Jp] (1.07/dlc) Repack АRMENIAC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568385.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.689hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568305.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Prototype 2 [Ru]  (RePack) 2012 l cdman
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564323.jpg" />
 </div>
 
 

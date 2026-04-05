@@ -1,3 +1,162 @@
+###  Публикация: 1435979   (141141) от 29.12.2020
+
+Настоящая зима в Санкт-Петербурге / One Wonderful Winter in Saint Petersburg (2018) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Февраль зимы 2018 выдался действительно удивительно красивым и настоящим - снежным, морозным, солнечным.Производство: РоссияЖанр: Документальный, видовойРежиссер: Виталий КарповичПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D15E04CEE6E3F7A23373F18E75AFA13D5CCE6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088372   (141021) от 30.12.2016
+
+Вечерний Ургант (2016.12.30) SATRip (cезон 10, выпуск 78)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9BAAAAD6A5DE156755BF264510791D4E3BEC20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853763   (140941) от 30.12.2014
+
+Дятьковский хрусталь  (2013) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрусталь пленяет бриллиантовым блеском, поражает чистотой и изяществом форм. А технология его производства остается неизменной вот уже много веков. Хрусталь хрупок и податлив одновременно. Чтобы овладеть искусством его обработки, нужны годы кропотливого труда, верный глаз и твердая рука. От мельчайшей песчинки кварца до готового изделия долгий путь. Проследите за (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C50FEFF8E3D1DA02705DCC6C3712E250F9921B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520585   (140749) от 29.12.2021
+
+Клоуны и дети (1977) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140749.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к заболевшему ребенку приходит клоун. Перед малышом разворачивается яркое представление, которое помогает ему обрести бодрость духа, необходимую для его выздоровления.
+
+Режиссер Митта выложил в сеть ранее не публиковавшийся документальный фильм "Клоуны и дети", снятый в 1977-м году, где демонстрируется реакция детей на клоунов.
+Изюминкой фильма (   Читать дальше...   )Производство: МосфильмЖанр: документальныйРежиссер: А. МиттаПродолжительность: 00:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FDC89386C929740D1298ADF7C6D512646C9D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272873   (140705) от 29.12.2018
+
+Голос. Перезагрузка (2018.12.28) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 12)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых ярких шоу-проектов в очередной раз продемонстрирует невероятные результаты от альянса обладателей незаурядных голосов и опытных наставников, позволяющих талантам раскрыться и расцвести. Великолепные голоса, уникальные музыкальные постановки, молодые и не очень участники, которым придется испытать радость творчества, счастье триумфа и слезы поражения (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB982DE875692C5695AD68BEBB96F6AE09E9B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195793   (140639) от 30.12.2017
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.12.30) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140639.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Телекомпания: НТВ HDЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007F97D3213C3FFA8C3BBBCFBCBF8031BD3AE3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520730   (140598) от 29.12.2021
 
 Тайны небес Иоганна Кеплера / Johannes Kepler, Der Himmelssturmer (2020) DVB [H.264] (серии 1-2 из 2)
@@ -6,7 +165,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140598.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140577.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140532.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140503.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140483.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140463.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140453.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140443.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140442.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140404.jpg" />
 </div>
 
 
@@ -270,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140392.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140367.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140337.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140322.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140285.jpg" />
 </div>
 
 
@@ -400,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140275.jpg" />
 </div>
 
 
@@ -426,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140253.jpg" />
 </div>
 
 
@@ -452,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140249.jpg" />
 </div>
 
 
@@ -478,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140168.jpg" />
 </div>
 
 
@@ -504,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140129.jpg" />
 </div>
 
 
@@ -516,162 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E8CAB3E1D078DD7708A9674C47E44704B2FB533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679282   (140016) от 24.11.2023
-
-Ледяное побережье / Icy Coast (2020) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микроклимат холодных приморских областей определяется не только общим климатом региона. Даже в достаточно теплых широтах на побережье может быть холодно и неуютно, если рядом проходит холодное морское течение. Но даже в этих суровых краях можно встретить разнообразных животных.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Филипп МороПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70601ABC00E74606C360EBB4C7A574726BB62B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679122   (140009) от 24.11.2023
-
-Однажды в прерии / Il etait une fois dans la prairie (2022) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140009.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Однажды в прерии" — это уникальный вестерн в мире документального кинематографа, рассказывающий захватывающую историю о степных собачках, или земляных белках, которые являются частью экосистемы коротко травных прерий и высоких равнин Северной Америки. На первый взгляд кажется, что эти милые и светлые грызуны просто радуют глаз своей внешностью, но за этой (   Читать дальше...   )Производство: ФранцияЖанр: документальный, природа, флора, фаунаРежиссер: Филипп МороПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3154C481B4DBA9CF361BA7042A6B7C56CC289921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195670   (139954) от 30.12.2017
-
-Вечерний Ургант (2017.12.29) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:45:57Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED83203F3C60C8E6A859D850014C74EA25658BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679310   (139865) от 24.11.2023
-
-Истории русского рэпа (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал о том, как рэп из пацанской субкультуры превратился в одно из главных музыкальных направлений страны. История русского рэпа покажет этапы развития от группы CENTR до Элджея.Производство: Россия | PINERYЖанр: Документальный, историяРежиссер: Дмитрий БулгаковУчастники: Pharaoh, Feduk, OG Buda, Даниил Трабун, Анна Виленская, Андрей Никитин, Николай Редькин и др.Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7D1C9088EA4A4B42AB075DA031652F8B06EFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348985   (139822) от 30.12.2019
-
-Живые камни (Ожившая архитектура) / Living Stones (2004-2006) DVBRip (серии 10 из 10)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Камень есть типичнейшее воплощение категории бытия как такового, и в отличие от гегелевского отвлеченного понятия о бытии он не обнаруживает никакой склонности к переходу в свое противоположное: камень есть то, что он есть, и он всегда служил символом неизменного бытия. Это серия фильмов об истории старинных городов, об открытиях, сделанных археологами на раскопках. (   Читать дальше...   )Производство: Франция, Voyge/Gedeon Programmes Alfa Line ProductionЖанр: Документальный, исторический, архитектура, археологияРежиссер: Валери Жирье, Гийом Эшт, Александр МизарПеревод: Двуголосый закадровый, профессиональный (ТПО Ред Медиа)Субтитры: отсутствуютПродолжительность: серии x ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D21925E70EA70D06D42A7D283DA143525E046A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195711   (139821) от 30.12.2017
-
-Голос (2017.12.29) HDTV [H.264/1080i] (сезон 6, выпуск 18 - Финал)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139821.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ECE26D57A70F5934B9342B40B38E7D824AE3AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

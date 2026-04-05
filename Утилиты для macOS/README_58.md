@@ -1,3 +1,29 @@
+###  Публикация: 1706236   (113638) от 12.03.2024
+
+iShot-ScreenShot Recording OCR for Mac 2.5.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113638.jpg" />
+</div>
+
+
+###  Подробнее
+
+iShot — отличный и комплексный инструмент для создания скриншотов областей, окон, многооконных снимков, длинных снимков экрана, снимков экрана с оболочкой, интервальных снимков экрана, быстрых аннотаций, текстур, выбора цвета, записи экрана, записи звука, оптического распознавания символов и инструментов перевода снимков экрана.Тип издания: macOS SoftwareРелиз состоялся: 05.02.2024Разработчик: © Ningbo Shangguan Technology Co., LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F28CDA7A5F6B3CD9E0330D16B8BA6246452F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706492   (113577) от 13.03.2024
 
 Lifespan 2.0.3 [En]
@@ -6,7 +32,7 @@ Lifespan 2.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113577.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Ink2Go 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113550.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ System Toolkit 6.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113509.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Cronette 1.10.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113491.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ iNet Network Scanner 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113450.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Caffeinated 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113436.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ uDock 4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113435.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ KCNcrew Pack 03-15-24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113401.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ WatsGo for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113265.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ DiskCatalogMaker 9.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113182.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Unclutter 2.2.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113173.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Finder Windows 1.5.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113172.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ SSH Config Editor Pro 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113168.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Dropshare 5 v.5.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113158.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Cardhop 2.2.17 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113136.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Tower Pro 10 for Mac v.10.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113100.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Easy New File 5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113057.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ StopTheMadness 40.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112960.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ WiFi Signal Strength: Wifiry 2.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112954.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Screen Wonders 2.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112948.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ WiFiSpoof 3.9.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112768.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ System Dashboard Pro 1.10.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112767.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Sync Folders Pro 4.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112766.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Hides 5.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112751.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ SponsorBlock for YouTube 5.5.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112749.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ SponsorBlock — это краудсорсинговое расширение д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0A77292F19EE6DC32B35233ADC2215C7BEED95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710166   (112741) от 26.03.2024
-
-Syncovery for Mac 10.13.1 ARM/iNTEL [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Syncovery автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно к компьютеру, так и через локальную сеть и «Интернет».Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 Super Flexible Software GmbH & Co.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63BBEFE56D409E7BCD80022D76AEAA3BE0A49A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

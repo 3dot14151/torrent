@@ -1,3 +1,32 @@
+###  Публикация: 1651014   (224161) от 04.08.2023
+
+Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt.Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right? [00:04:30]
+02. Like a Pastime [00:03:45]
+03. Another Celebration at the End of the World [00:04:35]
+04. Miles Above Me [00:04:02](   Читать дальше...   )Жанр: Hard Rock, Alt.Rock, Post-GrungeПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992E18A98DD2BAB46DC47840B237A7BA10BB524D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424912   (224106) от 19.11.2020
 
 Cellar Darling - The Spell (2019) [FLAC|Lossless|image + .cue] <Progressive Folk Metal, Melodic Metal>
@@ -6,7 +35,7 @@ Cellar Darling - The Spell (2019) [FLAC|Lossless|image + .cue] <Progressive Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224106.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Rick Springfield - Automatic (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224087.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224078.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Rian - Wings (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223967.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223951.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Steelover - Glove Me (1984) Reissue, 2021, Mausoleum [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223933.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ Illdisposed - 3 альбома (2009 - 2012) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223863.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ Marc Bolan & T.Rex - For All The Cats - The Best Of (2015) 2CD [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223856.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223841.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Farsoth - The Plague (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223746.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Degenerate Mind - 2 Albums (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223740.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ Exterminance - The Seven Deadly Sins (1994) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223731.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ Pilgrim Of Fire - An Age of Penance and Oblivion (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223721.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ Grey Punks - 6 Albums (2010-2022) [MP3|320 Kbps] <Ska Punk-Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223710.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Privative Alpha - 21 Grams (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223701.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Rattlesnake Venom Trip - Dead Empire (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223692.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223679.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Tobias Sammet's Avantasia - A Paranormal Evening With The Moonflower Society (20
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223617.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Sonata Arctica - Acoustic Adventures - Volume Two (2022) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223586.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ Tumulation - Haunted Funeral Creations (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223583.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Brutally Deceased - Black Infernal Vortex (2014) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223575.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Kenny - The Albums (2022) 2xCD [FLAC|Lossless|image + .cue] <Glam Rock, Glam Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223559.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Cliffside - Deeper Water (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223551.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Rain Parade - Last Rays of a Dying Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223503.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ Integrity - 4 Albums (1991-2001) Deluxe Edition, 2022, 2023, Relapse Records [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223483.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ Integrity - 4 Albums (1991-2001) Deluxe Edition, 2022, 2023, Relapse Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0F77C40A9DBBBB55E361256CF9F70B48984664E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651212   (223473) от 05.08.2023
-
-Owlbear - Chaos To The Realm (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiend of Fire [00:03:51]
-02. Bastard Sons [00:05:13]
-03. The Night Below [00:03:41]
-04. Cult of the Serpent [00:04:26](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8FEED79D2F3C75801E0BDC34361C4AC43B215B
 ```
 
 https://mybot314.ru/tekegram_catalog/

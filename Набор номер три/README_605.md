@@ -1,3 +1,212 @@
+###  Публикация: 1033136   (152793) от 21.12.2018
+
+PayDay 2 (2013) [Ru/En] (1.92.776/dlc) Repack Mizantrop1337 [Ultimate Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главным действующим лицом нового кооперативного шутера станет хорошо знакомый нам по оригиналу квартет грабителей – Даллас, Хокстон, Вулф и Чейнс. Банда переберется в округ Вашингтон, чтобы совершить доселе невиданные преступления. В PayDay 2 появится «криминальная сеть» CrimeNET. С ее помощью игроки смогут планировать ограбления и похищения, а также совершать тяжкие (   Читать дальше...   )Тип издания: RepackРазработчик: Overkill SoftwareЖанр: Action, Shooter, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8FAF81E502DBBBF35DF61009C7464C062717AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149688   (152783) от 21.12.2018
+
+Resident Evil 5 / Biohazard 5 (2009) [Ru/En] (1.1.0/dlc) Repack West4it [Gold Edition]
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из праха былых конфликтов возникает новый ужас. Корпорация Umbrella и созданный ей смертельный вирус были уничтожены, а останки заключены. Но вскоре появилась новая, еще более опасная угроза. Несколько лет после событий в Раккун-Сити спустя, Крис Редфилд ведет борьбу с бедствием биоорганического оружие по всему миру.Тип издания: RepackРазработчик: CapcomЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905BE7D06A30153DF127DDD7CD9B4422AAE08CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067578   (152769) от 21.12.2018
+
+The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.5.62.0.8) Repack xatab [Special Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152769.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Elder Scrolls V: Skyrim Special Edition - это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все официальные дополнения к игре, вышедшие до момента релиза Special Edition. Кроме того, в Special Edition была переработана графика, добавлены новые (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F54DF0979AD52F7953201E1EEB465E145B0045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346696   (152757) от 22.12.2019
+
+В Европе предсказали раздачу денег всем желающим просто так
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ближайшие десять лет в мировой экономике станут эпохой «вертолетных денег». Это концепция, которая подразумевает раздачу денег всем желающим просто так. С таким предсказанием выступил директор по управлению инвестициями швейцарского банка Julius Baer Ив Бонзон.В прогнозе о долгосрочных тенденциях на 2020-2029 годы сказано, что на этот шаг центробанки по всему миру, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346725   (152686) от 22.12.2019
+
+Названы обошедшие Россию по количеству допинг-нарушений страны
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирное антидопинговое агентство (WADA) на своем сайте назвало страны, обошедшие Россию по количеству нарушений в 2017 году.Больше всего спортсменов, нарушивших антидопинговые правила, оказалось у Италии — 171 человек. Второе место заняли французы (128), третье — американцы (103), четвертое — бразильцы (84). Россия в этом списке оказалась на пятом месте (82). Всего (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347024   (152668) от 22.12.2019
+
+Ведьмак / The Witcher (2019) WEBRip [H.265/1080p-LQ] [HDR, 10-bit] (сезон 1, серии 1-8 из 8) Пифагор
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведьмак Геральт, мутант и убийца чудовищ, изо всех сил старается найти свое место в мире, где люди часто оказываются намного хуже монстров.Производство: Польша, США, NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: фэнтези, боевик, драма, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Аллан, Джои Бэти, МайАнна Бёринг, Том Кэнтон, Аня Чалотра, Имон Фэррен, Бьерн Хлинур Харальдссон, Адам Леви, Джоди Мэй и др.Перевод: Дублированный (Пифагор)Субтитры: Русские (форс., полные), английские (SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760985FE14533A110D03F4C2D19ECFD6D2355FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081449   (152641) от 22.12.2019
+
+Открытие Китая (2016-2019) WEB-DL [H.264/720p-LQ] (серии 1-41 из ??) [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152641.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Открытие Китая" - это цикл авторских документальных фильмов о Поднебесной. Автор Евгений Колесов – не профессиональный журналист, а бизнесмен.
+Двадцать лет назад, еще студентом, он поехал в Китай учиться, да так там и остался. Основал заграницей успешную консалтинговую фирму, женился на русской девушке, родил четверых детей. А потом как человек творческий (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: Документальный, познавательный, путешествияПродолжительность: ~ 00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C89E2CBE150269293BAF13F547009C9DD76D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194460   (152639) от 26.12.2017
+
+Максимальный удар / Maximum Impact (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Госсекретарь США тайно прибывает на секретный саммит в Москве, чтобы уладить напряженность российско-американских отношений. Однако мир оказывается перед угрозой Третьей мировой войны, когда лидер международной преступной группировки организовывает покушение на госсекретаря и похищает его внучку. ФСБ и ЦРУ объединяются, чтобы спасти человечество... и внучку...Производство: Россия, США | Кинокомпания «Царь», Hollywood StormЖанр: Боевик, комедия.Режиссер: Анджей Бартковяк.Актеры: Александр Невский, Евгений Стычкин, Дэнни Трехо, Кит Пауэрс, Том Арнольд, Марк Дакаскос, Эрик Робертс, Бай Лин, Келли Ху, Полина Буторина, Максим Виторган, Уильям Болдуин, Сергей Астахов, Наталья Губина.Перевод: Дублированный (Мосфильм-Мастер)Субтитры: ОтсутствуютПродолжительность: 01:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CACB2DBC71D3801DDA2172F88ADE90A4E1C0C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194507   (152615) от 26.12.2017
 
 Максимальный удар / Maximum Impact (2017) WEB-DLRip
@@ -6,7 +215,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152615.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152605.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152599.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 12.2019 by OVGorskiy 1D
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152593.jpg" />
 </div>
 
 
@@ -110,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>97
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152586.jpg" />
 </div>
 
 
@@ -136,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_152341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_152341.jpg" />
 </div>
 
 
@@ -162,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152220.jpg" />
 </div>
 
 
@@ -188,7 +397,7 @@ Gears 5 (2019) [Ru/Multi] (1.1.97.0/dlc) License CODEX [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152162.jpg" />
 </div>
 
 
@@ -214,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151968.jpg" />
 </div>
 
 
@@ -241,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151936.jpg" />
 </div>
 
 
@@ -267,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151935.jpg" />
 </div>
 
 
@@ -293,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151898.jpg" />
 </div>
 
 
@@ -319,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151892.jpg" />
 </div>
 
 
@@ -345,7 +554,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151884.jpg" />
 </div>
 
 
@@ -371,7 +580,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack R.
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151873.jpg" />
 </div>
 
 
@@ -397,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151862.jpg" />
 </div>
 
 
@@ -423,7 +632,7 @@ Corona Renderer 7 (Hotfix 1) for 3ds Max 2014-2022 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151853.jpg" />
 </div>
 
 
@@ -449,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151745.jpg" />
 </div>
 
 
@@ -460,215 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677063   (151700) от 16.11.2023
-
-Avast Premium Security 23.11.6090 RePack by xetrin [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Premium Security – комплексный антивирус "все-в-одном", теперь еще более быстрый и эффективный благодаря переносу вычислительных процессов в облачное пространство. Крупнейшая в мире сеть обнаружения угроз, искусственный интеллект на основе облачных технологий и молниеносно быстрый анализ поведения выделяют наш антивирус среди всех остальных.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDDE6ED18098A79DC127C6232813B99F3860DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676226   (151662) от 16.11.2023
-
-Предложение по YouTube в России: меньше трафика - лучше сеть
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Депутат Горелкин предлагает снизить нагрузку на сети, ограничив доступ к видеохостингу.Заместитель председателя комитета Госдумы по информационной политике, информационным технологиям и связи, депутат Антон Горелкин, предложил операторам связи Российской Федерации отменить безлимитный доступ к YouTube.Депутат утверждает, что это поможет уменьшить износ сетевого оборудования. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086431   (151606) от 24.12.2016
-
-Очередное достижение: 2000 релизов от Trovel
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 2000 релизов от Trovel !!!Друзья!
-Рад сообщить Вам - наш одноклубник, активный релизер Trovel недавно "скромно и незаметно" перешагнул рубеж 2000 релизов!!!(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675874   (151558) от 16.11.2023
-
-Убийца / The Killer (2023) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококлассный наемный убийца, склонный к мизантропическому философствованию, поджидает жертву в Париже. Когда всё идёт не по плану, он сам рискует превратиться в мишень и отправляется разбираться с собственными заказчиками.Производство: США, Archaia Entertainment, Boom! Studios, Panic Pictures (II), Paramount Pictures, Plan B EntertainmentЖанр: боевик, триллер, криминалРежиссер: Дэвид ФинчерАктеры: Майкл Фассбендер, Тильда Суинтон, Чарльз Парнелл, Арлисс Ховард, Керри О’Мэлли, Софи Шарлотт, Emiliano Pernía, Gabriel Polanco, Сала Бэйкер, Эндре ХулсПеревод: Многоголосый профессиональный (NewComers)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, Украинские (Forced, Full), Английские (Forced, Full, SDH), мультиязычныеПродолжительность: 01:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228C8F36E9207B40539B0419E9887E80F36DCEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600881   (151504) от 30.12.2022
-
-SpaceX запустила новые спутники Starlink для улучшения сети. К ним можно подключаться со смартфона?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151504.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpaceX выполнила 60-й успешный запуск ракеты в 2022 году. Однако он примечателен не только этим. Как оказалось, ракета Falcon 9 впервые отправил на орбиту 54 спутника Starlink, которые должны улучшить работу сети.Хотя сама компания не указывает модель спутника, предполагается, что это модели второго поколения (Starlink v2.0). Эти спутники технически могут позволить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270832   (151468) от 22.12.2018
-
-Михаил Титов, Алан Филлипс | Развенчиваем мифы о прививках (2018) [PDF]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда моему 2-месячному сыну предстояло начать плановую вакцинацию, я не знал о существовании каких бы то ни было рисков, связанных с профилактическими прививками. Однако в интернете я нашёл противоречивую информацию: шансы возникновения у моего сына тяжёлой нежелательной реакции на вакцину АКДС были один к 1750, в то время как шансы умереть от коклюша составляли (   Читать дальше...   )Жанр: МедицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29729D35E8F61C665AA27A06058F0612F5B5EAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601119   (151349) от 30.12.2022
-
-Cent Browser 5.0.1002.295 Stable + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E566FEADF068CE07E038CAC7B8D350640C884B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601266   (151308) от 30.12.2022
-
-PotPlayer 221215 (1.7.21862) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964DB12D385F861B9F32A43F6616434724FFD3FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

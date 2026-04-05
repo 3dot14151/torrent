@@ -1,3 +1,32 @@
+###  Публикация: 1578365   (348164) от 22.09.2022
+
+Stratovarius - Dreamspace (1994) Remastered, 1994, T&T [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Shadows	4:38
+02. 4th Reich	5:49
+03. Eyes Of The World	5:57
+04. Hold On To Your Dream	3:34(   Читать дальше...   )Жанр: Rock, Speed Metal, Heavy MetalПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC335291AAE17EEF1CF2C0027A593FD7C1521CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578178   (348163) от 22.09.2022
 
 Moritz - About Time Too (2017) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
@@ -6,7 +35,7 @@ Moritz - About Time Too (2017) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348163.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Stratovarius - Enigma: Intermission II (2018) [OGG Vorbis|484 Kbps] <Rock, Power
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348162.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Distant Mantra - Solitude Republic (2022) [MP3|320 Kbps] <Rock, Prog-Related>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348160.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Prayer - Silent Soldiers (2018) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348159.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ water, please - Welcome to Waterline (2022) [MP3|320 Kbps] <post rock, indie roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348158.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Supergrass - Supergrass (1999) 2CD, Remaster, 2022, Echo [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348157.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Deadheaven - 2 Albums (2014-2022) [MP3|320 Kbps] <Modern Metal, Cyber Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348156.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Anthea - Tales Untold (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348154.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Beneath The Massacre - 3 альбома (2007/2008/2012) [FLAC/APE|Lossless]<Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_348113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348113.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Novichok - Geo-Desiccant (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348073.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Stan Bush - Change The World (2017) [FLAC|Lossless|image + .cue] <AOR, Arena Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348072.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ King Buffalo - Regenerator (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348070.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Confessions of a Traitor - Punishing Myself Before God Does (2022) [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348069.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Infidel Rising - 3 Albums (2015-2022) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348068.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348067.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Vermilia - Ruska (2022) [MP3|320 Kbps] <Atmospheric Pagan Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348066.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Stratovarius - Survive (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348060.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Alice in Chains - Dirt (1992) Remaster, 2022, Columbia [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348056.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Torche - Admission (2019) [FLAC|Lossless|tracks + .cue] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348012.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Exhumed - Horror (2019) [FLAC|Lossless|tracks + .cue] <Death Metal, Grindcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348011.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Surf Curse - Heaven Surrounds You (2019) Scene [FLAC|Lossless|tracks] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348008.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Nad Sylvan - The Regal Bastard (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348007.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Magic Pie - Fragments of the 5th Element (2019) [FLAC|Lossless|tracks + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348003.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347969.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Conflict Theory - Monologue (2016) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347952.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Conflict Theory - Monologue (2016) [MP3|320 Kbps] <Brutal Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D06C57EE12A3613467F357EE51D963AE8CA2460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257306   (347937) от 25.10.2018
-
-VA - Rock Sound: Sound Check No. 112 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulfly - Unleash (05:09)
-02. Alesana - This is Usually the Part Where People Scream (03:43)
-03. We are the Ocean - Don't be Careless (03:05)
-04. Harvey Milk - Barn Burner (02:17)(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560D0452386DC92AD8205D142178C27DD3D1FFCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

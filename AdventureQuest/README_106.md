@@ -1,3 +1,81 @@
+###  Публикация: 1781326   (18345) от 14.05.2025
+
+Crow Country (2024) [Multi] (Build 18435138) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоррор на выживание, где вам предстоит разгадывать непростые загадки и головоломки в пугающей тишине заброшенного парка развлечений. Пусть вас не обманывает его чудаческий антураж – в «Стране Ворон» явно что-то не так. На дворе 1990-й. Прошло два года с тех пор, как Эдвард Кроу загадочно исчез, а его парк развлечений «Страна Ворон» внезапно закрылся. Но ваше появление, (   Читать дальше...   )Тип издания: RepackРазработчик: SFB GamesЖанр: Экшены, ИндиЯзык субтитров: Aнглийский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Aнглийский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BE10F7A874AD9525293BB834DD4E8D08DB3DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751286   (18328) от 14.05.2025
+
+The Crimson Diamond (2024) [En] (1.10u3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18328.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Crimson Diamond – это детективное приключение в ретро стилистике. Пользователю предстоит исследовать локации, беседовать с подозреваемыми, а также искать улики. Кажется, все, что происходит вокруг, может быть уникальной и спланированной аферой, но это еще необходимо доказать. Если правда о находке окажется реальной, то это станет великим открытием, за которое (   Читать дальше...   )Тип издания: LicenseРазработчик: Julia MinamataЖанр: Приключенческие игрыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5977AE5E3D5ECDBE7ED83DEA90D21F6D4B20CE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797184   (18282) от 15.05.2025
+
+EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический хоррор, вдохновленный оригинальными играми на выживание 90-х, EBOLA VILLAGE - это современный взгляд на приключение от первого лица, в котором главная героиня Мария расследует загадочные события, произошедшие в СССР. Мария сидит в своей квартире и смотрит любимый сериал, передача прерывается, и начинается прямой эфир о биологической угрозе.Тип издания: RepackРазработчик: indie_games_studioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B1A76FA51D619B6D83660A5150204CECB92222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765796   (18266) от 15.05.2025
 
 Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.7.0/dlc) Repack Decepticon
@@ -6,7 +84,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.7.0/dlc) Repack Decept
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18266.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18258.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack FitGirl [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18247.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18239.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18229.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18227.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18214.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18208.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18204.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18182.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Sinking City (2019) [Ru/Multi] (ms6 58246 s mc2 4/dlc) License GOG [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18150.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18134.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.16/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18130.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18046.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17942.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Beholder: Conductor (2025) [Ru/Multi] (1.0.4.278) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17849.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Undying Flower (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17711.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17475.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17370.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Duck Detective: The Ghost of Glamping (2025) [Multi] (2.2.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17152.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Deliver At All Costs (2025) [Multi] (250331-143608) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17043.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Deliver At All Costs (2025) [Multi] (250331-132937) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17001.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Psychoscopy (2022) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16253.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Psychoscopy - это кооперативная хоррор-игра для 5 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A42224B6D0F7EA9F44433FC28B834DCD5A82E987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799875   (16217) от 30.05.2025
-
-Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебная вселенная в Near-Mage показывает приключения молодой девушки Илли Враджа, которую пригласили пожить в Трансильвании на лето. Девчонка встретится со своей двоюродной бабушкой Доминикой, что желает рассказать ей о тайном роде ведьм. Героиня получит возможность поступить в Трансильванский институт магии, где будет осваивать искусство колдовства. Девчонка поступит (   Читать дальше...   )Тип издания: RepackРазработчик: Stuck In AtticЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DB7CC17AC729274068EBC5D3AB741F8C81C821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798812   (16187) от 31.05.2025
-
-Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте тайны забытого мира на краю Млечного Пути. В Star Mission: Remote Sectors вы играете за космического исследователя, направленного на изучение гравитационной аномалии на далёкой инопланетной планете. То, что начинается как научная миссия, быстро превращается в путешествие полное открытий, загадок и странных явлений.Тип издания: RepackРазработчик: Ralph SchaedlerЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2790C165421E78EC1CAA5FD1B94612273B995BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766643   (16152) от 31.05.2025
-
-Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь, Энни - сотрудница Фонда SCP с низким уровнем допуска. Задача этой тайной организации - обезопасить и удерживать аномалии, а также защищать от них простых людей. Но зачем организация, девиз которой - «Обезопасить. Удержать. Сохранить», создала особый отдел по репликации опасных паранормальных событий и аномальных сущностей? И почему вам поручено раз за (   Читать дальше...   )Тип издания: LicenseРазработчик: Misfit VillageЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2241AC0D820084119D0B6813589B9E5CEEB52421
 ```
 
 https://mybot314.ru/tekegram_catalog/

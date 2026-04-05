@@ -1,3 +1,81 @@
+###  Публикация: 1099003   (876465) от 17.02.2017
+
+Дождись темноты / Wait Until Dark (1967) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876465.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дом Сьюзи, недавно ослепшей в результате автокатастрофы, попадает тряпичная кукла, в которую наркоторговцы зашили крупную партию героина. Содержимое куклы очень хотят заполучить бандиты во главе с убийцей-психопатом Роутом. Слепая девушка беззащитна, лишь в темноте их шансы могут относительно уравняться, поэтому единственная надежда Сьюзи — дождаться темноты.Производство: США / Warner Bros. Pictures Co.Жанр: Драма, Криминал, ТриллерРежиссер: Теренс ЯнгАктеры: Одри Хепберн, Алан Аркин, Ричард Кренна, Ефрем Цимбалист мл., Джек Уэстон, Саманта Джонс, Джули Эрро, Робби Бенсон, Жан Дель Вэл, Мел ФеррерПеревод: Дублированный (МостВидео)Язык субтитров: Русский, АнглийскийПродолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726EA313308DDE8D485D9ABC7BDFA4EA253A598B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369088   (876361) от 08.04.2020
+
+Как выйти замуж за миллионера / How to Marry a Millionaire (1953) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк слезам не верит. Традиционная ситуация: три модели ищут мужей-миллионеров. Для осуществления своих планов девушки снимают шикарную квартиру в элитном районе и начинают осуществлять задуманное. Проходят три месяца — из квартиры продана последняя мебель, а на горизонте — ни одной подходящей партии. К финалу картины страсти накаляются, у двух подруг возникает (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, Мелодрама, КомедияРежиссер: Жан НегулескоАктеры: Бетти Грэйбл, Мэрилин Монро, Лорен Бэколл, Дэвид Уэйн, Рори Кэлхун, Кэмерон Митчелл, Александр Д’Арси, Фред Кларк, Уильям Пауэлл, Роберт АдлерПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские (FOX, DVD Magia), английскиеПродолжительность: 01:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC7CA9DD497400CCC2827989CD0B075318CB307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099377   (876339) от 17.02.2017
+
+Дождись темноты / Wait Until Dark (1967) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876339.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дом Сьюзи, недавно ослепшей в результате автокатастрофы, попадает тряпичная кукла, в которую наркоторговцы зашили крупную партию героина. Содержимое куклы очень хотят заполучить бандиты во главе с убийцей-психопатом Роутом. Слепая девушка беззащитна, лишь в темноте их шансы могут относительно уравняться, поэтому единственная надежда Сьюзи - дождаться темноты...Производство: США, кинокомпания:  "Warner Bros"Жанр: Триллер, Драма, КриминалРежиссер: Теренс ЯнгАктеры: Одри Хепберн, Алан Аркин, Ричард Кренна, Ефрем Цимбалист мл., Джек Уэстон, Саманта Джонс, Джули Эрро, Робби Бенсон, Жан Дель Вэл, Мел Феррер и др.Перевод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E360C4487D20B84D6DBDEC12C6E8E71343986E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494891   (875698) от 15.09.2021
 
 Джентльмен из Эпсома / Le gentleman d'Epsom (1962) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875698.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875574.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875554.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875329.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875228.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874606.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874487.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873220.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873153.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871618.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871473.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871382.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871377.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871217.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871159.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870863.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870438.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869393.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869272.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869210.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869040.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869008.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868886.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556E5E59975AD0DACF8EA65C91776E3A6B795A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998550   (868395) от 20.03.2016
-
-Дорога в Гонконг / The Road to Hong Kong (1962) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарри Тёрнер и Честер Бэбкок — неудачливые актёры водевиля, постоянно находящиеся в поисках заработка. Судьба сталкивает их с Дианой — агентом секретной правительственной организации «3-й Эшелон», а потом со злодеями, которые хотят отправить на Луну ракету с оборудованием, которое поможет им покорить Землю.Производство: Великобритания, Melnor FilmsЖанр: Фантастика, КомедияРежиссер: Норман ПанамаАктеры: Бинг Кросби, Боб Хоуп, Джоан Коллинз, Роберт Морли, Уолтер Готелл, Феликс Эйлмер, Алан Гиффорд, Мишель Мок, Катя Дуглас, Роджер ДельгадоПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE72E198CF080450165BC90B0E66721EFD44D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996641   (868313) от 20.03.2016
-
-Док / «Doc» (1971) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868313.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о знаменитых героях Дикого Запада. В городке Тумстоун, штат Аризона, железной рукой порядок наводит грозный шериф Уайтт Эрп. С помощью друга, блестящего стрелка Дока Холлидэя, и своих братьев Эрп поддерживает в городе мир и покой.Производство: США, FP FilmsЖанр: ВестернРежиссер: Фрэнк ПерриАктеры: Стейси Кич, Фэй Данауэй, Харрис Юлин, Майкл Уитни, Денвер Джон Коллинз, Дэн Гринберг, Джон Скэнлон, Ричард МакКензи, Джон Боттомс, Филип ШаферПеревод: Многоголосый закадровый, профессиональный (НТВ+)Язык субтитров: английскийПродолжительность: 01:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67E254ABAD63148A2118CB3246CEC9A53AFB778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104992   (867450) от 22.02.2017
-
-Цветок кактуса / Cactus Flower (1969) WEB-DLRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джулиан Уинстон, смешной холостяк — дантист, который под влиянием жизненных обстоятельств попадает в различные комические ситуации. Уинстон встречается с головокружительной блондинкой Тони, обманывая её и говоря, что у него есть жена и трое детей. Но когда он узнает, что она пыталась совершить самоубийство из-за него, твердо обещает жениться на ней. Тони добивается (   Читать дальше...   )Производство: США   Columbia Pictures Corporation, Frankovich ProductionsЖанр: Мелодрама, КомедияРежиссер: Джин СэксАктеры: Уолтер Мэттау, Ингрид Бергман, Голди Хоун, Джек Уэстон, Рик Ленц, Вито Скотти, Ирен Херви, Ив Брюс, Ирвин Чарон, Мэттью СаксПеревод: Дублированный со вставками многоголосо, многоголосый закадровый, авторский одноголосый закадровыйЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EABDB2F665FC395ADF6B7AF43FE1E6AB489109
 ```
 
 https://mybot314.ru/tekegram_catalog/

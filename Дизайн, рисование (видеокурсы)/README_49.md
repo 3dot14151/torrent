@@ -1,3 +1,55 @@
+###  Публикация: 1420795   (331127) от 02.11.2020
+
+Jan Urschel | Процедурные ландшафты в Blender 2.80 / Procedural Landscapes in Blender 2.80 (2019) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Процедурные ландшафты. Никакого моделирования, никаких текстур изображений, никаких плагинов. Только Blender. Мы создадим три различных вида реалистичных ландшафтов только с помощью редактора шейдеров и движка рендеринга Cycles.Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86D9492E64299088D362BDC4F210F10C01044C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420796   (331045) от 02.11.2020
+
+Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Landscapes in Blender 2.82 (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте фантастические скалистые и природные ландшафты для ваших Sci-Fi и фэнтези сцен в Blender и Eevee. Работает для любого вида скальных форм. Никакого скульпинга!Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABD7D6A879E0A7B2AAFFAEF9556982701C53DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956021   (330823) от 13.11.2015
 
 Григорий Коченов, Дмитрий Демидовский | Адаптивный дизайн и разработка сайтов (2015) PCRec [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330823.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Flipped Normals | Creating a Full Character in Zbrush (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326032.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ VideoSmile, Михаил Бычков | Супер Cinema 4D Pro (2022) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326025.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325401.jpg" />
 </div>
 
 
@@ -118,7 +170,7 @@ Jan Urschel | Процедурные городские пейзажи в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321887.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ Jan Urschel | Погодные эффекты в Blender 2.81 / Weather Effects 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321780.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ Jan Urschel | Дизайн Sci-Fi окружения в Blender 2.82 / Sci-Fi En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321665.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ Gumroad, Pierrick Picaut| Фэнтезийная башня на скале - П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320303.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ Udemy, Nikolay Naydenov | Lobo - 3D character in Blender course (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320236.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ Jan Urschel | Движки рендеринга - Небольшой обзор 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319618.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ Jan Urschel | Улицы мегаполиса - Китбаш, дизайн и п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319442.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ Blender Cloud | Написание скриптов для художников 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318255.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ Blender Cloud | Фабрика существ 2 - Создание персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318241.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ Udemy, Mrawan Hussain | Создание Молота Тора в Blender 2.90 �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317287.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ Blender Cloud | Создание видеоэффектов в Blender: Трек
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315841.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ Wingfox, Nikolay Naydenov | Dragon Rider - Cartoon 3D Character Creation Course 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315838.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ Blender Cloud | Создание мультипликационного перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315830.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ Udemy, Mrawan Hussain | Создание маленького K-2SO робота
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315056.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314792.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ Blender Cloud | Создание игровых ассетов в Blender / Game
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313504.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ Blender Cloud | Моушн графика в Blender / Blender Motion Graphics (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313309.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ CG Fast Track | Полигональное моделирование в Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312725.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ Jan Urschel | Мегасити 01 - Моделирование и Рендери
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311313.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ CG Cookie | Генеративное Моделирование и Дизайн 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311307.jpg" />
 </div>
 
 
@@ -640,62 +692,6 @@ CG Cookie | Генеративное Моделирование и Дизайн 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8F0C4C697658BD8810568E31373E0CC6A227E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332718   (311301) от 21.10.2019
-
-Jan Urschel | Интерьерное освещение - Футуристичный коридор (Modo, Blender 2.8, OctaneRender, Photoshop) / Interior Lighting - Futuristic Corridor (2019) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерьеры космических кораблей являются основным продуктом научно-фантастических фильмов. Я расскажу о своем подходе к освещению и о том, какую роль оно играет в процессе проектирования с самого начала. В простых шагах я проведу вас от простой 3D модели до финального кинематографического кадра. Мы также посмотрим на новый бесплатный Octane 2019 для Blender 2.8!
- (   Читать дальше...   )Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40B7EBBEA45605A619567B4E03A333A5A831010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422421   (310236) от 08.11.2020
-
-Skillbox, Логомашина | Дизайнер логотипа и фирменного стиля (2020)
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы на практике освоите все этапы дизайна логотипа: научитесь брифовать клиентов и разрабатывать знаки, создавать гайдлайны и презентовать проекты. Сделаете крутой кейс для Behance и станете востребованным специалистом в сфере графического дизайна.
-Вас ждут онлайн-лекции и практические задания на основе реальных кейсов:
-Брифинг клиента: теория и практика
-Дизайнер (   Читать дальше...   )Жанр: ДизайнПродолжительность: 23:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6BFCDD67AFFC41637C4B2E42DA2BEC701AE1DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

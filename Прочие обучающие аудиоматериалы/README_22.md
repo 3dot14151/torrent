@@ -1,3 +1,83 @@
+###  Публикация: 1169577   (247567) от 15.06.2023
+
+Даниэль Канеман | Думай медленно… Решай быстро (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши действия и поступки определены нашими мыслями. Но всегда ли мы контролируем наше мышление? Нобелевский лауреат Даниэль Канеман объясняет, почему мы подчас совершаем нерациональные поступки и как мы принимаем неверные решения. У нас имеется две системы мышления. «Медленное» мышление включается, когда мы решаем задачу или выбираем товар в магазине. Обычно нам (   Читать дальше...   )Жанр: Саморазвитие, личностный рост, Социальная психологияПродолжительность: 14:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD5823E17E3DBCEC51C9567C0D0847D1382737A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833199   (246351) от 02.11.2025
+
+Лэс Гиблин | Принципы уверенного общения. Говори так, чтобы слушали, действуй так, чтобы уважали (2020) [PDF, MP3, Амир Рашидов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте гуру коммуникации и добивайтесь всего с помощью простых правил общения. Их автор, Лэс Гиблин, – признанный эксперт в области межличностного взаимодействия. Он провел более тысячи семинаров по коммуникационным навыкам и основал собственный Центр человеческих отношений. По всему миру было продано более миллиона экземпляров его книг.
+Прочитав эту книгу, вы узнаете, (   Читать дальше...   )Жанр: Зарубежная деловая литература, Зарубежная психологияИздательство: ЭксмоФормат: PDFПродолжительность: 05:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAE13A8D7725E8AA59395ACDDB4DE33246811A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833203   (246162) от 01.11.2025
+
+Джеймс Миллер | Еда и эволюция. История Homo Sapiens в тарелке (2019) [MP3, Павел Потапов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы едим по нескольку раз в день, мы изобретаем новые блюда и совершенствуем способы приготовления старых, мы изучаем кулинарное искусство и пробуем кухню других стран и континентов, но при этом даже не обращаем внимания на то, как тесно история еды связана с историей цивилизации. Кажется, что и нет никакой связи и у еды нет никакой истории.
+На самом деле история (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 12:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95172E935E5A96A8B0B9C284C5B34BFFB7AE9F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607807   (245985) от 28.01.2023
 
 Кларксон Уэнсли | Гиблое дело (2021) [MP3, Константин Романенко]
@@ -6,7 +86,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245985.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245788.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245771.jpg" />
 </div>
 
 
@@ -89,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245663.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245035.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244986.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244640.jpg" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244389.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243902.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243062.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242878.jpg" />
 </div>
 
 
@@ -301,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241585.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240869.jpg" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240804.jpg" />
 </div>
 
 
@@ -381,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240697.jpg" />
 </div>
 
 
@@ -409,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240492.jpg" />
 </div>
 
 
@@ -435,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240043.jpg" />
 </div>
 
 
@@ -462,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239739.jpg" />
 </div>
 
 
@@ -491,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238207.jpg" />
 </div>
 
 
@@ -518,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237911.jpg" />
 </div>
 
 
@@ -545,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237833.jpg" />
 </div>
 
 
@@ -571,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237658.jpg" />
 </div>
 
 
@@ -597,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237586.jpg" />
 </div>
 
 
@@ -609,85 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:851BDFF100081BE4C5B668CA0AE2F52C509A90AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640327   (237440) от 17.06.2023
-
-Пол Нёрс | Что такое жизнь? (2021) [MP3, Михаил Росляков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое жизнь? Вслед за Докинзом, Хокингом и Аттенборо выдающийся британский ученый, лауреат Нобелевской премии в области медицины и физиологии Пол Нёрс стремится ответить на один из самых важных вопросов науки. Доступно и понятно объясняя базовые процессы и явления, без которых жизнь была бы невозможна, он представляет в книге основополагающие идеи, рассказывая, (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 05:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83E066FE4CE18EC99623FE96D03BAB7B4D72BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627691   (237180) от 20.04.2023
-
-Владимир Бабенко | Лягушка на стене. Рассказы зоолога (2020) [MP3, Леонид Деркач]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги «Лягушка на стене» Владимир Бабенко, профессиональный зоолог, долго проработавший в МГУ им. М. В. Ломоносова (ныне преподает в МПГУ). Во время своих дальних командировок ему приходилось наблюдать самых разных животных. Однако эта книга посвящена не только лягушкам, птицам и зверям. В экспедициях зоологи встречаются также и с людьми — лесниками, егерями, (   Читать дальше...   )Жанр: Природа и животныеПродолжительность: 19:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93127425300AC7EAEEB2B740FB362353BC46E742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628109   (236929) от 21.04.2023
-
-Борис Абрамов | Грани Агни-Йоги 1958 (2020) [MP3, Вячеслав Герасимов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236929.jpg" />
-</div>
-
-
-###  Подробнее
-
-В аудиокнигу вошли ранее не публиковавшиеся Записи Бориса Николаевича Абрамова.
-Б.Н. Абрамов (1897–1972), проживший многие годы (1917-1959) за рубежом, в Харбине, был ближайшим учеником Николая Константиновича Рериха. Источник Записей и книг Учения Живой Этики – Един. Это подтверждала Елена Ивановна Рерих, в 40-е годы познакомившаяся с первыми Записями. Позже Борис (   Читать дальше...   )Жанр: МировоззрениеПродолжительность: 26:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0C22FC29B427AF506B03E50C1FFA68410144DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

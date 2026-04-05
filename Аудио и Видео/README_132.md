@@ -6,7 +6,7 @@ VA - Eternal Beauties (Lounge Sweethearts), Vol. 4 (2021) [AAC|~327 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663430.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663367.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Best of Maretimo Lounge Radio, Vol. 2 (2022) [AAC|~323 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663364.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Eternal Beauties (Lounge Sweethearts), Vol. 1 (2021) [AAC|~318 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663362.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663205.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663046.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663032.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662116.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662108.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662029.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662027.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661662.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Шансон 2022 года (Музыкальный хит-парад) (2022
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661277.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660878.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ LEGO супергерои DC: Лига справедливости против
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660822.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660325.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660260.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660258.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Charli XCX - CRASH (2022) [AAC|~312 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660172.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660170.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660164.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660163.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659722.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659603.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659594.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Halsey - Hopeless Fountain Kingdom (2017) Deluxe Explicit Edition [AAC|WEB-DL|25
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658801.jpg" />
 </div>
 
 

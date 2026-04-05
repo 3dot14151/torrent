@@ -6,7 +6,7 @@ Gerry Mulligan - The Gerry Mulligan Quartets In Concert (1957, 1962) 2001, Unive
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46185.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Ultimate Chilly Soothing Instrumentals for Rest, Study or Travel (2024) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46102.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Jazz & Blues Smooth Mix for Warm Summer Nights (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46091.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chet Baker - Stairway To The Stars (1965) 1996, Prestige [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46082.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Refreshing Soothing Easy Listening Tunes for Rest, Study or Travel (2024) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46078.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Magnificent Soothing Tunes for Relaxed and Happy Vacation Time (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46075.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Luxurious Instrumentals for Relaxed and Happy Vacation Time (2024) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46073.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Lao Tizer Band - Amplify (2024) [FLAC|Lossless|image + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43252.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Stan Getz - Compact Jazz: Stan Getz & Friends (1988) Verve [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43148.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Frank Sinatra - Night And Day (1996) Golden Stars [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42618.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Frank Sinatra - On The Air! - Love Me Or Leave Me (1997) QED Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42615.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Frank Sinatra - S'Wonderful (1996) Razamataz [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42510.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Frank Sinatra - Sensational Sinatra (1997) Penny [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42414.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Italian Restaurant Lounge Music (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42300.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Frank Sinatra & Tommy Dorsey - Love Songs (1940 - 1941) 1997, RCA Victor [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41889.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Phos Toni - Electro Swing Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41783.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Chick Corea - Priceless Jazz Collection (1986 - 1993) 1997, GRP [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41669.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Frank Sinatra - Everybody Loves Somebody (1939 - 1954) 2005, MCSA Entertainment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41664.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Joe Pass - The Best Of Joe Pass (1973 - 1982) 1991, Pablo [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41581.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Romantic Piano Music Masters - Jazz Music for Sex & Romance (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41174.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Art Tatum - Jewels In The Treasure Box (1953) 3CD, 2024, Resonance Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41158.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Marilyn Monroe - Deluxe: I Wanna Be Loved By You (2012) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40895.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Vintage Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40775.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Charles Lloyd - Forest Flower (1967) 2012, Atlantic [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40771.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Herb Ellis & Joe Pass - Two For The Road (1974) 1985, Pablo [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40769.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40768.jpg" />
 </div>
 
 

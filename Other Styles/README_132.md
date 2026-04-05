@@ -1,3 +1,61 @@
+###  Публикация: 1260276   (311837) от 07.11.2018
+
+VA - E-Energy vol. 1-16 (2014-2016) [MP3|320 Kbps] <Ambient, Chillout, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Brynskikh - Dreams (8:09)
+02. Aleksey Kovalenko - Morning Lounge (5:28)
+03. Amure - Right Back (6:38)
+04. Arcanacrux - Tron (4:42)(   Читать дальше...   )Жанр: Ambient, Chillout, Instrumental, New AgeПродолжительность: 25:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC79E4EE435AC286C6D89F35975F7E997B132AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260281   (311691) от 07.11.2018
+
+Евгений Алексеев - Piano Tribute to Гражданская Оборона (2018) [MP3|320 Kbps] <Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311691.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Все песни данного альбома (кроме бонус-трека) написаны Егором Летовым (1964-2008), легендарным российским рок-поэтом и музыкантом, основателем и лидером группы "Гражданская Оборона". Его песни знают и любят миллионы людей по всему бывшему СССР самых разных поколений и социальных групп. Это, скорее, редкое исключение, чем правило для России. Я уверен, что (   Читать дальше...   )1. Моя Оборона
+2. Со Скоростью Мира
+3. Всё Как У Людей
+4. Без Меня(   Читать дальше...   )Жанр: PianoПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9880F290AC523095BBF7FAE1A67E28A46634B03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332274   (311679) от 21.10.2019
 
 Laura Sullivan - Paris Enjoue (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
@@ -6,7 +64,7 @@ Laura Sullivan - Paris Enjoue (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311679.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311027.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310400.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310209.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Wayne Gratz - Spring Rain / Piano and Rainfall (2005) [FLAC|tracks+.cue]<New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310196.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310088.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309958.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309561.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309452.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309289.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308948.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308863.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308806.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308625.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307772.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Kathryn Louderback - Christmas Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307703.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307688.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307677.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307650.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307615.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307496.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307488.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307337.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307294.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96AB133D2C2A464069014FB5FC645D4C6C2415B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260596   (307293) от 09.11.2018
-
-Баян Mix - Танцы мира (2016) [MP3|320 Kbps] <Instrumental, Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чардаш (3:17)
-02. Болгарский танец (4:02)
-03. Сиртаки (3:49)
-04. Лезгинка (3:09)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4B4C3BA9A65F2923FA39AB4B1EE974DB7041BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260594   (307291) от 09.11.2018
-
-Баян Mix - Альбом №1 (2013) [MP3|320 Kbps] <Instrumental, Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карнавал (3:32)
-02. Рэд танго (3:02)
-03. Катя (2:53)
-04. Ты так далеко (4:51)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C4CDC835E86E32D38618BD2079B4147E3A3943
 ```
 
 https://mybot314.ru/tekegram_catalog/

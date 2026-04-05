@@ -6,7 +6,7 @@ ABBA - Дискография (1970-2007) 65CD [MP3|320] <PoP, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437547.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Celine Dion - A New Day Has Come (2002) [OGG Vorbis|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436188.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Linda Jo Rizzo - Greatest Hits & Remixes (2019) [OGG|485 Kbps] <Italo-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436123.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Steps - Step One (1998) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435994.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Das Beste aus der Starnacht (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435989.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Black Light Orchestra - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435870.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Schlager Für Alle 3 (2018) 3CD [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435849.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Actarus - Atlas Ufo Robot (1978) Reissue CD, Warner Strategic Marketing Italy, 2
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435030.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Inna - Hot (2009) [MP3|320 kbps]<Рop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434701.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Sandra - Mirrors (1986) [OGG Vorbis|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433946.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sandra - Into A Secret Land (1988) [OGG Vorbis|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433939.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Numero Uno - Uno (1985) LP [MP3|320 Kbps] <Electronic, Pop, Synth-pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433804.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Good Times 80s (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432601.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Lady Gaga - Joanne (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432057.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sandra - Close To Seven (1992) [OGG Vorbis|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431758.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sandra - Paintings In Yellow (1990) [OGG Vorbis|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431688.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430982.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Sandra - The Wheel Of Time (2002) [OGG Vorbis|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429757.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Sandra - Reflections (2006) [OGG Vorbis|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429755.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sandra - The Art Of Love (2007) [OGG Vorbis|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429754.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sandra - Back To Life (2009) [OGG Vorbis|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429749.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ The Flirts - Made In America (1984) [OGG Vorbis|485 Kbps] <Hi NRG, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429664.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428062.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Celine Dion - All The Way... A Decade Of Song (1999) [OGG Vorbis|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427513.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Dido - Still On My Mind (2019) [OGG|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427419.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Bravo Hits Jesień 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427409.jpg" />
 </div>
 
 

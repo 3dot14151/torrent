@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858443.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852460.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850316.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848190.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840633.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837840.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832550.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832396.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832290.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832211.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830203.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826014.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822460.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820654.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820599.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813212.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812799.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811364.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811331.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811228.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809584.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807709.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807463.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805769.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804004.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803958.jpg" />
 </div>
 
 

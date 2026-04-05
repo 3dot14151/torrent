@@ -1,32 +1,3 @@
-###  Публикация: 1731218   (52768) от 19.06.2024
-
-Foreigner & Styx - Renegades & Juke Box Heroes - Live (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feels Like The First Time (Live) [00:05:10]
-02. Cold As Ice (Live) [00:05:36]
-03. Waiting For A Girl Like You (Live) [00:05:40]
-04. Urgent (Live) [00:07:43](   Читать дальше...   )Жанр: RockПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5335A764F6A18E26CA50BF4427C0493BC2056E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 845272   (52732) от 20.06.2024
 
 Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24/192|image+.cue|Vinyl Rip]<Pop, Sound-Alike>
@@ -35,7 +6,7 @@ Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52732.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ The Rolling Stones - 12 X 5 (1964) Remastered, 2005, Abkco Music [FLAC 24/176.4|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52684.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Anthrax - Studio Albums (12 releases) (1983-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52614.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Dying Wish - Flesh Stays Together (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52288.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Michael Schenker Group - Don't Sell Your Soul (2025) earMUSIC [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52240.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Babbba - Cabaret Conversation (Vol 2) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52221.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52084.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52083.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51921.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51693.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51618.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Cold Wives - Self-Titled (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <noise-rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51604.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Guided By Voices - Strut Of Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51603.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ The Orbweavers - New Moon / Silver Moon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51601.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51599.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51598.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Hiatus Kaiyote - Love Heart Cheat Code (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51592.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Anastacia - Our Songs (2023) Gold Deluxe Edition, 2024, Stars by Edel [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51585.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51584.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51396.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Cher - Living Proof (2001) Deluxe Edition, 2024, Warner Music UK Limited [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51079.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Deep Purple - Lazy Sod (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51022.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ The Alan Parsons Project - Vulture Culture (1984) Remaster, 2024, Ariola [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50966.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Betty Harris - Soul Perfection (1969) Remastered, 2024, Sansu Records [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50465.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50260.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F367F64B06BAB6FB44ED0DDF90950454BF3DEF6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736388   (50249) от 12.07.2024
+
+Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Renaissance [1:39]
+02 - Habits [4:59]
+03 - Trouble [0:42]
+04 - Brand New Dance [3:27](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A55D24E1672F38DAF1511C7A53F08EAB3B86C45
 ```
 
 https://mybot314.ru/tekegram_catalog/

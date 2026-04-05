@@ -1,3 +1,30 @@
+###  Публикация: 944825   (437314) от 08.10.2015
+
+Ирина Калмыкова | Урок №9 " Волшебный лес" (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный урок создан для закрепления и отработки полученных знаний
+и механизмов обработки из прошлых уроков еще на одном примере.Жанр: Обработка фотоПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594A33D28D4F05AC1DBB16E179A32C6A9F03721C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944837   (437312) от 08.10.2015
 
 Ирина Калмыкова | Урок №11 (2015) PCRec [H.264/720p]
@@ -6,7 +33,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437312.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437310.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437308.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437296.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437141.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436987.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435804.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ Lynda.com | Trapcode Particular Essential Training [Sep 27, 2012] PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435694.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ NFP | Цикл вебинаров «Переход с 1С:УПП на 1С:ERP» 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435659.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ ITVDN | STL - стандартная библиотека шаблонов. Те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435648.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ Max Twain | Pro Retoucher Fatalism Start 2.0 (2019) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435640.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ ITVDN | SQL Essential (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435638.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435489.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ ITVDN | ASP.NET Core SignalR (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435488.jpg" />
 </div>
 
 
@@ -390,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435347.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ BodyRock | HIITMAX 8-14 (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434376.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ BodyRock | HIITMAX 1-7 (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434300.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ Ido Portal | The Floreio Project (2014) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434244.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ Jillian Michaels | Killer Buns and Thighs (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434211.jpg" />
 </div>
 
 
@@ -522,7 +549,7 @@ Allan McKay​ | FumeFX Essentials (2008) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433854.jpg" />
 </div>
 
 
@@ -548,7 +575,7 @@ CreativeLive.com | Съемка короткометражных докумен�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433616.jpg" />
 </div>
 
 
@@ -575,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433478.jpg" />
 </div>
 
 
@@ -602,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433308.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ ITVDN | Django Starter (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433298.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433289.jpg" />
 </div>
 
 
@@ -666,32 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B7D1338C1B51B8DB28BA3A795C9BAB9968B04B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410601   (433279) от 22.09.2020
-
-Gumroad, Pierrick Picaut | Искусство эффективного риггинга в Blender 2.80 / The Art Of Effective Rigging in Blender 2.80 (2019) PCRec [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Риггинг играет очень важную роль как в игровой, так и в киноиндустрии. Плохой риг может превратить создание анимации в настоящий кошмар, в то время как хороший риг может сэкономить вам много времени и позволить вам достичь большего с вашими персонажами и моделями. К сожалению, это часто обходят стороной, поскольку большинство 3D-художников быстро разочаровываются (   Читать дальше...   )Производство: GumroadЖанр: 3D моделирование, АнимацияЯзык озвучки: Русский, АнглийскийПродолжительность: 10:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B364F2CCB6CF02CDAAA808C3DA643552B92A6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

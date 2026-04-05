@@ -1,3 +1,55 @@
+###  Публикация: 1555390   (231203) от 04.06.2022
+
+Звёздный путь: Нижние палубы / Star Trek: Lower Decks (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) SDI Media
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока команды «Энтерпрайза» и «Дискавери» вершат судьбы вселенной, где-то на нижней палубе ничем не примечательного корабля «Серритос» своим ходом идет жизнь четырех младших офицеров. Энсин Маринер  — крутая девчонка, которая свободно владеет несколькими инопланетными языками, орудует клингонским мечом, разбирается во флоре и фауне многих миров, но нарушение устава (   Читать дальше...   )Производство: США / Paramount Animation, 219 Productions, CBS All Access, Roddenberry EntertainmentЖанр: Фантастика, боевик, приключения, комедияРежиссер: Джуно Джон Ли, Бэрри Дж. Келли и другие.Актеры: Тоуни Ньюсом, Джек Куэйд, Ноэль Кристи Уэллс, Юджин Кордеро, Доун Льюис, Джерри О’Коннелл, Фред Таташиор, Джиллиан Вигмэн, Джессика МакКенна, Пол Шир и другие.Перевод: Дублированный (SDI Media)Субтитры: РусскиеПродолжительность: ~ 00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51DAF12045B0E105548123B5BBA759EC253552E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582145   (230792) от 08.10.2022
+
+Эверест и невидимый город / Abominable and the Invisible City (2022) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) ColdFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повзрослевшая Лу вместе с друзьями и йети по имени Эверест спасает других необычных существ.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманПеревод: многоголосый любительский (ColdFilm)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CEAB130A9AE568E92171326A6F7268E371244B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553944   (230668) от 07.06.2022
 
 Отмена / Undone (2022) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8)  NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230668.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230318.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228360.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228061.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228039.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225610.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224236.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223623.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223420.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223073.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222953.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221216.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221214.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220969.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220419.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220396.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220271.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219787.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219721.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218477.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218340.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218314.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218091.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217272.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD0B44766F70CF938F9DB35AF7C4C48337E5B166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514272   (216630) от 03.12.2021
-
-Легенда о Корре / The Legend of Korra (2012-2014) BDRip [H.265/1080p] [10-bit] (сезон 1-4, серии 1-52 из 52) SDI Media, 2x2, SkyeFilmTV, Flux-Team
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается примерно через 70 лет после битвы аватара Аанга и Лорда Огня. Корра, уже овладевшая магией воды, земли и огня, должна обучиться последнему элементу — магии воздуха. В этом ей может помочь только сын Аанга и Катары — Тензин. Корра живёт в «Республиканском городе». Республиканский город — это место, где вместе живут люди всех наций. (   Читать дальше...   )Производство: США / Nickelodeon Animation StudiosЖанр: мультфильм, фэнтези, боевикРежиссер: Йен Грэхэм, Колин Хек, Хоаким Дос СантосАктеры: Джанет Вэрни, Джефф Беннетт, Ди Брэдли Бейкер, П.Дж. Бирн, Дэвид Фаустино, Дж.К. Симмонс, Сейшелл Гэбриел, Минди Стерлинг, Логан Уэллс, Кирнан Шипка и др.Перевод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA212E76EDF1E38274C9C098AB8B4E3A457B898D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235990   (216583) от 16.12.2018
-
-Герои в масках / Pj masks (2018) SATRip (сезон 2, серии 26 из ???) [обновляемая]
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательный мультсериал о юных супергероях. Три приятеля являются главными персонажами, они простые ребята, в руках которых оказались амулеты невероятной силы, они могут наделять своих обладателей чудесными способностями. Это звериные амулеты, кота, совы и ящерицы. Днем парни живут простыми жизнями, а по ночам они сражаются со злом, совершают подвиги и ради благих (   Читать дальше...   )Производство: ФранцияЖанр: Компьютерная анимацияРежиссер: Кристиан Де Вита, Мерли-Энн Ридли, Уилсон Дос Сантос.Перевод: Полный дубляж, вкл. песниСубтитры: отсутствуютПродолжительность: серия по ~ 00:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BE0AA2CC85B0C04A7EB9FCC5BD80842483223E
 ```
 
 https://mybot314.ru/tekegram_catalog/

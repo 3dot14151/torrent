@@ -1,3 +1,32 @@
+###  Публикация: 1192944   (262472) от 19.12.2017
+
+VA - 101 Drivetime (2017) 5CD [MP3|320 Kbps] <Rock, Pop Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01.  The Spencer Davis Group  -  Gimme Some Lovin'  2:59
+02.  Grace Jones  -  Pull Up To The Bumper  3:38
+03.  Simple Minds  -  Alive And Kicking  4:47(   Читать дальше...   )Жанр: Rock, Pop Rock, PopПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1EEC6A7E91A57D1976B23C2665F9E46B5B9831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193111   (262471) от 19.12.2017
 
 Василий К. - Песни для бузуки (2017) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262471.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262234.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262222.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262148.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262145.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262142.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262138.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262137.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Radiation Romeos - Radiation Romeos (2017) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262127.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Alannah Myles - Alannah Myles (1989) [FLAC|Lossless|image + .cue] <Rock, Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262110.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ AC/DC - Highway to Hell (1979) X-Cellent only for sale in CIS, 2003 [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262082.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ ViceVersa - The Electric Flame (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261823.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Chontaraz - Rondamauh (2017) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261810.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ When Nothing Remains - Echoes of Eternal Night (2025) [MP3|320 Kbps] <Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261710.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261707.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Bravelord - The Power From The End Of The World (2025) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261706.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Queen - Queen On Fire (Live At The Bowl) (2004) 2 x CD, SHM-CD, Reissue, 2024, E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261628.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Jethro Tull - Aqualung Live (Live 2004 - Remaster 2025) (2025) [FLAC 24/44.1|Los
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261620.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ When Nothing Remains - Echoes of Eternal Night (2025) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261594.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Brinsley Schwarz - Shouting At The Moon (2025) [FLAC 24/88.2|Lossless|WEB-DL|tra
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261572.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Sister - The Way We Fall (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261548.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Queen - Live At Wembley Stadium (1990) 2 x CD, SHM-CD, Reissue, 2024, EMI, Limit
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261487.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Satra - In Tears of Her Reign (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261475.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Midnite City - Bite The Bullet (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261353.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Sadistic Demise - Chainsaw Travelling Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261302.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Sadistic Demise - Chainsaw Travelling Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A70D185CEB00642586E4778B884B0D988FBF2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838759   (261299) от 24.11.2025
-
-Queen - Live Magic (1986) Japanese Edition, SHM-CD, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Vision
-02. Tie Your Mother Down
-03. Seven Seas of Rhye
-04. A Kind of Magic (full live version)(   Читать дальше...   )Жанр: Rock, Arena RockПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73653D7218B28D5B13DCD83F639A4D3C88F665B
 ```
 
 https://mybot314.ru/tekegram_catalog/

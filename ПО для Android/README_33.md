@@ -1,3 +1,108 @@
+###  Публикация: 1363331   (943626) от 27.02.2020
+
+Bini СУПЕР АЗБУКА v2.6.9.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте алфавит в игровой форме, где Вас ждут дошкольные развивающие игры для детей: Букварь, Учим буквы и звуки, Читаем по слогам! Азбука для детей 3 х лет в профессиональной озвучке - ребенок воспринимает на слух и визуально! «Супер Азбука для детей! Буквы! Алфавит для малышей» – это супервеселый способ выучить русский алфавит для самых маленьких. Читаем по (   Читать дальше...   )Тип издания: Пиратка (без рекламы, разблокированы все буквы)Релиз состоялся: 26.02.2020Разработчик: Bini BambiniПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A7086C4B2FCDA7640A11FB0B2F54EC3C8F2AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983431   (943618) от 06.02.2016
+
+Справочник здоровья v1.0 [Ru] - описание заболеваний, лекарств, симптомов, минералов и витаминов
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник будет полезен для тех людей, кто заботится о своем здоровье. В приложении Вы сможете найти подробное описание о 500-х видов заболеваний, 4000 лекарств, симптомов, минералов и витаминов.Тип издания: FreeРелиз состоялся: 01.02.2016Разработчик: rudroidПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543BCEA2278F8616B72C9FFEC6F84B8E30040CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363342   (943560) от 27.02.2020
+
+SMD компоненты v1.7.1 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943560.jpg" />
+</div>
+
+
+###  Подробнее
+
+290 000 smd кодов диодов, транзисторов, тиристоров, интегральных микросхем и др.Тип издания: AdFree (удалена реклама)Релиз состоялся: 08.04.2019Разработчик: Alex1001000RПоддерживаемая ОС: 4.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAD60F6489426EDE42A7FCBA964502E5E0983EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983526   (943265) от 06.02.2016
+
+Электробезопасность.Тест+. Pro v1.3.9 [Ru] - для проверки знаний норм и правил электробезопасности и подготовки персонала
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для проверки знаний норм и правил электробезопасности и подготовки к проверке знаний электротехнического (электротехнологического) персонала. У вас всегда «под рукой» ответы на самые основные вопросы электробезопасности, приложение поможет вам подготовиться к аттестации и укрепить знания.
+- 125 вопросов в теме - безопасность в электроустановках напряжением (   Читать дальше...   )Тип издания: FullРелиз состоялся: 11.01.2016Разработчик: YURIYBПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDA3CD417ADCC7F3C8CF11C8473DA1E722B2D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984779   (940433) от 29.02.2020
 
 ПУЭ-7 (2020) v2.3 [Ru] - мобильная версия ПРАВИЛ УСТРОЙСТВА ЭЛЕКТРОУСТАНОВОК седьмое издание
@@ -6,7 +111,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940433.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939706.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939571.jpg" />
 </div>
 
 
@@ -89,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939556.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ APK Extractor 4.1.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938391.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ Gallery Go by Google Photos v1.0.1.258899354 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937781.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937663.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937539.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934860.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ Olivia Drive Pro 2.7.8 - бортовой компьютер (OBD2/ELM327) [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934686.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933403.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933265.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ Cписок покупок v2.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933257.jpg" />
 </div>
 
 
@@ -355,7 +460,7 @@ Stepik v1.114 [Ru] - бесплатные онлайн-курсы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932965.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932316.jpg" />
 </div>
 
 
@@ -407,7 +512,7 @@ KitchenTimer 4.2.1 [Ru] - Кухонный таймер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931491.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930944.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ Paint Free 3.5.4 [Ru] - Рисовалка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930666.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ P4P 7 Minute Workout PRO 1.3.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930433.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ TinyCam Monitor PRO v14.2.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930272.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ Xcast.tv v1.4.0.4 [Ru/Multi] - трансляция на телевизор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929859.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ Blend Photo Editor Pro 2.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928925.jpg" />
 </div>
 
 
@@ -576,110 +681,6 @@ Blend Photo Editor Pro 2.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD9628D76618EFB3E9CA69BFD3E4EFE12A9B8840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365942   (927103) от 09.03.2020
-
-Pedometer - GPS Tracker v1.0 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927103.jpg" />
-</div>
-
-
-###  Подробнее
-
-При помощи приложения "Pedometer - GPS Tracker" вы сможете тренироваться с пользой и узнавать все о вашей активности. Простой и удобный шагомер без лишних наворотов, только самое необходимое.Тип издания: PremiumРелиз состоялся: 6.03.2020Разработчик: kotunAppsПоддерживаемая ОС: Android 7.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FCF5AC1D049272F792C9FA2B38939B8AF9A3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365866   (927023) от 09.03.2020
-
-VK mp3 mod v94/657 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927023.jpg" />
-</div>
-
-
-###  Подробнее
-
-VK mp3 mod - Уникальная модификация оригинального клиента VK. Здесь вы сможете изменить множество различных аспектов которые недоступны в оригинальном клиенте. Из самых любопытных функций стоит выделить такие как: определение возраста в профиле если скрыт, дата регистрации, уведомление об удалении вас из друзей, множество других функций и настраиваемых опций.Тип издания: MODРелиз состоялся: 24 февраля 2020 г.Разработчик: VK_MP3Поддерживаемая ОС: Android 2.3+Язык интерфейса: Русский, Английский, Испанский и т.д
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC79F08E6C18187A99D44DE2721A2260C4E779A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365896   (926624) от 09.03.2020
-
-Dr.Web v12.5.1 + Activation Key [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dr.Web на Android – скачать антивирус Dr.Web можно бесплатно, проведите полное сканирование всех программ и файлов в памяти смартфона, а так же на карте расширения памяти. Проверку можно провести как автоматически, так и в ручную, причем в ручную проверку, можно провести как в режиме быстрой проверки так и выборочном или полном. Вредоносные объекты антивирус поместит (   Читать дальше...   )Тип издания: Оригинал (Лицензионный ключ в комплекте)Релиз состоялся: 28.10.2019Разработчик: Doctor Web, LtdПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE58EE8BD24F76F262691921E950BA7FE5F6AF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366116   (925754) от 10.03.2020
-
-Files v1.0.1 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять всеми файлами и документами на вашем устройстве теперь легко и просто вместе с приложением "Файлы". Копируйте, редактируйте, переносите и делитесь со своими друзьями необходимой информацией. Всё просто, лаконично и без лишней мишуры.Тип издания: PremiumРелиз состоялся: 4.03.2020Разработчик: GoodwyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407AB97BBAFDEB8EBB0C9C6CBA06874013E7E9C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

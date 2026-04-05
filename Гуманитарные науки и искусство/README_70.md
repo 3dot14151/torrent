@@ -1,85 +1,3 @@
-###  Публикация: 1312562   (530962) от 05.07.2019
-
-Марксистское искусствознание и В. М. Фриче. Сборник статей и библиография (1931) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научная деятельность В. М. Фриче была необычайно плодотворной — исключительная эрудиция сочеталась в нем с изумительной творческой работоспособностью. Огромное литературное наследство оставлено им. Нужна напряженная работа целого научного коллектива, чтобы в полной мере усвоить это наследство, развить поставленные В. М. Фриче проблемы, систематизировать его многочисленные (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1129ED276A84A98E615A2F53191D2AF15CB4AAC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312721   (530730) от 05.07.2019
-
-В.И. Гуляев | Древние цивилизации Америки (2008) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто такие индейцы и откуда они пришли? Существовали ли в древности связи между Старым и Новым Светом и кто на самом деле открыл Америку?
-Один из крупнейших ученых-американистов В.И.Гуляев на основе археологического материала дает нам уникальную возможность проследить эволюцию "америндов" - американских индейцев, начиная с эпохи верхнего палеолита и кончая (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EACFA46753C96EB6C0E4678E035DD500242727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051665   (530586) от 12.09.2016
-
-В. П. Чертков и др. | О диалектическом материализме. Сборник статей (1953) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей представлен сборник статей "О диалектическом материализме", в котором изложены следующие темы:
-
-- Диалектический материализм - мировоззрение марксистско-ленинской партии;
-- Марксистская диалектика о взаимосвязи и взаимообусловленности явлений в природе и обществе;(   Читать дальше...   )Жанр: История, политология, экономика, философия, науковедениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0904B9FFDED61814C00BC772984E1E4D2D905E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312663   (530544) от 05.07.2019
 
 Дэвид Беллос | Что за рыбка в вашем ухе? Удивительные приключения перевода (2019) [PDF]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530544.jpg" />
 </div>
 
 
@@ -116,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529782.jpg" />
 </div>
 
 
@@ -144,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529690.jpg" />
 </div>
 
 
@@ -170,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529480.jpg" />
 </div>
 
 
@@ -196,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528695.jpg" />
 </div>
 
 
@@ -222,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528184.jpg" />
 </div>
 
 
@@ -248,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528182.jpg" />
 </div>
 
 
@@ -274,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528173.jpg" />
 </div>
 
 
@@ -300,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528060.jpg" />
 </div>
 
 
@@ -329,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527732.jpg" />
 </div>
 
 
@@ -355,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527365.jpg" />
 </div>
 
 
@@ -381,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527069.jpg" />
 </div>
 
 
@@ -409,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526122.jpg" />
 </div>
 
 
@@ -435,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526085.jpg" />
 </div>
 
 
@@ -461,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526048.jpg" />
 </div>
 
 
@@ -487,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526007.jpg" />
 </div>
 
 
@@ -513,7 +431,7 @@ C. Радхакришнан | Индийская философия [2 тома]
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524532.jpg" />
 </div>
 
 
@@ -539,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524506.jpg" />
 </div>
 
 
@@ -568,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524054.jpg" />
 </div>
 
 
@@ -594,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523860.jpg" />
 </div>
 
 
@@ -620,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523700.jpg" />
 </div>
 
 
@@ -646,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523666.jpg" />
 </div>
 
 
@@ -672,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522365.jpg" />
 </div>
 
 
@@ -685,6 +603,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D45EC2EDACD741B49EFE5F40C6AC50406F93447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240964   (521912) от 15.08.2018
+
+Юваль Ной Харари | Homo Deus. Краткая история будущего (2018) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521912.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей первой книге, ставшей всемирной сенсацией "Sapiens. Краткая история человечества", Юваль Харари рассказал, как Человек Разумный пришел к господству над нашей планетой. "Homo Deus" является своего рода продолжением темы - это попытка заглянуть в будущее. Что произойдет, когда Google и Facebook будут лучше, чем мы сами, знать наши вкусы, (   Читать дальше...   )Жанр: История, антропологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0A5A97C19AB0D02905F21D74D662C9114B100A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929191   (519614) от 19.08.2015
+
+М. Григорьев | Социалистический реализм в борьбе с модернизмом [Часть 1] (1965) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой первую часть учебного пособия о социалистическом реализме, в которой делается попытка конкретизировать существующее определение социалистического реализма как искусства, отражающего правду жизни в ее революционном развитии и ставящего целью коммунистическое воспитание людей. Здесь характеризуются магистральные темы социалистического (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096A061A8DF2164073F2B1BC03B8BEA7D51F5C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928937   (519601) от 19.08.2015
+
+А. О. Маковельский | Софисты [выпуск второй] (1941) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть перевода фрагментов софистов, сделанного А. О. Маковельским.Жанр: История, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A680A4D67DA3CE6A192935C8FAFB30E403C443B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1360246   (961936) от 14.02.2020
+
+Ганс Фаллада | Истории из Бедокурии (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие это истории? Всякие: простые и волшебные, весёлые и немножко грустные. О том, как однажды настал день шиворот-навыворот и что в этот день происходило. Как невезучая курица спасла от злой ведьмы прекрасную принцессу. И многие другие. Для младшего школьного возраста.Жанр: Детская литератураПродолжительность: 04:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3E8698A7ED1501DE7184455265DD01C9705BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360234   (961931) от 14.02.2020
 
 Джанни Родари | Волшебный барабан (1954) [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961931.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ VA - Планета хитов. Детям. Природа. (2006) [MP3|320 kbps
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960330.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Julio Kladniew - Babies Go Bach (2003) [MP3|192 kbps]<Классика для д
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960324.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960199.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ VA - 50 классических произведений для детей (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960109.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959168.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958415.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ VA - Колыбельные природы (2009) [FLAC|tracks]<Детская �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956689.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ VA - Детские песенки. Из мультфильмов и детск�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955254.jpg" />
 </div>
 
 
@@ -257,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955106.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953618.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ Laura Omloop - Wereld Vol Kleuren (2011) [MP3|192 кб/с]<POP (для дете�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952547.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Laura Omloop - KLAAR VOOR (2012) [MP3|~225 кб/с (V1)]<POP (для детей)
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952493.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Laura Omloop - Verliefd (2010) [MP3|320 кб/с]<POP (для детей)>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952327.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ VA - Детская супер дискотека (2011) [MP3|256 kbps]<Детс
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951762.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951646.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ VA - Поет Радионяня (2007) [FLAC|Lossless|tracks + .cue]<Детск
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950985.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ VA Детские песенки - Мои любимые песни (2007) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949436.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949319.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949094.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948308.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948220.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947332.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946061.jpg" />
 </div>
 
 
@@ -691,7 +717,7 @@ VA - Детский праздник. Поздравляем мам и пап! (
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945789.jpg" />
 </div>
 
 
@@ -706,32 +732,6 @@ VA - Детский праздник. Поздравляем мам и пап! (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71061E6B2FBA0895862ED2B06DCC7F6A90CDB751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625963   (945579) от 04.03.2013
-
-Редьярд Киплинг  | Маугли. Книги джунглей [2012] [MP3, Аркадий Бухмин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит полный текст самого знаменитого произведения великого английского писателя – прозаика и поэта, лауреата Нобелевской премии по литературе (1907) Джозефа Редьярда Киплинга. Маугли – рассказ о мальчике, которого воспитала стая волков. Это одно из самых умных произведений мировой литературы. Действие происходит на родине писателя в Индии. В сказочной, (   Читать дальше...   )Жанр: СказкаИздательство: ИДДК
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8198810D9FB2FB6FC51F5C5DBB6B16DB8814AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

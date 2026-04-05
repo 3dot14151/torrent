@@ -1,3 +1,55 @@
+###  Публикация: 1190380   (766478) от 19.03.2018
+
+Shadowhand (2017) [En] (1.06) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadowhand - приключенческая карточная ролевая стратегия с пошаговыми боями. Вам предстоит выбрать понравившегося персонажа и отправиться на дуэли с противниками. Соберите свою собственную мини-деку, экипируйте своего персонажа и отправьтесь раздавать люлей своим врагам.Тип издания: LicenseРазработчик: Grey Alien GamesЖанр: Ролевая игра, Стратегия, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7BA3ACA3846E1B00270EBEF4336B1879C774DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126194   (765929) от 17.04.2017
+
+Moonfall (2017) [Ru/Multi] (1.00) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moonfall это side-scrolling 2D action RPG в жанре Beat ’em up, оформленная вручную. Действие игры разворачивается в индустриально-готической вселенной Терра Нихил. В которой рассказывается история некогда маленькой Империи на пике ее славы, достигнутой с помощью таинственного элемента под названием Лунарий. И который спровоцировал волну нападений так называемых дикарей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Fishcow StudioЖанр: Action, RPG, Beat’em upЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE2903997458F979AED9DDA5ADE7E3B4CAD647B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219110   (764999) от 30.01.2019
 
 Tower of Time (2018) [Ru/Multi] (1.4.0) License CODEX
@@ -6,7 +58,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764999.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Ghost of a Tale (2018) [Ru/Multi] (6.39) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763859.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762758.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Ash of Gods: Redemption (2018) [Ru/Multi] (1.0.7) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762749.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Ni no Kuni II: Revenant Kingdom (2018) [Ru/Multi] (1.0/dlc) License CODEX [The P
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761021.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759457.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759368.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0/upd9/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756958.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752506.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751193.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.B258.R57446) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749379.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747583.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746432.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Victor Vran (2015) [Ru/Multi] (2.07.20190131/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746087.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Two Worlds - Epic Edition / Два Мира (2008) [Ru/Multi] (1.7) License PROP
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745926.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Crowntakers - Undead Undertakings (2015) [Ru/Multi] (1.0) SteamRip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744430.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Final Fantasy IX / Final Fantasy 9 (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744351.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Pharaonic (2016) [En/Es] (1.0 u1) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742922.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Kenshi (2018) [Ru/Multi] (1.0.50) Repack xatab (обновляемая)
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742354.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Darkwood (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741863.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru/Multi] (1.0.0.2/dlc) Repack R.G. Cataly
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741616.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740489.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Monster Hunter World: Iceborne (2020) [Ru/Multi] (1.0) License PARADOX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739633.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737676.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D29C313FD60B03E79BED31DF088CA825911DBF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528019   (735276) от 31.01.2022
-
-Bloody Spell (2022) [Multi] (1.0/dlc) License PLAZA
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloody Spell – это экшен слешер, который имеет ряд сходств с играми серии Dark Souls, поэтому любителям этих жанров она придется по вкусу. Сюжет игры повествует о мире, который был захвачен легионом Бездны. Главный герой со своей сестрой является членами школы боевых искусств, которая противостоит силам захватчиков. Сестра протагониста была похищена, поэтому нам (   Читать дальше...   )Тип издания: LicenseРазработчик: Yi Long GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD9A0429AF37D72416F981B1B3CF0A3C04043D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399097   (734104) от 29.07.2020
-
-Monster Hunter: World (2018) (14.00.00/dlc) [Ru/Multi] Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Hunter: World новейший выпуск популярной серии ролевых экшенов Monster Hunter, суммарные продажи которой насчитывают 40 миллионов копий, предлагает вам стать частью живой экосистемы и примерить на себя роль охотника, выслеживающего и уничтожающего свирепых чудовищ в напряженных битвах.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B5A7BF48F1A207DF605E2B239753E7B2874916
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1567107   (476490) от 01.08.2022
+
+All I Know - Vanity Kills (2008) Reissue, 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long (3:03)
+02. Bad Boy (2:43)
+03. Asphyxia (4:18)
+04. Rain (2010 Beau Hill Remix) (3:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE26A8B1EC3CCCCE4F121086EAA07B5B6ED5FF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547157   (476469) от 14.09.2012
 
 Bullet - Full Pull (2012) [MP3|320 кб/с]<Hard N' Heavy>
@@ -6,7 +35,7 @@ Bullet - Full Pull (2012) [MP3|320 кб/с]<Hard N' Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476469.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ DeVicious - Black Heart (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476413.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Pioneers - In A State Of Rock (1984) Reissue, Remastered, 2021, Norske Albumklas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476408.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Airplay - Airplay (1980) Reissue, Remastered, 2018, RCA, Japanese Edition [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476407.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Journey - Freedom (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Arena Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476401.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Ephel Duath - Phormula (2000) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476277.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Handful of Hate - You will bleed (2009) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476276.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Beastcraft - The Infernal Gospels of Primitive Devil Worship (2017) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476275.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Pyracanda - Thorns (1992) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476274.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Num Skull - Ritually Abused (1988) [FLAC|Lossless|image + .cue] <Thrash Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476272.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Moria Falls - 2 альбома (1995-1997) Discography [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476269.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ Dj Make Illusional a.k.a Project Oxid - 13 релизов (2004-2012) [MP3|320 �
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476183.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Vio-lence - 3 Albums (1988-1993) Discography, 4 CD, Reissues 1997, 2005 [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476178.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ David Coverdale - The Early Years: Whitesnake & Northwinds (2CD) (1976-77, Reiss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476154.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Die Apokalyptischen Reiter - Der Rote Reiter (2017) [MP3|320 Kbps] <Melodic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476055.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Simon Love - It Seemed Like A Good Idea At The Time (2015) [FLAC|tracks+.cue]<Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476023.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ Full Trunk - Time For Us To Move (2015) [MP3|320 кб/с]<Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475997.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Deep Purple - Machine Head (1972) Remastered /2011, KronStudioLab Int'l/ [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475893.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Blue Stahli - Antisleep Vol. 04 (2017) [MP3|320 Kbps] <Industrial Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475862.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ Metal Allegiance - Metal Allegiance (2015) [FLAC|Lossless|WEB-DL]<Thrash / Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475799.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475786.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ VA - Absolute Rock Classics (2001) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475785.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ Eskimo Callboy - The Scene (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475744.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ The Dead Weather - Dodge & Burn (2015) [MP3|320 кб/с]<Alternative Rock, Garag
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475671.jpg" />
 </div>
 
 
@@ -713,7 +742,7 @@ Milky Chance - Blossom (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475640.jpg" />
 </div>
 
 
@@ -727,35 +756,6 @@ Milky Chance - Blossom (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6755230D4FF190997E0C3B19F957060C88233D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939383   (475600) от 21.09.2015
-
-Martina Edoff - Unity (2015) [MP3|320 кб/с]<Melodic Hard Rock / Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unity
-02. Never Let You Down
-03. World Has Gone Mad
-04. Spirit Of Light(   Читать дальше...   )Жанр: Melodic Hard Rock / Melodic RockПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270260B4029E41C0D992167B4FA9C650605BEA65
 ```
 
 https://mybot314.ru/tekegram_catalog/

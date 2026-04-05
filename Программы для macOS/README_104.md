@@ -1,3 +1,56 @@
+###  Публикация: 951743   (360159) от 30.10.2015
+
+Bubble Translate 1.1 [En/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует множество способов перевести текст с одного языка на другой, но удобный только один.
+Приложение Bubble Translate справится с переводом на любой из более чем 90 языков мира быстро и без лишних действий. Достаточно только выделить текст, нажать сочетание клавиш и получить результат в виде переведенного текста и транслитерации в стильном, автоматически масштабируемом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 октября 2015Разработчик: Alex Artem'evПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCC20E0BA7ABB910457F02BFB57AA116968B3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417205   (360097) от 19.10.2020
+
+TunesKit Video Repair 1.0.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как исправить поврежденные видео файлы? TunesKit Video Repair - это именно то, что вам нужно. С помощью этого приложения вы можете легко восстановить любое поврежденное видео в три простых шага: добавить целевые поврежденные видеофайлы в TunesKit, нажать кнопку «Восстановить», чтобы начать исправление, просмотреть и экспортировать восстановленные файлы на свой компьютер.Тип издания: macOS SoftwareРелиз состоялся: 11.09.2020Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636D765FB980CB7E6C21860E9391A567BA1ECEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417272   (359975) от 19.10.2020
 
 Waves 11 Complete 11.0.60 [En]
@@ -6,7 +59,7 @@ Waves 11 Complete 11.0.60 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359975.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Waves 12 Complete v12.0.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359870.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Master of Typing - Мастер Печати 3: Практика v.3.3.14 (15.13
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359611.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Super Eraser Pro 2.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359033.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Tipard Mac Video Converter Ultimate 9.2.10 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359029.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Permute 2 v2.5.13 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358905.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Elmedia Player Pro 7.15 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358073.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Vector Magic Desktop Edition 1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357566.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ AppKiller 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357030.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ TotalFinder 1.14.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356666.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Vector Magic Desktop Edition 1.20 (+fix for macOS 10.12) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356222.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Records 1.5.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356115.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Weather Dock 3.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355787.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Ample Sound Ample PF v3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355733.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ GraphicConverter 11 v.11.6.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354822.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ Synkmark 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354819.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ KCNcrew Pack 09-15-22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354736.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Nova 9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354658.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ NCH VideoPad Video Editor Pro 12.04 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354493.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Lingon X 6.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354418.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ Elmedia Player GO 6.13 (1435) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354034.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ Readiris Pro 17.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354033.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Decibel 1.3.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353872.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ TrashMe 2.1.23 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353678.jpg" />
 </div>
 
 
@@ -633,62 +686,6 @@ TrashMe - утилита для удаления приложений, видж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7BB1503E362DEA5DE970E0DFA68BC1822710F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417776   (353675) от 22.10.2020
-
-Moneydance 2021 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер по личным финансам
-Moneydance - это простое в использовании программное обеспечение для личных финансов, в котором есть все необходимые функции: онлайн-банкинг и оплата счетов, управление счетами, составление бюджета и отслеживание инвестиций.
-Moneydance с легкостью справляется с несколькими валютами и практически с любыми финансовыми задачами.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2020Разработчик: The Infinite KindПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7541C7E0574E18EF18F63701D0C523C80A90BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256621   (353570) от 22.10.2018
-
-Magic Retouch Pro 4.3 - panel for Adobe Photoshop [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Retouch Pro - плагин для Photoshop, с которым вы можете сделать профессиональный уровень ретуши фотографий без каких-либо знаний о ретуши. Полная ретушь кожи и цифровое решение для макияжа. Плагин имеет все необходимые инструменты, чтобы сделать красоту ретуши прямо в Photoshop.
-
-Magic Retouch Pro, может быть использован в режиме панели плагина. Панель также (   Читать дальше...   )Тип издания: macOS / Windows SoftwareРелиз состоялся: 2018Разработчик: Intaglio Graphics & MultimediaПоддерживаемая ОС: OS X / WindowsЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A3D77F9D9C5288B3EF104A49560705E1524ED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

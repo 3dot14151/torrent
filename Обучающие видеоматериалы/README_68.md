@@ -1,3 +1,30 @@
+###  Публикация: 983637   (939545) от 08.02.2016
+
+Роман Кротов | Как парсить сайты (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939545.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом видеокурсе Вы в мельчайших подробностях, по шагам научитесь парсить любые сайты и зарабатывать на этом деньги. Этот курс рассчитан на тех, кто уже владеет основами программирования на PHP и хочет повысить свою квалификацию и заработать на продаже дополнительных услуг по парсингу сайтов.
+Курс начинается с теоретических основ и уже после них мы работаем над (   Читать дальше...   )Жанр: ПарсингПродолжительность: 05:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C6529990424B19479ED9CE7E1D71167514D4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983463   (937939) от 09.02.2016
 
 Максим Басманов, Алексей Кузьмичев | Волшебство зимних фотографий (2016) PCRec [H.264]
@@ -6,7 +33,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937939.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936356.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936131.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935862.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ Mike Donavanik | Extreme Burn 14 Day Challenge (2016) HDTVRip [H.264/720p-LQ] [E
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934851.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Nancy Hanson | Коллекция Джейн Фонда - тренировка �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_934814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_934814.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933404.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933118.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933117.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933006.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933004.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ javascript.ru | Интенсив по продвинутой разработк�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931644.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931589.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ OTUS | Алгоритмы для разработчиков (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931391.jpg" />
 </div>
 
 
@@ -393,7 +420,7 @@ OTUS | DevOps практики и инструменты (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931387.jpg" />
 </div>
 
 
@@ -421,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930396.jpg" />
 </div>
 
 
@@ -447,7 +474,7 @@ Jillian Michaels | 10 Minute Body Transformation (2016) HDTVRip [H.264/720p-LQ] 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930016.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929866.jpg" />
 </div>
 
 
@@ -499,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929825.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928691.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ Riccardo Fasoli и Kreativ Wedding | Свадебный воркшоп на ру
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928687.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ Lendwings | User Experience: детальное руководство по Юз
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928182.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ Side FX, John Lynch | Houdini 16 Ocean Tools (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927066.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ Side FX, Omar Zarifi | Houdini 17 Masterclass: Whitewater System (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927046.jpg" />
 </div>
 
 
@@ -660,7 +687,7 @@ Side FX, Andreas Glad | Splashmesh Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927040.jpg" />
 </div>
 
 
@@ -671,33 +698,6 @@ Side FX, Andreas Glad | Splashmesh Houdini for games (2017) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9152219B53C6B4636D065EAA55795830D48F1BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365727   (926887) от 09.03.2020
-
-Pluralsight.com | Синтаксис и операторы JavaScript / JavaScript Syntax and Operators (2019) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите различные структуры JavaScript, такие как Switch, For/in и For/of. Посмотрите, какие математические, логические и сравнительные операторы вы можете использовать. Узнайте о том, как обрабатывать исключения и работать с ключевым словом "this".
-Этот учебный курс будет полезен школьникам и студентам, которые хотят изучить JavaScript за короткое время.Производство: Pluralsight.comЖанр: Программирование, JavaScriptПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01B2C9ABC0718FAABFCE83DB324212049C2AB13
 ```
 
 https://mybot314.ru/tekegram_catalog/

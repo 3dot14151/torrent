@@ -1,83 +1,3 @@
-###  Публикация: 1206679   (780399) от 19.02.2018
-
-В.А. Внуков, Ц.М. Фейнберг (общ. ред.) | Судебная психиатрия: Учебник для юридических вузов (1936) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий учебник, составленный сотрудниками Научно-исследовательского института судебной психиатрии им. Сербского, рассчитан в основном на студентов правовых вузов. Кроме того учебник может служить пособием для студентов-медиков и врачей, работающих в области судебной психиатрии, так как основные вопросы судебной психиатрии в нем достаточно полно освещены. Студенты (   Читать дальше...   )Жанр: История, политология, правоведение, психиатрия, медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D69AB5BA43FBB40162844318B0DA1D23AD8556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207158   (780311) от 20.02.2018
-
-А.Л. Малицкий | Советское государственное право (1926) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа представляет собою собрание лекций по Советскому Конституционному Праву, курс которого читался автором в Харьковском Институте Народного Хозяйства на правовом факультете и в Харьковском Коммунистическом Университете имени тов. Артема в 1924—1925 академическом году.
-
-Лекции эти были в свое время, по предложению Юридического Издательства Народного (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC230AB067D2B6EAB44F0B63E27535D34BF0948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207719   (780291) от 20.02.2018
-
-А. Варьяш | Диалектика у Ленина (1928) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель предлагаемой читателю книжки — дать популярное и вместе с тем краткое изложение основ философии диалектического материализма, опираясь на сочинения Ленина. Автор полагает, что такого рода работа будет полезна тем, кто, не занимаясь специально философией, желает познакомиться с основными вопросами философии, и в первую очередь — философии диалектического материализма. (   Читать дальше...   )Жанр: История, политология, науковедение, философия, логика, словарьФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1E0A60DBC1C30E21B85FDE85E9051C78645474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207440   (780201) от 20.02.2018
 
 З. Фрейд | Тотем и табу. Психология первобытной культуры и религии (1923) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780201.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780190.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779686.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779683.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779679.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779673.jpg" />
 </div>
 
 
@@ -249,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779669.jpg" />
 </div>
 
 
@@ -277,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779656.jpg" />
 </div>
 
 
@@ -303,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779649.jpg" />
 </div>
 
 
@@ -329,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779609.jpg" />
 </div>
 
 
@@ -356,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779398.jpg" />
 </div>
 
 
@@ -382,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779356.jpg" />
 </div>
 
 
@@ -408,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779285.jpg" />
 </div>
 
 
@@ -434,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779267.jpg" />
 </div>
 
 
@@ -460,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779203.jpg" />
 </div>
 
 
@@ -486,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779199.jpg" />
 </div>
 
 
@@ -512,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778724.jpg" />
 </div>
 
 
@@ -538,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778714.jpg" />
 </div>
 
 
@@ -564,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778658.jpg" />
 </div>
 
 
@@ -590,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778382.jpg" />
 </div>
 
 
@@ -616,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778334.jpg" />
 </div>
 
 
@@ -642,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778329.jpg" />
 </div>
 
 
@@ -669,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778316.jpg" />
 </div>
 
 
@@ -680,6 +600,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB9FF936E4299686132937DB252FA82E434793CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210712   (778202) от 05.03.2018
+
+Я. Глан (сост.) | Хрестоматия по истории атеизма (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрестоматия будет служить, прежде всего, учебным пособием для тех тысяч безбожников, которые занимаются в антирелигиозных университетах и на антирелигиозных отделениях вузов. Хрестоматия явится настольной книгой и для всего актива СВБ.
+
+Разумеется, нельзя брать просто, без марксистской критики, атеистов прошлых веков. Ленин говорил в письме в редакцию «Под знаменем (   Читать дальше...   )Жанр: История, политология, науковедение, философия, религиоведение, хрестоматияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008945E5DFDA8DE32CDC57F365FDF69479926F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013150   (777934) от 03.05.2016
+
+А. Р. Лурия | Язык и сознание (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография представляет собой изложение курса лекций, прочитанных автором на факультете психологии Московского государственного университета.
+
+Автор рассматривает различные аспекты проблемы языка и сознания; дает анализ слова и понятия, речевой деятельности в ее различных формах; обращает внимание на мозговую организацию речевой деятельности, особенности нарушения (   Читать дальше...   )Жанр: История, философия, психология, лингвистика, нейропсихологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55803499D475872C49327E1CDDE49D3DED4EC371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013379   (777648) от 04.05.2016
+
+Ф. И. Гиренок | Ускользающее бытие (1994) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если бытие ускользает, то что остается? Вот вопрос, ответ на который составляет смысл данной книги. В ней прокладываются тропинки к бытию не со стороны присутствия (или отсутствия), а изнутри ускользания всякой определенности. В круге доопределений кружит человек, цивилизация, экология, наука.
+Книга предназначена для философов и тех, кто сознает бытие в модусе ускользающего (   Читать дальше...   )Жанр: ФилософияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79FE21E65A55DC1597B29A79301BDE2236D8B97
 ```
 
 https://mybot314.ru/tekegram_catalog/

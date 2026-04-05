@@ -1,3 +1,32 @@
+###  Публикация: 1639515   (232783) от 13.06.2023
+
+Voodoo Trees - Ego Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Garage, Bluesy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Dead? [00:05:41]
+02. The Woods [00:05:54]
+03. Tick Tock [00:04:49]
+04. Egolude [00:03:37](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Garage, BluesyПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2982CBB9A20B253A51CCC1EACC524EC2550437C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643353   (232781) от 01.07.2023
 
 Lift The Curse - Suffer And Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Alt.Rock>
@@ -6,7 +35,7 @@ Lift The Curse - Suffer And Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232781.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Crimson Chrysalis - Enraptured (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232780.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Legato Vibe - Legato Vibe (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232776.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ T.N.S. - Kronika 1992 - 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232769.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Chemicide - Common Sense (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232768.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Wasteland Haze - Welcome To Wasteland Haze (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232758.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hrothgar - Rise of Ragnarok (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232753.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Some Pills For Ayala - 5 Releases (2021-2023) [MP3|320 Kbps] <Heavy Psych, Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232750.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232747.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ L’Homme Absurde - Stranger (2023) [FLAC|Lossless|image + .cue] <Black Metal, B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232741.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Anbaric - Nervous System (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard rock, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232740.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Fresh Air - Fresh Air (1973) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232739.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Hrothgar - Rise of Ragnarok (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232733.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ MelloW - Полураспад (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232726.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Ockra - Gratitude (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232722.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Inmortalia - Alegorias (2023) [MP3|320 Kbps] <Gothic Metal, Female Vocals>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232721.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232713.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232707.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Distant Past - The Final Stage (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232703.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Obelos - Green Giant (2022) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232697.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Spiritus Mortis - Spiritus Mortis (2004) Firebox Records, Reissue 2010 [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232693.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Porke - Jagannatha (2015) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232686.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232685.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Membrance - Undead Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232683.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Moanhand - Present Serpent (2021) [MP3|320 Kbps] <Stoner-Metal, Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232680.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Moanhand - Present Serpent (2021) [MP3|320 Kbps] <Stoner-Metal, Doom-Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2500294BE6987575F7B1234290A266ABAFB3823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635045   (232676) от 24.05.2023
-
-Александр Барыкин - Лучшее для друзей (1981-1989) (1989) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Букет (3:37)
- 02. 20:00 (3:59)
- 03. Чудо-остров (4:33)
- 04. Девчонка (4:22)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA08B8B41DB4569559C7C3F52BC2F86826AA4A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

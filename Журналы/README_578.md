@@ -1,3 +1,134 @@
+###  Публикация: 484030   (88741) от 16.04.2012
+
+Журнал | Хозяин. Спецвыпуск №6. Постройки на участке [2011 июнь] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88741.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемом спецвыпуске вы найдете подробные варианты строительства наиболее простых и доступных, необходимых в каждом дворе хозяйственных построек: типы и конструкции погребов, бани и летнего душа, парников и теплиц, колодцев, гаража, животноводческих помещений, коптильни и дворовых каминов, туалета, бассейнов и декоративных решеток.2011 июньФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363B6C2294A73827B7A749A7B09C38C252D6EC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482334   (88238) от 13.04.2012
+
+Подборка | Статьи из журнала «Прорез» [FB2][MHTML] [2012]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка статей на ножевую тему (приобретение, использование, уход, заточка и т.д.) С подборку входят 55 статей из журнала "Прорез" и 34 статьи с сайтов "Ножи" и "Комбат".2012Формат: FB2, MHTML
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3552278A43EE2FEA6FFA8AB3882CF537CE5F34F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482386   (88195) от 13.04.2012
+
+Журнал | Chip [Украина] №5 (2012) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip — первый компьютерный журнал в Европе, сейчас он издается в 16 странах общим тиражом более 1 миллиона экземпляров.
+ ЖурналФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481332   (87790) от 11.04.2012
+
+Журнал | Cosmopolitan [Россия] №206 (Май 2012) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan – женский глянцевый журнал №1 в России. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo. Для своих постоянных читательниц журнал стал настоящей подругой, с которой можно поболтать о моде, косметике, отношениях, сексе и многом другом. СегодняФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121823839CC4BB6718F10BE9B55568117497B5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481535   (87713) от 11.04.2012
+
+Журнал | Детали мира №7 (9) [апрель 2012] [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный журнал «Детали мира», выходит раз в 2 недели. Всё самое интересное, что происходит в мире собрано в одном журнале!апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B30A677D6BE68FC6AF9956EC284E0558B178D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481198   (87575) от 10.04.2012
 
 Журнал | Men's Health [Россия] №5 (2012) [PDF]
@@ -6,7 +137,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87575.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87172.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86701.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86510.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86374.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86295.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86292.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86288.jpg" />
 </div>
 
 
@@ -218,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86276.jpg" />
 </div>
 
 
@@ -246,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86101.jpg" />
 </div>
 
 
@@ -273,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86078.jpg" />
 </div>
 
 
@@ -300,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85907.jpg" />
 </div>
 
 
@@ -326,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85661.jpg" />
 </div>
 
 
@@ -352,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85313.jpg" />
 </div>
 
 
@@ -387,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85291.jpg" />
 </div>
 
 
@@ -414,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85287.jpg" />
 </div>
 
 
@@ -445,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85266.jpg" />
 </div>
 
 
@@ -471,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85215.jpg" />
 </div>
 
 
@@ -497,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84930.jpg" />
 </div>
 
 
@@ -523,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84675.jpg" />
 </div>
 
 
@@ -549,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84669.jpg" />
 </div>
 
 
@@ -560,137 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D21FD0560A1875FF95AFCD1A4D2F80B2DF909476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473836   (84532) от 26.03.2012
-
-Журнал | Muscle & Fitness №1 [2012] [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Muscle & Fitness — самый авторитетный путеводитель в мире фитнеса. За 18 лет издания на российском рынке журнал снискал репутацию безупречного тренера и советчика в вопросах тренинга, здоровья и питания. Издание адресовано посетителям фитнес клубов и всем тем, кто всерьез хочет изменить свою фигуру.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD534F6DAA60945227121129FECE0724B09B77ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473801   (84520) от 26.03.2012
-
-Журнал | Playboy [South Africa] №4 (2012) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4990CFEF81AB5997A4F1527B55D908EA5FA75384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472683   (84115) от 24.03.2012
-
-Журнал | Revista Eden №41 [Март 2012] [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revista Eden - испанский мужской журнал с интересными фотосетами симпатичных девушек.Март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B337A12905BFCDFC0ECBC33B19F4B583EF5F499A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472857   (84108) от 24.03.2012
-
-Журнал | Playboy [Estonia] №10 (2011) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011BFC12EC9C6F16A426FF2737A56374326E1F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472950   (84073) от 24.03.2012
-
-Журнал | Лечим без лекарств №3 Панкреатит [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лечим без лекарств - панкреатит: причина заболевания, профилактика, лечение, личный опыт читателей.
-Перед применением необходимо проконсультироваться с врачем.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA00C7770D3423FE2AB266F1C4014C3CEAB69F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

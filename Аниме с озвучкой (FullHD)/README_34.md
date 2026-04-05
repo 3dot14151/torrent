@@ -1,3 +1,110 @@
+###  Публикация: 1753381   (103862) от 04.10.2024
+
+Переродившись в аристократа, я стану успешным благодаря навыку оценки [ТВ-1] | Tensei Kizoku, Kantei Skill de Nariagaru [2024, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно попаданцам в другой мир достаётся огромное богатство, высокое положение в обществе или, на худой конец, какая-нибудь полезная способность.
+Однако переродившемуся Арсу Ловенту с этим не повезло: хоть он и стал дворянином, но не слишком родовитым, а искусного владения мечом или великого таланта к магии ему не подвезли. К тому же страна, в которую его забросило, (   Читать дальше...   )Производство: Япония / Студия Studio MotherЖанр: приключения, фэнтезиРежиссер: Като ТакаоЯзык озвучки: Русский (AniLibria), (Anything Group), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745905   (100618) от 29.12.2024
+
+Ji Jia Shou Shen: Baolie Feiche 4 | Screechers Wild 4! | Дикие Скричеры 4! [2021, TV, 26 эп.] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перевод с Китайского от Яндекса:
+Под руководством воина космической энергии Чжансена два брата Фейлун и Цинфэн отправились в путешествие, чтобы решить энергетический кризис и экологические проблемы земли. В ходе своего приключения два брата встретили друзей со всего мира и двенадцать скоростных автомобилей. По мере того как приключение углублялось, Фейлун и другие (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияРежиссер: Лей ФанчанЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 26 эп. по 22 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505C7C9B227B072F85A02930EBBE7750C8687B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786521   (68608) от 29.03.2025
+
+Re-Main | Ре-Мейн [2021, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сразу после победы в национальных соревнованиях по водному поло на третьем году средней школы Киёмизу Минато в результате автомобильной аварии впал в кому. Проходит почти год, прежде чем Минато просыпается, но он не помнит все события средней школы! Теперь, будучи старшеклассником, ему предстоит начать всё сначала.
+Он пытается оставить спорт позади, но старое обещание (   Читать дальше...   )Производство: MAPPAЖанр: СпортПеревод: AniLibriaОзвучка: OriginalЯзык озвучки: Японский и РусскийСубтитры: Английские (Полные) и Русские (Полные и Надписи)Продолжительность: 12 эп. по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16F3E9177F43681E8BD62B56629B8AB664EEACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793894   (67417) от 27.04.2025
+
+Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seikatsu o Mankitsu Suru | 7th Time Loop | Седьмая беззаботная жизнь [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рише, дочь княжеской семьи, привыкла к перерождениям. Всё-таки она начинает свою жизнь заново уже в седьмой раз, и снова в момент расторжения помолвки с принцем. Рише успела побывать и торговкой, и служанкой, и рыцарем, поэтому теперь отчаянно желает отдыхать. Однако всё меняется, когда принц, убивший её в прошлой жизни, делает ей предложение! Чтобы предотвратить (   Читать дальше...   )Производство: Studio Kai, HornetsЖанр: романтика, фэнтезиРежиссер: Ивата КадзуяЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3597CDAEC372BAF30AB49E4AEE6DCE4727776EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793837   (67388) от 27.04.2025
 
 Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 из 10 эп.] BDRip 1080p raw+rus
@@ -6,7 +113,7 @@ Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67388.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67333.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66931.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65653.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65480.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65144.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64911.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62814.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62742.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62564.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62401.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62208.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62165.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62104.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62048.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | Zom 100: Bucket List of the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62045.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ Mato Seihei no Slave | Chained Soldier | Раб элитного корпуса 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61964.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61944.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61894.jpg" />
 </div>
 
 
@@ -504,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61890.jpg" />
 </div>
 
 
@@ -530,7 +637,7 @@ Triage X | Искусственный отбор [2015, TV, 10 из 10 + OVA] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61849.jpg" />
 </div>
 
 
@@ -556,7 +663,7 @@ Kekkon Yubiwa Monogatari | Легенда свадебных колец | Скa�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61783.jpg" />
 </div>
 
 
@@ -567,110 +674,6 @@ Kekkon Yubiwa Monogatari | Легенда свадебных колец | Скa�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27C7E4D5BC13102952DC1479ADB9EDD4461B5999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690603   (61651) от 27.03.2024
-
-Любовь с кончиков пальцев | Yubisaki to Renren | A Sign of Affection [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юки — самая обыкновенная студентка колледжа, лишь с той небольшой разницей, что она глуха. Языком жестов владеют не многие, и поэтому особенность девушки всегда была для неё преградой, ограничивавшей круг общения и возможностей. Но вот однажды она знакомится со старшекурсником Ицуоми, и её мир переворачивается с ног на голову. Его совершенно не смущает глухота девушки, (   Читать дальше...   )Производство: Япония / Студия Ajia-douЖанр: РомантикаРежиссер: Мурано ЮтаЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6031E2273D684C4D83A205705E2B3EB53CF6C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690336   (61577) от 28.03.2024
-
-Добро пожаловать в класс превосходства [ТВ-3] | Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 3rd Season | Classroom of the Elite III [2024, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Битва между классами закрытой школы "Кодо Икусей" продолжается! В новом сезоне нас ждёт ещё больше интересных испытаний, непримиримых противостояний, запутанных многоходовочек и захватывающих развязок. Нашим героям из класса "Ди" придётся сильно постараться, чтобы в следующем году заграбастать себе буковку попрестижнее. Каким бы гением ни был (   Читать дальше...   )Производство: Япония / Студия LercheЖанр: драма, повседневностьРежиссер: Киси СэйдзиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB37CDA4338717601B47DDCAAE7AD68ED433C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692489   (61555) от 28.03.2024
-
-Королева со скальпелем | Gekai Elise | Doctor Elise: The Royal Lady with the Lamp [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двойной исекай с уклоном в медицину заказывали? Нет? А он будет! И не сосчитать, сколько невинных людей Её Кровавое Величество Элиза де Клоранс погубила в своей прошлой жизни! Поэтому, переродившись, она решила, что теперь она будет их спасать. А как это сделать проще всего? Правильно, посвятить себя медицине. И вот так, работая не покладая рук, она становится первоклассным (   Читать дальше...   )Производство: Япония / Студия Maho FilmЖанр: Комедия, романтика, фэнтезиРежиссер: Хабара КумикоЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778A319DCBE1020B8EB9DC21F4D9470BDADCC572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692288   (61548) от 28.03.2024
-
-Досанко-гяру чудо как милы | Девчонки с Хоккайдо чудо как милы | Dosanko Gal wa Namara Menkoi | Hokkaido Gals Are Super Adorable! [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какой идеал девушки у ОЯШа здорового человека? Скромная, аккуратная отличница с длинными тёмными волосами! Вот и наш Цубаса, столичный паренёк, переехавший в маленький городок на Хоккайдо, постоянно себя в этом убеждает. Он ещё не подозревает, что однажды посреди белой морозной пустыни на одинокой остановке он увидит Её... Гяру... в опасно короткой юбке... без колготок... (   Читать дальше...   )Производство: Япония / Студия Silver Link, BladeЖанр: Комедия, романтика, повседневность.Режиссер: Минато МирайЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED0A54C10BC86DF44AEF8ED06E745FB01BA288F
 ```
 
 https://mybot314.ru/tekegram_catalog/

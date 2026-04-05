@@ -1,3 +1,134 @@
+###  Публикация: 1158489   (489793) от 17.08.2017
+
+Подшивка журнала | Сам [Россия] (2013-2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Сам» - уникальная энциклопедия творчества, умений и мастерства, одна из его главных задач - распространение технических знаний и умений среди населения, развитие технического творчества в домашних условиях и приобретение навыков решать проблемы по строительству, обустройству и ремонту всего, что находится в домашнем хозяйстве, своими силами и с наименьшими (   Читать дальше...   )Жанр: Строительство и ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B22D791C2CBC1CC0BF43644B4D1252E24F751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937129   (489736) от 14.09.2015
+
+Журнал | Playboy [Россия] №9 (Сентябрь 2015) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy (Плейбой) — имя, ставшее легендой. Популярнейший во всем мире глянцевый мужской журнал появился в России в 1995 году и очень быстро стал самым востребованным изданием в своей категории. Playboy охватывает очень широкий тематический спектр: самые красивые женщины мира, эффектные пикториалы и эксклюзивные съемки знаменитостей, яркие фоторепортажи со светских (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1253098B9E87F39739E5B2119A7E3DCA8F3DAED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544710   (489644) от 08.09.2012
+
+Журнал | АиФ. Спецвыпуск. Общество № 14 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начался новый учебный год. Кто-то отправится слушать первые в своей жизни студенческие лекции, кого-то ждёт последний школьный год перед поступлением, а кого-то мама за руку отведёт в первый класс.
+В этом спецвыпуске "АиФ. Общество" собраны самые актуальные вопросы родителей, взволнованных реформой системы образования. На них отвечают главные эксперты страны - чиновники из Министерства образования и науки, заслуженные педагоги, психологи и врачи. Отдельный раздел посвящён малышам и их родителям - то есть тем, кого волнуют проблемы детских садов. Предупреждён - значит вооружён!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806B99CC35F83E8026A86BFF1E56036DC4F3D340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544425   (489487) от 08.09.2012
+
+Журнал | АиФ. Спецвыпуск. Здоровье № 13 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489487.jpg" />
+</div>
+
+
+###  Подробнее
+
+С возрастом гипотоники превращаются в тяжелых гипертоников. Знаете? А высокое артериальное давление, если оно держится постоянно,  риводит к инсультам и инфарктам. Эксперты - ведущие российские врачи - дают советы, как держать давление в норме. Не только с помощью лекарств, но и с помощью изменения образа жизни и стиля питания. Как лечат юношескую гипертонию? Лишний вес и артериальное давление - как они связаны? Какие меры надо принять в первые же минуты, если у вашего ближнего случился гипертонический криз? Какие травяные сборы помогут снизить и давление, а какие - повысить?Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055093   (489355) от 21.09.2016
+
+Подшивка журналов | Машины и Механизмы (2006-2016) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489355.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Машины и Механизмы» — научно-популярный и познавательный журнал для людей с независимым мышлением, первый и единственный в Санкт-Петербурге. Научные исследования и теории, высокие технологии и загадки природы, история открытий прошлого и смелый взгляд в будущее человека и общества – «ММ» раскрывает на своих страницах внутренние механизмы даже самых сложных явлений. (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920F002A93884B32CFF38743FCCA7E6F161056C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053008   (489352) от 21.09.2016
 
 Журнал | Chip [Россия] №10 (октябрь 2016) [PDF]
@@ -6,7 +137,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489352.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488838.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488588.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488368.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488334.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488313.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488273.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488253.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488237.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488032.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488006.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487891.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487876.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487840.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487789.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487726.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486729.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486402.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486130.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486061.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486044.jpg" />
 </div>
 
 
@@ -539,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:240E8D684B49066455FA7779E4B72C6F5A3439AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821882   (485961) от 15.09.2014
-
-Журнал | Maxim [Россия] №10 (октябрь 2014) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Максим радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763FF8AB795C672729D1C9D3CB58DCF742B044E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937826   (485944) от 16.09.2015
-
-Газета | Сад, огород - кормилец и лекарь. Спецвыпуск №17 (113) (Сентябрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485944.jpg" />
-</div>
-
-
-###  Подробнее
-
-На страницах издания каждый найдет, как вырастить богатый урожай, обустроить дачный домик и участок, приготовить из дачных даров изысканные блюда. Журнал также раскрывает тайны народной медицины, рассказывает, как оставаться здоровыми с помощью природных лекарств.
-Этот выпуск посвящен одному из способов вегетативного размножения - приживлению почки или черенка нужного (   Читать дальше...   )Жанр: Дачно-садовый мирФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C0CFA8A2003199F8872080907EFD03A68E17DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937673   (485932) от 16.09.2015
-
-Журнал | Всё для женщины. Спецвыпуск. На нашей кухне №5 (сентябрь-октябрь 2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485932.jpg" />
-</div>
-
-
-###  Подробнее
-
-"На нашей кухне" - спецвыпуск журнала "Всё для женщины". В издании представлены лучшие рецепты, присланные в редакцию читателями от салатов, закусок, горячего до выпечки и десертов. На страницах выпуска опытные хозяйки проводят мастер-классы, делятся своими рецептами и секретами приготовления вкусных блюд.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89CB28B827179B6C3046C9B0B5CFF40EF359935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159229   (485796) от 19.08.2017
-
-Подшивка журналов | КИП и автоматика: обслуживание и ремонт (2014) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485796.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом номере: организация сервиса КИП и автоматики; создание автоматизированных систем управления, их программное и техническое обеспечение; комплексное управление технологическими и бизнес-процессами; новые разработки электронной аппаратуры; тестирование технологического оборудования; метрологическая экспертиза и технические характеристики приборов и аппаратуры. (   Читать дальше...   )Жанр: Автоматика, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A885A704291BFF174275234904A43109A84F410D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544955   (485256) от 10.09.2012
-
-Журнал | HWM (Singapore) [сентябрь 2012] [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "HWM" (известен также как "HardwareMag") предлагает обзоры электронных новинок в различных сферах. В текущем номере - тест спортивных гаджетов и сравнение 78 графических карт.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA699F7FB72FA6F4850D8C8FA96A5C10FFFC637B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1412190   (420134) от 28.09.2020
+
+Белая лилия / Howaito riri / White Lily (2016) BDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько лет назад муж известной керамистки Токико подобрал на улице девушку Харуку, которой некуда было пойти. Та стала учиться гончарному ремеслу, увлеклась этим и осталась жить в их студии. После смерти мужа Токико Харука клянется никогда не покидать свою наставницу, всегда быть рядом и исполнять все её просьбы.Производство: Япония, Django Film, NikkatsuЖанр: ДрамаРежиссер: Хидэо НакатаАктеры: Рин Асука, Каори Ямагути, Сёма Матий, Канако Нисикава, Итиро Миками, Юки Эномото, Мики Хаясида, Коко Ито, Таро Камакура, Хисако МацуямаПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DE434DDFD196E20220F14A39D68EE5F0FB5BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572695   (419317) от 28.08.2022
+
+Тройной перехват / Cheung wong ji wong / Triple Tap (2010) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпион по снайперской стрельбе Кен случайно становится свидетелем ограбления. Он видит полицейского, который удерживает заложника и убивает четырёх грабителей. Одному из грабителей удаётся скрыться, а полицейский остаётся в живых. Дело расследует Джерри Чан, которого Кен знает по соревнованиям по снайперской стрельбе. Кена оправдывают. Вскоре после этого на Кена (   Читать дальше...   )Производство: Гонконг, Bona Entertainment, Emperor Classic Films, Film Unlimited, Shanghai Media Group, Sil-Metropol Organization Ltd.Жанр: драма, боевик, детектив, триллерРежиссер: Дерек ИАктеры: Луис Ку, Дэниэл Ву, Чарлин Чой, Бинбин Ли, Чэпман То, Алекс Фун, Сует Лам, Эндрю Линь, Ау Хин-вай, Ка Леонг ЧанПеревод: профессиональный многоголосый (Матч!)Субтитры: английскиеПродолжительность: 01:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8898CD03D49E4C6441F1AC8B1D5F3FE9A26780C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412419   (418190) от 29.09.2020
 
 Сезон дождей / Re dai yu / Wet Season (2019) HDRip [DVO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418190.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418182.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417722.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416327.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415615.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415467.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415320.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414514.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413439.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413323.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412921.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412665.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411769.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411738.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410404.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409332.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408136.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408031.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406802.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406783.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406508.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405459.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394323.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390104.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2BD2CD481D6C436719F1E7DD381CC11796BABEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414233   (387578) от 07.10.2020
-
-Эврика / Eureka / Yurika (2000) HDTVRip [Rus Sub]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о нескольких отверженных: шофере автобуса, подозреваемом в совершении преступления, двух детях-сиротах, их кузене - случайном студенте. Судьба, однажды случайно соединившая героев в одной точке, сводит их вновь.Производство: Япония, DENTSU Music And Entertainment, Imagica Corp., J WorksЖанр: ДрамаРежиссер: Синдзи АоямаАктеры: Кодзи Якусё, Аои Миядзаки, Масару Миядзаки, Ёитиро Сайто, Саюри Кокусё, Кэн Мицуиси, Го Ридзю, Ютака Мацусигэ, Сансэй Сиоми, Кимиэ СингёдзиПеревод: ОтсутствуетСубтитры: Русские (arexibo) - отдельным файломПродолжительность: 03:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B26C55553CA9DC499E87A706B032D6D4A6A0940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574321   (387455) от 04.09.2022
-
-Над обрывом / Xuan ya zhi shang / Cliff Walkers (2021) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387455.jpg" />
-</div>
-
-
-###  Подробнее
-
-1930-е. Марионеточное государство Маньчжоу-го. Четыре коммунистических агента, прошедших подготовку в Советском Союзе, готовят спецоперацию. Они высаживаются в заснеженном лесу и разделяются по двое: первая группа обнаруживает, что их предали, и, убив шпионов, пускается в бега; вторая же попадает в сети правительственных агентов, даже об этом не догадываясь. Теперь (   Читать дальше...   )Производство: Китай, China Film Co., Ltd., Emperor Motion Pictures, Huaxia Film DistributionЖанр: драма, триллерРежиссер: Имоу ЧжанАктеры: Чжан И, Хэвэй Юй, Цинь Хайлу, Явэнь Чжу, Лю Хаоцюнь, Ни Дахун, Ли Найвэнь, Юй Айлэй, Цзяинь Лэй, Ша ИПеревод: любительский многоголосый (Head Pack Films)Субтитры: английскиеПродолжительность: 02:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8070BFF9F6558CF38F9D3D6C05802B8529DB7973
 ```
 
 https://mybot314.ru/tekegram_catalog/

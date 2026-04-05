@@ -1,3 +1,133 @@
+###  Публикация: 734556   (283343) от 14.12.2013
+
+Приключения мышонка / Rodencia y el Diente de la Princesa (2013) BDRemux [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в густых и широких лесах стояло прекрасное королевство Роденсия - место, где обитали удивительные создания и могущественные волшебники. Приключение, которое произойдёт здесь, расскажет нам о любви между неуклюжим учеником мага маленьким мышонком Эдамом и красивой и уверенной мышкой Бри, которым придётся преодолеть много опасных препятствий, для того (   Читать дальше...   )Производство: Red Post Studio, Instituto Nacional de Cine y Artes Audiovisuales (Перу, Аргентина)Жанр: мультфильм, семейныйРежиссер: Давид БисбаноПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25403205FB40619A24C97E6E8E54358046986A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 734260   (283255) от 14.12.2013
+
+Приключения мышонка / Rodencia y el Diente de la Princesa (2013) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в густых и широких лесах стояло прекрасное королевство Роденсия — место, где обитали удивительные создания и могущественные волшебники. Приключение, которое произойдёт здесь, расскажет нам о любви между неуклюжим учеником мага маленьким мышонком Эдамом и красивой и уверенной мышкой Бри, которым придётся преодолеть много опасных препятствий, для того (   Читать дальше...   )Жанр: Мультфильм, семейныйРежиссер: Давид БисбаноАктеры: Эрнан Браво, Наталия Росминати, Рикардо Эланис, Энрике Порсейана, Серджо Бермехо, Освальдо Салас, Гонсало Уртисбереа, Марсело Чиринос, Хосе Луис Пертикарини, Мария Елена МолинаПеревод: Дублированный (Лицензия)Продолжительность: 01:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7BB3E25D0AED955C07DA3A307BD821DB7FACFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 734358   (283252) от 14.12.2013
+
+Спасти Санту / Saving Santa (2013) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эльф Бернард — очень мил, весел, и… слегка несерьёзен. Но ему придется измениться, ведь у него впереди потрясающее и очень опасное приключение! Кто-то собирается похитить Санту и его волшебные сани, в которых можно перемещаться в разные эпохи. А без Санты Новый год никогда не наступит! Бернарду придётся переместиться во времени, сразиться со злодеем, остановить его (   Читать дальше...   )Производство: Великобритания | Gateway Films, Prana Animation Studios, Prana StudiosЖанр: Mультфильм, Мьюзикл, Комедия, СемейныйРежиссер: Леон Джусен, Аарон СилманПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored), Немецкий (Forced)Продолжительность: 01:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253BDDDFBC26B8F54CC6026CA47708355F14AA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 734255   (283251) от 14.12.2013
+
+Спасти Санту / Saving Santa (2013) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эльф Бернард — очень мил, весел, и… слегка несерьёзен. Но ему придется измениться, ведь у него впереди потрясающее и очень опасное приключение! Кто-то собирается похитить Санту и его волшебные сани, в которых можно перемещаться в разные эпохи. А без Санты Новый год никогда не наступит! Бернарду придётся переместиться во времени, сразиться со злодеем, остановить его (   Читать дальше...   )Производство: Великобритания | Gateway Films, Prana Animation Studios, Prana StudiosЖанр: Mультфильм, Мьюзикл, Комедия, СемейныйРежиссер: Леон Джусен, Аарон СилманПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, НемецкийПродолжительность: 01:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DBA5F4A64DC99F39C8F79FE66EBD363AB60683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 734531   (283238) от 14.12.2013
+
+Индюки: Назад в будущее / Free Birds (2013) BDRemux [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индюк Реджи вырос на обычной ферме, его жизнь была скучной и однообразной, как и у других птиц. Однако он отличался от сородичей тем, что умел пользоваться смекалкой и понимал, зачем его кормят. Поедание индейки на День Благодарения - знаменитая американская традиция, которая определяет смысл существования всех индюков на этой ферме. Однажды у Реджи появилась возможность (   Читать дальше...   )Производство: Reel FX Creative Studios, Relativity Media (США)Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Джимми ХейуордПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 1:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D60A3C5E31725576D970A5932AAA8E814ED5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 734280   (283234) от 14.12.2013
 
 Приключения мышонка / Rodencia y el Diente de la Princesa (2013) DVDRip [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283234.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283219.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283208.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283204.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282651.jpg" />
 </div>
 
 
@@ -139,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282644.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282476.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282154.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282057.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281892.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281800.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281757.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281741.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281627.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281626.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281585.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281443.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281380.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281015.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280674.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280473.jpg" />
 </div>
 
 
@@ -542,137 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1E04FE9B5AE9B15AF6B8168A3250A559D3DD3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964652   (280470) от 12.12.2015
-
-Мульт утро. Выпуск 6 (2015.12.05) HDTVRip
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте каждую субботу с любимыми героями! "Маша и Медведь", "Фиксики", "Лунтик и его друзья", "Барбоскины", "Аркадий Паровозов спешит на помощь" и другие мультфильмы – на телеканале "Россия HD".Телекомпания: Россия HDЖанр: Мультсериал, компьютерная анимация, сказка, детский, семейныйПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B70BF6B7D8423AFB2BA378DD1505C16AA44C050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335441   (280330) от 06.11.2019
-
-Эллиот / Elliot the Littlest Reindeer (2018) BDRip [H.265/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь: Эллиот — маленькая лошадка с большой мечтой. Ему так хочется занять место одного из северных оленей в упряжке Санты и дарить детям радость! У него есть всего 3 дня, чтобы доказать окружающим, что он достоин стать одним из них, даже если рогами не вышел! Ведь если чего-то хочешь по-настоящему, то чудеса случаются непременно!Производство: Канада, Awesometown Entertainment,Double Dutch International,Elgin Road ProductionsЖанр: Мультфильм, СемейныйРежиссер: Дженнифер ВесткоттПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957C14BA9D543E9D4F31511C1FE591F7CF6DC19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335439   (280329) от 06.11.2019
-
-Эллиот / Elliot the Littlest Reindeer (2018) BDRip [H.265] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь: Эллиот — маленькая лошадка с большой мечтой. Ему так хочется занять место одного из северных оленей в упряжке Санты и дарить детям радость! У него есть всего 3 дня, чтобы доказать окружающим, что он достоин стать одним из них, даже если рогами не вышел! Ведь если чего-то хочешь по-настоящему, то чудеса случаются непременно!Производство: Канада, Awesometown Entertainment,Double Dutch International,Elgin Road ProductionsЖанр: Мультфильм, СемейныйРежиссер: Дженнифер ВесткоттПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450A99850E99328C72FAA03624AA5CA7B41368A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336234   (280320) от 06.11.2019
-
-Лига Справедливости против Смертоносной Пятерки / Justice League vs. The Fatal Five (2019) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной мультфильм линейки «DC Universe Animated Original Movies».
-Лиге придется столкнуться с новой командой суперзлодеев, путешествующих во времени, которая прибывает в Метрополис в поисках Джессики Круз, начинающего Зеленого Фонаря. Лига Справедливости была создана после того, как главные супергерои Америки поняли, что будет куда эффективнее, если они будут (   Читать дальше...   )Производство: США, Warner Bros. Animation, DC ComicsЖанр: Рисованная анимация, ПриключенияРежиссер: Сэм ЛьюПерсонажи: Супермен, Бэтмен, Чудо-женщина, Зелёный Фонарь, СтарбойПеревод: Многоголосый закадровый (Flarrow Films)Субтитры: Русский, АнглийскийПродолжительность: 01:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE95FF3AD54821CB9274A89A370AEA3157119F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187402   (280285) от 28.11.2017
-
-Мир Винкс / World of Winx (2016) WEBRip [H.264/1080p-LQ] (Сезон 1, 13 серий из 13) [UKR, EN]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280285.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету спин-оффа Винкс отправляются на Землю в поисках талантливых детей, чтобы помочь им развить волшебство своих талантов. Для этого они создают реалити-шоу под названием WoW и работают в нём судьями, скрывая свои настоящие личности. Во время своей миссии девушки сталкиваются с неизвестным преступником, который похищает талантливых детей, и Винкс пытаются его (   Читать дальше...   )Производство: Италия, США, Rainbow, NetflixЖанр: Детский, Приключения, МузыкальныйРежиссер: Иджинио СтраффиПеревод: ОтсутствуетЯзык озвучки: украинский (закадровый ТК ТЕТ), английскийСубтитры: английские, испанские, французские, китайский упрощенный, китайский традиционный.Продолжительность: 00:24:20 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049A730331C3E8F02341644119F8597EEDE280F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

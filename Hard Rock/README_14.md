@@ -1,3 +1,32 @@
+###  Публикация: 911017   (620670) от 21.06.2015
+
+Negative Self - Negative Self (2015) [MP3|320 кб/с]<Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620670.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Back On Track
+2. Another Year
+3. Self-destruct...The Pain Never Ends
+4. Dancing With The Dead(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F1589138D73FAE6D50B12AC670B4FB7628779F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911041   (620668) от 21.06.2015
 
 Count Markus Cross - Possessed (2015) [MP3|320 кб/с]<Progressive, Hard & Heavy>
@@ -6,7 +35,7 @@ Count Markus Cross - Possessed (2015) [MP3|320 кб/с]<Progressive, Hard & Heav
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620668.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Agony - Dirty And Dangerous (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620524.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ten - Gothica (2017) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619796.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Skymera - Skymera (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616661.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Fogg - High Testament (2015) [MP3|320 кб/с]<Psychedelic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616426.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Syrym - Syrym (2015) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616330.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Gasoline Outlaws - No Rules, No Laws, No Regrets (2015) [MP3|320 кб/с]<Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616328.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Tikahiri - Son of Sun (2015) [MP3|320 кб/с]<Hard Rock, Rock-n-Roll>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616324.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Estrella - We Will Go On (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616319.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ ZamTrip - King's Game (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616315.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Prophets Of Addiction - Reunite The Sinners (2015) [MP3|320 кб/с]<Glam Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616303.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Rival Sons - Rock 'N' Roll Excerpts Vol.1 (2014) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613873.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Wilson - Right To Rise (2015) [MP3|320 кб/с]<Hard Rock, Southern Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612802.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ronnie Montrose - Дискография (24 альбома)(Montrose,Gamma,Solo
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612588.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ D2UR - Tic Toc (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611205.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Sunstorm - The Road To Hell (2018) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610435.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Five Horse Johnson - Jake Leg Boogie (2017) [MP3|320 Kbps] <Hard Rock, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609389.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Don Barnes - Ride The Storm (2017) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609387.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ The Human Instinct - The Hustler (1974) Remastered, 2010, Zodiac Records L.t.d.[
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604837.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Hardline - Life (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604061.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ American Bombshell - Tattooed N' Bruised (2019) [MP3|320 Kbps] <Hard Rock , Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603585.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Barons Court - A Descent Into Madness (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603425.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ VA - The Many Faces Of Alice Cooper: A Journey Through The Inner World Of Alice 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602643.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Niva - Relievin' Rain (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601288.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Lionsheart - Lionsheart (1992) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600421.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Lionsheart - Lionsheart (1992) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8FB988855A70723FEB98D184F3FAB8E4D1200A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914148   (600359) от 01.07.2015
-
-John West - Earth Maker (2002) [MP3|320 кб/с]<Melodic Progressive, Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Of The Beast (6:38)
-02. When Worlds Collide (5:03)
-03. Sleep Of The Dead (3:31)
-04. Stand Sentinel (7:45)(   Читать дальше...   )Жанр: Melodic Progressive, Heavy Metal, Hard RockПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85284BFD4A84D7FE0C7449E8D053264FCF4A7FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

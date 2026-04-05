@@ -6,7 +6,7 @@ JetBrains RubyMine 2017.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811607.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HazeOver 1.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810478.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aimersoft Video Suite 12.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810468.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sync Folders Pro 4.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810465.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810432.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Together 3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810289.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Invisor - Media File Inspector 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810259.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Photos Exif Editor 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810254.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ A Better Finder Rename 10.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810252.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Disk Drill Enterprise 4.4.369 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810211.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ goPanel 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810179.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ WiFiSpoof 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810159.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ iMazing 1.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810158.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810109.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Canary Mail 1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809993.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Downie 2.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809467.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DupeZap 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809463.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ WiFiSpoof 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809456.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VMware Fusion Pro 10.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809399.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Macsome iTunes Converter 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809298.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Mirror for Sony TV 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809281.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ PhoneRescue 3.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809280.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ WiFi Explorer 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809044.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Aurora HDR 2017 v1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808804.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ CrossOver 16.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808654.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Feeder 4 v4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808496.jpg" />
 </div>
 
 

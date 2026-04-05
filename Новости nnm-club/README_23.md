@@ -1,3 +1,29 @@
+###  Публикация: 164330   (978494) от 13.01.2010
+
+Faust: The Seven Games of the Soul / Фауст: Семь ловушек для души [Ru] (L) 1999
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра повествует о некогда процветающем, а ныне заброшенном парке развлечений "Мир Грез", в таинственных событиях прошлого которого игроку необходимо разобраться. Игрок управляет Марселем Фаустом — престарелым чернокожим мужчиной, потерявшим память. По мере развития сюжета открывается прошлое не только жителей парка развлечений, но и самого Марселя.Тип издания: ЛицензияЖанр: Adventure/QuestЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356280   (978447) от 30.01.2020
 
 Kali Linux 2020.1 (ex. BackTrack) [Аудит безопасности, хакинг] [amd64, i386] 4xDVD+2CD
@@ -6,7 +32,7 @@ Kali Linux 2020.1 (ex. BackTrack) [Аудит безопасности, хаки
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978447.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978364.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Microsoft Security Essentials 4.2.216.0 Prerelease [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978329.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Origin Pro 9.0 SR1 b76 [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978252.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ Sony Vegas Pro 10.0e Build 737 Portable by punsh [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978249.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977586.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977578.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2015.12 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977576.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Atnsoft Key Manager 1.11.0.350 RePack + Portable by Vnvvnv [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977575.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977537.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977501.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977324.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977321.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977319.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977196.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977192.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977088.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ XCOM: Enemy Unknown [Ru/En] (Steam-Rip/1.0.0.20072/2 DLC) 2012 | R.G. Игром
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_977087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_977087.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977085.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ Stubbs the Zombie in Rebel Without a Pulse [Ru/En] (Repack) 2005 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977083.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977079.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976607.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ Adobe Photoshop Elements 14.1 x86-x64 Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976418.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976337.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ Call of Duty: Black Ops III (2015) [Ru/En] (100.0.0.0.0.0/dlc) SteamRip =nemos= 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976168.jpg" />
 </div>
 
 
@@ -668,36 +694,6 @@ Call of Duty: Black Ops III - это продолжение популярной
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9EBEEE9A823F25685116A73399578D171E38CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498694   (975720) от 09.02.2013
-
-Тайны мира с Анной Чапман (29 выпусков) (2012-2013) SATRip [обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный проект Анны Чапман на РЕН ТВ полностью меняет свой формат!
-
-Самая загадочная ведущая на нашем телевидении и новый цикл документальных расследований! В новом сезоне программа будет посвящена исследованиям связей между фактами, которых на первый взгляд не существует – медицинский шпионаж, тайны белых халатов, технологии сексуально-политического скандала, любовь как причина военных конфликтов, а также самый таинственный заговор 21 века. Неизвестные подробности громких политических дел. Вся правда без цензуры.
-
-Анна Чапман раскроет самые громкие тайны нашего времени!Жанр: ДокументальныйПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

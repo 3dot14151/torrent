@@ -1,3 +1,133 @@
+###  Публикация: 1354124   (989768) от 20.01.2020
+
+Разные колеса (1960) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудолюбивые и изобретательные жители теремка — петушок, ёжик, лягушка и мушка — нашли в лесу брошенную медведем телегу с разными колёсами и сделали из этих колёс много полезных вещей.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Леонид АмальрикАктеры: Георгий Вицин, М. Тархова, Юрий Хржановский, Елена Понсова, Иван ЛюбезновСубтитры: ОтсутствуютПродолжительность: 00:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4189F2049DD123596A5FD696BAFB0CB828837469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354026   (989759) от 20.01.2020
+
+Серебряное копытце (1977) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка про то, как старик Кокованя взял к себе девочку-сиротку, и вместе в лесу они увидели необыкновенного козлика. — Тот козел особенный. У него на правой передней ноге серебряное копытце. В каком месте топнет этим копытцем — там и появится дорогой камень. Раз топнет — один камень, два топнет — два камня, а где ножкой бить станет — там груда дорогих камней.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Геннадий СокольскийСубтитры: ОтсутствуютПродолжительность: 00:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7C3F9420D44959276164AFD9584C8208E54BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354119   (989730) от 20.01.2020
+
+Дед Мороз и лето (1969) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989730.jpg" />
+</div>
+
+
+###  Подробнее
+
+О том, как дети показали Деду Морозу бабочек, зеленую траву, словом, лето.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимация, семейныйРежиссер: Валентин КараваевАктеры: Евгений Весник, Клара Румянова, Евгений Шутов, Зинаида Нарышкина, Мария Виноградова, Маргарита КорабельниковаСубтитры: ОтсутствуютПродолжительность: 00:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975FE9F24B87DFAC5C484FDCDAC1A16302684C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610790   (989148) от 30.01.2013
+
+В поисках Жу / Quest for Zhu (2011) [H.264] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательный рассказ о четырех молодых хомячках, которые отправляются на поиски, чтобы найти Дворец Жу, где они полагают - все их мечты сбудутся.Жанр: Мультфильм, детскийРежиссер: Боб ДусеттеПерсонажи: Кэтлин Барр (Mazhula, озвучка), Шон Кэмпбелл (Chunk, озвучка), Шеннон Чан-Кент (Pipsqueak, озвучка), Йен Джеймс Корлетт (Mr. Squiggles / Stinker / Zhusquashya, озвучка), Эрин Мэтьюз (Num Nums / Serfer, озвучка), Джиллиан Майклс (Jilly, озвучка), Жан Рэбсон (Zhu Fu / Mangawanga, озвучка), Мэрайя Уилкерсон (Katie, озвучка)Перевод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B300C9B8607C23D195D05DEEA11E2A10B5201BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354272   (988998) от 21.01.2020
+
+Дедушка и внучек (1950) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медвежонка, бывшего в зимней спячке, друзья по лесу привели в «Лесную спортивную школу», в которой он научился фигурному катанию.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Александр ИвановАктеры: Юрий Хржановский, Георгий Милляр, Сергей Троицкий, Константин Сорокин, Ирина Маликова, Владимир Конкин, Борис Токарев, Юльен Балмусов, Александр КотовСубтитры: ОтсутствуютПродолжительность: 00:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E1BAC713C60C0D7BDD0F3729AC947DDB166F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610818   (988978) от 30.01.2013
 
 Три богатыря на дальних берегах (2012) [H.264/1080p-LQ] BDRip
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988978.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988968.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988915.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988913.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988904.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988857.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988856.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988251.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988213.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987894.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987800.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987783.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987639.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987560.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987292.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987231.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987154.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987022.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986883.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986663.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986612.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBB44425A3CA6836E90D721884D1422EB1653C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611906   (986568) от 01.02.2013
-
-Тайна красной планеты / Mars Needs Moms (2011) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть мерзкую брокколи, выносить мусор, рано ложиться спать — кому вообще нужны мамы, заставляющие это делать? Так думал Майло, пока не обнаружил, что его маму похитили марсиане. Тут-то и оказалось, что ему предстоит отправиться на другую планету, чтобы найти маму и вернуть ее домой.Жанр: Мультфильм, Фантастика, Боевик, Комедия, Приключения, СемейныйРежиссер: Саймон УэллсПерсонажи: Сет Грин,  Дэн Фоглер,  Джоан Кьюсак,  Элизабет Арнуа,  Минди Стерлинг,  Кевин Кахун,  Том Эверетт Скотт,  Жаки Барнбрук,  Мэттью Хенерсон,  Адам ДженнингсПеревод: ДублированныйПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB879C0D1172152578D21FAC20EEF9E5A193B48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612287   (986551) от 01.02.2013
-
-Франкенвини / Frankenweenie (2012) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обожаемый мальчиком Виктором пес Спарки погибает в результате несчастного случая. Мальчик, не желая мириться с потерей друга, призывает науку на помощь и…возвращает питомца к жизни! Казалось бы, все не так уж плохо, но когда Спарки сбегает от Виктора, его друзья, родители, учителя и жители городка узнают, что возвращение к жизни домашнего питомца может повлечь за (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, Ужасы, Фантастика, КомедияРежиссер: Тим Бёртон / Tim BurtonПерсонажи: Чарли Тахэн, Кэтрин О’Хара, Мартин Шорт, Мартин Ландау, Аттикус Шаффер, Вайнона Райдер, Роберт Капрон, Джеймс Хироюки Лиао, Кончата Феррелл, Том Кенни...Перевод: Профессиональный (дублированный)Продолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D508C5F19CF6CDB3ACFFC47CFE8FF7F3CD7CF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611962   (986536) от 01.02.2013
-
-Снежная королева (2012) [720p] BDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986536.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стремлении сотворить Новый мир — холодный и практичный, где четкость линий призвана заменить эмоции, а северный ветер должен остудить людские души, Снежная Королева избавляется от всех представителей творческих профессий. Маленькой и смелой Герде, отправившейся в опасное путешествие, чтобы спасти своего брата Кая, предстоит столкнуться с этим холодным миром Снежной (   Читать дальше...   )Жанр: Mультфильм, Фэнтези, Приключения, СемейныйРежиссер: Максим Свешников, Владлен БарбэАктеры: Иван Охлобыстин Нюша Шурочкина Анна Ардова Рамиля Искандер Дмитрий Нагиев Лиза Арзамасова Галина Тюнина Юрий Стоянов Людмила Артемьева Михаил ТихоновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64512A1F1BD9EA0D0AB80F5375C21EA598AA7AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612177   (986462) от 01.02.2013
-
-Снежная королева (2012) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986462.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стремлении сотворить Новый мир — холодный и практичный, где четкость линий призвана заменить эмоции, а северный ветер должен остудить людские души, Снежная Королева избавляется от всех представителей творческих профессий. Маленькой и смелой Герде, отправившейся в опасное путешествие, чтобы спасти своего брата Кая, предстоит столкнуться с этим холодным миром Снежной (   Читать дальше...   )Производство: Россия / Инлэй ФильмЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Максим Свешников, Владлен БарбэЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744BE335C620745283581BF67FFBDC6D0E06A0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612286   (986400) от 01.02.2013
-
-Снежная королева (2012) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986400.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стремлении сотворить Новый мир — холодный и практичный, где четкость линий призвана заменить эмоции, а северный ветер должен остудить людские души, Снежная Королева избавляется от всех представителей творческих профессий. Маленькой и смелой Герде, отправившейся в опасное путешествие, чтобы спасти своего брата Кая, предстоит столкнуться с этим холодным миром Снежной (   Читать дальше...   )Производство: Россия / Инлэй ФильмЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Максим Свешников, Владлен БарбэЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6B520B743454F6568253C94DAF105665998A29
 ```
 
 https://mybot314.ru/tekegram_catalog/

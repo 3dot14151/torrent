@@ -1,90 +1,3 @@
-###  Публикация: 926880   (531721) от 11.08.2015
-
-Roz Vitalis - Compassionizer (2007) [WavPack|image+.cue]<Avantgarde, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tragic Fate 07:05
-02. Autumn Of Hypocrisy 03:59
-03. Compassionizer 05:21
-04. Elusive Goodness 04:24(   Читать дальше...   )Жанр: Avantgarde, Prog RockПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB392B74CDFDA8CFD92A9F907715E8C7C37D8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926866   (531715) от 11.08.2015
-
-Roz Vitalis - Patience Of Hope (2012) [WavPack|image+.cue]<Avantgarde, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patience Of Hope 06:44
-02. The Unfading Sun (The Loved Version) 02:50
-03. To Stir Up Your Pure Minds 03:10
-04. Seeds Fell Among Thorns 06:18(   Читать дальше...   )Жанр: Avantgarde, Prog RockПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C12A50BA013B54EBB7B8538D7F25B895A40182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926845   (531625) от 11.08.2015
-
-Roz Vitalis - Lavoro D'Amore (2015) [WavPack|image+.cue]<Avantgarde, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Acknowledgement Day 04:35
-02. Lavoro D'amore 04:35
-03. Unanticipated 05:44
-04. Il Vento Ritorna 04:06(   Читать дальше...   )Жанр: Avantgarde, Prog RockПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18B8B964CA71D20AD5637B03DC49265ECB912ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927604   (524845) от 13.08.2015
 
 Би-2 - #16 Плюс (2014) [FLAC|image+.cue]<Rock>
@@ -93,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524845.jpg" />
 </div>
 
 
@@ -122,7 +35,7 @@ KAUAN - Pirut Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmospheric 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524416.jpg" />
 </div>
 
 
@@ -151,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523644.jpg" />
 </div>
 
 
@@ -180,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523480.jpg" />
 </div>
 
 
@@ -209,7 +122,7 @@ Stigmata - Калейдоскоп (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522961.jpg" />
 </div>
 
 
@@ -238,7 +151,7 @@ VA - Вечное Лето (2004) [FLAC|Lossless|tracks] <Rock, Alternative Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522311.jpg" />
 </div>
 
 
@@ -267,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521469.jpg" />
 </div>
 
 
@@ -296,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520544.jpg" />
 </div>
 
 
@@ -325,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520225.jpg" />
 </div>
 
 
@@ -357,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518993.jpg" />
 </div>
 
 
@@ -386,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518005.jpg" />
 </div>
 
 
@@ -415,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517198.jpg" />
 </div>
 
 
@@ -444,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517197.jpg" />
 </div>
 
 
@@ -473,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516644.jpg" />
 </div>
 
 
@@ -502,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516152.jpg" />
 </div>
 
 
@@ -531,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515987.jpg" />
 </div>
 
 
@@ -560,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512867.jpg" />
 </div>
 
 
@@ -589,7 +502,7 @@ Neorhythm - Anthropo (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Math Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512449.jpg" />
 </div>
 
 
@@ -618,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512372.jpg" />
 </div>
 
 
@@ -653,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511526.jpg" />
 </div>
 
 
@@ -682,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511487.jpg" />
 </div>
 
 
@@ -711,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510976.jpg" />
 </div>
 
 
@@ -740,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510906.jpg" />
 </div>
 
 
@@ -754,6 +667,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F9B55ED77CE8EBB72345DDC7C4C943831F76F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315917   (510849) от 22.07.2019
+
+Александр Устюгов & Ekibastuz - Обнуляю (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обнуляю (3:15)Жанр: RockПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8201214D201267B848FB67BBC1145C6E89E78C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316120   (508906) от 23.07.2019
+
+Ракоший Нелч - Мы (2010) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы (3:53)
+ 02. Мы Теряем Силу (3:11)
+ 03. Мы с Изумлением Смотрим (5:04)
+ 04. Мы Дети Незаконченной Войны (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213033E47911C2463A62A6EFBF5CA233E8B97AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316114   (508901) от 23.07.2019
+
+Ракоший Нелч - Зелёный Альбом (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Видел (3:58)
+ 02. Мир Катится ко Всем Чертям (3:54)
+ 03. Власть (3:38)
+ 04. Комната с Зелёными Шторами (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4271EB8693414652A0AA09E88DBBBCE3B56C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

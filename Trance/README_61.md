@@ -1,3 +1,61 @@
+###  Публикация: 1762115   (103002) от 23.11.2024
+
+VA - Top 20 Progressive House (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinova - Beacon (Extended Mix) (06:14)
+02. Jacoob - Neura (Extended Mix) (06:41)
+03. Sinova & Ocien - If You Find Me (Extended Mix) (05:56)
+04. Tuew & Eds Dead - Success (Extended Mix) (06:45)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3ADDC243420FF33A7CEDA504AC26D6A3600D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762068   (102985) от 24.11.2024
+
+VA - The Best Of Suanda Progressive 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Diandra Faye - In Our Memories (ThoBa Extended Remix) [4:39]
+02. TISKANTA - Without You (Extended Mix) [5:59]
+03. Adip Kiyoi - The Future Of A.I (Extended Mix) [7:14]
+04. SMR LVE - Destinations (Extended Mix) [4:52](   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8F0FB46BA10ADAC3D69B7FA21E38368753924F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762077   (102956) от 24.11.2024
 
 VA - The Best Of Suanda Future 2024 (2024) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - The Best Of Suanda Future 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102956.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102954.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Uplifting Only Top 15: December 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102899.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Above & Beyond - Tranquility Base Vol. 2 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101560.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ ZOYA - Eternity (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101537.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Redux Selection Vol. 12 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101491.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Best Of 2024 (2024) Gert Records [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101462.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Alter Ego Records - Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101421.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Black Hole Trance Music 12-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101417.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101299.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Best of Fables 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101273.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Top 11 October 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101254.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Extrema Global Music - Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101253.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - This is Ablazing 2024 (Mixed & Selected by Rene Ablaze) (2024) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101230.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Alter Ego Progressive - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101228.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Synchronized Music: Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101200.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 07 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100884.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Interplay Highlights 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Elect
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100706.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100688.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100686.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100684.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100679.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - The Best Releases 2024 of Endlessky Audio (By Abstract Moon & André Wilden
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100607.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100534.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CDA94C2DEB5D6E0A2EF38C008F3A452D738CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770167   (100531) от 31.12.2024
-
-VA - Top Emotional Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freelife - For You (Original Mix) [08:01]
-02. Iberian - Stela (Original Mix) [07:04]
-03. SounEmot - En Mis Sueños Siempre Te Vuelvo a Recordar (Emotional Mix) [10:01]
-04. Masaru Hinaiji - Toward Heaven (Original Mix) [09:45](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F57D913B82A54FD191E74E2E28B3358341D90A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770289   (100530) от 31.12.2024
-
-VA - 11 Years SA - Best Of 2024 (Club Edition) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prestige & Rana Saab - Itha Hajarta (Extended Mix) (06:04)
-02. Faruk Khaledi - A Sense Of Euphoria (Toamun Remix) (05:54)
-03. Faruk Khaledi - A Sense Of Euphoria (Jordan B Remix) (07:22)
-04. Toamun - Mim (05:00)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3AEE89DB56FE678B94F9D1456C01AE72CEB3B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

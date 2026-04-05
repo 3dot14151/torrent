@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225895.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225872.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225857.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225674.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Metallica - Quebec Magnetic (2012) BDRip [720]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225637.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Adele - At The BBC (2015) HDTVRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225515.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225493.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225411.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Зимний марафон № 212: Дискотека в стиле Count
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225379.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225266.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225199.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223905.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223829.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222735.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222452.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222154.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222117.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221782.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221120.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221105.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220603.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220561.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220409.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220019.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Queen: A Night At The Odeon - Hammersmith (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219859.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219584.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 556691   (426217) от 05.10.2012
-
-О.Д.Барнаулов | Введение в фитотерапию [1999] [Pdf]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена фитотерапии (лечению растениями). Состоит из трех частей (лекций). В первых двух лекциях рассказывается об истоках появления и истории применения фитотерапии; подробно освещается ее место в системе современной медицины, приводятся сведения о лечебных свойствах различных растений. Третья лекция посвящена использованию отдельных представителей флоры в лечении инфекционных и воспалительных заболеваний. Для студентов-медиков и всех интересующихся фитотерапией.Жанр: Фитотерапия, народная медицинаФормат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365EF70D9E5C37A1F44C456C1C313A46A80C7CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411840   (425072) от 26.09.2020
 
 Илья Смитиенко | Иммунитет атакует. Почему организм разрушает себя (2020) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425072.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424173.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422844.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421853.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420313.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418598.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413608.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410815.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410721.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407134.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406905.jpg" />
 </div>
 
 
@@ -327,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406637.jpg" />
 </div>
 
 
@@ -353,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405906.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403779.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402222.jpg" />
 </div>
 
 
@@ -435,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401318.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400039.jpg" />
 </div>
 
 
@@ -487,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398799.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398621.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398567.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398562.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398513.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397604.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396488.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395637.jpg" />
 </div>
 
 
@@ -685,6 +659,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C81169E592C92797780C0B2BE629EE4927A8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568410   (394923) от 31.10.2012
+
+С.Трофимов (ред.) | Болезни кожи [2010] [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394923.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге доступно рассмотрены наиболее часто встречаемые болезни кожи. Представлены причины, симптомы, современные методы диагностики и лечения, а также средства народной медицины. Особое внимание в книге уделено наиболее распространенным заболеваниям кожи - псориазу, экземе, себорее, грибковым и онкологическим заболеваниям.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569F1AD619726A69F0ECF50C73838904CEC71076
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169055.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169015.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pluto | Плутон [2023, Web, 8 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168705.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | I`m the Villainess, So I`m 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168589.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 из 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166103.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165849.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165302.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165277.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165144.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165116.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164362.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164092.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162984.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162877.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Nagagutsu o Haita Neko: 80 Nichikan Sekai Isshuu | Puss 'n Boots: Travels Around
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162819.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162186.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161953.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161176.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161096.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161085.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161074.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160950.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Izetta, Die Letzte Hexe / Изе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157051.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157024.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Mahou Sensou | Magical Warfare | Война магов [2014, TV, 12] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150320.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149873.jpg" />
 </div>
 
 

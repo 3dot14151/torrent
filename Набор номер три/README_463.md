@@ -1,3 +1,212 @@
+###  Публикация: 1071408   (360673) от 09.11.2016
+
+Adobe Premiere Pro CC 2017 11.0.0.154 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2017 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D045F207EAD21DD2A4D0971D5550AFFD41CF05A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035737   (360672) от 09.11.2016
+
+Fallout 4 (2015) [Ru] (1.8.7.01/dlc) Repack xatab
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bethesda Game Studios, создатель популярнейших игр Fallout 3 и The Elder Scrolls V: Skyrim, приглашает вас в мир Fallout 4 – своей самой грандиозной игры нового поколения с открытым миром. Вы – единственный выживший из убежища 111, оказавшийся в мире, разрушенном ядерной войной. Каждый миг вы сражаетесь за выживание, каждое решение может стать последним.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Action (Shooter), RPG, 3D, 1st-Person, 3rd-PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01092D0EFF705C4EA49F9215B400BDCEBA3B0AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836808   (360553) от 01.11.2014
+
+WWE 2K15 [PS3] [USA] [En] [4.65] [Cobra ODE / E3 ODE PRO ISO] (2014)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360553.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом сезоне знаменитой серии симуляторов реслинга результатом тесного сотрудничестваТип издания: ЛицензияРазработчик: Yuke's / Visual ConceptsЖанр: Arcade / Fighting / Wrestling / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C2B9E7454A773918D3DB5CCCE39E50E20012CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 777649   (360525) от 01.11.2014
+
+Clean Master v5.8.8 - чистильщик-оптимизатор смартфона (31.10.2014) <Ru/Multi>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с Clean Master - одной из лучших "чистильщиков-оптимизаторов" вашего смартфона или планшета на ОС Android.  Помимо того, что программа отлично чистит от мусора, она также и оптимизирует системную память, останавливая ненужные процессы и выгружая их из памяти, вследствие чего ваше устройство начнет работать бодрее и быстрее.Тип издания: FreewareРазработчик: KSMobileПоддерживаемая ОС: Android 2.1 +Язык интерфейса: Русский,Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D9F4AE91B047D4868FCE64D708A83343D74966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836566   (360507) от 01.11.2014
+
+Clive Barker's Jericho (2007) [Ru/En] (1.0) Repack R.G. Catalyst
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошлое и будущее затерянного в африканской пустыне города Аль Хали смешалось, когда зло вторглось в наш мир сквозь пространственные разломы. Отряду специального назначения «Иерихон», владеющему как традиционными, так и паранормальными способами ведения боя, дано задание локализовать и уничтожить источник зла, поглотившего город. Но для этого им предстоит совершить леденящее кровь путешествие во времени, все глубже погружаясь в мрачное прошлое города. Ничем не примечательный городок встретит чужаков в нескольких ипостасях: дымящимися развалинами времен фашистской оккупации, арабским городом эпохи крестоносцев, величественным римским поселением и футуристическими пейзажами четвертого тысячелетия.
+(   Читать дальше...   )Тип издания: RepackРазработчик: MercurySteam EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FC33FB8696604D368E493CB64256726707B48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255547   (360479) от 19.10.2018
+
+Google будет брать плату за предустановку приложений на Android-устройства для рынка ЕС
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360479.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отместку за рекордный штраф от Еврокомиссии Google вводит платную предустановку своих приложений на устройства для европейских пользователей. Это может привести к росту цен на смартфоны для потребителей из ЕС.Летом, когда Еврокомиссия оштрафовала Google на 4,34 млрд евро за использование монопольного положения на рынке, в компании пообещали "ответный удар". (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255200   (360473) от 19.10.2018
+
+Ростех начал серийное производство серверов «Эльбрус-804»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерн «Автоматика», входящий в Госкорпорацию Ростех, начал серийный выпуск отечественных высокопроизводительных серверов «Эльбрус-804». Устройства предназначены для построения вычислительных кластеров, работы с приложениями и базами данных. Потребителями новой техники станут госведомства и стратегические отрасли промышленности, где особенно актуальны вопросы защиты (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178132   (360463) от 19.10.2018
+
+Wolfenstein II: The New Colossus (2017) [Ru/Multi] (191018) License PLAZA [Language Pack]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальные языковые пакеты для смены локализации в игре, упакованные в обычный установщик. Wolfenstein II: The New Colossus — долгожданное продолжение Wolfenstein: The New Order, восторженно принятого критиками боевика с видом от первого лица от титулованной студии MachineGames.Язык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC9FA7ABFD65E70C0F8E195EC6FB6BEB91DA364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328555   (360460) от 01.10.2019
 
 Экс-инженер Google предупредила об опасности создания роботов-убийц
@@ -6,7 +215,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360460.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360457.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360455.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360453.jpg" />
 </div>
 
 
@@ -110,7 +319,7 @@ VideoHive - Birth Announcement - Baby Birthday Album - 19307377 [AEP]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360445.jpg" />
 </div>
 
 
@@ -136,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360439.jpg" />
 </div>
 
 
@@ -163,7 +372,7 @@ Windows 10 Pro VL 1903 18362.356 (Anti-Spy Edition) x64 by ivandubskoj (28.09.20
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360438.jpg" />
 </div>
 
 
@@ -189,7 +398,7 @@ MInstAll v.03.09.2019 By Andreyonohov & Leha342 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360436.jpg" />
 </div>
 
 
@@ -215,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360235.jpg" />
 </div>
 
 
@@ -242,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360142.jpg" />
 </div>
 
 
@@ -270,7 +479,7 @@ Mozilla Firefox 56.0.2 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359842.jpg" />
 </div>
 
 
@@ -296,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_359838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359838.jpg" />
 </div>
 
 
@@ -322,7 +531,7 @@ TecDoc DVD Catalog 4Q.2017 Full [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359833.jpg" />
 </div>
 
 
@@ -349,7 +558,7 @@ Adobe Photoshop CC 2018 (19.0.0.24821) Portable by XpucT [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359826.jpg" />
 </div>
 
 
@@ -375,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359823.jpg" />
 </div>
 
 
@@ -401,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359822.jpg" />
 </div>
 
 
@@ -427,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359821.jpg" />
 </div>
 
 
@@ -453,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359818.jpg" />
 </div>
 
 
@@ -466,216 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEE9285C9C57EB5C36790EE7A9548990059402CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951841   (359743) от 30.10.2015
-
-Garmin: City Navigator Europe NT 2016.20 + по регионам [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Передвигайтесь по улицам Европы с уверенностью. Этот продукт содержит подробные карты дорог и достопримечательностей для вашего совместимого устройства, так что вы можете перемещаться с точными подсказками, от поворота к повороту на любой адрес или перекресток. Маршрут в рестораны, автозаправочные станции, жилье, достопримечательности и многое другое.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: октябрь 2015Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BC9281E787C2564628E5B3031C15C62E6DDF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950988   (359741) от 30.10.2015
-
-Dumpper 80.1 Portable [En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для взлома wifi пароля. Dumpper является портативным программным обеспечением сосредоточенным для управления беспроводными сетями в Windows. В программе реализована возможность проверки сетей методом поиска уязвимостей, показать и проверить некоторые изъяны в безопасности Wi-Fi сети, обнаруженные в WPS протоколе, и для получения WPA / WPA2 ключа по умолчанию на BSSID (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513CC8781C124BF2D3890E511985E436F3CE434C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951658   (359739) от 30.10.2015
-
-Kaspersky Reset Trial 5.0.0.117 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Reset Trial - Программа для сброса триала (для многократного использования триального периода) антивирусных продуктов ЛК. KRT сбрасывает триал мгновенно на всех продуктах ЛК, заявленных в программе. По поводу детекта от ЛК - вредоносного ПО в оригинальной версии KRT никогда не было, нет и не будет. Таким способом ЛК защищает свои продукты, присваивая KRT (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BF9153BBF1B15DA75C5818FAB0BE2C672DFFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831203   (359737) от 30.10.2015
-
-Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0.7/dlc) SteamRip Let'sPlay
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359737.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением во вселенную Borderlands! Палите из всех стволов и хватайте все, что плохо лежит, в совершенно новом приключении, которое буквально отправит вас в космос – на поверхность спутника планеты Пандора.
-События Borderlands: The Pre-Sequel! происходят в промежутке между Borderlands и Borderlands 2. Узнайте побольше о прошлом Красавчика Джека, главного злодея (   Читать дальше...   )Тип издания: SteamRipРазработчик: 2K Australia и Gearbox SoftwareЖанр: Action (Shooter) / RPG (Rogue/Action) / 3D / 1st PersonЯзык озвучки: Английский, Немецкий, Французский, Испанский, Итальянский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, ЯпонскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8EB815C1C31651AE94EFF742366732D69664A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951010   (359736) от 30.10.2015
-
-Миссия невыполнима: Племя изгоев / Mission: Impossible - Rogue Nation (2015) WEB-DL [H.264/1080p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ОМН распускают, и Итан Хант остается не у дел, его команда неожиданно сталкивается с разветвленной международной сетью высокопрофессиональных спецагентов — Синдикатом. Это «племя изгоев» одержимо идеей установления нового мирового порядка и планирует серию разрушительных терактов. Итан и компания объединяются с дискредитированным британским агентом Илсой Фауст (   Читать дальше...   )Производство: США, Китай | Paramount Pictures, Skydance Productions, Bad RobotЖанр: Боевик, Приключения, ТриллерРежиссер: Кристофер МакКуорриАктеры: Том Круз, Джереми Реннер, Саймон Пегг, Алек Болдуин, Ребекка Фергюсон, Винг Реймз, Шон Харрис, Америка Оливо, Саймон МакБерни, Чжан ЦзинчуПеревод: Дублированный (чистый звук)Язык субтитров: английскийПродолжительность: 02:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD56F50F46A5FE35A44B63B86CFC970C0F2D43E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951808   (359735) от 30.10.2015
-
-Windows XP-7-8.1-10 pe StartSoft 80-2015 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционных систем Windows XP, Windows 7 SP1, Windows 8.1 и Windows 10 - с разной разрядностью. К дополнительным опциям относится загрузка компьютера с одной из четырех Windows PE, из мультизагрузочного меню, на усмотрение пользователя ПК.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9863BE98203F87E01616EBF500A8C597316311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438552   (359734) от 30.10.2015
-
-eWeather HD 5.7.0 [Ru] - Погода
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elecont Weather - это самая информативная программа, виджеты и индикаторы для Android об окружающей среде. Elecont Weather показывает текущую погоду за окном и прогноз погоды на 10 дней, атмосферное давление и количество осадков, лунный и солнечный календари, индикатор резких изменений давления и геомагнитную обстановку, силу и направления ветра, время восхода и (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 30.10.15Разработчик: Elecont softwareПоддерживаемая ОС: Android 1.6 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F72487F1974AB6B5635ED104C06B24D93A9C797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903522   (359733) от 30.10.2015
-
-WinBoot-загрузчики Windows 8-10 (в одном ISO) v15.10.28 by adguard [Ru] (Обновляемая авторская раздача)
-
->>3
->>32
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный загрузчик можно использовать с любыми сборками. Файл install подхватывается из нужной категории, и не важно в каком он формате (WIM, SWM или даже ESD).
-В данной архиве вы найдете модифицированные загрузчики от Windows 8, 8.1 и 10.  Поддержка UEFI (64-бит) присутствует.Разработчик: adguardЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58847EF8B0EAD51713C41724F125B54307B17D58
 ```
 
 https://mybot314.ru/tekegram_catalog/

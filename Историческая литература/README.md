@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062038.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062037.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062036.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062035.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062034.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061655.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061454.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061453.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061452.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061449.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061152.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060312.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060192.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060190.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060189.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060188.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060187.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060186.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060185.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060184.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060183.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060182.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060181.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060180.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060179.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060049.jpg" />
 </div>
 
 

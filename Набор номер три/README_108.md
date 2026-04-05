@@ -1,3 +1,159 @@
+###  Публикация: 866259   (909387) от 04.02.2015
+
+Ёлки лохматые (2014) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Россия, Bazelevs DistributionЖанр: Семейный, КомедияРежиссер: Максим СвешниковАктеры: Андрей Мерзликин, Ян Цапник, Лера Стреляева, Галина Коньшина, Игорь Власов, Сергей Троев, Айса Энимал Арт, Пётр Фёдоров, Анна Чиповская, Андрей ФедорцовПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CC1F5C59FD0B032ABA71673FF11E2E1B2FE1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866323   (909385) от 04.02.2015
+
+Kaspersky Internet Security 2015 15.0.2.361 MR2 Final [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Internet Security 2015 - комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ. Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37846133806BE94243FCCD29F4F449E6B761434A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990670   (909350) от 26.02.2016
+
+Новый летающий автомобиль Terrafugia TF-X станет реальностью в 2018 году
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все люди, которые следят за новостями и событиями в области летающих автомобилей, задаются вопросом, когда же, наконец, все это перейдет из разряда научной фантастики в разряд реальных обыденных вещей? Одним из лидеров этого направления является известная компания Terrafugia, специалисты которой сейчас занимаются разработкой и изготовлением первого опытного образца (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990370   (909247) от 26.02.2016
+
+Российский ученый доказал, что создатели "Звездных войн" украли сцены из "Кащея Бессмертного"
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой ученый из Томска заявил, что содержание первого фильма фантастической саги «Звездных войн» на 96 процентов копирует советскую киносказку 1944 года «Кащей Бессмертный». Как сообщает РИА Томск, аспирант Томского госуниверситета систем управления и радиоэлектроники (ТУСУР) Евгений Гарин направил письмо министру культуры Владимиру Мединскому и председателю Союза (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990611   (909241) от 26.02.2016
+
+Movavi Video Editor 11.3.0 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Editor - мощный и между тем достаточно простой видео редактор, позволяющий пользователю редактировать видео файлы, используя простой и дружелюбный пользовательский интерфейс. При помощи этого видео редактора, можно легко импортировать медиафайл, открыть файл DVD или 3D видео, а также записать видео или аудио поток.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A53D88559AC286275EF3683C98C46D40852B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990607   (909236) от 26.02.2016
+
+MathType 6.9b [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909236.jpg" />
+</div>
+
+
+###  Подробнее
+
+MathType — это мощный интерактивный инструмент, который кардинально меняет способ создания печатных и электронных документов, содержащих математические формулы. MathType может применяться вместе с любым текстовым и HTML-редактором, презентационной или издательской программой, и другими типами программного обеспечения - для создания формул в научных статьях, учебных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4CBD387015FCCF126B82C53BC695C34CB98857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990758   (909226) от 26.02.2016
 
 В центре внимания / Spotlight (2015) BDRip [H.264/720p]
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909226.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909217.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Grim Dawn (2016) [Ru/En] (1.0 b31 hotfix 2) License RELOADED
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909215.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909209.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909201.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908563.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ Garmin: Дороги России Топо 6.32 (FID 3332 + FID 4594) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908308.jpg" />
 </div>
 
 
@@ -191,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908224.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908151.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908145.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ Windows 7 Ultimate x86 and x64 SP1 RTM LITE (prepared by xalex & zhuk.m) [рус
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907952.jpg" />
 </div>
 
 
@@ -300,7 +456,7 @@ Pendulum - 4 Albums, 1 Compilation, 13 Singles & EPs + Demos (2003-2011) [MP3|17
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907949.jpg" />
 </div>
 
 
@@ -329,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907872.jpg" />
 </div>
 
 
@@ -357,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907865.jpg" />
 </div>
 
 
@@ -383,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>15
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907858.jpg" />
 </div>
 
 
@@ -410,7 +566,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907856.jpg" />
 </div>
 
 
@@ -436,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907854.jpg" />
 </div>
 
 
@@ -462,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907852.jpg" />
 </div>
 
 
@@ -488,7 +644,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 01.2017 by OVGorskiy® 1DVD
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907850.jpg" />
 </div>
 
 
@@ -514,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907620.jpg" />
 </div>
 
 
@@ -525,166 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0A7B88D905EB6135454AC8778E36EA04C634AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991010   (907494) от 27.02.2016
-
-Существование пятимерных черных дыр может развалить всю Общую теорию относительности Эйнштейна
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа исследователей из Кембриджского университета (University of Cambridge) и университета Королевы Мэри (Queen Mary University) в Лондоне показала, что факт существования черных дыр весьма экзотической формы может развалить Общую теорию относительности Эйнштейна, основу всей современной физики. К счастью для нас, такие черные дыры могут существовать только в среде не менее экзотической Вселенной, континуум которой имеет пять или еще большее количество измерений.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990013   (907313) от 27.02.2016
-
-Resident Evil 5 (2009) [Ru] (1.0.0.129r1/upd1/dlc) Portable PortGamPC [Gold Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из праха былых конфликтов возникает новый ужас. Корпорация Umbrella и созданный ей смертельный вирус были уничтожены, а останки заключены. Но вскоре появилась новая, еще более опасная угроза. Несколько лет после событий в Раккун-Сити спустя, Крис Редфилд ведет борьбу с бедствием биоорганического оружие по всему миру. Теперь член отряда B.S.A.A. (Bio-terrorism Security (   Читать дальше...   )Тип издания: PortableРазработчик: CapcomЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E210D573DE633DA8983E88080D3774CEDF3E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991289   (907303) от 27.02.2016
-
-Экстрасенсы / Утешение / Solace (2015) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напарники, Джо и Кэтрин, детективы из ФБР расследуют череду загадочных убийств. Все преступления объединяет нечто сверхъестественное — серийный убийца всегда на шаг впереди лучших сыщиков. Тогда на помощь правосудию приходит отставной аналитик спецслужб доктор Джон Кленси. Его исключительная интуиция и интеллект могут помочь поймать убийцу, но вскоре Джон понимает (   Читать дальше...   )Производство: США / Eden Rock Media, FilmNation Entertainment, Flynn Picture CompanyЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Афонсо ПойартАктеры: Джеффри Дин Морган, Колин Фаррелл, Энтони Хопкинс, Эбби Корниш, Марли Шелтон, Джанин Тернер, Ксандер Беркли, Кенни Джонсон, Хосе Пабло Кантильо, Джошуа КлоузПеревод: Многоголосый закадровый, любительский (студия ProSound)Язык субтитров: АнглийскийПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B52C064AB994246586EB9BF62112C87A17442A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991017   (907294) от 27.02.2016
-
-The Elder Scrolls V: Skyrim Legendary Edition + Falskaar (2011) [Xbox360] [RegionFree] 12625 [FreeBoot] [Unofficial] [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907294.jpg" />
-</div>
-
-
-###  Подробнее
-
-События новой игры The Elder Scrolls V: Skyrim будут происходить спустя 200 лет после событий Oblivion, в тот момент, когда главного героя собираются казнить. После смерти короля в Скайриме разразилась гражданская война между сторонниками и противниками вхождения в состав Империи. Посох Хаоса, Нумидиум, Красная гора, врата Обливиона и, наконец, братоубийственная (   Читать дальше...   )Тип издания: UnofficialРазработчик: Bethesda Game StudiosЖанр: Action RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E0F1A082A5FC6C2377870C72C2424E3217B202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990375   (907292) от 27.02.2016
-
-Конкурс релизов в музыкальном разделе Классика
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объявляется конкурс релизов в музыкальном разделе Классика
-Классика - навсегда!
-Уважаемые одноклубники, в разделе Классика проводится конкурс релизов. Оформляйте раздачи в любом подфоруме раздела и выигрывайте призы. Победит тот, кто зальёт больше всего релизов. Принять участие может любой желающий.
-Конкурс проводится с 1 по 31 марта включительно.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991052   (907288) от 27.02.2016
-
-Выпущен первый моноблок на российском процессоре
-
->>3
->>16
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый компьютер-моноблок на российском процессоре «Байкал-Т1» представила компания «Т-Платформы». Первые крупные поставки техники, по словам производителя, состоятся во II квартале 2016 года.Российский и с Linux
-Образец первого российского моноблока представили на выставке Embedded World. Устройство получило название «Таволга Терминал» и предназначено для создания (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

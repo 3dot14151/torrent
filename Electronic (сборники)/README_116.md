@@ -1,3 +1,61 @@
+###  Публикация: 1043460   (572986) от 16.08.2016
+
+VA - Beatport Trance Pack (15.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Tyas  -  Turbo (Original Mix)  7:19
+02. Feel And Two K  -  The End Is Near (Original Mix)  4:52
+03. Sebastian Montano  -  Mare Nostrum (Rework)  8:49
+04. Jean Clemence And Programmer  -  Till the End  7:10(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 03:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457BBA8CF44BAADFB6CDC99D28058C8F8715B95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043477   (572985) от 16.08.2016
+
+VA - Vertex Nostalgia Daydreamer (2016) [MP3|320 Kbps] <Trance, Energy, Progressive, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel & KhoMha  -  All Systems Down  3:32
+02. Cold Rush & Elles De Graaf  -  Daydreamer (Alan Morris Remix)  7:20
+03. John 00 Fleming  -  Altered Senses (Original Mix)  7:06
+04. Dreamy & York  -  Once Upon A Time  8:14(   Читать дальше...   )Жанр: Trance, Energy, Progressive, MelodicПродолжительность: 02:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9598481BC86544047C615163EEA9C06B5BEEFC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043598   (572838) от 16.08.2016
 
 VA - Lounge Cafe: Music for Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Lounge Cafe: Music for Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572838.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Empire Records - ANDRS Disco (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572808.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Deep House Collection (2016) [MP3|320 Kbps] <House, Deep House, Club House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572701.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Romantic Collection Chillout, lounge and Easy Listen (2016) [MP3|320 Kbps] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572598.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - DOWN LOW (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572094.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ VA - Dont Stop A Sexy Lounge Collection Bonus Version (2015) [MP3|320 кб/с]<D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571778.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Delicate Longe: Urban Meditation (2015) [MP3|320 кб/с]<Longe, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571749.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ DJ_WOLTER - PRIMA (2009) [MP3|128 кб/с]<Folk-Rock-Electro-Klub-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571485.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ VA - Sexy Trance #43 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571403.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ VA - Iced Coffee: Balearic Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571181.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ VA - The Greatest Hits of Chillout Easy Listen Collection (2016) [MP3|320 Kbps] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571059.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ VA - For Massive Future Beats (2016) [MP3|320 Kbps] <House, Electro House, Drum 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570941.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ VA - Empire Records - Recccord (2018) [MP3|320 Kbps] <House, Future House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570914.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ VA - Chilly Side Up (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570043.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ VA - House Progressive: Dance Everybody (2015) [MP3|320 кб/с]<Progressive Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569878.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ VA - Beatport Trance Pack (17.08.) (2016) [MP3|320 Kbps] <Trance, Progressive, M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569111.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ VA - Goa Genetics (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569093.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - Lounge Party Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568360.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ VA - Milan Street Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568359.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ VA - After Work Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568358.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ VA - Relax Hotel Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568356.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ VA - Extra House (episode 4) (2015) [MP3|320 кб/с]<Deep House, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568203.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Ibiza Progressive Sessions Unleashed (2016) [MP3|320 Kbps] <House, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567571.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - About Ultra EDM Melodies (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567472.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ VA - About Ultra EDM Melodies (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:237890014DAF28E7968C3639508D7CBE4A54FEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044302   (567463) от 19.08.2016
-
-VA - Running Beats 11 - Musik Zum Laufen (Inkl 5 KM & 10 KM Mix) (2016) [MP3|250~294 Kbps] <House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix  -  5 KM Power-Lauf  30:24
-02. DJ Mix  -  10 KM Power-Lauf  1:00:10
-03. Nora En Pure  -  On the Beach (Short Edit)  3:31
-04. Milk & Sugar with Barbara Tucker  -  My Lovin (Mat.Joe Radio Edit)  3:41(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148E53C470B57F901BA176CF6C1124CE38F8CE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044315   (567455) от 19.08.2016
-
-VA - DJ Club Charts (2016.2) (2016) [MP3|251~278 Kbps] <House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various artists  -  DJ Club Charts 2016.2 - The Mix, Pt. 1  1:04:39
-02. Various artists  -  DJ Club Charts 2016.2 - The Mix, Pt. 2  1:07:02
-03. Robin Schulz feat. Akon  -  Heatwave (Remady Remix)  3:47
-04. R3HAB & Quintino  -  Freak (Sam Feldt Remix Edit)  3:17(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 04:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3F1EB8754553C09B228F8B269FEC2D38990794
 ```
 
 https://mybot314.ru/tekegram_catalog/

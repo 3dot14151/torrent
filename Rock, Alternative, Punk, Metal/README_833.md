@@ -1,3 +1,32 @@
+###  Публикация: 1625942   (241291) от 12.04.2023
+
+Garage Dayz - Take One (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast to Madness
+02. The Stage
+03. Stand Alone
+04. Lost(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F910DD35219159B6FB85C1162387F57AB7A655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386577   (241284) от 30.05.2020
 
 Mortillery - Murder Death Kill (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +35,7 @@ Mortillery - Murder Death Kill (2011) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241284.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Martillo Austral - Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241281.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Steve Dalton - Primitive (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241280.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dominus Meus - DM2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241269.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Jotunspor - Gleipnirs Smeder (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241266.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Aurica - Pride Of Immortals (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241263.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Miseration - Black Miracles And Dark Wonders (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241260.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Marianas Rest - Horror Vacui (2016) [FLAC|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241253.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241252.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Redemption - I Am the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241243.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Crisix - Full HD (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241242.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Helslave - An Endless Path (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241241.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Ringo Starr - La De Da (1998) Single [FLAC|Lossless|image + .cue] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241237.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ The Beau Brummels - Triangle (1967) Reissue, 1993, Warner Bros. [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241233.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Barons Court - A Descent Into Madness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241228.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Cursebinder - Drifting (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241218.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Cigarette Vagina - Cosmic Empathy (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241216.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Contrarian - Sage of Shekhinah (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241209.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Corpses Conductor - Corpse's Conductor (1997) 2022 Reissue, Huangquan Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241202.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Dreams In Stereo - Chapter 2- Foreign Man (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241201.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Elysion - Bring Out Your Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241198.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Burning Leather - New World Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241186.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ BSFOE - The Siege on Phobos and Deimos (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241183.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ The Jelly Jam - Profit (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241179.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Oomph! - Сollection (1992 - 2019) 16 CD [FLAC|Lossless|image + .cue|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241161.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Oomph! - немецкая рок-группа, образованная в 1989 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7720CD60E1C0FC65534F184171E490A740DAF7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631064   (241160) от 04.05.2023
-
-Daddy Cruel - Let's They Rot (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mars Kelamin (03:54)
-02 - Hell What a Stench! (03:50)
-03 - Spinning up She's Head (04:03)
-04 - Damned! (03:20)(   Читать дальше...   )Жанр: Death 'n' RollПродолжительность: 00:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103304B0D89E1A48942558E436BDA4E071A231A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

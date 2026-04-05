@@ -6,7 +6,7 @@ A Perfect Circle - Eat The Elephant (2018) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705982.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Splitmouth - Torment (2020) [MP3|320 Kbps] <Nu-Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705792.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Within Destruction - 4 Albums (2012-2020) [MP3|320 Kbps] <Progressive Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705693.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ At The Drive-In - in•ter a•li•a (2017) [MP3|320 Kbps] <Alternative Rock, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705073.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Birds of Tokyo - Brace (2016) [MP3|320 Kbps] <Alternative Rock, Electronic Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705071.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Motionless In White - 6 альбомов + 3 EP (2007-2020) [MP3|320 кб/с]<Po
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705019.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ GROVVES - Grovves (2017) [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Synth
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704424.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Useless ID & Тараканы! - Among Other Zeros and Ones (2018) [MP3|320 Kbps
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704412.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Red Hot Chili Peppers - The Getaway (2016) [MP3|320 кб/с] <Alternative Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701595.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ phoenix/NEBULIN - Mainframe (2018) [MP3|320 Kbps] <Alternative Rock, Industrial 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700630.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Opium Ink - Opium Ink (2018) EP [MP3|320 Kbps] <Alternative Rock, Electronic Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700542.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fit For A King - 5 Singles (2020) [MP3|320 Kbps] <Christian Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699819.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Poets Of The Fall - Alchemy Vol. 1 (2011) [MP3|320 kbps]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699177.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Kingdom Of Giants - 3 альбома (2013-2017) [MP3|320 Kbps] <Metalcore, Post
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698873.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Blind Channel - Blood Brothers (2018) [MP3|320 Kbps] <Alternative Rock, Electron
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698598.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Starflyer 59 - Slow (2016) [MP3|320 кб/с] <Alternative Rock, Indie Pop, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698463.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Paramore - After Laughter (2017) [MP3|320 Kbps] <Pop Rock, Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696715.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Seether - Poison the Parish (2017) Deluxe Edition [MP3|320 Kbps] <Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696606.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ The Let Go - Too Much of a Good Thing (2018) EP [MP3|320 Kbps] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693075.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ancient Lasers - No Photos on God Mode (2018) [MP3|320 Kbps] <Alternative Pop, E
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691378.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Kaleo - A/B (2016) [MP3|320 кб/с] <Alternative Rock, Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689964.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Linkin Park - The Hunting Party (2014) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687470.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Ultimate Punk & New Wave (5CD) (2018) [MP3|320 Kbps] <New Wave, Art Rock, G
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684938.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Blink-182 - California (2016) 2CD, 2017, Deluxe Edition [MP3|320 Kbps] <Pop Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684704.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Blink-182 - California (2016) [MP3|320 кб/с] <Pop Punk, Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684047.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Gideon - 4 альбома (2011-2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682905.jpg" />
 </div>
 
 

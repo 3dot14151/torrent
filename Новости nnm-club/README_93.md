@@ -1,3 +1,29 @@
+###  Публикация: 1395637   (749725) от 13.07.2020
+
+Грейхаунд / Greyhound (2020) WEB-DLRip [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749725.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 год. Новым капитаном эсминца ВМС США «Грейхаунд» становится морской офицер Эрнст Краузе, который до этого еще не участвовал в военных действиях.Производство: Китай, Канада, США / Columbia Pictures, Stage 6 Films, Zhengfu PicturesЖанр: военный, боевик, история, биографияРежиссер: Аарон ШнайдерАктеры: Том Хэнкс, Стивен Грэм, Элизабет Шу, Майкл Бенц, Роб Морган, Дэвид Мальдонадо, Джими Стэнтон, Matt Helm, Том Бриттни, Мануэль РульфоПеревод: Многоголосый любительский (Hamsterstudio)Язык озвучки: русскийСубтитры: ОтсутствуютПродолжительность: 01:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D82BECE09618CAC15667F9B70D977216EBAC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281646   (749589) от 09.02.2019
 
 Александр Никонов | Эволюция на пальцах. Для детей и родителей, которые хотят объяснять детям (2019) [PDF]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749589.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749469.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ ELEX (2017) [Ru/Multi] (1.0.2981.0) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749443.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749135.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749119.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Windows x64 Plus Office Release by StartSoft 14-2018 Lite [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748986.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Death to Spies / Смерть шпионам Дилогия [Ru] (Lossless Repac
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748180.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ BELOFF 2020.07 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748020.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v18 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747820.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ F.E.A.R. 3 (2011) [Ru/En] (16.00.20.1060/dlc) Repack Mizantrop1337
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747684.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747682.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.434]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747632.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ CCleaner 5.18.5607 Free | Professional | Business | Technician Edition RePack (&
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747586.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747418.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ KMSAuto Lite 1.1.7 Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747297.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_747265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747265.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ JetBrains WebStorm 2018.1 Build #WS-181.4203.535 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747258.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ BBC: Недостающее звено (В поисках наших далек�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746795.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746463.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746461.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Windows 10 Enterprise 2004 x64 Rus by OneSmiLe [19041.388]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746401.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ Malwarebytes Premium 4.1.2.73 RePack by Emir Candan (64-bit) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746395.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_746240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_746240.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ The KMPlayer 4.2.2.21 repack by cuta (build 2) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746088.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_746037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_746037.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523996   (746017) от 14.01.2022
-
-Трагедия Макбета / The Tragedy of Macbeth (2021) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьмы убеждают шотландского лорда Макбета в том, что ему суждено стать королём. Предавая друзей и следуя советам честолюбивой жены, он выбирает зло способом достижения своих целей.Производство: США / A24, IAC FilmsЖанр: триллер, драма, военный, историяРежиссер: Джоэл КоэнАктеры: Дензел Вашингтон, Фрэнсис МакДорманд, Алекс Хэсселл, Берти Карвел, Брендан Глисон, Кори Хоукинс, Гарри Меллинг, Майлз Андерсон, Мэтт Хельм, Моусес ИнгрэмПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские  (Full, SDH), украинские, ивритПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDE4FA5BFB9E1D648EEE301D220386991659F04
 ```
 
 https://mybot314.ru/tekegram_catalog/

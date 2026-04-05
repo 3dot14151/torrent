@@ -6,7 +6,7 @@
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287061.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287058.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zombie Vikings (2015) [Ru/Multi] (1.0) License CODEX [Ragnarök Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286752.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EARTH'S DAWN (2016) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285406.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wanted Corp. (2016) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283629.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Inside (2016) [Ru/Multi] (1.0/upd10)  Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283464.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ball of Light (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281854.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crossbow Warrior - The Legend of William Tell (2015) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281655.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mega Man 11 (2018) [Multi] (1.0.0.1/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280838.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chasm (2018) [En] (1.043) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276184.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275419.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ GUILTY GEAR Xrd -REVELATOR (2016) [En/Ja] (1.0.8767/dlc) License CODEX [Complete
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275342.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Filthy Lucre (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274187.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ TY the Tasmanian Tiger (2016) [Multi] (1.00.1295) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273168.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (2006) [En] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273084.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273001.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ West of Loathing (2017) [En] (1.11.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272858.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ RUINER (2017) [Ru/Multi] (1.05b) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271883.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271684.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ SYNTHETIK: Legion Rising (2018) [Ru/Multi] (21.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271681.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270710.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Super Lucky's Tale (2018) [Ru/Multi] (2827966/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269837.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268430.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Flashback (2018) [Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266292.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ D1896 (2019) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265956.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Double Dragon: Neon (2014) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265624.jpg" />
 </div>
 
 

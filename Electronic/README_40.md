@@ -1,3 +1,61 @@
+###  Публикация: 1461603   (1021809) от 10.04.2021
+
+not even noticed - Muted Noises (2021) Gated Recordings [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Breakbeat, Ambient>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acid Dream (05:09)
+ 02. Bandit (04:43)
+ 03. Transcendence (04:55)
+ 04. Get Outta Here (04:51)(   Читать дальше...   )Жанр: Electro, Acid, IDM, Breakbeat, AmbientПродолжительность: 00:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9185AFF91222FDA3686E87C12BDDF9AFF73168D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461616   (1021793) от 10.04.2021
+
+VA - Forest Prog (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Forest>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golikem - Learning Talvor   08:10
+02. Meander - Little piggies   07:04
+03. Kasadelica - Presynaptic (  07:50
+04. Melt - Delysid 25    07:42(   Читать дальше...   )Жанр: Psy-Trance, ForestПродолжительность: 01:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB586F20CA6990F643E7BBED4D75D7F31AF5EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461691   (1021782) от 10.04.2021
 
 Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Special) (2021-04-09) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Specia
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021782.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jean-Michel Jarre - Amazonia (2021) Columbia [FLAC|Lossless|tracks+.cue] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021750.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Melodium - Discography 36 Releases (2001-2021) Audio Dregs [FLAC|Lossless|tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021735.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Keef Baker | Nimon | Slipdrive - Discography 20 Releases (2004-2021) Ant-Zen, Hy
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021699.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ How To Disappear Completely (HTDC, FOG & HTDC) - Discography 33 Releases (2012-2
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021683.jpg" />
 </div>
 
 
@@ -147,7 +205,7 @@ Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021628.jpg" />
 </div>
 
 
@@ -176,7 +234,7 @@ Ferrein - Openclose (2012) Farver [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dow
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021450.jpg" />
 </div>
 
 
@@ -205,7 +263,7 @@ Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021432.jpg" />
 </div>
 
 
@@ -234,7 +292,7 @@ VA - Spacechillers Vol. 4 (Compiled by Maiia) (2021) Mystic Sound Records [FLAC|
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021413.jpg" />
 </div>
 
 
@@ -263,7 +321,7 @@ Modeselektor - Discography 41 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021371.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ Maps and Diagrams - _Modulus (2021) Handstitched* [FLAC 2.0|44.1/48/24|tracks|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021322.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021321.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ Korolova - Live @ Tanzania (2021-04-09) [MP3|320 Kbps] <Deep House, Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021317.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ Room of Wires - Discography 8 Releases (2014-2021) Section 27, Ant-Zen [FLAC|Los
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021280.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ Maps and Diagrams (Maps & Diagrams) - Discography 50 Releases (2002-2021) Handst
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021247.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ VA - Nagual 4 (2017) ...txt [FLAC|Lossless|WEB-DL-USB Drive|tracks] <Ambient, Dr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021227.jpg" />
 </div>
 
 
@@ -463,7 +521,7 @@ Steve Roach - Skeleton Era Volume 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021226.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ Sufjan Stevens - Meditations (2021) Asthmatic Kitty [FLAC|Lossless|WEB-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021225.jpg" />
 </div>
 
 
@@ -521,7 +579,7 @@ VA - Moments to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021192.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ VA - Первому Покорителю Космоса (To The First Conqueror 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021187.jpg" />
 </div>
 
 
@@ -579,7 +637,7 @@ Kaon - Blurred (Side A) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambien
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021180.jpg" />
 </div>
 
 
@@ -608,7 +666,7 @@ Kiyoko (Synkro & Bering Strait) - Discography 7 Releases (2012-2020) Auxiliary, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021139.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ VA - Monstercat Instinct Vol. 7 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021137.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ Drumstone - AFTR:HRS SESSIONS 04 (2021-04-15) [MP3|320 Kbps] <Deep House, Progre
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020861.jpg" />
 </div>
 
 
@@ -680,64 +738,6 @@ Drumstone - AFTR:HRS SESSIONS 04 (2021-04-15) [MP3|320 Kbps] <Deep House, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EE85F626723170BB9AB00D44C02ABF49BF2CFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462878   (1020837) от 16.04.2021
-
-Mike Williams - Live @ Duif' Church, Netherlands (2021-04-09) [MP3|320 Kbps] <Future House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Williams - Get Dirty (Intro Edit)
-02. Kriss Reeve - Techno On My Mind
-03. Mike Williams & Curbi - Take Me There w/Ivan Gough & Feenixpawl ft. Georgi Kay - In My Mind (Acappella)
-04. Throttle ft. LunchMoney Lewis & Aston Merrygold - Money Maker (Mike Williams Remix)(   Читать дальше...   )Жанр: Future HouseПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D813D1B0FA5A3630F51F73D7C3E891746967608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462883   (1020783) от 16.04.2021
-
-Scooter - God Save The Rave (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futurum Est Nostrum
-02. God Save the Rave (feat. Harris & Ford)
-03. Never Stop The Show
-04. We Love Hardcore (feat. Dimitri Vegas & Like Mike)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781870D524965C8F90CC7587E3BB1B5FBB28CE83
 ```
 
 https://mybot314.ru/tekegram_catalog/

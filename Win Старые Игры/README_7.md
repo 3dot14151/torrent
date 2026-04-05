@@ -1,3 +1,55 @@
+###  Публикация: 1113869   (835789) от 12.03.2017
+
+Overlord (2007) [Multi] (1.4/dlc) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте в себе таланты тирана в Overlord – приключении-боевике, где лучше быть плохим, а быть еще хуже еще лучше. В извращенном фэнтезийном мире вам уготована роль повелителя странных чертенят-миньонов. Разумеется, вы можете остаться обычным повелителем и повелевать себе с девяти до семи ежедневно. Но разве вам порой не хочется стать самым деспотичным сатрапом (   Читать дальше...   )Тип издания: LicenseРазработчик: Triumph StudiosЖанр: Стратегия, Экшн, ФэнтезиЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CF94D9F8FC680C702AD8065CC5B560351D0947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379750   (835614) от 01.05.2020
+
+Shogo: Mobile Armor Division / Ярость: Восстание на Кронусе (1998) [Ru/En] (2.214) Repack Evengard
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается на планете Кронус, которая является единственным источником загадочного вещества «като», позволяющего перемещаться на огромные расстояния за ничтожное время. На планете идет жестокая гражданская война. Капитан UCA Санджуро Макабе высаживается на Кронусе с целью найти и обезвредить Габриэля — главаря повстанцев, которые называют себя «Падшими».Тип издания: RepackРазработчик: Monolith ProductionsЖанр: FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C06CFD0A0F2ECB52ABAECA75D70FF9E085D46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114146   (834538) от 13.03.2017
 
 Battle Realms (2001) [Multi] (1.0/dlc) License GOG
@@ -6,7 +58,7 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834538.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833099.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832784.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827479.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825815.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы (2003) [En
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825538.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Deathtrap Dungeon (1998) [En] (1.0 it fix) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825532.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Fantasy General (1996) [Multi] (1.0.20211006/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824326.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Warrior Kings: Battles / Лорды войны: Битва (2003) [En] (1.23) Li
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822192.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Death Gate (1994) [En/Ge] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820420.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Curse of monkey Island  / Проклятие острова обезьян [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818611.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818609.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818552.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818467.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Alone in the Dark 3 (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818457.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816733.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Army Men RTS / Вояки: RTS (2002) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816482.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Red Orchestra: Ostfront 41–45 (2006) [Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816345.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815561.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Delta Force (1998) [En] (1.00.03.03p) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814568.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Delta Force 2 (1999) [En] (1.06.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812749.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812699.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812638.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812637.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73487A5545D256FDC84989DBCFBF09955C88451A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118288   (812622) от 25.03.2017
-
-Delta Force: Black Hawk Down / Delta Force: Операция "Черный Ястреб" (2009) [En] (1.5.0/dlc) License GOG [Platinum Pack]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812622.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 октября 1993 года является черным днем в истории спецназа США. Именно тогда в Сомали им была предпринята попытка захвата влиятельного полевого командира. Эта операция стала самым большим провалом американского спецназа со времен войны во Вьетнаме. Потеряв несколько десятков бойцов убитыми и ранеными спецназовцы были вынуждены отступить... Измени ход истории и попытайся (   Читать дальше...   )Тип издания: LicenseРазработчик: Ritual Entertainment и NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118274A45D3E3C392245B274EFAE6901312C9CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118615   (810637) от 26.03.2017
-
-Planescape: Torment (1999) [Ru/En] (1.1) Repack R.G. Механики
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Planescape: Torment - одна из величайших игр в истории РПГ индустрии компьютерных игр. Великолепный сюжет аккуратно вплетен в рамки довольно жесткой Вселенной, а возможность пройти всю игру практически ни разу не ввязываюсь в драку с NPC делает ролевую систему игры поистине интересной. Здесь нет привычного оружия - зато игра переполнена всякого рода топорами, молотами (   Читать дальше...   )Тип издания: RepackРазработчик: Black Isle StudiosЖанр: RPG, IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41B9B68CECD054DBA9A11DC0F26CCDD3E8BA480
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Iratus Vir - Under a Midnight Sun (2023) [MP3|320 Kbps] <Melodic Death, Black Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234227.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jag Panzer - The Hallowed (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234209.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Levith - Around the Impulse (2023) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234202.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dead Shape Figure - The Sworn Book (2023) [MP3|320 Kbps] <Melodic Death, Thrash 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234182.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Slomatics & Domkraft - Ascend/Descend (2022) Split [MP3|320 Kbps] <Psychedelic S
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234117.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Greenbeard - 7 Albums (2014-2022) [MP3|320 Kbps, V0] <Stoner Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234080.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gladenfold - Nemesis (2022) [MP3|320 Kbps] <Melodic Death Metal, Symphonic Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234009.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Degrees of Truth - The Reins of Life (2016) [MP3|320 Kbps] <Symphonic Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233908.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Strange Horizon - Beyond the Strange Horizon (2022) [MP3|320 Kbps] <Doom Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233884.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233863.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Degrees of Truth - Time Travel Artifact (2019) [MP3|320 Kbps] <Symphonic Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233853.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Frozen Land - Out of the Dark (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233837.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cry of the Nile - Invocation (2023) [MP3|320 Kbps] <Death Metal, Blackened>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233739.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rage And Fire - The Last Wolf (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233563.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [MP3|320 Kb
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233539.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Arcane Order - Distortions from Cosmogony (2023) [MP3|320 Kbps] <Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233521.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ ScreaMachine - Borderline (2022) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233501.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ ScreaMachine - ScreaMachine (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233493.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Okwaho - The Usurper Regime (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233485.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Black Apples - Highball Roller (2023) [MP3|320 Kbps] <Heavy Psych, Stoner, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233459.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Irist - 2 Albums (2020-2022) [MP3|320 Kbps] <Sludge, Groove, Post Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233388.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Edenbridge - 3 Albums (2019-2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocals
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233282.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Vortex - The Future Remains In Oblivion (2023) [MP3|320 Kbps] <Melodic Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233160.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Huracan - We Are Very Happy (2022) [MP3|320 Kbps] <Sludge, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233146.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Vomitory - All Heads Are Gonna Roll (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233138.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Legal Hate - Moral Destruction (2022) [MP3|320 Kbps] <Thrash, Death Metal, Femal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233095.jpg" />
 </div>
 
 

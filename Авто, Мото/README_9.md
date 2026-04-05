@@ -1,3 +1,90 @@
+###  Публикация: 1401281   (711304) от 09.08.2020
+
+Серия Кубков NASCAR 2020. 21-й Этап. Мичиган 400. Гонка 1 / NASCAR Cup Series 2020. Round 21. FireKeepers Casino 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+08 августа 2020 года. Бруклин (штат Мичиган, США).
+21-й Этап. Мичиган 400 (FireKeepers Casino 400)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5698611AF2317137EB35083E884EFE1CC64D2210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401221   (710838) от 09.08.2020
+
+Формула Е 2019-2020. 8-й Этап. еПри Берлина II. Гонка / Formula E Championship 2019-2020. Round 08. Berlin E-Prix II. Race (2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710838.jpg" />
+</div>
+
+
+###  Подробнее
+
+6-й сезон Формула Е 2019-2020 года, чемпионат мира среди автомобилей с электроприводом, признанный Международной автомобильной федерацией (FIA) как самый высший класс электрических гоночных автомобилей с открытыми колесами.
+08 августа 2020, суббота. 20:03 МСК
+8-й Этап. еПри Берлина II. Берлин (Германия)
+Кругов:	35(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0392AF27D3086AA2E8092E9848371C590871EDCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401525   (709398) от 10.08.2020
+
+Серия Кубков NASCAR 2020. 22-й Этап. Мичиган 400. Гонка 2 / NASCAR Cup Series 2020. Round 22. Consumers Energy 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+09 августа 2020 года. Бруклин (штат Мичиган, США).
+22-й Этап. Мичиган 400 (Consumers Energy 400)
+Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778F3B7230C562FE9A5C3B0EB116039F5FA9BC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401439   (709053) от 10.08.2020
 
 Формула Е 2019-2020. 9-й Этап. еПри Берлина II. Гонка / Formula E Championship 2019-2020. Round 09. Berlin E-Prix II. Race (2020) HDTV [H.264/1080i-LQ]
@@ -6,7 +93,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709053.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707588.jpg" />
 </div>
 
 
@@ -61,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701720.jpg" />
 </div>
 
 
@@ -87,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701317.jpg" />
 </div>
 
 
@@ -116,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699822.jpg" />
 </div>
 
 
@@ -145,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698011.jpg" />
 </div>
 
 
@@ -174,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698003.jpg" />
 </div>
 
 
@@ -203,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697938.jpg" />
 </div>
 
 
@@ -232,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695940.jpg" />
 </div>
 
 
@@ -258,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694276.jpg" />
 </div>
 
 
@@ -287,7 +374,7 @@ MotoGP. Этап 01. Гран-при Катара. Квалификация (05.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686576.jpg" />
 </div>
 
 
@@ -313,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686031.jpg" />
 </div>
 
 
@@ -342,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684389.jpg" />
 </div>
 
 
@@ -371,7 +458,7 @@ MotoGP. Этап 02. Гран-при Индонезии. Гонка (20.03.2022)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663274.jpg" />
 </div>
 
 
@@ -397,7 +484,7 @@ MotoGP. Этап 03. Гран-при Аргентины. Гонка (03.04.2022)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642850.jpg" />
 </div>
 
 
@@ -423,7 +510,7 @@ MotoGP. Этап 04. Гран-при США. Квалификация (09.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631833.jpg" />
 </div>
 
 
@@ -449,7 +536,7 @@ MotoGP. Этап 04. Гран-при США. Гонка (10.04.2022) WEBRip [H.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629662.jpg" />
 </div>
 
 
@@ -475,7 +562,7 @@ MotoGP. Этап 05. Гран-при Португалии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607985.jpg" />
 </div>
 
 
@@ -501,7 +588,7 @@ MotoGP. Этап 05. Гран-при Португалии. Гонка (24.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606117.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ MotoGP. Этап 06. Гран-при Испании. Гонка (01.05.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601001.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ MotoGP. Этап 07. Гран-при Франции. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590704.jpg" />
 </div>
 
 
@@ -579,7 +666,7 @@ MotoGP. Этап 07. Гран-при Франции. Гонка (15.05.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589764.jpg" />
 </div>
 
 
@@ -605,7 +692,7 @@ MotoGP. Этап 08. Гран-при Италии. Квалификация (28.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579021.jpg" />
 </div>
 
 
@@ -616,84 +703,6 @@ MotoGP. Этап 08. Гран-при Италии. Квалификация (28.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3CE9000A37763740D593DC52C8C4E460299B965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555589   (568903) от 04.06.2022
-
-MotoGP. Этап 09. Гран-при Каталонии. Квалификация (04.06.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568903.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 июня 2022, суббота. 15:10 МСК. Этап 9, Барселона, Испания. Гран-при Каталонии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC3F959BE5918975431DBE653F31C0CD4A329B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555816   (567346) от 05.06.2022
-
-MotoGP. Этап 09. Гран-при Каталонии. Гонка (05.06.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567346.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 июня 2022, воскресенье. 15:00 МСК. Этап 9, Барселона, Испания. Гран-при Каталонии. Гонка (23 круга)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1745062FA2C68A6FDC0A9D0F256423B0BAC63DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239268   (540342) от 04.08.2018
-
-Макларен / McLaren (2017) DVB [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брюс Макларен — новозеландец, его отец когда-то серьезно увлекался автогонками. После завершения карьеры гонщика от открыл собственную автомастерскую, и маленький Брюс проводил там дни напролет — несмотря на то, что у него были проблемы со здоровьем, и каждое движение доставляло ему боль. Болезнь закалила характер Брюса. Он учился в местном университете, изучал конструирование (   Читать дальше...   )Телекомпания: Новая ЗеландияЖанр: Документальный, Автоспорт, БиографияПеревод: Двухголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FFA454C7FA372F9295248C0F3B09E69B933497
 ```
 
 https://mybot314.ru/tekegram_catalog/

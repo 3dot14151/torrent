@@ -1,3 +1,30 @@
+###  Публикация: 1514266   (218142) от 02.12.2021
+
+ЯЮниор, Роман Сакутин | C#. Для профессионалов (2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс нацелен на разработчиков, которые уже овладели базовыми средствами языка и хотят развиваться дальше!
+В курсе представлены блоки практики с различными технологиями, чтобы вы были свободны в творчестве и профессии.Производство: ЯЮниорЖанр: ПрограммированиеПродолжительность: 04:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C0086DDE9AE9DBEFD1303228F53054FE43D505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514308   (218113) от 02.12.2021
 
 Udemy, Elchin Jamalov | VMware vSphere 6 - полный видеокурс (2021) WEB-DL [AD]
@@ -6,7 +33,7 @@ Udemy, Elchin Jamalov | VMware vSphere 6 - полный видеокурс (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218113.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217575.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ OTUS, Вадим Заигрин | Apache Kafka (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217537.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Web Developer in 2023: Zero to
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217526.jpg" />
 </div>
 
 
@@ -118,7 +145,7 @@ Geekbrains | Контекстная реклама. Привлечение кл�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217291.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ Udemy, Михаил Чирков | Python: Быстрый старт (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217230.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217048.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217005.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216960.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216755.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216648.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216631.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216265.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216242.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216201.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ Udemy, Дмитрий . | Java до уровня Junior Developer за 3 мес�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215972.jpg" />
 </div>
 
 
@@ -441,7 +468,7 @@ Udemy, Семен Паничев | С++ GOF Паттерны проектиро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215843.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ Udemy, Журавлёв Сергей | C++ | STL | Библиотека стан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215594.jpg" />
 </div>
 
 
@@ -498,7 +525,7 @@ The Gnomon Workshop, Madeleine Scott-Spencer | Введение в ZBrush 2020 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215444.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ Udemy, Eduard Kozlov | Эффективная разработка модуле�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215428.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215415.jpg" />
 </div>
 
 
@@ -579,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215264.jpg" />
 </div>
 
 
@@ -605,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215122.jpg" />
 </div>
 
 
@@ -632,7 +659,7 @@ JustNote Team, Дмитрий Гомонов | Курс по ремонту но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215058.jpg" />
 </div>
 
 
@@ -661,7 +688,7 @@ The Gnomon Workshop, Kat Unsworth | Modeling a Stylized Character for Games (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215053.jpg" />
 </div>
 
 
@@ -672,34 +699,6 @@ The Gnomon Workshop, Kat Unsworth | Modeling a Stylized Character for Games (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A691FF69A1F0D820725A7529C4AD110FA3FE2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966412   (214972) от 19.12.2015
-
-Специалист | Особенности подготовки облачной инфраструктуры средствами Microsoft System Center 2012R2 Virtual Machine Manager (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересуетесь технологиями виртуализации Microsoft для корпоративных сред? 22 ноября приглашаем всех желающих на бесплатный вебинар учебного центра «Специалист» при МГТУ имени Н.Э. Баумана «Особенности подготовки облачной инфраструктуры средствами Microsoft System Center 2012R2 Virtual Machine Manager».
-
-Занятие ориентировано на ИТ-специалистов, отвечающих за разработку, (   Читать дальше...   )Жанр: Облачная инфраструктураПродолжительность: 01:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702AC31A5058C234F334BC905A580C80B86912CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

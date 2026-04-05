@@ -1,61 +1,3 @@
-###  Публикация: 1020240   (744854) от 26.05.2016
-
-Би-2 - ... и корабль плывёт (2000) 2xCD, 2016, Мистерия звука [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744854.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. И корабль плывет... (3:53)
-02. Восток (3:54)
-03. Сердце (5:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:16 + 00:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4196CBFBAC53A54471587DFECF78F8102D63BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665477   (744207) от 06.06.2013
-
-Земфира - Спасибо, Вендетта (2007) [FLAC|Lossless|image + .cue]<Rock, Acoustic, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В метро [2:54]
-02. Воскресенье [2:31]
-03. Дом [3:49]
-04. Мы разбиваемся [3:20](   Читать дальше...   )Жанр: Rock, Acoustic, Pop RockПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552165   (742760) от 07.06.2013
 
 Сияние (1 альбом + 1 Сингл) (2012-2013) [FLAC|Lossless] <Rock, Alternative>
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742760.jpg" />
 </div>
 
 
@@ -93,7 +35,7 @@ Project NT - Веселые песни о Жизни и Смерти (2019) WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742467.jpg" />
 </div>
 
 
@@ -122,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739606.jpg" />
 </div>
 
 
@@ -151,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739070.jpg" />
 </div>
 
 
@@ -180,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739039.jpg" />
 </div>
 
 
@@ -210,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736901.jpg" />
 </div>
 
 
@@ -239,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736190.jpg" />
 </div>
 
 
@@ -268,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736153.jpg" />
 </div>
 
 
@@ -297,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735320.jpg" />
 </div>
 
 
@@ -326,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734422.jpg" />
 </div>
 
 
@@ -355,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733526.jpg" />
 </div>
 
 
@@ -384,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733520.jpg" />
 </div>
 
 
@@ -413,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733094.jpg" />
 </div>
 
 
@@ -442,7 +384,7 @@ The Чиж & Co - На поле танки грохотали (2020) [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733074.jpg" />
 </div>
 
 
@@ -471,7 +413,7 @@ VA - Трибьют Сергею "Чиж" Чигракову, Vol. 2 (2022) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730763.jpg" />
 </div>
 
 
@@ -500,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730714.jpg" />
 </div>
 
 
@@ -529,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728002.jpg" />
 </div>
 
 
@@ -558,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727443.jpg" />
 </div>
 
 
@@ -587,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727032.jpg" />
 </div>
 
 
@@ -616,7 +558,7 @@ Katalepsy - Terra Mortuus Est (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725217.jpg" />
 </div>
 
 
@@ -645,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_723751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723751.jpg" />
 </div>
 
 
@@ -671,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721401.jpg" />
 </div>
 
 
@@ -700,7 +642,7 @@ Los Havtanos - Иди ко мне / Ven A Me (2021) 2xCD [FLAC|Lossless|image + 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718723.jpg" />
 </div>
 
 
@@ -729,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716268.jpg" />
 </div>
 
 
@@ -743,6 +685,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1EB9A2EA80C91114B70CD5613305ECFA46E42FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286394   (712747) от 02.03.2019
+
+Би-2 - Нечётный воин 4. Часть 2 (Retro Edition) (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сон про снег (feat. Настя Полева)
+02. Песня для героя (памяти Пипа) (feat. Варя Демидова)
+03. Унисон
+04. Для тех, кто в танке(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB59474F1B59183CF04A7F7ED362008FA5901B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 670253   (711145) от 21.06.2013
+
+...И Друг Мой Грузовик - Еще Маленький (2005) [FLAC|Lossless]<Rock, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Внутренний Гринпис [07:00]
+ 02. Хороший [05:37]
+ 03. Del Piero [04:01]
+ 04. Пневматика [04:01](   Читать дальше...   )Жанр: Rock, Alternative Rock, Indie RockПродолжительность: 00:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BB642B986DD9BC1054BBFF36F0E0BE00BD0FA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

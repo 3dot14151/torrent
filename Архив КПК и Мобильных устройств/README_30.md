@@ -6,7 +6,7 @@ VN v1.34.12 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754810.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_754768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754768.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ruler App v2.1.4 [Ru/En]  - Линейка в вашем смартфоне ил
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754717.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754623.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754005.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Wave Blazer 1.0.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753873.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753288.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Today Weather - Прогноз погоды, виджет и радар v2.0.0-1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753284.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753222.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DVGet v7.3.0 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753104.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Photoshop CS6 for phone 6.0.6 [Rus]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753084.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752690.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751623.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Clime: Прогноз погоды и Радар v1.48.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751425.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Camera ZOOM FX 6.1.6 [Ru/Multi] - камера с расширенными во�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751177.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Watermark Batch 1.0 (build 3) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750188.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749949.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Implosion - Never Lose Hope 1.0.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749546.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Whacksy Taxi 1.04 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748433.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Prof Reminder v2.2.4 Full [Ru/Multi] - Напоминание о пропуще�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747949.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VPN Россия: Русский IP proxy v1.82 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747624.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Military Defense TD PRO / Защита острова TD PRO 1.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744685.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Moovit  v5.83.0.513 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744673.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ WeatherShot v6.2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743639.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ MyLifeOrganized 2 Pro 2.12.16 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743159.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Garmin: Дороги России Топо 6.22 (FID 3332 + FID 4594) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742863.jpg" />
 </div>
 
 

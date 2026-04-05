@@ -1,3 +1,29 @@
+###  Публикация: 1746722   (44982) от 01.09.2024
+
+Институт современного НЛП, Михаил Пелехатый, Евгений Спирица | Профессиональный переговорщик (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научись беспрекословному влиянию и стань престижным переговорщиком всего за 6 месяцев! Сейчас мир изменился. И процесс обучения тоже! То чему нужно было учиться годами, можно освоить гораздо быстрее используя современные технологии обучения. Спрос на услуги профессиональных переговорщиков особенно вырос на период кризиса. Клиентам нужен быстрый результат, люди не (   Читать дальше...   )Производство: Институт современного НЛПЖанр: видеокурс, обучающий курс, вебинар, НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 75:31:47Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806311B5CF3445457DA94AAE6A82052349EE6EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746901   (44842) от 02.09.2024
 
 Christopher Schwarz | Верстак (2008) DVDRip [EN, RU]
@@ -6,7 +32,7 @@ Christopher Schwarz | Верстак (2008) DVDRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44842.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-740) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44792.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Robert Spiece | Двери для шкафов и изысканной мебе�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44632.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Jim Heavey | Ящики для шкафов и изысканной мебели
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44386.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44352.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44330.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44325.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Cynthia Bleskachek | Начало работы с обивкой мебели (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44280.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44259.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Christopher Schwarz | Создайте походное кресло (2018) WEBR
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44227.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Profileschool, Никита Чесноков | Blender - продвинутый 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44157.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ CG INCUBATOR, Артём Куприяненко | Архитектурный в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44148.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44139.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44123.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Profileschool, Никита Чесноков | Blender - базовый уров
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44051.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ pro-z.ru | Проектирование одноэтажного жилого д
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44045.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ pro-z.ru | Обследование конструкций зданий (2024) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44040.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ pro-z.ru | Проектирование стального каркаса скл
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44039.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44033.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44020.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ George Vondriska | Изготовление ящиков: «ласточкин �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43452.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43400.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43318.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42912.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ George Vondriska | Основы изготовления мебели (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42760.jpg" />
 </div>
 
 
@@ -668,35 +694,6 @@ George Vondriska | Основы изготовления мебели (2015) WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87D832A5E868ABD01030629866E3885386C7A48B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751194   (42696) от 23.09.2024
-
-Вольница, Андрей Шкиль | BLNDR - База v2 (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это база! И этим все сказано!
-38 бесплатных уроков про Blender, которые не только помогут вам сделать первые шаги в этой программе, но и научат полезным навыкам!
-Вы сделаете авторскую low poly модель и освоите базовый 3D моушн дизайн.
-Главное, вы пройдете этот путь не одни! А с объемными фидбеками от автора курса и коллегами в чате!Производство: ВольницаЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 13:17:29Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02987F6BECD9E2BDDCA0214F352F42D94F4E589C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768738.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Тайны истории: Бостонский душитель / The Hunt 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768355.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Тайны истории. Эксперименты ЦРУ / CIA Secret Expe
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768326.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Тайны истории: Ди Би Купер. Сбежавший терр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768316.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768300.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767537.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NG: Затерянные сокровища змеиных царей майя /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767301.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Джейн / Jane (2017) IPTVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767228.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Discovery: Экватор / Equator (2005) BDRemux [H.264/1080i] (серии 1-6
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766747.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766634.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Nat Geo Wild: Потерянные миры Индии / India's Lost Worlds (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766148.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG. Тайны истории: Джордж Вашингтон / The Real George
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766128.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Откуда берутся диктаторы / Making a Dictator (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766108.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766082.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765965.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765961.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765949.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765932.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765907.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NGW: Рожденные в Африке. Уроки охоты / Born in Africa 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765398.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NGW: Дикая Ботсвана / Wild Botswana (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765396.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765395.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery. Техногеника. Гиперболоидные конструк
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765372.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765359.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765333.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765274.jpg" />
 </div>
 
 

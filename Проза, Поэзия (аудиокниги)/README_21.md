@@ -1,3 +1,29 @@
+###  Публикация: 1111839   (845152) от 07.03.2017
+
+Михаил Дубинский | Женщина в жизни великих и знаменитых людей (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга, впервые изданная более века назад, до сих пор представляет большой интерес для любителей исторической и мемуарной литературы. Собранный автором богатейший материал послужил основой для создания галереи женских образов, временные рамки которой охватывают более чем двухтысячелетний период. Читатель узнает о влиянии любимых женщин на жизнь, творчество и поступки (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 24:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB5DC983F72E38ACC98630EF3B8DF3189E8A228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111892   (845151) от 07.03.2017
 
 Фрэнсис Скотт Фицджеральд | Издержки хорошего воспитания (2017) [MP3]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845151.jpg" />
 </div>
 
 
@@ -24,33 +50,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 308949   (844210) от 14.03.2011
-
-Стивен Кинг | Метод дыхания [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_844210.jpg" />
-</div>
-
-
-###  Подробнее
-
-В странном клубе собираются странные люди, рассказывающие странные истории. Истории, услышав которые раз, не забудешь больше никогда. Истории о людях, подошедших к краю мрака.
-Много лет назад четверо мальчишек из маленького американского городка отправились в путь на поиски пятого - погибшего. В путь, лежавший через ночь. Через боль. Через страх. В путь, пройдя который, уже не будешь таким, как раньше...Жанр: Мистика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654A62A3934B064032B9ABBC9AB59F4C77AF7859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003255   (843494) от 03.04.2016
 
 Михаил Гаёхо | Мост через канал Грибоедова (2015) [MP3]
@@ -59,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843494.jpg" />
 </div>
 
 
@@ -85,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843485.jpg" />
 </div>
 
 
@@ -114,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842811.jpg" />
 </div>
 
 
@@ -140,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841787.jpg" />
 </div>
 
 
@@ -166,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841637.jpg" />
 </div>
 
 
@@ -192,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841599.jpg" />
 </div>
 
 
@@ -218,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841489.jpg" />
 </div>
 
 
@@ -244,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841092.jpg" />
 </div>
 
 
@@ -270,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840106.jpg" />
 </div>
 
 
@@ -297,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839990.jpg" />
 </div>
 
 
@@ -323,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839884.jpg" />
 </div>
 
 
@@ -349,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839778.jpg" />
 </div>
 
 
@@ -375,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839410.jpg" />
 </div>
 
 
@@ -402,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838417.jpg" />
 </div>
 
 
@@ -429,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838184.jpg" />
 </div>
 
 
@@ -457,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838169.jpg" />
 </div>
 
 
@@ -483,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837553.jpg" />
 </div>
 
 
@@ -509,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835993.jpg" />
 </div>
 
 
@@ -535,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835978.jpg" />
 </div>
 
 
@@ -553,32 +552,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 879640   (835430) от 19.03.2015
-
-Булат Окуджава | Избранное (2013) [MP3, Валерия Лебедева]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835430.jpg" />
-</div>
-
-
-###  Подробнее
-
-В годы оттепели его песни растопили лед слишком ненадежных истин. Его искусное, изысканное слово было внятно современнику и потому казалось доступным и простым. Он запечатлел чувство времени, тайну сердца, загадку искусства. Он был гражданином и приглашал поразмышлять о достоинстве и чести, о минувшем и нынешнем дне. Уходя, он напомнил, что есть надежды нас предостеречь.Жанр: Аудиокнига, поэзияИздательство: Нигде не купишьПродолжительность: 05:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C236900C594E67D7B976B4566CCBBE34D292F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113961   (835241) от 13.03.2017
 
 Стефан Гейм | Книга царя Давида (2013) [MP3]
@@ -587,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835241.jpg" />
 </div>
 
 
@@ -613,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835183.jpg" />
 </div>
 
 
@@ -639,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835179.jpg" />
 </div>
 
 
@@ -665,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835051.jpg" />
 </div>
 
 
@@ -677,6 +650,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01EC0427BDC970866E56B61E80C8D7D39CAA097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005202   (834461) от 08.04.2016
+
+Алексей Слаповский | Большая книга перемен (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834461.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом романе "Большая книга перемен" есть все: и любовь (трех друзей к своей однокласснице, юной девушки к богатому разбойнику, мужа к жене), и потери (друзей, здоровья, близкого, самого себя), и успех (на сцене, в профессии, бизнесе), и даже детективное расследование (обстоятельств исчезновения человека)... Каждый герой должен сделать выбор, от которого (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 26:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D033FC9B099FF849275B64D6AB8D849BB55D8B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

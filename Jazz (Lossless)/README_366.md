@@ -6,7 +6,7 @@ Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16650.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mark Winkler - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16646.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Will Sumner - Rivers (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16641.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duke Ellington - Ellington Uptown / The Liberian Suite / Masterpieces By Ellingt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16527.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15838.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ V.A. - Pop International Hits Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15761.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Susannah McCorkle - Dream (1987) 2002, The Jazz Alliance [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15743.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15556.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mark Murphy - Mark Murphy Sings (1975) 1995, Muse Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15537.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15452.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15145.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Branford Marsalis Quartet - Belonging (2025) Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15039.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15038.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ella Fitzgerald - Golden Legends (2006) CD, Compilation [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15034.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dexter Gordon - Three Classic Albums Plus (1955, 1960) 2CD, 2014, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14404.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Lady & The Dappers - Electro Swing Vol. 1 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13600.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13581.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13580.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13566.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13557.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Michael Sagmeister & Pat Martino - Conversation (2000) Acoustic Music Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13259.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ George Shearing - Favorite Things (1997) Telarc [FLAC|Lossless|image + .cue] <Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12947.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Art Pepper - Four Classic Albums (1956, 1957) 2CD, 2008, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12747.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Victor Feldman - The Arrival of Victor Feldman (1958) 1998, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12227.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Jazz Piano History (20 CD-set) (2006) [FLAC|Lossless] <Jazz, Ragtime, Booge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12194.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - The World's Greatest Jazz Collection (2008) /500 CD Box Set/ [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12193.jpg" />
 </div>
 
 

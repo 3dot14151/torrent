@@ -1,3 +1,32 @@
+###  Публикация: 1593929   (57909) от 01.05.2024
+
+Орлок - 2 Albums (2022-2024) [MP3|320 Kbps] <Hardcore-Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арахноизм [00:02:52]
+02. Человек в банкетной маске [00:02:35]
+03. Клаату верата никту [00:02:16]
+04. Пиджак [00:01:58](   Читать дальше...   )Жанр: Hardcore-Punk-RockПродолжительность: 2 CD, 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DD0868974FC6FBFB5382058777263156A46A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720400   (57737) от 03.05.2024
 
 Various Artists - Punk Floyd: A Tribute To Pink Floyd (2024) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Various Artists - Punk Floyd: A Tribute To Pink Floyd (2024) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57737.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mark Knopfler - The Boy (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57721.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Serj Tankian - Дискография (2007-2010) [MP3|192-320 kbps]<Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57593.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Gorillaz - Дискография (2001-2010) [FLAC|lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57583.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ System of a Down - 5 альбомов (1998-2005) [FLAC|Lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57579.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Bryan Ferry - Discography (1973..2009) [MP3|320 kbps]<Rock, Glam Rock, Art Rock,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57557.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ Avril Lavigne - 6 альбомов (2002-2007) [FLAC|Lossless] <Pop-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57556.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Accept - Russian Roulette (1986) Reissue, Remastered, 2014, Hear No Evil Recordi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57500.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ XYZ - Take What You Can... Live (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57297.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ Def Leppard - Pyromania (1983) 4 x CD, 40th Anniversary, Reissue, Remastered, Vi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57290.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ Gloom - дискография: 3 альбома (2006-2020) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57085.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56880.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Babylon A.D. - Rome Wasn't Built In A Day (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56869.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Joe Satriani - Onomatopoeia (2024) Live [MP3|320 Kbps] <Hard Rock, Instrumental 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56457.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Smokie - 9 Albums, Box Sets, (1990-2002) 12CD [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56384.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Billie Eilish - Hit Me Hard and Soft (2024) [MP3|320 Kbps] <Indie Pop, Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56164.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Kerry King - From Hell I Rise (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56033.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Mark Knopfler - Duets & Collaborations (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55991.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Praying Mantis - 18 albums, 23CD (1981-2024) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55972.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ twenty one pilots - Clancy (2024) [MP3|320 Kbps] <Indie Pop, Pop Rock, Electroni
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55948.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Audio Reign - The Perfect Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55935.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Mark Knopfler - Duets & Collaborations (2024) [MP3|320 Kbps] <Rock, Country, Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55931.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Lenny Kravitz - Blue Electric Light (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55617.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Bring Me The Horizon - Post Human Nex Gen (2024) [MP3|320 Kbps] <Alt. Metal, Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55604.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ Metallica - Metallica (1991) Reissue, Remastered, 2021, Blackened Recordings [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55320.jpg" />
 </div>
 
 
@@ -707,35 +736,6 @@ CD1 - Metallica Remastered:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CACABE6191F0CC07E15B3E322655974FDE42CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725781   (55289) от 26.05.2024
-
-Bring Me The Horizon - Post Human Nex Gen (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Metalcore, Industrial Rock, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - (ost) dreamseeker [00:00:19]
-02 - YOUtopia [00:04:02]
-03 - Kool-Aid [00:03:48]
-04 - Top 10 staTues tHat CriEd bloOd [00:04:00](   Читать дальше...   )Жанр: Alt. Metal, Metalcore, Industrial Rock, Electronic RockПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEB315D1A381D65B02D73E34E9BC31227625D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

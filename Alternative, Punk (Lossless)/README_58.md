@@ -6,7 +6,7 @@ Sinead O'Connor - 2 Альбома (2011-2012) [FLAC|Lossless/tracks+.cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195090.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mind Swell - Mind Swell (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Beatdown, Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193155.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Sprain - The Lamb as Effigy (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193117.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Dr. Acula - Dr. Acula (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193019.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [FLAC 2.0|48
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192965.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192947.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192923.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Glacerate - Hyper (2023) [FLAC|Lossless|WEB-DL|tracks] <Hyper Metal, Hardcore Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192772.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Vydro - V[Y]Idro (2023) [FLAC|Lossless|WEB-DL|tracks] <rapcore, nu metalcore, al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192763.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ This Is Not Real - Evanescent (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192649.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Slowdive - everything is alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192444.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Everlasting Fall - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192305.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Little Falls Trophy - Dutch Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191950.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Heartbound - Pace (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191947.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Tears to Embers - Masquerade (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191938.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Cult (Holy Barbarians) - 16 альбомов, 4 Box Set, 1 EP (1984-2022) [4
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190928.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ The Pretty Reckless - Other Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Country
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190870.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Colony Collapse - You Miss Everything (2022) Deluxe Edition, 2023, Theoria Recor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190675.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Saliva - Revelation (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190580.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Daiistar - Good Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ und Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190211.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Captain Planet - Come On, Cat (2023) [FLAC|Lossless|WEB-DL|tracks] <Verschiedene
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190193.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ The Sound That Ends Creation - Exactly What You Thought, But Worse Than You Imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190190.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Limbs - Everything Under Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Mathcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190188.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Osaka Punch - Mixed Ape (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190158.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Garbage - Anthology 1995-2022 (2022) 2 x CD, Compilation, Remastered [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189924.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Ever Since Eve - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188537.jpg" />
 </div>
 
 

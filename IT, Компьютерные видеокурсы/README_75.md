@@ -1,36 +1,3 @@
-###  Публикация: 492243   (248378) от 06.05.2012
-
-Специалист | M6451 Планирование, развертывание и управление Microsoft System Center Configuration Manager 2007 [2011] PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248378.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом пятидневном курсе Вы овладеете знаниями и навыками, необходимыми для планирования, внедрения и управления Microsoft System Center Configuration Manager 2007 R3.
-
-На курсе особое внимание уделяется планированию и реализации сайтов и клиентов, конфигурации процесса развёртывания программного обеспечения и операционных систем и управлению обновлениями программного обеспечения. В ходе обучение Вы также рассмотрите средства удаленной работы и другие возможности SCCM.
-
-System Center Configuration Manager (SCCM), ранее Systems Management Server (SMS), представляет собой продукт Microsoft для управления большими группами Windows-систем.
- Configuration Manager обеспечивает инвентаризацию и контроль использования оборудования и программного обеспечения, управление обновлениями, распространение программного обеспечения, развертывание операционных систем, а также защиту доступа к сети.
-
-Данный курс предназначен для ИТ-специалистов с опытом работы по поддержке большого количества рабочих станций  и серверов под управлением (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 18:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80924EF4580A1F5A9598959C9C857745A41B7126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492231   (248377) от 06.05.2012
 
 Специалист | М6423 Кластерные решения на базе Windows Server 2008 R2 [2011] PCRec
@@ -39,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248377.jpg" />
 </div>
 
 
@@ -65,7 +32,7 @@ Udemy, Neville Adams | The Unreal Arsenal: Learn C++ and Unreal Engine (2023) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247679.jpg" />
 </div>
 
 
@@ -92,7 +59,7 @@ Slurm (Слёрм), Всеволод Севостьянов, Павел Сели
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247543.jpg" />
 </div>
 
 
@@ -121,7 +88,7 @@ Udemy, Антон Ларичев | NestJS - с нуля, современный 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247542.jpg" />
 </div>
 
 
@@ -147,7 +114,7 @@ Udemy, Sean Bradley | Zabbix 6 Application and Network Monitoring (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247532.jpg" />
 </div>
 
 
@@ -175,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247525.jpg" />
 </div>
 
 
@@ -202,7 +169,7 @@ Udemy, Jonas Schmedtmann | The Ultimate React Course 2023: React, Redux & More  
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247431.jpg" />
 </div>
 
 
@@ -231,7 +198,7 @@ Udemy, Ardit Sulce | Python Mega Course: Learn Python in 60 Days, Build 20 Apps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247409.jpg" />
 </div>
 
 
@@ -257,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247322.jpg" />
 </div>
 
 
@@ -286,7 +253,7 @@ Udemy, Андрей Кудлай | Telegram bot интернет-магазин.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247151.jpg" />
 </div>
 
 
@@ -312,7 +279,7 @@ Stepik, Герман Янгалин | Экспресс-курс по Arduino, э
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247023.jpg" />
 </div>
 
 
@@ -339,7 +306,7 @@ PurpleSchool, Stepik, Антон Ларичев | HTML и CSS - полный к�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246978.jpg" />
 </div>
 
 
@@ -365,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246928.jpg" />
 </div>
 
 
@@ -394,7 +361,7 @@ Udemy, Stanislav Gorchakov | Автоматизированный Telegram-ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246925.jpg" />
 </div>
 
 
@@ -422,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246910.jpg" />
 </div>
 
 
@@ -451,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246708.jpg" />
 </div>
 
 
@@ -481,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246704.jpg" />
 </div>
 
 
@@ -507,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246678.jpg" />
 </div>
 
 
@@ -535,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246651.jpg" />
 </div>
 
 
@@ -570,7 +537,7 @@ Astra Linux Team, Александр Соболев, Сергей Третьяк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246356.jpg" />
 </div>
 
 
@@ -596,7 +563,7 @@ it-black, Виктор Черемных | Администрирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246352.jpg" />
 </div>
 
 
@@ -624,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246189.jpg" />
 </div>
 
 
@@ -653,7 +620,7 @@ Udemy, David Long | Conway's Game of Life with SDL2 and C++ (2022) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244496.jpg" />
 </div>
 
 
@@ -682,7 +649,7 @@ Udemy, Tom Looman, Epic Games | Unreal Engine 4 Mastery Create Multiplayer Games
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244295.jpg" />
 </div>
 
 
@@ -709,7 +676,7 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244078.jpg" />
 </div>
 
 
@@ -720,6 +687,35 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9384D636BAD6276BFCFCCF37E9367878F00F123F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567821   (243660) от 04.08.2022
+
+Никита Строков | Адекватный директ (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243660.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе я расскажу, как:
+
+Запускать рабочие рекламные кампании за 5-6 дней
+Вести кампании и сокращать цену заявки в 2-5 раз(   Читать дальше...   )Жанр: Яндекс ДиректЯзык озвучки: РусскийПродолжительность: 19:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

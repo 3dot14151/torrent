@@ -6,7 +6,7 @@ Bring Me the Horizon - Live at Wembley (2015) 2CD [MP3|320 кб/с]<Post-Hardcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583956.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Avenged Sevenfold - 6albums + 4EPs + 12singles (1999-2013) [MP3|320kbps] <Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583880.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Himinbjorg - Wyrd (2015) [MP3|320 кб/с]<Pagan/Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583022.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Set In Stone - Where Secrets Hide (2015) [MP3|320 кб/с]<Metalcore / Post-Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583019.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Braindeadz - Born From Damnation (2011) [MP3|320 kbps]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582110.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ StoneLake - Marching On Timeless Tales (2011) [MP3|320 kbps]<Heavy metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582067.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Asgard - The Seal Of Madness (2011) [MP3|320 kbps]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582027.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Paul Wardingham - The Human Affliction (2015) [MP3|320 кб/с]<Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581940.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ DarkTribe - The Modern Age (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581123.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Atkins May Project (Ex-Judas Priest) - Anthology (2015) [MP3|320 кб/с]<Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581064.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Parom - Hromovladca (2016) [MP3|320 Kbps] <Folk Metal, Pagan Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580528.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Lacrimas Profundere - Hope Is Here (2016) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580525.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Equilibrium - Armageddon (2016) [MP3|320 Kbps] <Viking Metal, Epic Metal, Folk M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580424.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sonata Arctica - Closer to an Animal (2016) Single [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579413.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Licrest - Nothing (2015) [MP3|320 кб/с]<Doom/Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579094.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Lamb of God - VII: Sturm und Drang (2015) Deluxe Edition [MP3|320 кб/с]<Groov
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578837.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Battle Beast - Steel (2011) [MP3|320 kbps]<Heavy metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578663.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Accept - Полная коллекция хитов (2012) [MP3|320 кб/с]<Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578375.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Tito Falaschi - Mirror Of Souls (2022) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577900.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Edguy - Monuments (2017) 2CD [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577877.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ X Opus - The Epiphany (2011) [MP3|320 kbps]<Symphonic Power Metal / Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577276.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Megadeth - Дискография (12 альбомов) + Live Albums (4 аль�
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576095.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Asmodai - 3 Relise (2021-2022) [MP3|320 Kbps] <Industrial Metal, Witch House>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575672.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Tankard - A Girl Called Cerveza (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575176.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Immortal - Northern Chaos Gods (2018) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574661.jpg" />
 </div>
 
 
@@ -773,7 +773,7 @@ Magistarium - Dreamlord Opera (2022) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574021.jpg" />
 </div>
 
 

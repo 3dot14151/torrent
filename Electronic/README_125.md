@@ -1,3 +1,61 @@
+###  Публикация: 1121379   (800651) от 02.04.2017
+
+VA - Ferry Corsten presents:Corstenas Countdown March (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - Ten Seconds Before Sunrise (Moska Remix) (05:07)
+02. Solid Stone & Tiffany Johnston - Tempted (Extended Mix) (05:49)
+03. Max Millian - Evolve (Extended Mix) (06:09)
+04. Dan Dobson - Pressurized (Original Mix) (06:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC582BA4E503B92AB8264DB3F7FAAB037154D95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120888   (800647) от 02.04.2017
+
+VA - Easy Sun Lounger Born To Be Cool Chillin Vol.4 (Finest Chill Out Lounge and Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  York & Anthya - The Horizon Of Mars  5:39
+02.  351 Lake Shore Drive - Sunrise  5:37
+03.  Inventors Of The Sun - Wonder Of Romance  5:19
+04.  Lazy Hammock - Naked Being  4:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBF6A6F422B95C822E5A8DBDD8B35A13887C69D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120879   (800644) от 02.04.2017
 
 VA - Trance In Space 5 (2017) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Trance In Space 5 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800644.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Luxury Chill out Deluxe: The Worlds Rich and Famous Lounge (2017) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800642.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - 1001 Chillout Nights (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800611.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - 1001 Oriental Nights, Chill Out Ethnic Cafe Lounge (2017) [MP3|320 Kbps] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800544.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Schneeweiss VII (Presented By Oliver Koletzki) - 2017 [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800509.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dawid Jurzyk - Mysterious Forest (2017)Single [MP3|320 Kbps] <Progressive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800488.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Charming Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800486.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Antoine Clamaran - Lafayette V.O. La Compil' (2006) [FLAC|Lossless|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800450.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - A Decade Ilian Tape (2017) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Breakb
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800449.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ VA - Alpine Lifestyle Lounge Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800448.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ VA - Hed Kandi - Twisted Disco (2009) [FLAC|Lossless|tracks] <Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800446.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Morning Coffee Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800444.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Patrick Bernard - Divine Grace Divine (2017) [MP3|320 Kbps] <New Age>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800418.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Electronic Bliss (25 Beautiful Relaxed Anthems) Vol.4 (2018) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800417.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Hed Kandi - The Mix: Summer (2009) [FLAC|Lossless|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800415.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Hed Kandi - Beach House (2009) [FLAC|Lossless|tracks] <House, Deep House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800413.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Hed Kandi - Twisted Disco (2007) [FLAC|Lossless|tracks] <House, Disco, Hard
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800411.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Nulabee - Queen for a Day (2018) [FLAC|Lossless|tracks] <Balearic,Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800409.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800408.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800363.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Triquetra - Ecstatic Planet (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800356.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Chillstep Files Vol.6 (2018) [MP3|320 Kbps] <Chillstep, Breaks, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800306.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Bossa n'Adele (2017) [FLAC|Lossless|image + .cue] <Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800297.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Sound Apparel - Magnum Opus Vol. 2 (Greatest Hits-Remastered) (2017)<Trance,Upli
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800296.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Sound Apparel - Magnum Opus Vol. 2 (Greatest Hits-Remastered) (2017)<Trance,Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4FA8591997BCD7C899AA9758757054C06295FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189452   (800294) от 17.01.2018
-
-Culprate - Unity Project, Pt. 1, 2, 3 (2017-2018) Open Outlets [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Experimental, Drum & Bass>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Culprate & Quok - Aqueous (04:20)
- 02. Culprate, Keota & Sophie Meiers - Mechanic Heartbeat (03:30)
- 03. Culprate & Protostar - Duality (04:35)
- 04. Culprate & Bloom - Aurora (03:59)(   Читать дальше...   )Тип издания: WEB •Жанр: Downtempo/Dubstep/ExperimentalПродолжительность: 00:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6FA0650C2F3CAEC2DF35783C6219D687F4EC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282114   (799989) от 23.05.2020
-
-Tesla Boy - Collection 6 Releases (2010-2020) [FLAC|Lossless|tracks + .cue, tracks] <Synthpop, New Wave, House>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eintrag (0:18)
-02. Абьюзер (4:09)
-03. Музыка моя (4:45)
-04. Почаще (5:10)(   Читать дальше...   )Жанр: Synthpop, New Wave, House |Продолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AA970DD8B430AFCC325ADCDCADD9CA45064DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

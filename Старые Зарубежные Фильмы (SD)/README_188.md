@@ -1,3 +1,134 @@
+###  Публикация: 1596813   (167827) от 12.12.2022
+
+Один дома / Home Alone (1990) WEB-DLRip [H.264] [Open Matte]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американское семейство отправляется из Чикаго в Европу, но в спешке сборов бестолковые родители забывают дома... одного из своих детей. Юное создание, однако, не теряется и демонстрирует чудеса изобретательности. И когда в дом залезают грабители, им приходится не раз пожалеть о встрече с милым крошкой.Производство: США / 20th Century Fox Film Corporation, Hughes EntertainmentЖанр: комедия, семейныйРежиссер: Крис КоламбусАктеры: Маколей Калкин, Джо Пеши, Дэниел Стерн, Кэтрин О’Хара, Джон Хёрд, Робертс Блоссом, Джерри Бэммен, Девин Рэтрей, Джон Кэнди, Киран КалкинПеревод: Профессиональный (дублированный), Профессиональный (многоголосый закадровый), Профессиональный (двухголосый закадровый)Субтитры: РусскиеПродолжительность: 01:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78CBFD71B8F052937675707618D15E95C59D24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515993   (167797) от 09.12.2021
+
+Идти преступным путём / Walk a Crooked Mile (1948) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о совместной работе агента ФБР (Деннис О’Киф) и сотрудника Скотленд-Ярда (Луис Хейуорд), которые предотвращают деятельность шпионской организации, целью которой было похищение секретных разработок из лаборатории ядерных исследований в Калифорнии. Наряду с такими картинами, как «Я был коммунистом для ФБР» (1951), «Вор» (1952), «Происшествие на Саут-стрит» (   Читать дальше...   )Производство: США, Edward Small Productions, Columbia PicturesЖанр: Фильм-нуар, драма, криминалРежиссер: Гордон ДугласАктеры: Луис Хейуорд, Деннис О’Кифи, Луиз Олбриттон, Карл Эсмонд, Онслоу Стивенс, Рэймонд Бёрр, Арт Бэйкер, Лоуелл Гилмор, Филип Ван Зандт, Чарльз ЭвансПеревод: Авторский (Андрей Дольский)Субтитры: Английские - отдельным файлoмПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7782D0529B43C5C8D9C232CB633580EDD83C168D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672758   (167788) от 29.10.2023
+
+Крепость / Az erod / The Fortress (1979) TVRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа любителей острых ощущений отправляется на форт, где тайно проводятся игры на выживание. Условия этой игры совсем нешуточные: им придется противостоять в военных действиях группе обученных солдат, которые, пленив их, могут делать с игроками все, что угодно...
+Фильм участвовал в Московском международном кинофестивале 1979 года и был отмечен премией Советского (   Читать дальше...   )Производство: Венгрия / Budapest Filmstúdió, MafilmЖанр: фантастикаРежиссер: Миклош СинетарАктеры: Белла Танаи, Шандор Остер, Йожеф Мадараш, Адам Райхона, Ференц Бач, Дьюла Бенкё, Петер Бенкё, Джорджиана Тарьян, Нора Немит, Юдит ХернадиПеревод: двуголосый любительский (den904 & deadsno)Язык озвучки: русский, венгерскийСубтитры: русские (Dekadansu), английскиеПродолжительность: 01:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9363DA1E4BE5F6380CD5AADA462E93039789B8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597179   (167773) от 13.12.2022
+
+Чарли Чейз. Минуточку / Just a Minute (1924) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джимми Джамп, продавец автомобилей, который собирается жениться. Его босс приказывает ему показать машину мэру этого городка. Джимми оставляет девушку на углу всего на минуту, но эта минута получилась так длинна... Короче, все плохо!Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джеймс ПэрротАктеры: Чарли Чейз, Хелен Гилмор, Клайд Э. Хопкинс, Blanche Mehaffey, Ной ЯнгПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5BE4D1F355FDFB9723E5E66E5F3C62456CF27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597188   (167713) от 13.12.2022
+
+Приключение неправильного Санта-Клауса / The Adventure of the Wrong Santa Claus (1914) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедийка из серии приключений Октавия, детектива-любителя. На этот раз Октавий приглашен знакомыми на празднование Рождества. Его попросили надеть костюм Санта-Клауса, чтобы поздравить ребятишек. Что он и сделал. И вот оказия - в этот же дом забрался вор, представьте себе, тоже переодетый в соответствии с рождеством. И этот негодяй украл все подарки из под ёлки!Производство: США, Edison CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Чарльз М. СиэйАктеры: Херберт Йост, Джулиан Рид, Ричард Нилл, Блисс Милфорд, Кеннет Лоулор, Кэтлин Кофлин, Эдит Питерс, Джон Старджон, Элси МаклеодПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B0278978719AB7BB6471C1E520CED4C38F49CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597094   (167520) от 13.12.2022
 
 Слишком красивые, чтобы умереть 2 / Sotto il vestito niente 2 (1988) BDRip [H.264] [VO]
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167520.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167491.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167479.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167463.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167406.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167092.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166956.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166892.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166861.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166828.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166704.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166354.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166258.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166201.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166145.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166116.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166107.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166105.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166088.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166075.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166073.jpg" />
 </div>
 
 
@@ -539,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20C1F67D518781E88C6DD12E350272B4FF191FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597640   (165888) от 15.12.2022
-
-Балканский экспресс / Balkan Ekspres (1982) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Югославии, во время Второй мировой войны. Группа мошенников промышляет карманными кражами. С началом войны группа ненадолго распадается, спасая свои жизни. Стесненные обстоятельствами, бывшие мошенники вскоре опять собираются вместе. Чтобы выполнить опасное задание подпольщиков, они организуют оркестр для выступления в ресторане...Производство: Югославия / Art Film 80, Inex FilmЖанр: комедия, военныйРежиссер: Бранко БалетичАктеры: Драган Николич, Бора Тодорович, Таня Бошкович, Велимир, Оливера Маркович, Радко Полич, Тома Здравкович, Бранко Свежич, Богдан Диклич, Ратко ТанкосичПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAF74A060F5B89797286CB8A6E1BD492BF7EA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593879   (165819) от 15.12.2022
-
-Мушетт / Mouchette (1967) BDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочке-подростку Мушетт живётся несладко: больная мать, за которой требуется постоянный уход, младший брат, отец, терроризирующий дочь, да ещё и в школе постоянные унижения. Однажды в лесу девочка встречает браконьера. Тот думает, что только что убил человека, и потому решает создать себе при помощи Мушетт алиби.Производство: Франция / Argos Films, Parc FilmЖанр: ДрамаРежиссер: Робер БрессонАктеры: Надин Нортье, Жан-Клод Гилберт, Мари Кардинал, Пол Эбер, Жан Вимне, Мари Сузини, Лилиан Прансе, Сюзанн Югенен, Марин Трише, Раймонд ШабрунПеревод: Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, ФранцузскийСубтитры: русские (2 варианта), английские - отдельноПродолжительность: 01:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D61A98827E2936689E199E4DD38B03F587B6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597555   (165789) от 15.12.2022
-
-Обнажённая и Сатана / Die Nackte und der Satan (1959) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученый изобретает сыворотку, которая оставляет голову собаки в живых после её смерти. Когда ученый умирает от сердечного приступа, его сумасшедший помощник оживляет его голову с помощью сыворотки и заставляет помочь ему с одним экспериментом...Производство: Германия, Rapid FilmЖанр: ужасы, фантастикаРежиссер: Виктор ТривасАктеры: Хорст Франк Карин Кернке, Гельмут Шмид, Пауль Дальке, Дитер Эпплер, Кристиана Майбах, Мишель Симон, Йоханнес БузалскиПеревод: любительский одноголосый (sephiroth)Субтитры: английскиеПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04571ED446C30FC9043C3A685EAC3ADFEFC3EAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345795   (165477) от 16.12.2019
-
-Гвендолин / Gwendoline (1984) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гвендолин — прекрасная и невинная девушка едет на Восток в поисках отца, исчезнувшего при загадочных обстоятельствах. Спасенная от ужасной участи искателем приключений — красавцем Уиллардом, она уговаривает его отправиться с ней в город Йик-Йяк, которым правит демоническая королева — амазонка.Производство: Франция / Films de L'Alma, G.P.F.I., Parafrance FilmsЖанр: Фэнтези, ПриключенияРежиссер: Жюст ЖэкинАктеры: Тоуни Китаен, Брент Хафф, Забу Брайтман, Бернадетт Лафон, Жан Ружери, Ролан Амстюц, Джин Станислас Капуль, Чэнь Чан Чин, Вернон Добчефф, Андре ЖюльенПеревод: Многоголосый профессиональный, студия СонотекСубтитры: ОтсутствуютПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705683E72417B6D3DA988BD75BCF6E4D72A41BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673447   (165400) от 01.11.2023
-
-Билли Джек / Billy Jack (1971) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм - победный гимн духу хиппи. Метис из Аризоны Билли Джек - решительный и трудолюбивый парень. Бывший зелёный берет, владеющий боевым искусством хапкидо, спасает диких лошадей от убоя и помогает защитить расположенную в пустыне школу свободы...Производство: США, National Student Film Corporation, Warner Bros. PicturesЖанр: драма, боевикРежиссер: Том ЛофлинАктеры: Том Лофлин, Делорес Тейлор, Кларк Хауэт, Виктор 'Вик' Айзей, Тереза Келли, Дэвид Роя, Сьюзэн Фостер, Кэти Моффатт, Ричард Стал, Алан Майерсон, Эд Гринберг, Говард Хессемэн, Дэн Бэрроус, Берт Фрид, Пол БрюсПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8FE262CC92A3AEBC064D71148667525C828F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

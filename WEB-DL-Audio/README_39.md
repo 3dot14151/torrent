@@ -6,7 +6,7 @@ Tyler Bryant & The Shakedown - Electrified (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109803.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Scotty McCreery - Rise & Fall (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109788.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Laibach - Opus Dei (1987) Remastered, 2024, Mute [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109772.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Bullseyes - Polish Sweethearts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109762.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rusted Roof - Rustless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109760.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ King Zebra - Between The Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109756.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jazztick - Super Jazztikong Country (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109750.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Treatment - Wake Up The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109749.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Six Feet Under - Killing for Revenge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109746.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Powerman 5000 - Abandon Ship (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109744.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mario Abney - Right Now (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109743.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109742.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Falls Circus - Falls Circus (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109741.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Unleash The Archers - Phantoma (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109740.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Uncle Acid & the Deadbeats - Nell' Ora Blu (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109737.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Glen Ample - Living in Desire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109735.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Anette Olzon - Rapture (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109733.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Crownshift - Crownshift (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109723.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Reflection of Flesh - We Are Legion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109719.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Firestorm - Rooted Future (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109717.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sonic Universe - It Is What It Is (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109716.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Villagers - That Golden Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109696.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Sweet Peach Band - A Conversation With (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109688.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Real Blue - Silly slush swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109685.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Seventh Sunset - Hard Rock Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109681.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Chris Smither - All About the Bones (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109674.jpg" />
 </div>
 
 

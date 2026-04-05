@@ -1,3 +1,32 @@
+###  Публикация: 1647962   (231493) от 20.07.2023
+
+Winger - Seven (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proud Desperado
+02. Heaven's Falling
+03. Tears Of Blood
+04. Resurrect Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525B8D133421352BDD80AC77F4A08359705F23D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646933   (231490) от 16.07.2023
 
 Usnea - Bathed in Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Funeral Doom Metal>
@@ -6,7 +35,7 @@ Usnea - Bathed in Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Funeral 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231490.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Black Nazareth - Black Nazareth (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231483.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Voidceremony - Threads of Unknowing (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231479.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Megattack - 2 Albums (1987-2023) [FLAC|Lossless|WEB-DL|tracks] <hard rock, heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231475.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231469.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Booze Control - Forgotten Lands (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231465.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Critical Defiance - No Life Forms (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231450.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sorcia - Lost Season (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231449.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ King Crimson - The Condensed 21st Century Guide To King Crimson 1969 - 2003 (200
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231448.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Crimson Fire - Fireborn (2016) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231442.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Green Inferno - Trace the Veins (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231435.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Somnuri - Desiderium (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231434.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Feuerschwanz - Fegefeuer (2023) 3 x CD, Deluxe Album [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231429.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Der Dobermann - Don't Be Afraid, You Already Dead (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231428.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Parity Boot - Fast Forward (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231427.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Spiritual Void - Wayfare (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231421.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Thunder Horse - After The Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231420.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Crimson Fire - Another Dimension (2021) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231415.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Antioch - Antioch VI: Molten Rainbow (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231413.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ MotorTrinken - Cyborgmotorcycle (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231411.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Critical Defiance - Misconception (2019) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231404.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Supernova Plasmajets - Supernova Plasmajets (2017) Reissue, 2023, Bug Valley Rec
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231399.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Tony Mitchell - Radio Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231398.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Yskelgroth - Bleeding of the Hideous (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231396.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Ursular - Preta (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Doom, Saxodoom, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231393.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Ursular - Preta (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Doom, Saxodoom, Ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A1BB4B6653F5B187C6DEB27F2832BBA092F37E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648339   (231392) от 23.07.2023
-
-Bosparans Fall - Gotterspiel - Dunkle Zeiten (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (00:01:36)
-02 - Dunkle Zeiten (00:05:35)
-03 - Bosparans Zinnen (00:03:58)
-04 - Rondra (00:03:38)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE6A1412F444B340BDD5A60BCC94938B58C45D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

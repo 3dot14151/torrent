@@ -1,77 +1,23 @@
-###  Публикация: 1850692   (1054470) от 29.01.2026
+###  Публикация: 1851716   (1055253) от 03.02.2026
 
-Avatarium - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avatarium — шведская рок-группа из Стокгольма, основанная в 2013 году.2013 - Avatarium
-2015 - The Girl With The Raven Mask
-2017 - Hurricanes And Halos
-2019 - The Fire I Long ForЖанр: Doom Metal, Progressive RockПродолжительность: 4:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850641   (1054469) от 29.01.2026
-
-Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autonomous Systems (Unmanned System Technologies) (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054469.jpg" />
-</div>
-
-
-###  Подробнее
-
-This textbook provides information about the essential technical components of building autonomous systems. The book starts by briefly covering basic principles of statistical estimation theory, an essential tool required in various steps in the implementation of autonomous systems. The book also includes technical details of the navigation systems along with their (   Читать дальше...   )Жанр: Unmanned System TechnologiesЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CE22F8E567C7496C01D4365D358BD4ABAB1F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850375   (1054468) от 29.01.2026
-
-Олег Велесов | Псы Господни (Domini Canes) [2 книги] (2025) [FB2]
+Себастьян Фитцек | Родительское собрание (2024) [FB2, EPUB, MOBI]
 
 >>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Франция начала XV века, Столетняя война в самом разгаре. Судьба забросила меня в Реймс, и отныне я незаконнорожденный сын небогатого сеньора. Так уж случилось, что на меня охотятся все кому не лень: сводный брат, местная власть, организованная преступность, святая инквизиция. Я кручусь как могу, спасая себя и новую семью. Спорю, дерусь, ошибаюсь, короче, проблем (   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+Представьте: мелкий угонщик только сел в чужой дорогой внедорожник, как по машине начинает лупить бейсбольной битой разъярённая экоактивистка. Полиция уже рядом — и в панике эти двое чужаков запрыгивают в первый попавшийся автобус! А в нём… родители едут на выездное родительское собрание пятого класса на целые выходные.
+   Чтобы не попасться, приходится выдать себя (   Читать дальше...   )Жанр: Детектив, триллерПеревод: Иван ВисычЯзык: русскийИздательство: "СамИздат"Формат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:942D51F5253F0A59967AAA8B7A93DE9FCFBDC94B
+magnet:?xt=urn:btih:2B9DE336C51347E4E44FB47B7166D93E1331AF64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850393   (1054467) от 29.01.2026
+###  Публикация: 1851656   (1055252) от 03.02.2026
 
-Борис Грозовский (ред) | Анатомия распада. Как и почему права человека перестали быть ценностью в современной России (2024) [PDF, EPUB]
+Журнал | Знание-сила №2 (1184) (февраль 2026) [PDF]
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как последние 30 лет развивалась современная Россия и как в ней менялось отношение общества и государства к праву на жизнь? Исследование рассказывает об истории и динамике уголовного и уголовно-процессуального законодательства; о правилах, по которым годами функционирует правоохранительная система и которые делают невозможной адекватную и своевременную защиту личности.Жанр: История, документалистикаИздательство: Команда против пытокФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00F0E26E27AB04F91E7B04ECC387FBA429709C69
+magnet:?xt=urn:btih:B65A940ADF7D088C2F0D145E28ADF539B70D3D61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +51,559 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850713   (1054466) от 29.01.2026
+###  Публикация: 1851662   (1055251) от 03.02.2026
 
-Гренландия / Greenland (2020) BDRip [H.264/1080p]
+Журнал | Военно-исторический журнал №2 (790) (февраль 2026) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055251.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA4A3094C9912EC540A1301ECBF22C5C6574657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851622   (1055249) от 03.02.2026
+
+Nathaniel Schutta, Dan Vega | Fundamentals of Software Engineering. From Coder to Engineer. 1st Edition (2026) [EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055249.jpg" />
+</div>
+
+
+###  Подробнее
+
+What do you need to know to be a successful software engineer? Undergraduate curricula and bootcamps may teach the fundamentals of algorithms and writing code, but they rarely cover topics vital to your career advancement. With this practical book, you'll learn the skills you need to succeed and thrive.
+
+Authors Nathaniel Schutta and Dan Vega guide your journey with (   Читать дальше...   )Жанр: Software Design Tools, Computer Systems Analysis & Design, Microsoft ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71F6A719C62A8EFFEA808543743BABA9F5FB924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851621   (1055248) от 03.02.2026
+
+David Pine | Learning Blazor. Build Single-Page Apps with WebAssembly and C#. 1st Edition (2023) [PDF, EPUB, MOBI] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take advantage of your C# skills to build UI components and client-side experiences with .NET. With this practical guide, you'll learn how to use Blazor WebAssembly to develop next-generation web experiences. Built on top of ASP.NET Core, Blazor represents the future of .NET single-page application investments.
+
+Author David Pine, who focuses on .NET and Azure content (   Читать дальше...   )Жанр: ASP.NET Programming, Microsoft .NET, C# ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E7AEAB98F4D7DDB81871930060CE7D67BE5783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851618   (1055247) от 03.02.2026
+
+Kevin Moore | Mastering Flutter. Learn to develop Flutter apps for iOS, Android, desktop and web (English Edition) (2025) [EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mastering Flutter is ideal for the developer at the beginner level as well as the developer who wants to switch to Flutter. This book starts at the beginner level so that you know everything you need to create apps that can be published in different mobile stores. You will develop a movie app that is beautiful, has animations, uses a movie API to get the latest movie (   Читать дальше...   )Жанр: Mobile App Development & Programming,User Experience & Website Usability, Software DevelopmentЯзык: АнглийскийИздательство: BPB PublicationsФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCD00C8FA805A3D2A53F7BDBB1136DCAA2FC702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851616   (1055246) от 03.02.2026
+
+Чип Хьюен | AI-инженерия. Построение приложений с использованием базовых моделей (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базовые модели открыли путь множеству новых сценариев применения AI, одновременно снизив входной порог для создания продуктов на основе искусственного интеллекта. Так AI из тайного учения превратился в мощный инструмент разработки, доступный каждому — даже тем, у кого еще нет опыта работы с ним. В этом практическом руководстве Чип Хьюен рассказывает об AI-инженерии (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29D7D6FA21B7267271020E6DF09BC62D8E80C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851615   (1055245) от 03.02.2026
+
+Ronald Mak | Software Design for Python Programmers. Principles and patterns (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Software Design for Python Programmers shows you how to level up from writing Python code to designing Python applications. Following intuitive “before” and “after” examples of improved code, you’ll learn to plan and execute Python applications effectively and avoid bugs associated with unmanaged state, poorly-formed classes, inflexible functions, and more.
+
+Great (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Object-Oriented Design, Python ProgrammingЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5848C41C12277386B6616D5F8EA17F21938ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851602   (1055244) от 03.02.2026
+
+Katya Gorshkova | Kafka for Architects. Event-driven architecture, logs, microservices, real-time event processing (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055244.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book teaches you how to incorporate Kafka into enterprise applications. This book stays above the code-level details, focusing instead on how to use Kafka to achieve your technical and business goals.
+
+Architects across industries are turning to Kafka for its unparalleled speed, reliability, and scalability. In this book, author Katya Gorshkova lays out how (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Databases & Big Data, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2529C5A329A218CF1FFFE8DD47BE1C1C6817D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851601   (1055243) от 03.02.2026
+
+Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055243.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Should we use Kubernetes?” This unique guide condenses 15 years of deployment experience to help answer that very question. It teaches you sustainable deployment practices you can use with any programming language and nearly any kind of modern app. You’ll create portable and containerized applications that can move across deployment options and cloud providers and (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5451941C37CCB1F227FC7CF5562B18242753D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851613   (1055242) от 03.02.2026
+
+Jay Borthen | Building Data Integration Solutions. Unifying Data for Enhanced Decision Making. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Are you struggling to manage and make sense of the vast streams of data flowing into your organization? In today's data-driven world, the ability to effectively unify and organize disparate data sources is not just an advantage—it's a necessity. The challenge lies in navigating the complexities of data diversity, volume, and regulatory demands, which can overwhelm (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDE5F925D1B5577E234B2525D510D28AA57E1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851607   (1055241) от 03.02.2026
+
+Hyen Seuk Jeong | Observability For Legacy Systems. Methods and Solutions with OpenTelemetry and AIOps. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Become an expert in implementing observability methods for legacy technologies and discover how to use AIOps and OpenTelemetry to analyze root causes and solve problems in banking and telecommunications. Through this book, you will engage with issues that occur in kernels, networks, CPU, and IO by developing skills to handle traces and logs, as well as Profiles (eBPF) (   Читать дальше...   )Жанр: Unix Operating System, Software Development, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CD3CB4BE59A8B334A28C46EF67A7D4F2631FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851605   (1055240) от 03.02.2026
+
+Kimiko Lee | Terraform for Developers. Essentials of Infrastructure Automation and Provisioning (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055240.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Terraform for Developers" provides a comprehensive guide to mastering infrastructure as code with Terraform, intended for both beginners and experienced practitioners. The book starts by introducing foundational Terraform concepts like its architecture, setup on various cloud platforms, and the syntax of its configuration language HCL. This grounds the (   Читать дальше...   )Жанр: Computer Reengineering, Software Testing, Software Design & EngineeringЯзык: АнглийскийИздательство: GitforGitsФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7101211B053C075424F6C0586AF727F1C2B4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851738   (1055239) от 03.02.2026
+
+Haken - Fauna (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taurus 4:49
+02. Nightingale 7:25
+03. The Alphabet Of Me 5:34
+04. Sempiternal Beings 8:24(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6EFB5B82429223AF9F0EB30A94927FE2E8C9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851675   (1055236) от 03.02.2026
+
+Therion - Con Orquesta (Live in Mexico) (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blood Of Kingu
+02. The Ruler Of Tamag
+03. The Birth Of Venus Illegitima
+04. Tuonela(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33EEB93AB5AB036BDE2C41C711629B3CF0463F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851599   (1055235) от 03.02.2026
+
+Scott Tilley | Systems Analysis & Design. 13th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Discover a practical, streamlined approach to systems development that focuses on the latest developments with Tilley's SYSTEMS ANALYSIS AND DESIGN, 13th Edition, and MindTap digital resources. Real examples clearly demonstrate both traditional and emerging approaches to systems analysis and design, including object-oriented and agile methods. You also study emerging (   Читать дальше...   )Жанр: Management Information Systems, Computer ScienceЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15D64BF29E6613ACFBE4A94079D4491890FDA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851588   (1055234) от 03.02.2026
+
+Fabrizio Espindola | The Godot Shaders Bible [2 книги] (2025-2026) [PDF] [EN, ES]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Designed for both absolute beginners and seasoned developers, this in-progress project aims to deliver 300 pages on shaders — from the ground up — with no prior experience required. You'll learn the fundamentals of Godot’s shader language, master essential math concepts, and gain a clear understanding of rendering pipelines in a beginner-friendly manner. You’ll progress (   Читать дальше...   )Жанр: Компьютерная литература, ШейдерыЯзык: Английский, ИспанскийИздательство: Jettelly PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0523D7D478251D9CE19A5A87BD223997EAA3DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851740   (1055233) от 03.02.2026
+
+Маг-целитель: Новый старт | Kaifuku Jutsushi no Yarinaoshi | Redo of Healer [2021, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055233.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Фэнтези о мести» расскажет историю Кэяруги (Кэяру) — мага-целителя, которого тупо используют его «друзья» авантюристы для достижения своих целей. Ведь целители не могут сражаться. Однако Кэяруги удаётся преодолеть пределы возможностей, доступных обычному целителю, но уже поздно, его лишили всего. Поняв, что целитель на самом деле сильнейший класс, Кэяруги применяет (   Читать дальше...   )Производство: Япония / Студия TNKЖанр: Тёмное фэнтези, приключения, драма, эротикаРежиссер: Асаока ТакуяЯзык озвучки: Русский (ТО Дубляжная, Beloved (AniLibria), AniDUB, Fronda Studio, SHIZA Project, Amazing Dubbing, AniStar, Youmiteru); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA96135FDF8256F133905DA2DF1F8725D6A4073D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851742   (1055232) от 03.02.2026
+
+Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055232.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом тактическом шутере-головоломке Вам предстоит отправиться в смертельное путешествие во тьму, найти траекторию для единственной пули и жестоко отомстить зловещему культу, который разрушил вашу жизнь. Пылающая гневом ДЕВУШКА ведет одиночную войну против КУЛЬТА, уничтожая сектанта за сектантом, выпуская пулю за пулей, чтобы добраться до своей истинной цели: ЛИДЕРА. (   Читать дальше...   )Тип издания: RepackРазработчик: René RotherЖанр: Экшены, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB98AF78F367367C8CE80DB708BC854E1ED62B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851739   (1055231) от 03.02.2026
+
+Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Let'sРlay [Gold Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055231.jpg" />
+</div>
+
+
+###  Подробнее
+
+После биологической катастрофы в Раккун-Сити прошло шесть лет. Агента Леона С. Кеннеди, пережившего те события, отправили на задание по спасению похищенной дочери президента. В попытках отыскать ее он оказывается в укромной европейской деревеньке, где с местными жителями творится что-то не то.Тип издания: RepackРазработчик: CAPCOMЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B9D32B15CB134BEE284ABFC92573AC593C067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851671   (1055230) от 08.02.2026
+
+Adobe Photoshop 2026 27.3.0.13 RePack by KpoJIuK [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2026 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE035078B509AAB2A7B8E86C5E87104BC533050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851746   (1055229) от 03.02.2026
+
+Проекты - VideoHive - Sport Player Intro - 61571893 [AEP]
+
+>>Проекты
+>>Спортивные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите свои видеопроекты на новый уровень с помощью Sport Player Intro — профессионально разработанного видеошаблона, созданного для достижения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон разработан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, кинорежиссер, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3744E4106FC7E6383CDC6BBDF3B5BAA870F6426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851743   (1055228) от 03.02.2026
+
+Неспокойной ночи / Nightman (2023) BDRip [H.264/1080p]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания / G-BASE, Anton, Riverstone PicturesЖанр: боевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Дэвид Денман, Хоуп Дэвис, Роджер Дэйл Флойд, Эндрю Бэчелор, Меррин Данги, Холт Маккэллани, Скотт Гленн, Рендал ГонсалесПеревод: Дублированный (Лицензия, ААА-sound), авторский (Немахов)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:59:54
+Алекс вместе с мужем переезжает в дом его детства в небольшой городок. Вскоре она замечает, что в городе происходят странные вещи, а муж начинает ходить во сне — девушке кажется, что она сходит с ума. Тогда Алекс решает разобраться, что происходит на самом деле.Производство: Бельгия, Ирландия / Beside Productions, Black Swan Tales, Entre Chien et LoupЖанр: ужасы, триллерРежиссер: Мелани ДеллойАктеры: Зара Дэвлин, Марк Хубермэн, Маив Леонард, Gary Murphy, Оуэн Даффи, Энтони Моррис, Кэролайн Доннелли, Paul Ward, Тесс Брайант, Áine Ní LaoghaireПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A852D60B4E0B50BBBE32E12C34E8236F94A8631
+magnet:?xt=urn:btih:BFE0205827B602C4B1E8C5ECAF694B703C01AD71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +611,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850716   (1054465) от 29.01.2026
+###  Публикация: 1851744   (1055227) от 03.02.2026
 
-Вечная зима / Orok tel (2018) BDRip [H.264] [HUN / RU Sub]
+Неспокойной ночи / Nightman (2023) BDRip [H.264/720p]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1944 году солдаты забирают женщин из венгерского села. Им говорят про уборку урожая в СССР. На самом деле их высылают на работу в угольную шахту. Среди несчастных Ирэн, которая с шестилетней дочкой ждала возвращения мужа с войны. Только встреча с человеком по имени Раймунд помогает Ирэн выжить, не сломиться в адских условиях и пережить все ужасы лагеря...Производство: Венгрия / Szupermodern StúdióЖанр: драма, мелодрама, историяРежиссер: Аттила СасАктеры: Марина Гера, Шандор Чаньи, Лаура Дёбрёши, Диана Кишш, Франциска Фаркаш, Нике Курта, Акош Орос, Анико Фюр, Тибор Гашпар, Нора Диана ТакачПеревод: субтитрамиЯзык озвучки: венгерский + русскийСубтитры: русские, английскиеПродолжительность: 01:54:29
+Алекс вместе с мужем переезжает в дом его детства в небольшой городок. Вскоре она замечает, что в городе происходят странные вещи, а муж начинает ходить во сне — девушке кажется, что она сходит с ума. Тогда Алекс решает разобраться, что происходит на самом деле.Производство: Бельгия, Ирландия / Beside Productions, Black Swan Tales, Entre Chien et LoupЖанр: ужасы, триллерРежиссер: Мелани ДеллойАктеры: Зара Дэвлин, Марк Хубермэн, Маив Леонард, Gary Murphy, Оуэн Даффи, Энтони Моррис, Кэролайн Доннелли, Paul Ward, Тесс Брайант, Áine Ní LaoghaireПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D273D3809AC5F77FAFC42E045A7947CDD11F6B6A
+magnet:?xt=urn:btih:FE79DA1C60129FB40465627029F42A3F746FE28B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +637,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850708   (1054464) от 29.01.2026
+###  Публикация: 1851737   (1055226) от 03.02.2026
 
-Terraria (2011) [Ru/Multi] (1.4.5.0) Repack FitGirl
+Папуля / Daddio (2023) BDRip [H.264/720]
 
->>Win Игры
->>Action/Arcade/Platformer (Casual)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Копайте, сражайтесь, исследуйте, стройте! Нет ничего невозможного в этой насыщенной событиями приключенческой игре. Весь мир - ваше полотно, а вся земля - ваши краски! Хватайте инструменты и вперед! Создавайте оружие, чтобы сражаться с различными врагами в разных биомах. Копайте глубже, чтобы найти драгоценности, деньги и кучу других полезных вещей.Тип издания: RepackРазработчик: Re-Logic, Engine SoftwareЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык интерфейса: Русский, Английский, Французский и другие
+Случайный разговор, завязавшийся между пассажиром и водителем такси по пути из аэропорта, внезапно оказывается необычайно важным. Теперь многое в жизни видится им в другом свете. Оба понимают, что такие встречи происходят не просто так.Производство: США / Creative Artists Agency (CAA), Projected Picture Works, Rhea Films (II), TeaTime PicturesЖанр: драмаРежиссер: Кристи ХоллАктеры: Дакота Джонсон, Шон Пенн, Маркос Антонио Гонсалес, Зола Ллойд, Шеннон ГэннонПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английскиеПродолжительность: 01:40:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E374294D7C8C399B384EADF9CD6AB81FC31ABD92
+magnet:?xt=urn:btih:09B9DCC797183068EA1E762A1EE7DD7766DE8906
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,499 +663,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850654   (1054463) от 29.01.2026
+###  Публикация: 1851735   (1055225) от 03.02.2026
 
-Игорь Болгарин, Виктор Смирнов | Девять жизней Нестора Махно (2026) [MP3, Сергей Кирсанов]
+Папуля / Daddio (2023) BDRip [H.264/1080p]
 
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нестор Махно - известный революционер-анархист, одна из ключевых фигур первых лет существования советской России, руководитель крестьянской повстанческой армии на Украине, человек неординарный и противоречивый, который искренне хотел построить новый мир, "где солнце светит над всей анархической землей, и счастье - для всех, а не для кучки богатеев". Жизнь (   Читать дальше...   )Жанр: БиографияИздательство: Нигде не купишьПродолжительность: 38:10:05
+Случайный разговор, завязавшийся между пассажиром и водителем такси по пути из аэропорта, внезапно оказывается необычайно важным. Теперь многое в жизни видится им в другом свете. Оба понимают, что такие встречи происходят не просто так.Производство: США / Creative Artists Agency (CAA), Projected Picture Works, Rhea Films (II), TeaTime PicturesЖанр: драмаРежиссер: Кристи ХоллАктеры: Дакота Джонсон, Шон Пенн, Маркос Антонио Гонсалес, Зола Ллойд, Шеннон ГэннонПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английскиеПродолжительность: 01:40:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A65A3B051D332239291951857B52CE3B26D5EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850547   (1054462) от 29.01.2026
-
-Сергей Лукьяненко | Небесное воинство (Книга 2). Девятый (2026) [MP3, Кирилл Радциг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга цикла «Небесное воинство». В фантастическом мире недалекого будущего герои задаются вечными вопросами о любви и предательстве, жизни и смерти. В этом мире космические истребители сражаются над кольцами Сатурна, а иное человечество отстаивает своё право на жизнь. Здесь ангелы могут почти всё, кроме как прочитать человеческие мысли. А мёртвые пилоты воскресают (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 10:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E88501478BDBAB2706BF000F0FC2F2B1F20534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850640   (1054461) от 29.01.2026
-
-Газета | The Wall Street Journal №22 (28 января 2026) [PDF] [EN]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054461.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
-WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A810DB4D11DE588FA91DFACDE159187B95F548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850639   (1054460) от 29.01.2026
-
-Газета | The Wall Street Journal №21 (27 января 2026) [PDF] [EN]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054460.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
-WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44246ABF29E6D08EADE138ACA8A349B8FC6914F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850425   (1054459) от 29.01.2026
-
-Г. С. Ландсберг | Элементарный учебник физики. Том 3. Колебания и волны. Оптика. Атомная и ядерная физика (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
-
-Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: УчебникИздательство: ФИЗМАТЛИТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CB21BDE587C80D173DDA6F93D544FB642F17D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850415   (1054458) от 08.02.2026
-
-Дмитрий Дорничев | Возвращение Великого. Я великий друид которому 400 лет! [10 книг] (2025-2026) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боги затеяли игру: один создал демонов, другой призвал героев. Условия были просты — если герои победят демонов, то в реальном мире их жизни будут спасены; если нет, они умрут от смертельных ран. Но что делать, если герои переругались между собой, а владыка демонов оказался слишком сильным? Импровизировать... И будучи последним выжившим, наш герой побеждает зло и (   Читать дальше...   )Жанр: Фантастика, боевик, РеалРПГ, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499F04CF7483E40FA0727ED2DFA5E8437E4A726F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850717   (1054457) от 29.01.2026
-
-Иерархия / Hierarchy (2025) WEB-DLRip [H.264]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Стоун и Рич решают завязать с преступной деятельностью, но перед этим хотят совершить последнее, самое крупное ограбление, чтобы потом начать спокойную жизнь. Но вскоре они оказываются втянутыми в игру на выживание и вынуждены спасаться от полиции и безжалостной мафии.Производство: США / Sabi Productions, Smalltown Hero ProductionsЖанр: боевик, драма, криминалРежиссер: Расселл РидАктеры: Коллинз Узовулу, Ксавьер Альварадо, Кэрол Хикки, Дженни Фрейм, Нейла Канту, Рубен Хавьер Кабальеро, Андре Данте Митчелл, Дилан Уинтерс, Эрвин Браун, Нэнси Л. ГрэйПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAB8DCCC1FDD687CFB2CEF4ABDA3CB8D79A9979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850449   (1054456) от 29.01.2026
-
-Иван Ефремов | Таис Афинская (2024) [PDF]
-
->>Художественная литература
->>Историческая проза, Мифы и Легенды, Фольклор
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие знаменитого историко-приключенческого романа Ивана Антоновича Ефремова (1908–1972) «Таис Афинская» происходит в эпоху Александра Македонского и основателя новой правящей династии Египта Птолемея I. В этом последнем романе писателя описаны многие исторические фигуры того времени, перенесенные из глубины веков на страницы книги. Главная героиня — историческая (   Читать дальше...   )Жанр: ПриключенияИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FD7EDFBAB5FB44967A1309E03A6F1C1F51D44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850666   (1054455) от 31.01.2026
-
-Волчок (2025) WEBRip [H.265/2160p] [4K, SDR, 8-bit]
-
->>Горячие новинки
->>Отечественные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская империя. Рубеж XIX и XX веков. Тринадцатилетний дворянин и сирота Ваня Огарев бежит из Москвы в Нижний Новгород, спасаясь от убийц, подосланных его собственным дядей, решившим завладеть наследством мальчика. Для своей защиты Ваня нанимает случайно подвернувшегося ему кулачного бойца Волчка. Волчок должен помочь Ване добраться в целости и сохранности до (   Читать дальше...   )Производство: Россия / MEM Cinema ProductionЖанр: приключения, комедияРежиссер: Константин СмирновАктеры: Евгений Ткачук, Юлия Хлынина, Марк-Малик Мурашкин, Андрей Смоляков, Сергей Маковецкий, Даниил Воробьев, Кирилл Полухин, Михаил Евланов, Андрей Пынзару, Фёдор ПарамоновЯзык озвучки: РусскийСубтитры: Русские (hardsub - на иностранную речь)Продолжительность: 02:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6C01A390A04805E9CB489BAF9F5A065587D3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850723   (1054454) от 29.01.2026
-
-Проекты - VideoHive - Burn Opener - 52685643 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burn Opener — это экспрессивный, жаркий и визуально насыщенный шаблон для After Effects, который добавляет вашему видео огня. Эффектные переходы с имитацией горящей кинопленки (Film Burns), световые засветы и динамичный ритм создают атмосферу драйва, страсти и необузданной энергии.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B173F0BD5AC3F9E424930C6ECCFEBB728BAEF94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850714   (1054453) от 29.01.2026
-
-Vivaldi 7.8.3925.56 include standalone [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CF553D68469C7EB956B0FC2A5FD1B19999CD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850452   (1054452) от 29.01.2026
-
-Анастасия Семенова | Лунный календарь на 2026 год (2025) [PDF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прислушиваясь к советам Луны, можно сделать свою жизнь гармоничнее и счастливее. Влиянию Луны подчиняется вся земная природа, а значит, и мы с вами. Если жить в соответствии с лунными ритмами, вы почувствуете гармонию с миром, наполняющую вас радостью, легкостью, здоровьем. Лунный календарь на 2026 год поможет вам внести порядок в свою повседневную жизнь. Зная особенности (   Читать дальше...   )Жанр: ЭзотерикаИздательство: КрыловФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC08B7A69B91A6BD0E4DA5A972F2D2E39A056DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850469   (1054451) от 29.01.2026
-
-Дэвид Веллингтон | Красный космос [2 книги] (2025) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054451.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рай-1
-Космический корабль «Артемида» направляется в колонию Рай-1, унося в добровольную ссылку лейтенанта Петрову, что ослушалась приказа и едва не лишилась звания, доктора Чжан Лэя, которого преследуют кошмары о прошлом, и капитана Паркера, получившего запрет на полеты. На время перелета команда погружается в криогенный сон, однако пробуждение выходит неожиданным: (   Читать дальше...   )Жанр: Фантастика, ужасы, приключенияИздательство: АСТ: MainstreamФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32916D3548944620E5CD4364D8DD3021D5ECA85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850718   (1054450) от 29.01.2026
-
-VirtualBox 7.2.6 Build 172322 + Extension Pack [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oracle VM VirtualBox является многофункциональным инструментом для создания изолированных виртуальных машин, предлагает высокую производительность, а также является единственным профессиональным решением, которое находится в свободном доступе с открытым исходным кодом на условиях GNU General Public License (GPL) v.2Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43311C7B5A3D28F330D93181F183F74ED41EF5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850725   (1054449) от 29.01.2026
-
-Плагины - Envato - Textmarker Pro - N48RR7V [CCX]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Textmarker Pro упрощает создание подсветки и подчеркивания текста в Photoshop. Но это еще не все — плагин предоставляет различные преобразования и смещения, которые изменяют базовую форму и дают полезные и креативные результаты. Вы можете настраивать все параметры, чтобы получить именно тот результат, который вам нужен, при этом все эти изменения происходят в режиме (   Читать дальше...   )Формат: CCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46AE0AF61ECE64D313ED20A94728052E39D4AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850570   (1054448) от 29.01.2026
-
-Влада Ольховская | Мастера профайлинга (Книги 1-6) (2024-2025) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опытнейший психиатр Николай Форсов, консультирующий сотрудников полиции, собирает группу своих учеников, которая сможет решать сложные и запутанные дела, участвуя в расследованиях ужасных преступлений. Профайлеры все разные, каждый из них имеет свой характер, свой стиль, своё мнение и, пользуясь своими уникальными способностями, идёт к решению предложенной им задачи. (   Читать дальше...   )Жанр: Детектив, ТриллерИздательство: ЛитРесПродолжительность: 77:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1009D6F0FA0EEEA72074E37E77759B6E33079E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850604   (1054447) от 29.01.2026
-
-Марк Биллингем | Детектив Миллер (Книга 1). Последний танец (2026) [MP3, Андрей Финагин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой нового детективного цикла Марка Биллингема - сержант Деклан Миллер. Он отличный сыщик, который возвращается к работе после недавно пережитой трагедии. Его жена Алекс, сотрудница отдела по борьбе с организованной преступностью, погибла при невыясненных обстоятельствах.
-В первом романе цикла Миллеру предстоит расследовать убийство двух человек в соседних (   Читать дальше...   )Жанр: ДетективИздательство: CorpusПродолжительность: 09:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B99B0AE0C1C529CBDF39893E79BECCDE34FA56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850559   (1054446) от 29.01.2026
-
-Вячеслав Моисеев | Репетиция апокалипсиса. Тайная история атомных учений в СССР. Тоцкое-1954 (2024) [MP3, Андрей Троммельман]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054446.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 сентября 1954 года на Тоцком полигоне под Оренбургом была взорвана атомная бомба мощностью около 40 килотонн. В рамках эксперимента по изучению последствий ядерного взрыва уже спустя несколько часов через его эпицентр прошли военные в костюмах химической защиты. Секретная операция под кодовым названием «Снежок» обернулась катастрофой: более 45 000 военных и 10 (   Читать дальше...   )Жанр: Историческая публицистика, История СССРИздательство: АльпинаПродолжительность: 04:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08750429D57BC8F93B6779F0B92C3AEE31ECDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850546   (1054445) от 29.01.2026
-
-Харитон Мамбурин | Грабитель (Книга 1). Читатель (2026) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раньше, в прошлой жизни, меня звали Шебаддом Мериттом. Я был волшебником, магом и исследователем. Теперь меня зовут Акира Кирью и мне всего пятнадцать лет. Получив новую жизнь в другом, совершенно чуждом для меня мире, лишенном магии и чудес, я собираюсь прожить её, собирая знания, которые бы никогда не смогли появиться на родине.Они мне понадобятся, чтобы спасти (   Читать дальше...   )Жанр: Фэнтези, городское, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 09:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8130FFAB3351A277536D1ECABA91B228FAE7F5
+magnet:?xt=urn:btih:060D6AE345FB94155DE0849AB3367ECAF90D5621
 ```
 
 https://mybot314.ru/tekegram_catalog/

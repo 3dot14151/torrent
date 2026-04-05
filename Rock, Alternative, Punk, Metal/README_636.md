@@ -1,3 +1,32 @@
+###  Публикация: 1063807   (430367) от 18.10.2016
+
+Gaia Prelude - Another (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Instrumental Neoclassical Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire 03:00
+02. Silent Dream 04:02
+03. Genesis 05:07
+04. Genesis 05:15(   Читать дальше...   )Жанр: Instrumental Neoclassical Power MetalПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E26A7BB41C9C30808510A545B7DAB71A7C9E259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063847   (430362) от 18.10.2016
 
 Monument - Rock The Night! (2012) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +35,7 @@ Monument - Rock The Night! (2012) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430362.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Monument - Renegades (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430355.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ensiferum - Two Paths (2017) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430307.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ringo Starr - Give More Love (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430299.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Chris Norman - Don't Knock the Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430292.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nazareth - Close Enough For Rock'n'Roll (1976) remastered /2002, Eagle Records/ 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_430274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430274.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Kee Marcello - Scaling Up (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430236.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - A Light In The Black - A Tribute To Ronnie James Dio (2015) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430235.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Metal Allegiance - Fallen Heroes EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430122.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Conxuro - La Rueda de la Fortuna (2012) [FLAC|Lossless|image + .cue] <Folk Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430097.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Deus X Machina - X (2014) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430094.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Lingerbliss - A False Premise (2013) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430089.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Darklight - Bleeding For Metal (2011) [FLAC|Lossless|image + .cue] <Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430084.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Geoda - Firebreak (2014) [FLAC|Lossless|image + .cue] <Technical Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430081.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Lepergod - Impvro (2019) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430078.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Sinfonica - Bosque Eterno (2019) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430075.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Lazarvs - Lazarvs (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Groove Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430072.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Lepergod - Siniestro Éxtasis (2018) [FLAC|Lossless|image + .cue] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430069.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Secret Sphere - Heart And Anger (2005) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429993.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Mezmerized - Electrolyze (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429991.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Dominus Inferi - Age of Darkness (2008) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429990.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Lingerbliss - Uncertain (2010) [FLAC|Lossless|image + .cue] <Progressive Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429989.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Twilight - The Time Has Come (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429988.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Portraits - At My Darkest (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429986.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Mirayon - A Tale of Challenging Hope (2020) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429985.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Mirayon - A Tale of Challenging Hope (2020) [FLAC|Lossless|WEB-DL|tracks] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:904AF960E0BA476FAE5FBAEB143CC5A651A92C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410947   (429984) от 24.09.2020
-
-Thought Chamber - Angular Perceptions (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premonition (2:12)
-02. Sacred Treasure (7:07)
-03. A Legend's Avalon (5:48)
-04. Balance Of One (6:18)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741E9197550C8B17A171FFD951F55989AB6D53B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

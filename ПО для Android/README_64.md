@@ -1,3 +1,116 @@
+###  Публикация: 956381   (307024) от 28.11.2015
+
+Photo Collage Editor v2.16 Ad-Free [En] - Фото коллаж редактор
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307024.jpg" />
+</div>
+
+
+###  Подробнее
+
+* Фото коллаж редактор позволяет создавать удивительные коллажи, используя свои фотографии, забавные наклейки, фоны, текст красивые шрифты кадров.
+* Фото коллаж редактор позволяет объединить несколько фотографий и обмениваться ими одновременно.
+* Фото коллаж редактор пакеты простой дизайн с мощным редактором, чтобы дать вам все, что вы, возможно, хотят, чтобы Коллаж (   Читать дальше...   )Тип издания: Mod Ad FreeРелиз состоялся: 25.11.2015Разработчик: ZentertainПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585FB173AFE53B570ADB4C74059A83FD9AD0C9B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077368   (306312) от 28.11.2016
+
+AnyBalance+ 1.1.220 [Ru] Full
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306312.jpg" />
+</div>
+
+
+###  Подробнее
+
+— Как оперативно узнавать и контролировать баланс карты/cчёта/телефона, зачисление/списание денег, остаток трафика/минут/смс и др. информацию из личных кабинетов?
+— Как постоянно не входить в разные личные кабинеты, не бродить по запутанным интерфейсам и экономить своё время?
+Используйте AnyBalance!
+Получайте информацию из 1500+ личных кабинетов в едином виде в одном (   Читать дальше...   )Тип издания: Пиратка/FullРелиз состоялся: 24 ноября 2016 г.Разработчик: KrawllyПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7393B55E22059F2123CE62D2BB6CB30F3E78193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039059   (305714) от 10.11.2020
+
+Vinci v2.2 (74) [Ru/Multi] - Обработка фотографий при помощи нейросетей (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывает фотографии при помощи нейросетей. Десятки вдохновляющих фильтров для мгновенной обработки фотографий:
+– Ретушируйте фотографии;
+– Применяйте арт-фильтры и сравнивайте разные художественные стили;
+– Развлекайтесь и добавляйте уникальные фотоэффекты;(   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.10.2020Разработчик: VK.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEB6148D0E7D77F2AAD3689BC43A51A1E3CA226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095413   (305710) от 10.11.2020
+
+Camera Auto Timestamp v2.48 Pro [En/Ru] - добавление различных меток на фотографии (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-либо задавались вопросом, почему у Вашей встроенной камеры нет опции, чтобы поместить метку времени в Ваши фотографии? Удивление не больше! Это приложение автоматически напечатает метку времени на Ваших фотографиях, поскольку Вы берете их со своей встроенной камерой.
+Легко настройте метку времени и настройки местоположения на Вашем мобильном устройстве: (   Читать дальше...   )Тип издания: Пиратка (Разблокированы Pro функции)Релиз состоялся: 09.11.2020Разработчик: AscendAppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4FD5CB74849B410B8439B014227777282EE0A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077839   (304468) от 29.11.2016
 
 Ultimate Guitar Tabs & Chords 4.10.1 [Ru] Premium
@@ -6,7 +119,7 @@ Ultimate Guitar Tabs & Chords 4.10.1 [Ru] Premium
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304468.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ AndDocPro - PDF & DJVU Reader 1.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304079.jpg" />
 </div>
 
 
@@ -58,7 +171,7 @@ EBookDroid - PDF & DJVU Reader 2.4.0.4 [Ru] - Читалка файлов раз
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303796.jpg" />
 </div>
 
 
@@ -84,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301952.jpg" />
 </div>
 
 
@@ -113,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296681.jpg" />
 </div>
 
 
@@ -139,7 +252,7 @@ Mod VPN Defender 1.2.3 (RU/EN)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296593.jpg" />
 </div>
 
 
@@ -165,7 +278,7 @@ Spektrel Art 1.0.13 [En] - придайте снимкам необычный в
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296569.jpg" />
 </div>
 
 
@@ -191,7 +304,7 @@ Grungetastic v3.3.8 [En] - ваши фотографии в стиле гран�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296470.jpg" />
 </div>
 
 
@@ -217,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296469.jpg" />
 </div>
 
 
@@ -243,7 +356,7 @@ DomoMeter v3.8.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296363.jpg" />
 </div>
 
 
@@ -269,7 +382,7 @@ Remote Bot for Telegram v1.9.43 Full [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294426.jpg" />
 </div>
 
 
@@ -295,7 +408,7 @@ Photo Measures v1.56 [En/Ru] - Нанесение размеров, углов �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294345.jpg" />
 </div>
 
 
@@ -321,7 +434,7 @@ WiFi Warden v2.5.7 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292459.jpg" />
 </div>
 
 
@@ -347,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291831.jpg" />
 </div>
 
 
@@ -374,7 +487,7 @@ Dash Maker: OBD Car Dashboards 1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291559.jpg" />
 </div>
 
 
@@ -400,7 +513,7 @@ Apk Extractor Premium 4.1.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291552.jpg" />
 </div>
 
 
@@ -426,7 +539,7 @@ OpenDomofon - Коды домофонов Pro 1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291393.jpg" />
 </div>
 
 
@@ -455,7 +568,7 @@ WiFi Manager Premium 4.0.0-dev2.7 - Управление WiFi сетями [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291168.jpg" />
 </div>
 
 
@@ -482,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290848.jpg" />
 </div>
 
 
@@ -508,7 +621,7 @@ Brain 3D Anatomy v1.0.2  [En] - анатомический 3D атлас моз�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290607.jpg" />
 </div>
 
 
@@ -534,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289959.jpg" />
 </div>
 
 
@@ -562,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289953.jpg" />
 </div>
 
 
@@ -573,113 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:951CDAB891D1DA8AEBF42078C6AA1ECC3BD7E45D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064129   (288899) от 18.11.2018
-
-Монеты России и СССР v4.5 Full [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для нумизматов и просто интересующихся. Может использоваться как инструмент для работы с коллекцией, либо как справочник. Содержит полный перечень юбилейных монет и монет регулярного чекана с 1921 года, также содержит информацию о пробных монетах СССР. Более 1200 монет!Тип издания: с Маркета + кейгенРелиз состоялся: 27.11.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD45E797C9F5A953B0FEDBB738B63DE74937DA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080515   (288126) от 07.12.2016
-
-Справочник инженера сварщика Premium 1.1.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288126.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Справочник инженера сварщика" разработан в помощь специалистам сварочного производства при предварительной оценки норм расхода сварочных материалов и выбора технологии сварки.
-Содержит справочные материалы по технологии сварки стальных конструкций, расчету основных (по размерам и весу) и сварочных материалов (по весу проката и длинам швов), маркам сталей (   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 11 января 2016 г.Разработчик: Sergey MalyshevПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8148E0236297206FE31A0239E3F116B661C219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081037   (284112) от 09.12.2016
-
-Peers.TV 6.11.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Peers.TV — это популярные телеканалы в высоком качестве, более 500 программ, телешоу и сериалов, а благодаря расширению функционала — ещё и IP-телевидение!
-Peers.TV — это бесплатное приложение для просмотра ТВ онлайн и в записи 24 часа в сутки, 7 дней в неделю.
-При помощи особой магии Peers.TV превратит ваш смартфон или планшет в мобильный телевизор.Тип издания: версия с Гуглплей (Free)Релиз состоялся: 6.12.2016Разработчик: InetraПоддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22479F2D9960FB0156A9AC7E54D56751030CB030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081755   (282800) от 10.12.2016
-
-TrustGo Antivirus & Mobile Security 2.4.5.487 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатное комплексное решение для защиты приватных данных и анализа угроз на Вашем смартфоне.Тип издания: FreeРелиз состоялся: 07.12.2016Разработчик: TrustGo, Inc.Поддерживаемая ОС: Android 4.0+Жанр: AntivirusЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BE2C1C143F38C802E628818E6A60FC002A23F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 512730   (663557) от 19.06.2012
-
-Наталия Кассанелли | Декоративные кустарники, живые изгороди и газоны [2012] [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами уникальная книга, которая поможет всем, кто увлекается декоративным садоводством, легко ориентироваться во всем многообразии сортов и видов кустарников. Вы научитесь создавать им оптимальные условия и использовать в дизайне сада наравне с ухоженными газонами и смешанными живыми изгородями, которые могут приобретать самые причудливые формы.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09279E2A87BC06D17688ABBC4AE418E498E496BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224661   (662664) от 13.05.2018
 
 Николай Курдюмов | Самая полная энциклопедия по саду и огороду (2018) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662664.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661507.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660024.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657773.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657759.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657489.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657389.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656942.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656367.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656365.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655306.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653590.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653103.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651011.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650930.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648401.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647446.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645227.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644845.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644692.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644583.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644580.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643544.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642803.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642628.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A310D5B07FF8F4AC88662DCFA793B248B41FA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033038   (641657) от 09.07.2016
+
+О. Юрина | Контейнерные растения (2012) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Контейнерные растения - книга, в которой рассказывается о принципах, разновидностях, особенностях и тонкостях контейнерного садоводства, приобретающего все большую популярность во всех уголках мира. Данная книга является 15 томом серии книг "Моя чудесная дача" издательства "Комсомольская правда".Жанр: Пособие по садоводствуФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95DF935312D6ED960920893166D43BA67D459DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

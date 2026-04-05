@@ -1,3 +1,55 @@
+###  Публикация: 1761277   (36804) от 19.11.2024
+
+Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте полную жизни планету Глизе. Когда-то её населяла древняя раса. Теперь эта планета стала домом для разумных творений той цивилизации — диокеков. Хотя Древние исчезли, диокеки продолжали жить в мире. Но однажды злобные хилтсики начали нападать на их поселения, сея хаос и разрушения. И когда на сцену выходит ещё более зловещая сила, молодой диокек по имени (   Читать дальше...   )Тип издания: RepackРазработчик: C2 Game StudioЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D2E94B68B31E7692C9F3B7C160026073E59B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736020   (36716) от 20.11.2024
+
+V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проснувшись в V Rising герой в качестве вампира должен охотится за кровью, параллельно избегая прямых солнечных лучей. Слэшер с элементами выживания предлагает примерить роль кровопийцы, который просыпается в собственном замке и должен восстановить свое владение и восстановить авторитет, действуя в огромном открытом мире, где полно секретов. Здесь предстоит завоевывать (   Читать дальше...   )Тип издания: SceneРазработчик: Stunlock StudiosЖанр: Экшены, Приключенческие игры, Многопользовательские игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E15C5F261395F499BC80AFAA7A9392673240C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759978   (36714) от 20.11.2024
 
 Beloved Rapture (2024) [En] (1.1.8) License GOG
@@ -6,7 +58,7 @@ Beloved Rapture (2024) [En] (1.1.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36714.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Patch 5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36536.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36527.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36375.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Vaporum (2017) [Ru/Multi] (Patch 15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36324.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Deathbound (2024) [Ru/Multi] (1.1.8f1) Scene Tenoke [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36290.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05/dlc) Repack dixen18 [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36285.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36207.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Albatroz (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36199.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Bug Fables: The Everlasting Sapling (2019) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36159.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36113.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.11.21.01) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36094.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36061.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Hive Jump 2: Survivors (2024) [Ru/Multi] (1.1.1853) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35796.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35771.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35672.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Sky Oceans: Wings for Hire (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35671.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35662.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35656.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Oct 11 2024/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35576.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35530.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Monster Hunter Stories (2024) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35346.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.6.49/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35239.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35185.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C476C1F5DF8840155E5E0686D0D0925641B9E3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764044   (35153) от 05.12.2024
-
-Vaporum: Lockdown (2020) [Ru/Multi] (Build #80) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vaporum: Lockdown - это приквел знаменитой игры с приключениями в подземельях и обстановкой в стиле стимпанк Vaporum. Это одиночная игра с одним персонажем, передвижением по сетке и видом от первого лица в оригинальной стимпанковой обстановке, вдохновленная такой классикой жанра, как Dungeon Master I и II, играми серии Eye of the Beholder и более современными Legend (   Читать дальше...   )Тип издания: RepackРазработчик: Fatbot Games, s. r. o.Жанр: Ролевая игра, Экшны, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773FE33782EECDBFDAEC86031DE25898690D5213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711473   (34976) от 07.12.2024
-
-Lords of the Fallen (2023) [Multi] (1.6.49/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lords of the Fallen приглашает игроков в мрачный мир фэнтези, где вы станете одним из легендарных Темных крестоносцев и будете бороться против бога-демона Адира. Lords of the Fallen - это эпическое приключение на огромной территории, которая в пять раз больше мира оригинальной игры. Адир терзал страну много веков, и теперь его нужно свергнуть снова. Пройдите по миру (   Читать дальше...   )Тип издания: SceneРазработчик: HEXWORKSЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3AB41DC374977A08FE3CA60F2935EADA7F82BB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

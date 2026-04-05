@@ -1,3 +1,134 @@
+###  Публикация: 1085304   (214223) от 21.12.2016
+
+Журнал | Мир фантастики №1 (январь 2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214223.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мир фантастики» единственное издание в России, посвященное фантастике и фэнтези в самом широком смысле. В фокусе внимания — книги, кинофильмы, игры и все самое интересное в этой области.Жанр: Журнал фантастикиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4CBE02DCE49EA7EB5A0D99424B2A1EFA454757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653732   (214214) от 17.08.2023
+
+Подшивка журнала | Профиль №№1-30 (январь-август 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР-Формат»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EA89CB0536022E0D2BD3A353F7F80848A190A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085305   (214181) от 21.12.2016
+
+Журнал | What Hi-Fi? Звук и видео №12-1 (декабрь 2016 - январь 2017) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал является спутником покупателя качественной аудио-, видео-, Hi-Fi-техники и домашнего кинотеатра, охватывает широкий спектр аппаратуры. Издание знакомит читателей с новинками рынка, дает советы по выбору и настройке аудиовидео аппаратуры.Жанр: Журнал о аудио-, видео-, Hi-Fi-техникиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F610C9F1E2D9EB5E423CBD849FE67144F6805275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653448   (214124) от 17.08.2023
+
+Журнал | Popular Woodworking №274 (2023) [PDF][En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал, посвященный столярному делу. Проекты, идеи, обзоры материалов и инструментов. Многочисленные идеи и проекты от создателей одного из популярнейших изданий для любителей столярного дела. Журнал является одним из основных ресурсом для энтузиастов работы с деревом, от среднего уровня мастерства до профессионалов в своем делеЖанр: Столярное делоЯзык: АнглийскийИздательство: F+W Publications, IncФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2E6F839C6AAE1AA6EEC3162D2D3CEC035EF73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270269   (214109) от 18.12.2018
+
+Интернет-журнал | Домашняя лаборатория №10 (октябрь 2018) [DJVU]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214109.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D1C4641B9C593ED7760B14F52EA077A92F8427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426401   (214080) от 24.11.2020
 
 Журнал | Радио №11 (ноябрь 2020) [PDF, DJVU]
@@ -6,7 +137,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214080.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214069.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213978.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213894.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213814.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213769.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213756.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213730.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213710.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213708.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213678.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213666.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213652.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213317.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213090.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212722.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212710.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212355.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212305.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211793.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211180.jpg" />
 </div>
 
 
@@ -541,137 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9ABA634A015CF7E1091DBE8AC1B811A900692BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601957   (210942) от 03.01.2023
-
-Подшивка | Мир хорошего инструмента №1-2, 3-4 [2 номера] (2022) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210942.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мир хорошего инструмента» - популярный независимый журнал о ведущих мировых производителях в области инструмента, оборудования и расходных материалов. Независимые обзоры, тесты, практические советы - все это поможет Вам получить много полезной информации в огромном мире инструмента и техники. Журнал рассчитан на специалистов и домашних мастеров.
-В новости – комплект (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1043ADED40CA74721B6655777D62B5173E87E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641872   (210710) от 24.06.2023
-
-Журнал | Мастер и мастерская №3 (2022) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной номер журнала "Мастер и мастерская". Журнал о столярке и деревообработке «Мастер и мастерская» — это новое периодическое профессиональное издание о новостях из столярного мира, о мастерах и мастерских. В каждом номере много практической и полезной информации об инструментах и оборудовании, а также о производстве всего, что нужно из дерева: мебели, (   Читать дальше...   )Жанр: ДеревообработкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CE96AE1F96B57D5B1CA272ECC1890F78CAA84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642052   (210644) от 25.06.2023
-
-Подшивка журналов | Popular Mechanics [USA] (1904 - 2023) [PDF] [EN] [Обновляемая]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Popular Mechanics - журнал о новинках в мире науки и техники, электроники и технологий в области автомобилестроения, авиации, кораблестроения, энергетики, аэрокосмических разработок и т.д.Жанр: Научно-популярный журналЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06840B867EFCAB819F467AFB6A90ECA0D1129323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602751   (210636) от 07.01.2023
-
-Журнал | Elektor №517 (2022) [PDF][En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elektor - популярный журнал по электронным компонентам и схемотехнике, аналог отечественных Радио, Радиолюбителя, Радиомира, и т.п. На сайте журнала можно найти дополнительные материалы к статьям (прошивки контроллеров, рисунки печатных плат)Жанр: ЭлектроникаЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CF06397DAC5BD80EA1D5F6323AAE4AE5935DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641910   (210622) от 24.06.2023
-
-Журнал | The Family Handyman (июль-август 2023) [PDF][En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тhe Family Handyman — журнал для тех, кто хочет сделать свое жилище более комфортабельным и уютным. Множество оригинальных идей по обустройству дома, дачи, квартиры, мастерской, гаража. Организация отопительной и водопроводной системы, электропроводка, проекты мебели для изготовления своими силами, строительные и ремонтные работы — все это и многое другое в каждом (   Читать дальше...   )Жанр: ДомоводствоЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D95A04214F06B0FEF01BFCEE4BFCAB123F7B83C
 ```
 
 https://mybot314.ru/tekegram_catalog/

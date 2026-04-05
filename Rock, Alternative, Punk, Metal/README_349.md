@@ -1,3 +1,148 @@
+###  Публикация: 1020240   (744854) от 26.05.2016
+
+Би-2 - ... и корабль плывёт (2000) 2xCD, 2016, Мистерия звука [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744854.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. И корабль плывет... (3:53)
+02. Восток (3:54)
+03. Сердце (5:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:16 + 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4196CBFBAC53A54471587DFECF78F8102D63BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217256   (744763) от 03.04.2018
+
+7000$ - Цена победы (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цена победы
+02. Человек человеку волк
+03. Королевство теней
+04. Голоса звучат(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208075A344DF22974623EAB6494AB9F7DF103273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217138   (744629) от 03.04.2018
+
+System Of A Down - Mezmerize (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mezmerize - четвёртый студийный альбом группы «System of a Down», выпущен 17 мая 2005 года. Первая часть концептуальной дилогии "Mezmerize/Hypnotize". Mezmerize примечателен тем, что гитарист и до этого бэк-вокалист группы Дарон Малакян отныне сам стал исполнять многие написанные им вокальные партии наряду с основным вокалистом группы Сержем Танкяном.01. Soldier Side - Intro (1:04)
+02. B.Y.O.B. (4:15)
+03. Revenga (3:48)
+04. Cigaro (2:12)(   Читать дальше...   )Жанр: Alternative Nu MetalПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD2DE0C278699D48EED18CE52B231B21BA20050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217120   (744620) от 03.04.2018
+
+VA - Rock Covers (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nickelback - Saturday Night's Alright (For Fighting)
+02. Opeth - Would
+03. P.O.D. - Bullet The Blue Sky
+04. Rise To Remain - Enter Sandman(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED754F77A8792729D976D93F2595FCF405DFEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217141   (744619) от 03.04.2018
+
+System Of A Down - Hypnotize (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypnotize - студийный альбом рок-группы «System of a Down», вышел 22 ноября 2005 года. Вторая часть концептуальной дилогии «Mezmerize/Hypnotize». Так же, как и на предыдущем альбоме, гитарист группы Дарон Малакян исполняет не меньше вокальных партий, чем основной вокалист группы Серж Танкян. Как и остальное творчество группы, песни из альбома Hypnotize посвящены (   Читать дальше...   )01. Attack (3:06)
+02. Dreaming (4:00)
+03. Kill Rock 'N Roll (2:28)
+04. Hypnotize (3:09)(   Читать дальше...   )Жанр: Alternative Nu MetalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4299F6872B474E45721026F90A85FBB5C08316D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217132   (744525) от 03.04.2018
 
 System Of A Down - Toxicity (2001) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Nu Metal>
@@ -6,7 +151,7 @@ System Of A Down - Toxicity (2001) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744525.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744522.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744207.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Magenta - The Lost Reel (2020) Tigermoth Records [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744196.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Astralion - Outlaw (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743948.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ RebelHot - RebelHot (2016) [MP3|320 кб/с] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743946.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Deja Vu - Ejected (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743879.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Vetust - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743864.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Maule - Maule (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743857.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Tristan Harders' Twilight Theatre - Drifting Into Insanity (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743847.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Tender - Fear of Falling Asleep (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743838.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Chasms - The Mirage (2019) [FLAC|Lossless|tracks + .cue] <Industrial, No Wave, S
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743837.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Marty Balin - Balin (1981) [MP3|320 кб/с] <Soft Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743795.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Nagart - Секреты оборотня (2019) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743738.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ B.F.G - Blue (серия "Другие восьмидесятые") (1989) Remas
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743736.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Elvis Costello & The Imposters - The Boy Named If (2022) [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743642.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Billboard Top Hits (1985-1989) 5CD [FLAC|Lossless]<Rock, Pop, Electronic, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743558.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ VA - Billboard Top Hits (1980-1984) 5CD /1992 Rhino Records/ [FLAC|Lossless]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743551.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ VA - Billboard Top Hits (1975-1979) 5CD /1991 Rhino Records/ [FLAC|Lossless]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743531.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Total-Empty - Novel Horizons (2014) EP Авторская раздача [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743492.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ PunKrot - Д.А.С.Т. (2015) [MP3|320 кб/с]<Punk-Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743487.jpg" />
 </div>
 
 
@@ -604,151 +749,6 @@ PunKrot - Д.А.С.Т. (2015) [MP3|320 кб/с]<Punk-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:791BEF3DD4A343A5EE7913962AA8C57B84A36980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217440   (743363) от 04.04.2018
-
-Марко Поло - Звездные Капитаны (2018) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743363.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Альбом, посвящен всем вам и нам – путешественникам и любителям истории – тем, кто чувствует связь времен и читает небесные руны, искателям приключений и правды, объединившихся под одним парусом фрегата «Марко Поло» и вместе сотворившим множество историй, которые не утопит время в море…"01. Акатава
-02. Ветер в волосах
-03. Гималаи
-04. Африка(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5735E40C8AFD0369E3A4AA7C2838AE64A3F405AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890521   (743247) от 21.04.2015
-
-Blur - The Magic Whip (2015) [MP3|320 кб/с]<Alternative, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Street
-02. New World Towers
-03. Go Out
-04. Ice Cream Man(   Читать дальше...   )Жанр: Alternative, BritpopПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2478420B6FBAFC2054B244D18F00BE966AFF0FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217349   (743130) от 04.04.2018
-
-Jaded Heart - Devil's Gift (2018) [MP3|320 Kbps] <Hard Rock, Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743130.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wasteland (4:24)
- 2. The Enemy (4:01)
- 3. Set Free (5:33)
- 4. Scream of Anger (5:27)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' HeavyПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D055583BC457112237DB02BBFF7ECD3FC70F5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020635   (743101) от 27.05.2016
-
-Queen - A Night At The Opera (1975) GoldCD Reissue, 1992, MFSL UltraDisc II [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death On Two Legs - Dedicated To (03:43)
-02. Lazing On A Sunday Afternoon (01:07)
-03. I'm In Love With My Car (03:04)
-04. You're My Best Friend (02:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE91B3D5B8698678DB6ECD54258FC1E3A8CC20E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890448   (742902) от 21.04.2015
-
-Apocalyptica - Shadowmaker (2015) [FLAC|Lossless]<Symphonic Metal, Cello Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I-III-V Seed Of Chaos
-02. Cold Blood
-03. Shadowmaker
-04. Slow Burn(   Читать дальше...   )Жанр: Symphonic Metal, Cello MetalПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0615C0D6E813E487800489AF0A257ECBD9076C
 ```
 
 https://mybot314.ru/tekegram_catalog/

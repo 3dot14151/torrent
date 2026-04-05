@@ -1,3 +1,135 @@
+###  Публикация: 1575594   (375218) от 10.09.2022
+
+Дом для леопарда (1979) BDRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавная история о приключениях леопарда, решившего подыскать для себя и своей семьи жилище.Производство: СССР / ТО «Экран»Жанр: мультфильм, короткометражкаРежиссер: Анатолий РезниковАктеры: Александр Очеретянский, Аркадий МинаковСубтитры: ОтсутствуютПродолжительность: 00:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E536EC82348AA7D55F33B1C6C83D0BDA302F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573724   (375185) от 12.11.2012
+
+Бэтмен будущего: Возвращение Джокера / Batman Beyond: Return of the Joker (2000) [H.264/720p/Hi10P] ВDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый полнометражный мультфильм из серии БЭТМЭН БУДУЩЕГО! И старому, и молодому Бэтмэнам не до смеха: самый опасный преступник всех времен возвращается из прошлого, чтобы мстить молодому Бэтмэну, Брюсу Уэйну и всему Готэму. Подлый, смертельно опасный, и, похоже, бессмертный Король Преступного мира возвращается, чтобы сеять зло и разрушение. Пытаясь разгадать тайну (   Читать дальше...   )Жанр: Компьютерная анимация, ПриключенияРежиссер: Курт ГедаПеревод: Профессиональный (многоголосый, закадровый) - ТВ3
+                          Любительский (многоголосый закадровый) -Продолжительность: 01:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6066E775A74F584E578C33610D4367948C8734BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514622   (375064) от 10.09.2022
+
+Как кошка с собакой (1973) WEB-DLRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Театральное кукольное представление для детей. О нелегкой дружбе кошки с собакой, которые не могут прожить ни минуты, чтобы не обидеть друг друга.
+Когда двое в ссоре, они становятся легкой добычей, - злой волк решает воспользоваться ситуацией. Но его ожидает неудача, а попытка напасть немного позже совсем не расстраивает.Производство: СССР, ТО "Экран"Жанр: детский, кукольныйРежиссер: Юлиан КалишерАктеры: Валентин Гафт, Клара Румянова, Николай Носов, Лев ШабаринСубтитры: ОтсутствуютПродолжительность: 00:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD978F26B64B8AAED34B2D790EC26F58A6AFC057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514560   (375061) от 10.09.2022
+
+Русские напевы (1972) SATRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375061.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам русских песен "Во деревне то было в Ольховке", "Вставала я ранешенько", "Метелица".Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимация, музыкальныйРежиссер: Инесса КовалевскаяАктеры: Изабелла Герасимова, Валентина Толкунова, Анатолий Горохов, А. ТихоноваСубтитры: ОтсутствуютПродолжительность: 00:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEC3119FFB55764EA90CEDDCF3011614047B3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575556   (375060) от 10.09.2022
+
+Черепашки-ниндзя / TMNT (2007) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375060.jpg" />
+</div>
+
+
+###  Подробнее
+
+После поражения их старейшего врага Шредера, семья черепашек распалась. Кроме борьбы за единство семьи их сенсей Сплинтер обеспокоен еще и тем, что в Нью-Йорке происходит что-то странное. Техноиндустриалист Максимилиан Уинтерс готовит армию древних монстров, остановить которую сможет только суперкоманда бойцов ниндзя — Леонардо, Микеланджело, Донателло и Рафаэль! (   Читать дальше...   )Производство: Гонконг, США / Golden Harvest Company, 4 Kids Entertainment, Image ComicsЖанр: мультфильм, фантастика, фэнтези, боевикРежиссер: Кевин МанроАктеры: Крис Эванс, Сара Мишель Геллар, Мако, Кевин Смит, Патрик Стюарт, Чжан Цзыи, Лоренс Фишбёрн, Митчелл Уитфилд, Джеймс Арнольд Тейлор, Мики КеллиПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EAF17B17E6E882662879C11B88D533F4E108FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514101   (375059) от 10.09.2022
 
 Кем быть? (1973) DVDRip
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375059.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375058.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375047.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375026.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375017.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375016.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374894.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374776.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374736.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374723.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374700.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374649.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374530.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374496.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374470.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374358.jpg" />
 </div>
 
 
@@ -424,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374260.jpg" />
 </div>
 
 
@@ -450,7 +582,7 @@ UglyDolls. Куклы с характером / UglyDolls (2019) BDRemux [H.264/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374234.jpg" />
 </div>
 
 
@@ -476,7 +608,7 @@ UglyDolls. Куклы с характером / UglyDolls (2019) BDRip [H.264/10
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374099.jpg" />
 </div>
 
 
@@ -502,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373995.jpg" />
 </div>
 
 
@@ -528,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373655.jpg" />
 </div>
 
 
@@ -540,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29A8E1FCFA639716F54F3E3D051EA19A87AE2328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407739   (373485) от 27.10.2014
-
-Акаиро (1980) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373485.jpg" />
-</div>
-
-
-###  Подробнее
-
-По японской сказке о том, как странник вылечил мальчика, смастерив ему бумажную игрушку.Жанр: Детский, КукольныйРежиссер: Аида ЗябликоваПродолжительность: 00:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC1BAD1BF95E52CE8822CDABD117C20223DC14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324097   (373404) от 27.10.2014
-
-Автомобиль с хвостиком (1973) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Кукольный, ДетскийРежиссер: Анатолий РезниковПерсонажи: Тамара Дмитриева, Т. Краснушкина, Геннадий Крашенинников, Зинаида НарышкинаПродолжительность: 00:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784E7FA1CC33D4A732E909EA95E4A32763F23A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069698   (373034) от 04.11.2016
-
-Ледниковый период: Столкновение неизбежно / Ice Age: Collision Course (2016) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отчаянная погоня за неуловимым желудем катапультирует Скрата прямо в космос, где он случайно запускает целую серию космических событий. Именно они изменят весь мир Ледникового периода и станут реальной угрозой для него. Чтобы спастись, Сид, Мэнни, Диего и остальные звери должны покинуть свои дома, отправиться в забавное и захватывающее приключение в экзотические (   Читать дальше...   )Производство: США, 20th Century Fox Animation, Blue Sky StudiosЖанр: Мультфильм, Приключения, Комедия, СемейныйРежиссер: Майк Тёрмайер, Гален Т. ЧуПеревод: Дублированный (лицензия)Язык субтитров: Русские (полные, форсированные)Продолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834F7F3DD458AF2DA7894231A9A586E2115E0E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254550   (372523) от 14.10.2018
-
-Сказка о царе Салтане (1984) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три девицы под окном пряли поздно вечерком. «Кабы я была царица»,— говорит одна девица… Дальше можно не продолжать. Благодаря урокам литературы сюжет классической «Сказки о царе Салтане, о сыне его славном и могучем богатыре князе Гвидоне Салтановиче и о прекрасной царевне Лебеди» знают все. Подарите себе шанс вновь и вновь возвращаться в волшебный мир, созданный (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: Сказка, Рисованная анимация, ПриключенияРежиссер: Иван Иванов-Вано, Лев МильчинСубтитры: ОтсутствуютПродолжительность: 00:53:08Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9CB0A644D0BA143FF65E34C57DFCD8CF928AF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574360   (372484) от 13.11.2012
-
-Секретная служба Санта-Клауса / Arthur Christma (2011) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм приоткрывает завесу тайны над тем, каким образом Санта-Клаусу удается развезти подарки всем детям на Земле всего за одну ночь.Производство: СШАЖанр: Мультфильм, драма, комедия, семейныйРежиссер: Сара Смит, Бэрри Кук / Sarah Smith, Barry CookПерсонажи: Джеймс МакЭвой, Хью Лори, Билл Найи, Джим Броудбент, Имелда Стонтон, Эшли Дженсен, Марк Вуттон, Лора Линни, Ева Лонгория, Рамона МаркесПеревод: Профессиональный (дублированный)Продолжительность: 01:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CFFBA26925A85549E0F467547B33E37C091D07
 ```
 
 https://mybot314.ru/tekegram_catalog/

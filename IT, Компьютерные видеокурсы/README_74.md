@@ -1,29 +1,3 @@
-###  Публикация: 1836438   (252502) от 10.11.2025
-
-plc-edu, Дмитрий Громов | Прикладной курс по АСУ ТП (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучение диагностике, подбору оборудования, проектированию, сборке шкафов автоматики, программированию, диспетчеризации, пусконаладке и обслуживанию в общепромышленных системах. Научитесь правильно строить работу по проекту и этапам программирования. Выпускник данного курса может составить четкое ТЗ для программиста в соответствии с особенностями техпроцесса и проконтролировать (   Читать дальше...   )Производство: plc-eduЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA0A88EDB903B8E27DC4210259611A3F035C9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836100   (252282) от 08.11.2025
 
 Сергей Величко | Запускаем первую ВОЛС с нуля и без дорогих инструментов (2025) WEB-DL [AD] [RU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252282.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Diodov.net, Дмитрий Забарило | Программирование �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252280.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ CyberYozh Academy, Евгений Ивченков | Комплексная на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252237.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ Alexcode, Алексей Леонов | Разработчик 1С с нуля (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252220.jpg" />
 </div>
 
 
@@ -143,7 +117,7 @@ QA Studio | Ручное тестирование ПО (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252195.jpg" />
 </div>
 
 
@@ -172,7 +146,7 @@ Red Group, htmllessons, Максим Шушвал | Все интенсивы (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252193.jpg" />
 </div>
 
 
@@ -201,7 +175,7 @@ Amigoscode, Mama Samba Braima Nelson | PROFESSIONAL Full Stack Developer (2023) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252190.jpg" />
 </div>
 
 
@@ -228,7 +202,7 @@ JUG Ru Group, JPoint и Joker | Конференция для опытных Jav
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252178.jpg" />
 </div>
 
 
@@ -257,7 +231,7 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252055.jpg" />
 </div>
 
 
@@ -286,7 +260,7 @@ itProger |  Профессия Python разработчик (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252041.jpg" />
 </div>
 
 
@@ -312,7 +286,7 @@ Javascript.ninja, Илья Климов | Зимняя школа по Typescrip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251978.jpg" />
 </div>
 
 
@@ -339,7 +313,7 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251963.jpg" />
 </div>
 
 
@@ -368,7 +342,7 @@ Udemy, Andrey Sobolev | Микросервисы на Python (asyncio, starlette
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251960.jpg" />
 </div>
 
 
@@ -395,7 +369,7 @@ Skillbox, Е. Брызгалина, А. Кузнецов, Н. Клюева | Ф�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251811.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251339.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251050.jpg" />
 </div>
 
 
@@ -487,7 +461,7 @@ Max Gor | Работа в системе «1С:Медицина. Больниц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250617.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250454.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ TutorPlace, Наталья Терновская | "1С:Управление на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250441.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ Thinknetica Pro, Алексей Наумов | Внутреннее устрой
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250041.jpg" />
 </div>
 
 
@@ -594,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248677.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248675.jpg" />
 </div>
 
 
@@ -649,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248672.jpg" />
 </div>
 
 
@@ -679,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248671.jpg" />
 </div>
 
 
@@ -707,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248670.jpg" />
 </div>
 
 
@@ -718,6 +692,39 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2683C6BDC3519F0E24D3EDECCCCBC055EF5EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492243   (248378) от 06.05.2012
+
+Специалист | M6451 Планирование, развертывание и управление Microsoft System Center Configuration Manager 2007 [2011] PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248378.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом пятидневном курсе Вы овладеете знаниями и навыками, необходимыми для планирования, внедрения и управления Microsoft System Center Configuration Manager 2007 R3.
+
+На курсе особое внимание уделяется планированию и реализации сайтов и клиентов, конфигурации процесса развёртывания программного обеспечения и операционных систем и управлению обновлениями программного обеспечения. В ходе обучение Вы также рассмотрите средства удаленной работы и другие возможности SCCM.
+
+System Center Configuration Manager (SCCM), ранее Systems Management Server (SMS), представляет собой продукт Microsoft для управления большими группами Windows-систем.
+ Configuration Manager обеспечивает инвентаризацию и контроль использования оборудования и программного обеспечения, управление обновлениями, распространение программного обеспечения, развертывание операционных систем, а также защиту доступа к сети.
+
+Данный курс предназначен для ИТ-специалистов с опытом работы по поддержке большого количества рабочих станций  и серверов под управлением (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 18:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80924EF4580A1F5A9598959C9C857745A41B7126
 ```
 
 https://mybot314.ru/tekegram_catalog/

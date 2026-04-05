@@ -1,3 +1,56 @@
+###  Публикация: 684365   (619414) от 28.07.2013
+
+Citadels (2013) [Ru/Multi] License FAIRLIGHT
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Citadels – историческая стратегия в реальном времени, события которой разворачиваются в средневековом мире, наполненном легендами и мифами. В игре представлено две кампании, одна из которых предложит игрокам сразиться на стороне короля Артура и его верных Рыцарей Круглого Стола, а вторая – встать на сторону Морганы и Мордреда.
+В Citadels игрокам необходимо будет возводить и оборонять крепости, управлять экономикой государства, поддерживать поступление ресурсов, набирать войска и сооружать различные ловушки. На исход каждой битвы будут влиять правильный баланс между развитием экономики и ведением боя.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: bitComposer GamesЖанр: Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, ИтальянскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EEE6E9BCD7F261A988780CE0CEDE08C344FB17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292453   (618252) от 13.04.2019
+
+Warcraft II (1999) [Multi] (2.02v4) License GOG [Battle.net Edition]
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь в эпоху хаоса и обрушьте на соперников, играющих за людей или орков все свои навыки, приобретенные в жестоких баталиях Warcraft: Orcs and Humans. Проявите свое мастерство в самых эпических сражениях Warcraft II в истории. Чемпионы, желающие испытать игру в ее подлинном облике, могут насладиться ей в том виде, в котором она появилась в 1999 году. В игре (   Читать дальше...   )Тип издания: LicenseРазработчик: Blizzard Entertainment, Inc.Жанр: Стратегия, В реальном времени, ФэнтезиЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5749B6FA5437D3C97C97546F377D9A82A6DD579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296101   (614811) от 15.04.2019
 
 WAR PARTY (2019) [Ru/Multi] (1.0.4) Repack Other s
@@ -6,7 +59,7 @@ WAR PARTY (2019) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614811.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/Multi] (2.4.0.19728/dlc) Steam
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614702.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613012.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612458.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Total War: SHOGUN 2 (2011) [Ru/Multi] (1.1.0/dlc) SteamRip R.G. Origins [Complet
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611354.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Weedcraft (2019) [Ru/Multi] (1.01) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607906.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.1921/dlc) Repack Dok2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604389.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Northgard (2018) [Ru/Multi] (1.7.12920/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603020.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ Metal Fatigue (2000) [En] (1.04hf) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599635.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.1.192/dlc) Repack Other s [Odyssey Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597077.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd6) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594287.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593054.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592683.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ Battlevoid: Harbinger (2016) [Ru/Multi] (2.0.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588022.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ Command & Conquer 3: Tiberium Wars (2007) [Ru] (1.09) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587821.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ Command & Conquer: Red Alert 3 (2008) [Ru/Multi] (1.12) License PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586902.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586726.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ Command & Conquer: Red Alert 3 — Uprising (2009) [Ru] (1.12) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584893.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ Thea 2: The Shattering (2019) [En] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582890.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.0.3/dlc) Repack Other s [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579978.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6.0/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578874.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ Napoleon: Total War + 8 DLC [Ru] (RePack/1.3.0.1754.335753) 2010 | Fenixx
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578250.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ Eador: Genesis / Эадор. Сотворение (2009) [Ru/Multi] (1.05.2 Lang
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574077.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573983.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05EDE49559BCAC186F6D35072F3C518A20974326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205018   (573893) от 20.05.2019
-
-Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наконец-то Лорду Подземелья удалось объединить под своим началом все силы тьмы и основать империю зла. Пришло время сделать следующий шаг – расширить границы своих владений! Лорд Подземелья переманил на свою сторону жрицу темных эльфов, Талию, сделав ее своим главным помощником. Ничто не может помешать теперь властелину темного царства управлять операцией по завоеванию (   Читать дальше...   )Тип издания: RepackРазработчик: Realmforge StudiosЖанр: Strategy (Management, Real-time), Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52CFBE15FDFEC1E7EF8E48CBB904F17B480469E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151666   (570090) от 20.07.2017
-
-Ultimate General: Civil War (2017) [Ru/Multi] (1.0) Repack Covfefe
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ultimate General: Civil War - тактическая военная игра. Вы попадете в самое кровавое время в истории США - в период Гражданской войны 1861-1865 годов. Полная кампания: кампания Гражданской войны в США насчитывает более 50 сражений - от мелких стычек до масштабных битв, которые разворачиваются по несколько дней на сотнях квадратных километров. Ход кампании полностью (   Читать дальше...   )Тип издания: RepackРазработчик: Game-LabsЖанр: Strategy (RTS)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CE4E8756BC259597A2DEB719CB7BC5F80A2361
 ```
 
 https://mybot314.ru/tekegram_catalog/

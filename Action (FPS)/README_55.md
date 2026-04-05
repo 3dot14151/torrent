@@ -1,3 +1,55 @@
+###  Публикация: 1804064   (13340) от 27.06.2025
+
+NEDRA (2025) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13340.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ледяных пустошах Антарктики заброшенная советская станция скрывает древнее, внеземное присутствие. Когда сигнал SOS привлекает экспедицию к таинственному кратеру, происходит катастрофа, и вы оказываетесь в ловушке на протяжении шестимесячной полярной ночи. Борьба за выживание начинается, когда вы находите убежище на станции, где вам предстоит раскрыть её ужасающие (   Читать дальше...   )Тип издания: RepackРазработчик: Davit AndreasyanЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E58D38BE6397911C78D624D2B2D21A60C7B234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804123   (13324) от 27.06.2025
+
+S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля (2007) [Ru] (1.0006) Repack EXROW
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постапокалиптический шутер с ролевыми элементами и видом от первого лица. События разворачиваются в альтернативной вселенной, где 12 апреля 2006 года в 14:33 на территории Чернобыльской атомной электростанции, произошёл взрыв неизвестной природы. Случившееся привело к возникновению «Зоны» на просторах которой появились невиданные артефакты и разнообразные аномальные (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Шутер от первого лица, Ролевая играЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB132E1C27CA09FA114BF48D8B4450D4211C46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804062   (13313) от 27.06.2025
 
 NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +58,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13313.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Aliens vs. Predator (2010) [Ru] (2.27u7/dlc) Rip EXROW [Expanded Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13307.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13221.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Far Cry (2004) [Ru] (1.40) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13219.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13187.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Blood West (2023) [Ru/Multi] (4.4.1/dlc) Repack FitGirl [Dead Man's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12884.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Dishonored (2012) [Ru/Multi] (334700) Repack EXROW [RHCP Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12863.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Let'sРlay [Dwar
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12724.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12721.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.10) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12697.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12692.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12633.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Perfect Heist 2 (2021) [Ru/Multi] (03.07.2025) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12591.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12586.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12518.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12403.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.14) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12201.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.23.2/dlc) Repack seleZen [Reloaded E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11971.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11469.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ THE HOUSE OF THE DEAD: Remake (2022) [Ru/Multi] (1.1.3) License GOG [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11257.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Ready or Not (2023) [Ru/Multi] (Build 19222255/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11222.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Ready or Not (2023) [Ru/Multi] (88602/dlc) Repack FitGirl [LSPD Bundle - Censore
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11214.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11131.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.7.0.0/00.017.002/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11115.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.7.0.0/00.017.002/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC1F0C9B43E6275B59D2B31E4512514A3BCC601B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807663   (10922) от 20.07.2025
-
-RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unfinished Business - это новое самостоятельное приключение в RoboCop: Rogue City. ОмниБашня - их крепость, насилие - их язык. Сразитесь с элитными наёмниками на пути к вершине башни и восстановите закон в хаосе! После решительной победы RoboCop над бандами Детройта в этой отдельной сюжетной линии, действие которой разворачивается после событий RoboCop: Rogue City, (   Читать дальше...   )Тип издания: RepackРазработчик: TeyonЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837A54AB11914610173A116768CD5B519140CFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703013   (10738) от 22.07.2025
-
-RoboCop: Rogue City (2023) [Ru/Multi] (1.0.2.0/dlc) License GOG [Alex Murphy Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте культовым полицейским, получеловеком-полумашиной, и попытайтесь восстановить справедливость на опасных, охваченных преступностью улицах Старого Детройта. Мощный Auto-9 и другие 20 видов оружия помогут вам разобраться с преступниками на всех этапах этого захватывающего приключения. Робототехника и кибернетика наградили вас силой и навыками, которые можно улучшать (   Читать дальше...   )Тип издания: LicenseРазработчик: TeyonЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF7144AC6A1E947761D39F4890C3098FF5C15CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

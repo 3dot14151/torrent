@@ -6,7 +6,7 @@ Hugh Masekela - Hope (2003) [FLAC|Lossless|image + .cue] <Jazz, Folk, World, & C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910895.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Peter White - Music For Starlux Airlines (2019) [FLAC|Lossless|image + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910874.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thierry Lang - Guide Me Home (2000) Blue Note[FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910047.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duke Ellington - The Blanton-Webster Band (1940-1942) 3CD, 1986, Bluebird Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909999.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jelly Roll Morton - Classic Jazz Archive 1923 - 1939 (2004) 2CD, Membran Music [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909222.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Parov Stelar Trio - The Invisible Girl (2013) [FLAC (tracks+cue)|Lossless]<Nu Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909083.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Houston Person - Island Episode (1997) Prestige[FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909032.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Rita Marcotulli - A Pino (2016) Live [FLAC|Lossless|tracks + .cue] <Jazz, Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909031.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Idris Muhammad - Legends Of Acid Jazz (1970, 1971) 1996, Prestige[APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909030.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Max Greger - Tanzen' 96 (1995) Polydor[APE|Lossless|tracks + .cue] <Big Band, Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908971.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Calm Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908719.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Jazz and Blues on Edison , volume 1 (1920-1929) 2006, Document Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908180.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Aziza Mustafa Zadeh - Contrasts II (2007) Jazziza Records[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908121.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Konstantin Klashtorni - Groove Jazz N Chill #2 (2012) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908091.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Konstantin Klashtorni - Groove Jazz N Chill #3 (2013) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908072.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Yves Teicher - Fiddler On The Groove (1997) BMG [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907507.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sal Nistico - Heavyweights (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907441.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Max Kaminsky & Pee Wee Russell - At The Copley Terrace (1945) 1996, Jazzology[AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907433.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Thea Mann - Sentimentally Yours (1996) HDCD[FLAC|Lossless|image + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907341.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Chet Baker Sextet - Chet Is Back! (1962) 2003, Bluebird[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907335.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Viktoria Tolstoy - Meet Me At The Movies (2017) [FLAC|Lossless|WEB-DL|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907326.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mingus Dynasty - Chair In The Sky (1979) Remaster, 2013, Warner[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906798.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Sonny Rollins - Saint Thomas (1951-1962) 3CD, 2014, Le Chant Du Monde[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906441.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Jeff Golub - Do It Again (2002) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905709.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Jeff Golub - Dangerous Curves (2000) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905696.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Quincy Jones - Four Classic Albums Plus 1953 - 1961 (2013) 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905649.jpg" />
 </div>
 
 

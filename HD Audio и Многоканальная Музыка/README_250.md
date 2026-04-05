@@ -1,32 +1,3 @@
-###  Публикация: 1641923   (12546) от 04.07.2025
-
-Coheed And Cambria - Studio Albums (11 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coheed And Cambria — американская прогрессив рок (нью-прог) команда со всех уголков штата Нью-Йорк, США. Группа образовалась в 1995 году, под именем Beautiful Loser, с 1996 года стали называться Shabutie, с 2001 года называются Coheed And Cambria. Пишут композиции по мотивам историй, написанных фронтменом группы Клаудио Санчесом, и с 2006 года издающихся в виде комиксов.2002 - The Second Stage Turbine Blade
-2003 - In Keeping Secrets Of Silent Earth: 3
-2005 - Good Apollo, I'm Burning Star IV, Volume One: From Fear Through the Eyes of Madness
-2007 - Good Apollo, I'm Burning Star IV, Volume Two: No World for TomorrowЖанр: Progressive RockПродолжительность: 11:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D85613A83D7B137D82F85CDED1252C4737C551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695379   (12519) от 04.07.2025
 
 Warkings - Studio Albums (5 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -35,7 +6,7 @@ Warkings - Studio Albums (5 releases) (2018-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12519.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Sel
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12438.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12418.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12236.jpg" />
 </div>
 
 
@@ -152,7 +123,7 @@ Dropkick Murphys - For The People (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12118.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ Station Echo - What Should Have Been but Never Will (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12111.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12066.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Slade - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12047.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ Ozzy Osbourne - Night Terrors (2024) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12033.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ Laguna - The Ghost Of Katrina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11942.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Chris Rea - New Light Through Old Windows (1988) Reissue, Remastered, 2025, Rhin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11932.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ Stygian Fair - The Hidden Realm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11924.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ Madhouse - Plead The Fifth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11921.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ Front Row Warriors - Running Out Of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11920.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Eternal Idol - Behind A Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11919.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Double Vision - Double Vision (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11916.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Steve Hackett - The Lamb Stands Up Live At The Royal Albert Hall (2024)(2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11911.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Jethro Tull - Still Living In The Past (1970-1971) Reissue, Remastered, Remix, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11909.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11817.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ Chris Rea - The Best Of (1992) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11715.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ Bronski Beat - Forbidden Fruit - The Age of Consent Remixed (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11713.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ VA - Балкантон Приглашает В Дискотеку (1986) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11695.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Justin Bieber - Swag (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11313.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Demolition Hammer - Tortured Existence (1990) Released, 2023, Century Media [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11294.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Demolition Hammer - Epidemic of Violence (1992) Released, 2023, Century Media [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11293.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ A4 Envenomed(   Читать дальше...   )Жанр: Thrash Metal, Groove M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA0608FF6CEAC3A72EB22CF08885A60A7D7F8CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806996   (11292) от 16.07.2025
+
+Deraps - Viva Rock N' Roll (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Viva Rock N' Roll (3:28)
+02.  Animal Eyes (4:22)
+03.  The Legend of Larrikin Laddie (5:07)
+04.  Equinox (0:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DE675F1BE9CF6574517D335551F2F3E350AE2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

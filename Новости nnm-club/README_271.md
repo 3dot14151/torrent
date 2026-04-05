@@ -1,3 +1,65 @@
+###  Публикация: 458242   (78675) от 26.02.2012
+
+Специалист | Основы дизайна [2011] PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы стать хорошим дизайнером, мало знать технические особенности различных графических компьютерных пакетов. Для этого необходимо понимать теоретические основы дизайна, его основные правила, уметь их применять.
+
+Хотите научиться работать с цветом, создавать интересные и привлекательные композиции, делать проекты в различных стилях с учётом психологических характеристик заказчика? Всему этому Вы научитесь на курсе «Основы дизайна»! Начните изучать искусство дизайна с него, и он станет основой Вашего успеха!
+
+Преподаватель: Новикова Надежда ГермановнаЖанр: ВидеокурсыПродолжительность: 25:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FACDBA6F3C0197E18D2053968A3A8927CBB1400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457927   (78480) от 25.02.2012
+
+Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 19.02.2012
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя ОС: Microsoft® Windows® 7™ Ultimate
+Версия: 6.1.7601 Service Pack 1 Сборка 7601
+Изготовитель ОС: Microsoft Corporation
+Автор сборки: OVGorskiy®
+Тип: X64-based PC
+Язык системы: Русский (Россия)
+Версия = "6.1.7601.17514"Название программы: Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 19.02.2012Язык интерфейса: Русский (Россия)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457533   (78456) от 25.02.2012
 
 Windows 7 SP1 x86 Ultimate Standart by keglit 24.02.2012 [Английский,Русский]
@@ -6,7 +68,7 @@ Windows 7 SP1 x86 Ultimate Standart by keglit 24.02.2012 [Английский,�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78456.jpg" />
 </div>
 
 
@@ -39,7 +101,7 @@ Google Sketchup Pro v8.0.3117 Английский и Русский + Vray 1.49
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78262.jpg" />
 </div>
 
 
@@ -65,7 +127,7 @@ Sinclair MacOSX Linux Build v.20120217 [x86] (1xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78067.jpg" />
 </div>
 
 
@@ -91,7 +153,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78066.jpg" />
 </div>
 
 
@@ -117,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78060.jpg" />
 </div>
 
 
@@ -143,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77863.jpg" />
 </div>
 
 
@@ -169,7 +231,7 @@ Lubuntu 11.10 UALinux OEM (февраль 2012) [i386 + amd64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77012.jpg" />
 </div>
 
 
@@ -204,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76420.jpg" />
 </div>
 
 
@@ -230,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76419.jpg" />
 </div>
 
 
@@ -257,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76405.jpg" />
 </div>
 
 
@@ -283,7 +345,7 @@ Alvegia Online / Альвегия Онлайн [Ru] (L) 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76021.jpg" />
 </div>
 
 
@@ -313,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75808.jpg" />
 </div>
 
 
@@ -340,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75801.jpg" />
 </div>
 
 
@@ -366,7 +428,7 @@ StartSoft WPI x32 x64 v 2.2.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75408.jpg" />
 </div>
 
 
@@ -397,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75402.jpg" />
 </div>
 
 
@@ -424,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75394.jpg" />
 </div>
 
 
@@ -450,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75352.jpg" />
 </div>
 
 
@@ -477,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75186.jpg" />
 </div>
 
 
@@ -506,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74991.jpg" />
 </div>
 
 
@@ -532,7 +594,7 @@ TrueCrypt 7.1a + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74986.jpg" />
 </div>
 
 
@@ -558,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74374.jpg" />
 </div>
 
 
@@ -588,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74371.jpg" />
 </div>
 
 
@@ -614,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74368.jpg" />
 </div>
 
 
@@ -640,66 +702,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73966.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Наши дни. Москва. Растущий мегаполис выходит из-под контроля милиции. Уровень преступности растет в геометрической прогрессии. Макс Калинин бывший офицер разведки ВДВ, оперативник УБОП. По фиктивному обвинению его увольняют со службы. На деле Макс просто не согласился отпустить преступника, за которого кто-то из его руководства получил большую взятку. Калинин принимает (   Читать дальше...   )Производство: РоссияЖанр: БоевикРежиссер: Рустам УразаевАктеры: Эдуард Флеров, Роман Курцын, Тимур Ефременков, Дарья Повереннова, Виктория ФишерПродолжительность: 25 по 48 минут
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 425580   (73944) от 03.02.2012
-
-Imperium Galactica [Ru] (RePack) 1997 | Pilotus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попытка скрестить жанр X4 с приключенческой игрой. Вместо случайных событий вы получаете стройную сюжетную линию, повествующую о развитии человеческой цивилизации в космосе. Но за это приходится платить свободой действий.Тип издания: RePackРазработчик: Digital RealityЖанр: Космическая стратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA711EB470BED667773F9CE73531EF43559798DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 446079   (73934) от 03.02.2012
-
-Хорошие новости - «интеллектуальной собственности» не существует
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_73934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закрытие ресурса EX.UA за нарушение прав «интеллектуальной собственности» взволновало интернет-общественность до такой степени, что эта общественность принялась атаковать правительственные сайты и даже преуспела в этом занятии.
-Оставляя в стороне весьма показательную безумность этой реакции (думаю, правительство только обрадовалось, избавившись от сайтов), отметим, что причина такого поведения очевидна — интернет-общественность активно тырила на этом ресурсе разного рода приятные глазу продукты и это занятие превратилось у нее в добрую привычку. Государство, тоже широко известное своей клептоманией, обидело интернет-общественность, закрыв шаровой ресурс да еще и под соусом защиты прав собственности, что, конечно, выглядит особо цинично, учитывая привычки государства. Общественность возмутилась и под лозунгами «значит нам нельзя а вам можно?» кинулась атаковать вражеские сайты.Оставим, опять-таки, в стороне любимую автором тему украинского «общественного договора», который в полной мере явил свою суть в этом конфликте, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

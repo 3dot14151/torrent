@@ -6,7 +6,7 @@
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115385.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59731.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Sims 5 не будет — будет единая "масштабная п�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43083.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FTC  приняли   важный закон об «отмене в один к
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39894.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37037.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36691.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18966.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14680.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11221.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Microsoft создала утилиту для быстрого переноса
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10329.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Open AI врет и изворачивается
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_375.jpg" />
 </div>
 
 

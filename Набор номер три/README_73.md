@@ -1,3 +1,162 @@
+###  Публикация: 606551   (961064) от 21.02.2013
+
+Восьмидесятые (2013) SATRip (сезон 2, 1-20 серия из 20)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал «Восьмидесятые» - это история про один из самых интересных периодов в жизни нашей страны. Мы как-то обходились без интернета и мобильного телефона. А чтобы передать ключ от квартиры, просто оставляли его под ковриком. Это было странное время, когда нельзя было ничего купить, но достать можно было все. В каждой квартире обязательно стояли югославский гарнитур (   Читать дальше...   )Жанр: КомедияРежиссер: Федор СтуковАктеры: Александр Якин, Наталья Земцова, Александр Половцев, Мария Аронова, Леонид Громов, Дмитрий Белоцерковский, Юлия Сулес, Александр Новицкий, Роман Фомин, Ирина Чипиженко, Александр Мальков, Никита Ефремов, Анастасия Балякина, Артур Ваха, Юрий Королев, Николай Надежкин, Дмитрий Шевченко, Зоя Давыдова, Олег Балашов, Анна Цуканова-Котт, Наталья Карпунина, Игорь Лагутин, (   Читать дальше...   )Перевод: Не требуется (Русский)Продолжительность: 20 х ~ 00:23:57 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276314   (961007) от 02.01.2011
+
+Gothic 3 + Questpaket 4 + Content Mod + Consequences [Ru/Ge] (P/Update2/2.2/1.2) 2006
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя война закончилась для человечества плачевно: цивилизация людей фактически разрушена, и теперь всем заправляют... нет, не привычные нам зеленокожие примитивные существа, а весьма развитые и даже, не побоюсь этого слова, величественные особи с прекрасной осанкой и умными глазами. Впрочем, факт остается фактом — при всех своих очевидных и не очень достоинствах цивилизация орков практически поработила людей, и нам с вами непременно предстоит ринуться в неравный бой, дабы восстановить историческую справедливость и вернуть родной расе утраченное первенство. Вас не устраивает такой вариант? Нет проблем! Можете примкнуть к оркам или вообще отсидеться в сторонке — этот мир вполне обойдется и без мессии.Тип издания: ПираткаЖанр: RPGЯзык озвучки: Русский+НемецкийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2208DF60659733BADEF1ADD7B38377EF35E68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277876   (960999) от 02.01.2011
+
+Windows 7 Ultimate RU BEST 7 Edition Release 10.12.5 (x86-x64)[русский]
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 (ранее известная под кодовыми названиями Blackcomb и Vienna) — версия компьютерной операционной системы семейства Windows NT, следующая за Windows Vista. В линейке Windows NT система носит номер версии 6.1. Microsoft сделала заявление о том, что операционная система поступила в продажу 22 октября 2009 года, меньше, чем через три года после выпуска предыдущей (   Читать дальше...   )Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855469   (960836) от 02.01.2015
+
+Дурак (2014) WEB-DLRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизни 800 человек общежития висят буквально на волоске из-за безразличия местных властей. В любую секунду здание может рухнуть. И кто бы мог подумать, что судьбы людей окажутся в руках простого сантехника. Но удастся ли ему что-то изменить и предотвратить катастрофу?Производство: Россия, Rock Film StudioЖанр: ДрамаРежиссер: Юрий БыковАктеры: Артем Быстров, Наталья Суркова, Юрий Цурило, Борис Невзоров, Кирилл Полухин, Роман Майоров, Иван Брэд, Александр Коршунов, Ольга Самошина, Дарья МорозПеревод: не требуется | iTunes |Субтитры: ОтсутствуютПродолжительность: 01:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4130AE64BF78E72E0B17871FAD0F8EB7AEF6200B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833734   (960823) от 02.01.2015
+
+Jagged Alliance: Flashback (2014) [Ru/Multi] (1.1.2) Repack R.G. Механики
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jagged Alliance: Flashback - это игра с классическим тактическим пошаговым режимом боя с переходом в режим реального времени по его окончании.
+Действие игры происходит на группе островов Сан-Кристобаль, что в Карибском море. По сюжету, вследствие государственного переворота на острове был основан социалистический режим – изменение, ставящее на нет американское присутствие (   Читать дальше...   )Тип издания: RepackРазработчик: Full ControlЖанр: Indie / RPG / StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E483A4911E043267EDA428B39A7AFAF463151820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855425   (960821) от 02.01.2015
+
+Adobe Premiere Pro CC 2014 (v8.2.0) RUS/ENG Update 2
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro 2014 - это мощный, настраиваемый редактор для нелинейного монтажа, с помощью которого можно монтировать видео именно так, как вам этого хочется. Импорт и свободное объединение любых видеозаписей, от клипа, снятого на телефон, до необработанного 5K, с последующим монтажом, для которого не требуется выполнять перекодирование.
+
+Выполняйте монтаж видео (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708289F2FA6C1F5F52AFC91BBEE9BFDA4A35DE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 855088   (960819) от 02.01.2015
 
 Pinnacle Studio 18 18.0.2.444 Ultimate collection by VPP (64Bit) [Multi/Ru]
@@ -6,7 +165,7 @@ Pinnacle Studio 18 18.0.2.444 Ultimate collection by VPP (64Bit) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960819.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960750.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960610.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960609.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960608.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ Red Giant Universe 1.6.0 CE Repack by TeamVR [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960603.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960598.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ Adobe Illustrator CC 2015.2.1 19.2.1 RePack by D!akov [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960597.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ Windows XP / 7AIO / 81 /10 x86 x64 pe StartSoft 4-2016 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960596.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960595.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 01.2016 by OVGorskiy® 1DVD
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960594.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960478.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960418.jpg" />
 </div>
 
 
@@ -347,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960416.jpg" />
 </div>
 
 
@@ -373,7 +532,7 @@ Windows 10 Enterprise x64 lite 1909 build 18363.657 by Zosma
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960288.jpg" />
 </div>
 
 
@@ -402,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960283.jpg" />
 </div>
 
 
@@ -428,7 +587,7 @@ macOS INSTALLERS (WIN/BDU & MAC/DU) - ACTUALLY BUILDS (LITE VERSION) [MULTI/RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960279.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960275.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960271.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960269.jpg" />
 </div>
 
 
@@ -519,167 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8075DEB71020BE2B746D0B36BCA0F66179D1FFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278247   (959856) от 03.01.2011
-
-Три Богатыря и Шамаханская царица [5+] (P) [Ru] 2010
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательная игра для детей и взрослых, созданная по мотивам одноименного полнометражного мультфильма. Знаменитые былинные богатыри Алеша Попович, Добрыня Никитич и Илья Муромец собрались вместе, чтобы защитить землю русскую! Обрушилась на сказочную Русь нежданная беда — захватила княжеский престол коварная Шамаханская царица, в очередной раз доказав, что красота (   Читать дальше...   )Тип издания: ПираткаРазработчик: PIPE StudioЖанр: Детская играЯзык озвучки: русскийЯзык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278079   (959851) от 03.01.2011
-
-[Mode, v.6.008] S.T.A.L.K.E.R.: Shadow Of Chernobyl - New Level Changer. The Beginning / STALKER: Тень Чернобыля - NLC. Начало [Ru] 2010 | Сяк Сотоварищи
-
->>3
->>16
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_959851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная задача главного героя – понять, кто же он такой, какое у него прошлое, что происходит в настоящем, что представляет собой это образование – Зона. Тот ли он Стрелок, о котором ходит так много историй и слухов. Поиск «своего» жизненного пути, своего места в среде сталкеров, тех, кто приходит в Зону на некоторое время и иногда остается здесь навсегда, – вот главный стимул, который движет нашим героем пройти весь путь…Тип издания: модификация (неофициальная)Жанр: Action (Shooter) / 3D / 1st Person / ModeЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838791BE536053ECDF7336875BD730A85D44AFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622035   (959748) от 22.02.2013
-
-HellGate: London [Ru/En] (RIP/1.2) 2007 | R.G. Механики
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рая больше нет...
-
-Беспрецедентный проект от создателей StarCraft, WarCraft и Diablo сочетает в себе все лучшее, что есть в арсенале ролевых игр, боевиков и ужасов. Огромный город, застрявший между двух реальностей, стал местом эпохальной битвы людей и демонов. Мир здесь меняется на глазах, фантастические герои трансформируют оружие и снаряжение, обучаются магии и бросают вызов тысячам невероятных монстров. Ад повсюду и попасть в него можно еще при жизни! Вы готовы сразиться за свою душу?
-Библейские пророчества о конце света оказались правдой. Открывшийся в самом центре Лондона портал впустил на Землю легионы Тьмы. Все, на что упала тень Сатаны, погрузилось в вечный мрак, жители превратились в бездушных мертвецов, а города — в пылающие руины. Солнце скрыли багровые тучи, а рай остался лишь на мозаике разрушенных храмов…Остатки выживших ведут ожесточенную борьбу с ужасными демонами, и вам предстоит стать лидером сопротивления! (   Читать дальше...   )Тип издания: RipЖанр: Action (Shooter) / RPG (Rogue/Action) / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E05466483D9F21478A46D3E8C173481F9CA3BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979360   (959603) от 26.01.2016
-
-Начаты работы по созданию чипа-имплантата, способного преобразовать сигналы всех нейронов мозга в двоичный код
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представители Управления перспективных исследовательских программ Пентагона DARPA объявили о начале новой программы, нацеленной на создание чипа-имплантата, способного стать высокоэффективным "мостом" между человеческим мозгом и цифровыми электронными устройствами. Технологии, разработанные в рамках программы Neural Engineering System Design (NESD), позволят (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979061   (959537) от 26.01.2016
-
-Найдено новое простое число с рекордным количеством цифр, которое составляет 22.3 миллиона знаков
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые-математики из университета Центрального Миссури (University of Central Missouri), возглавляемые профессором математики и информатики Кертисом Купером (Curtis Cooper), рассчитали очередное простое число, количество знаков в котором столь велико, что для его распечатки потребуется приблизительно 6 тысяч стандартных листов бумаги. Это новое число является 49-м известным числом ряда простых чисел Мерсенна и четвертым, рассчитанным учеными из этого университета.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979534   (959371) от 26.01.2016
-
-Wifislax 4.10.1 [Аудит безопасности, хакинг] [x86, х64] 1xDVD [ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз Wifislax – специализированного Slackware-based Live CD с комплектом инструментов для проверки безопасности компьютерных сетей. Главной особенностью Wifislax является интеграция в ядро Linux значительного количества неофициальных сетевых драйверов – тем самым «из коробки» обеспечивается поддержка многих проводных и беспроводных сетевых карт.
-
-За время разработки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22648C5E7C8F6F2D7292E39B366F4FB8B3A9565
 ```
 
 https://mybot314.ru/tekegram_catalog/

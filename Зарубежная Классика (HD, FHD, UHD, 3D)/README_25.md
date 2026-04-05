@@ -1,3 +1,81 @@
+###  Публикация: 1506736   (790727) от 17.11.2021
+
+Фантомас разбушевался / Fantomas se dechaine (1965) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя год после того, как комиссар Жюв и репортер Фандор упустили Фантомаса, суперпреступник вновь дал о себе знать, похитив известного ученого. Следующей жертвой должен стать его помощник, профессор Лефевр. Фандор, выдавая себя за профессора, едет в Рим и… попадает прямо в руки Фантомаса. Спеша на выручку, Жюв и Элен сами попадают в ловушку. Теперь приходится думать, (   Читать дальше...   )Производство: Франция, Италия / Société Nouvelle des Établissements Gaumont (SNEG), P.A.C., Da Ma ProduzioneЖанр: Комедия, Криминал, ПриключенияРежиссер: Андре Юнебель, Харун ТазеффАктеры: Жан Маре, Луи де Фюнес, Милен Демонжо, Жак Динам, Робер Дальбан, Альбер Даньян, Кристиан Тома, Мишель Дюпле, Оливье Де Фюнес, Флоранс Бло и др.Перевод: Дублированный (со вставками MVO)Субтитры: Русские, английскиеПродолжительность: 01:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C916BA13D863B9A9B4F2BA312410633FC8DA885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751134   (790293) от 28.01.2018
+
+Неукротимая Анжелика / Indomptable Angelique  (1967) BDRip [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поиски мужа приводят Анжелику к морскому побережью, где следы Жоффре де Пейрака обрываются… Капитан королевской галеры, пораженный красотой молодой женщины, принуждает ее подняться на борт и сопровождать его в плаванииЖанр: Мелодрама, Приключения, ИсторияРежиссер: Бернар БордериАктеры: Мишель Мерсье, Робер Оссейн, Роже Пиго, Кристиан Роде, Этторе Манни, Бруно Дитрих, Паскуале Мартино, Зигхардт Рупп, Польдо Бенданди, Ренато Де КарминеПеревод: Дублированный, Многоголосый закадровый, Двухголосый закадровыйСубтитры: РусскиеПродолжительность: 01:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92A4BCA861AE45D71E55BA381F2CC0C280F9EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506784   (790149) от 18.11.2021
+
+Фантомас против Скотланд-Ярда / Fantomas contre Scotland Yard (1967) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790149.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз злодей с тысячью лицами решает обложить данью богатейших людей мира, а взамен гарантирует им жизнь. Комиссар Жюв со своими верными друзьями, Фандором и Элен, прибывает в шотландский замок для того, чтобы встать на защиту его владельца и снова попытаться поймать Фантомаса.Производство: Франция, Италия / P.A.C.,Fair Film, Gaumont InternationalЖанр: Комедия, Криминал, ПриключенияРежиссер: Андре ЮнебельАктеры: Жан Маре, Луи де Фюнес, Милен Демонжо, Франсуаза Кристоф, Жан-Роже Коссимон, Робер Дальбан, Андре Дюма, Макс Монтавон, Рита Ренуар, Жан Озенн и др.Перевод: Дублированный (со вставками MVO)Субтитры: Русские, английскиеПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602432343056F3EC663261F930C6AFB70BF6EBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202298   (789827) от 29.01.2018
 
 Инспектор - разиня / Inspecteur la Bavure (1980) BDRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789827.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789579.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789322.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789218.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789196.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789158.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788862.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788084.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788032.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787857.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787672.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787636.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787061.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787049.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786775.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786637.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786267.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786051.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786050.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785876.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785715.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785696.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785583.jpg" />
 </div>
 
 
@@ -599,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:552DD564CE46B334463DBF224EE6E66551E64FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 79061   (785249) от 20.01.2019
-
-Хороший, плохой, злой / Il buono, il brutto, il cattivo / The Good, The Bad And The Ugly (1966) HDTV [720p]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная суперзвезда Клинт Иствуд - в своей фирменной роли Человек без имени в предельно напряженном приключенческом фильме. Динамичный сюжет и выдающаяся актерская игра!
-
-В разгар гражданской войны таинственный стрелок (Иствуд) скитается по просторам Дикого Запада. У него нет ни жилища, ни приятелей, ни компаньонов... пока он не встречает двоих незнакомцев (Илай (   Читать дальше...   )Жанр: Боевик / ПриключенияРежиссер: Серджо Леоне (Sergio Leone)Актеры: Клинт Иствуд (Clint Eastwood), Ли Ван Клиф (Lee Van Cleef), Илай Уоллок (Eli Wallach), Рада Рассимов (Rada Rassimov), Марио Брега (Mario Brega), Чело Алонсо (Chelo Alonso), Альдо Гюффре (Aldo Giuffre), Клаудио Скарчилли (Claudio Scarchilli), Энцо Петито (Enzo Petito), Луиджи Пистилли (Luigi Pistilli)Перевод: Полный дубляжПродолжительность: 2:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2536F596576A60828CD84E0EF1790F1AFAC4E409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381100   (785086) от 08.06.2020
-
-Звёздные войны: Эпизод 5 – Империя наносит ответный удар / Star Wars: Episode V - The Empire Strikes Back (1980) BDRip [H.264/720p] [Remastered]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борьба за Галактику обостряется в пятом эпизоде космической саги. Войска Императора начинают массированную атаку на повстанцев и их союзников. Хан Соло и принцесса Лейя укрываются в Заоблачном Городе, в котором их и захватывает Дарт Вейдер, в то время как Люк Скайуокер находится на таинственной планете джунглей Дагобар. Там Мастер — джедай Йода обучает молодого рыцаря (   Читать дальше...   )Производство: США / Lucasfilm Ltd.Жанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Ирвин КершнерАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Дэвид Праус, Питер Мейхью, Кенни Бейкер, Фрэнк Оз, Алек ГиннессПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: русские, английскиеПродолжительность: 02:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209EE3FFEC663878D9DC4F1F40E83EB8DE364AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381820   (784752) от 09.06.2020
-
-Пуля для негодяя / Bullet for a Badman (1964) BDRip [H.264/720p-LQ] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представитель закона должен поймать своего заклятого врага МакКэвина, который приходится бывшим мужем его жены и отцом его приемного ребенка.Производство: США / Universal PicturesЖанр: ВестернРежиссер: Р.Г. СпрингстинАктеры: Оди Мерфи, Дэррен МакГэвин, Рута Ли, Беверли Оуэн, Скип Хомейер, Джордж Тобиаш, Алан Хейл мл., Беркли Харрис, Эдвард Платт, Кевин ТейтПеревод: Авторский, Василий ГорчаковСубтитры: АнглийскиеПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C569A0A8924B949657B7CA0B7279648C6BE0A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

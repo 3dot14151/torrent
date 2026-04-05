@@ -1,138 +1,3 @@
-###  Публикация: 475245   (85058) от 29.03.2012
-
-Н.А.Рубакин | Миллионы лет истории Русской земли [2009] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами книга Николая Александровича Рубакина, выдающегося русского просветителя, ученого, книговеда, библиографа, библиофила, популяризатора науки и писателя, виднейшего теоретика и практика самообразования, которая впервые увидела свет в 1920 г.
-По существу, она состоит из трех книг:2009Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB7EB2926C94D14B7033699BA223D051BCAD059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474416   (85004) от 28.03.2012
-
-Книжная серия | «Загадки древних народов» [2009-2012] [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство "Центрполиграф", изначально позиционирующееся на выпуске детективов и другой остросюжетной литературы, в конце 90-х годов несколько изменило редакционную политику, расширив тематику издаваемых книг. Были напечатаны замечательные серии научно-популярной литературы. К их числу можно отнести и проект "Загадки древних цивилизаций".
-       Серия «Загадки древних народов» является своеобразным продолжением вышеназванной серии.
-       Для любителей, искателей и первооткрывателей Древнего Мира.
-
-"Загадки древних цивилизаций" - Серия - «Загадки древних цивилизаций» [2002 - 2008]Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C15ACD2F534058C429481B73D2BA27498601E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474820   (84998) от 28.03.2012
-
-Подборка книг | Управление персоналом [1998-2011] [DJVU, PDF, DOC]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка  содержит издания по правовым,  кадровым, организационным, экономическим и социально-психологическим аспектам управления персоналом организации (предприятия). Может быть полезна не только студентам, но и практическим работникам.1998-2011Формат: DJVU, PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736B7027FCD70E8FA81E4C44716AE5CE4C478CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474708   (84962) от 28.03.2012
-
-Подборка книг | Управление предприятием [1998-2011] [DJVU, PDF,DOC]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка содержит литературу по организационно-правовым, экономическим  и финансовым аспектам  деятельности  предприятия. Для студентов, обучающихся по специальности "Экономика и управление на предприятии", а также для специалистов-практиков1998-2011Формат: DJVU, PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77988DB1B80EDF7191E6A2C8337EABE01AA1F1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474424   (84955) от 28.03.2012
-
-Хаген Виктор Фон | Ацтеки, майя, инки. Великие царства древней Америки [2010] [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84955.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного американского этнолога Виктора фон Хагена представлена история ацтеков, майя, инков. Хаген выделяет и подвергает подробному анализу наиболее важные этапы формирования этих культур, от зарождения и динамического развития до момента их падения. Автор охватил все стороны практической и духовной жизни народов солнечных царств. Легко и увлекательно ученый рассказывает о том, как они вели хозяйство, занимались ремеслами, заключали браки и воспитывали детей, об их религиозных верованиях и кровавых жертвоприношениях, о способах ведения войны и оружии, о системе налогообложения, о преступлениях и наказаниях…2010Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8A535D38BC2160AA7091B30E46AEA5F03B13CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474795   (84915) от 28.03.2012
 
 В.В.Руксин | Неотложная кардиологическая помощь на догоспитальном этапе [2010] [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84915.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84886.jpg" />
 </div>
 
 
@@ -194,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84751.jpg" />
 </div>
 
 
@@ -221,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83658.jpg" />
 </div>
 
 
@@ -247,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83320.jpg" />
 </div>
 
 
@@ -275,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83296.jpg" />
 </div>
 
 
@@ -301,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83295.jpg" />
 </div>
 
 
@@ -327,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83279.jpg" />
 </div>
 
 
@@ -353,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83233.jpg" />
 </div>
 
 
@@ -380,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83228.jpg" />
 </div>
 
 
@@ -406,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83107.jpg" />
 </div>
 
 
@@ -432,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83106.jpg" />
 </div>
 
 
@@ -460,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83099.jpg" />
 </div>
 
 
@@ -486,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83063.jpg" />
 </div>
 
 
@@ -512,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83022.jpg" />
 </div>
 
 
@@ -538,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82710.jpg" />
 </div>
 
 
@@ -564,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82667.jpg" />
 </div>
 
 
@@ -592,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82652.jpg" />
 </div>
 
 
@@ -618,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82267.jpg" />
 </div>
 
 
@@ -647,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82117.jpg" />
 </div>
 
 
@@ -673,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82093.jpg" />
 </div>
 
 
@@ -684,6 +549,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A492237A7611B992127A74455B8A2BFD49338B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467461   (82031) от 14.03.2012
+
+Iоаннъ Гоффертъ | Иллюстрированная Отечественная война 1812 года [1887] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой иллюстрированный рассказ о нашествии наполеоновских войск в Россию - от начала до битвы при Березине, после которой отступление французской армии превратилось в бегство. Содержит 12 фотогравюр с картин П. Гесса. Каждая фотогравюра снабжена пояснительным текстом на отдельном листе, составленным генерал-майором Н. Ф. Дубровиным. Книга выпущена (   Читать дальше...   )Жанр: Раритеты / Альбом / ИсторияЯзык: Русский (старая орфография)Издательство: Типографiя Ф. С. Сущинского / Санктъ-Петербургъ / РоссияФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B365F5DFEDBCA1FD50EC67DB2AAAC06273186E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466875   (81938) от 13.03.2012
+
+Владимиръ Бурнашевъ | Отечественная война 1812 года [1888] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81938.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1811 году почти вся Европа, за исключением России, Англии, Испании, Турции и Дании, была завоевана французами. Величайший полководец, французский император Наполеон, с его непобедимой армией, подчинил своему владычеству всех государей. Оставалась Россия, где царствовавший император Александр I был тверд и непоколебим. Этот труд обобщает все то, что было сделано (   Читать дальше...   )Жанр: Раритеты / Научная литература / ИсторияЯзык: Русский (старая орфография)Издательство: Типографiя Товарищества «Общественная польза» / С.-Петербургъ / Россiйская ИмперiяФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F7A7B95997808ECF3855740C0BAD8395CF8CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467267   (81778) от 13.03.2012
+
+Зейн Бернавски | Коллоидное серебро [2006] [Pdf]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81778.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре систематизированно излагаются бактерицидные свойства коллоидного серебра. Отмечается безопасность и эффективность его использования для уменьшения тяжести поражений, вызванных патогенными микроорганизмами. Приводится краткая историческая справка о первых опытах применения коллоидного серебра.
+Излагается современное видение этого вопроса, способы визуальной оценки и основные отличия качественного продукта от дешевой подделки. Книга рассчитана на широкий круг читателей.Жанр: Нетрадиционная медицина, диетотерапияФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8D01C14E5CC40D5A7CD0F1521E2F0663C00DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466648   (81651) от 12.03.2012
+
+Л. Е. Новоселов | Транзисторные радиоприемники «Спидола», «ВЭФ», «Океан», «Меридиан». [1975] [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит характеристики переносных транзисторных приемников II класса типа «Спидола», «ВЭФ», «Океан» и «Меридиан», описание схем и конструкций, карты режимов по постоянному и переменному току, монтажные и кинематические схемы, материалы по настройке и проверке основных параметров, отысканию и устранению характерных неисправностей, а также устройство и особенности эксплуатации интегральных микросхем серии К-237.1975Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1761629BD603E38709A3FF1156DD2251ACEE0C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466826   (81619) от 12.03.2012
+
+М.С. Грушевский | История украинского народа [2002] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81619.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании впервые с 1913 года публикуется работа великого украинского историка Михаила Сергеевича Грушевского "История украинского народа". В издании также публикуется биография Михаила Сергеевича Грушевского, написанная на украинском языке и опубликованная в 1926 году в Киеве-в переводе Сергея Шумова и Александра Андреева. Ими же написана "Хроника жизни М.С.Грушевского".2002Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27104997D410F268B1D7AA2B4372025FB244327
 ```
 
 https://mybot314.ru/tekegram_catalog/

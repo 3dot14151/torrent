@@ -1,3 +1,160 @@
+###  Публикация: 1368729   (826107) от 15.10.2021
+
+DOOM Eternal (2020) [Ru/Multi] (1.0.7241573/dlc) Repack West4it
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826107.jpg" />
+</div>
+
+
+###  Подробнее
+
+DOOM Eternal от id Software – прямое продолжение хита DOOM, получившего награду «Лучший боевик» на церемонии The Game Awards 2016 года. Прорывайтесь сквозь измерения, сокрушая всё на своём пути с невероятной силой и скоростью. Эта игра задаёт новый стандарт для шутеров с видом от первого лица.Тип издания: RepackРазработчик: id SoftwareЖанр: Action, Shooter, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D701CA4B5296F5CCC3E57218B437F819186E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862592   (825739) от 24.03.2015
+
+Stranded Deep (2015) [En] (0.03) SteamRip R.G. Игроманы [Steam Early Access]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stranded Deep — это квест с видом от первого лица с элементами экшена от студии Beam Team Games. Издателем игры выступает Beam Team Games.
+Сюжет игры прост - терпя авиакрушение ваш герой оказывается посреди Тихого океана. Сооружаем все что попадется под руку, едим все что движется...Тип издания: Steam Early AccessРазработчик: Beam Team GamesЖанр: Indie / Survival RPGЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9E75BD06C0F82A9F38A9673D134790E611B991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115458   (825682) от 18.03.2017
+
+Набор обновлений UpdatePack7R2 17.3.15 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC59B8BEF1CF18BDEBE4F5B486046E47A1C0AD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115495   (825670) от 18.03.2017
+
+Microsoft перестала поддерживать Windows 7 и 8 на новейшем "железе"
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владельцы современных компьютеров под управлением Windows 7 и Windows 8.1, попытавшиеся установить последние обновления безопасности, получили ошибку о "неподдерживаемом оборудовании". Как оказалось, на этой неделе Microsoft прекратила поддержку устаревших операционных систем на новейшем "железе", о чем компания предупредила еще в январе прошлого (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115819   (825661) от 18.03.2017
+
+Proteus 8 Professional 8.6 SP2 Build 23525 RePack [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Proteus Professional — пакет программ для автоматизированного проектирования электронных схем. Пакет представляет собой систему схемотехнического моделирования, базирующуюся на основе моделей электронных компонентов принятых в PSpice. Отличительной чертой пакета Proteus Professional является возможность моделирования работы программируемых устройств: микроконтроллеров, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1465F4FC192C560A8B9083268EB5D8B3DA4A0C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114516   (825659) от 18.03.2017
+
+Почему он? / Why Him? (2016) (2016) WEB-DLRip [H.264/1080p-LQ] [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава семейства вступает в противостояние с молодым и богатым парнем своей дочери.Производство: США, Камбоджа, 20th Century Fox Film Corporation, 21 Laps Entertainment, Red Hour FilmsЖанр: КомедияРежиссер: Джон ГамбургАктеры: Зои Дойч, Джеймс Франко, Тэнджи Эмброуз, Седрик «Развлекатель», Боб Стефенсон, Брайан Крэнстон, Меган Маллалли, Зак Перлман, Гриффин Глюк, Джи Янг ХаньПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:52:28Реклама: Присутствуют голосовые и текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0632FDD2567725E1A762D4FE0FE97BDB378725FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113919   (825657) от 18.03.2017
 
 Новогодний корпоратив / Office Christmas Party (2016) WEB-DLRip [H.264/1080p-LQ]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825657.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ PowerTube 4.5.1 [Ru/En] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825622.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ Deus Ex: Mankind Divided (2016) [Ru/Multi] (1.19HF/dlc) License GOG [Digital Del
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825613.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Windows 10 Enterprise LTSB 1607 (x86/x64) by Paxweaver (04.2020) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825612.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825611.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ Call of Duty: Modern Warfare 2 - Campaign Remastered (2020) [Ru/Multi] (1.1.2.12
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825610.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825528.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ Tanki X (2016) [Ru] (29.12.17) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825515.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825513.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ Mass Effect (2008) [Ru/En] (1.2/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825511.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825510.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824893.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824786.jpg" />
 </div>
 
 
@@ -347,7 +504,7 @@ Nexus: The Jupiter Incident HD (2016) [Ru/Multi] (1.02) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824506.jpg" />
 </div>
 
 
@@ -373,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824505.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ Kingdom (2015) [En/Multi] (1.2.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824503.jpg" />
 </div>
 
 
@@ -425,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824502.jpg" />
 </div>
 
 
@@ -451,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824488.jpg" />
 </div>
 
 
@@ -477,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824486.jpg" />
 </div>
 
 
@@ -503,175 +660,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824484.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Вчера Microsoft выпустила первое накопительное обновление для новой операционной системы Windows 11. Согласно TechPowerUp , это обновление только усугубило обнаруженную ранее высокую задержку кеш-памяти L3 на процессорах AMD Ryzen.Портал TechPowerUp ранее сообщал, что у Ryzen 7 2700X с типичной задержкой кэша L3 10 нс при переходе на Windows 11 задержка в L3-кеше (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502276   (824306) от 16.10.2021
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.10.14 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEA75AD5C6421916E1AD2FC909863ED76FCCA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501688   (824305) от 16.10.2021
-
-Windows 11 16in1 +/- Office 2019 x86 by SmokieBlahBlah 2021.10.10 [Ru/En]
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824305.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 редакции Windows 11 (русские и английские) с обновлениями по сентябрь 2021, основанных на оригинальном образе и интегрированными системными библиотеками и 4 таких же редакций со встроенным MS Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены в отдельный (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4A5390301E5C95782D5E6E0008C344055D14B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115934   (824096) от 19.03.2017
-
-Очередное достижение: 2000 релизов от kosatka
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824096.jpg" />
-</div>
-
-
-###  Подробнее
-
-
- Очередное достижение: 2000 релизов от kosatka Дорогие друзья!
-Выражаем огромную благодарность и искренне поздравляем нашего ответственного Релизёра, Трудягу, грамотного и подкованного Доку, нашего Друга и Коллегу kosatka с, поистине, серьезным достижением, которое стоило огромного труда и не меньшего количества своего личного времени - 2000 релизов! На сегодняшний (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838997   (824009) от 28.11.2025
-
-Как удалить всю инфу о себе из интернета
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный канал УБК МВД России внезапно выпустил пошаговый гайд, как минимизировать цифровой след.
-Полностью исчезнуть нельзя, но можно серьёзно сократить риски:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116006   (823955) от 19.03.2017
-
-Многокилометровые линии в степях России озадачили астронавта с МКС
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астронавт Европейского космического агентства Тома Песке, один из членов действующей миссии на МКС, разместил в соцсети фотографию изломанных линий на территории России, признавшись, что не может объяснить их назначение.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 20415   (823941) от 25.03.2015
-
-Самогонщики, Пес Барбос и необычный кросс, 100 грамм для храбрости (1961-1976) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_823941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник включает три новеллы: "Самогонщики", "Пес Барбос и необычный кросс" и "Сто грамм для храбрости"
-- "Самогонщики". Трус, Балбес и Бывалый решают поставить на широкую ногу изготовление самогона — и снова фиаско…
-- "Пес Барбос и необычный кросс". О приключениях все тех же трех друзей - Труса, Балбеса и Бывалого. (   Читать дальше...   )Жанр: КомедияРежиссер: Леонид Гайдай, Георгий Щукин, Борис Бушмелев, Анатолий МаркеловАктеры: Евгений Моргунов, Георгий Вицин, Юрий Никулин, Владимир Пицек, Игорь Ясулович, Юрий Кузьменков, Николай Гринько, Борислав Брондуков, Татьяна Васильева, Александр Белявский, Нинель Мышкова, Владимир Басов, Георгий Кавтарадзе, Михаил Светин, Валентина Титова, Элене Кипшидзе, Дима ШаройченкоПродолжительность: 00:18:12 + 00:10:04 + 01:11:54
 
 ## Скачать торент
 ```bash

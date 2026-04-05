@@ -6,7 +6,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982061.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981735.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981624.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981621.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981342.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981335.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Bob Marley And The Wailers - Live at The Rainbow (1977 (Video 1991)) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981328.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981297.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981116.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Cirque du Soleil: Delirium (2008) HDRip [EN]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981081.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Stars Of The 90'S (2004-2006) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981079.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cirque du Soleil: Delirium (2008) [720p] HDTVRip [EN]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981077.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981023.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981022.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981018.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980082.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980079.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979134.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979129.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978815.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978774.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978744.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978506.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Il Divo - Live In London (2011) DVD 9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978462.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Scorpions. Концерт Moment Of Glory Live (Berliner Philharmoniker) (2000) 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978339.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978166.jpg" />
 </div>
 
 

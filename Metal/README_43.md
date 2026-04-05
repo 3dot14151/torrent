@@ -6,7 +6,7 @@ Kasan - Drown (2012) [MP3|320 кб/с]<Instrumental Post Sludge>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673169.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Aephanemer - Prokopton (2019) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672234.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Wolf Hoffmann (Accept) - Headbangers Symphony (2016) [MP3|320 Kbps] <Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672058.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Children of Bodom - Holiday at Lake Bodom: 15 Years of Wasted Youth (2012) Compi
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670654.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Paradise Lost - 1 Album + 1 Compilation (2012) [MP3|320 кб/с]<Gothic/Doom/Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_670202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670202.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Within Temptation - The Heart Of Everything (2007) 4CD, 2022, Special Edition [M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669242.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Rhapsody of Fire - Legendary Years (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668961.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Gentoo - Время есть (2011) [MP3|320 кб/с]<nu-metal/metalcore/female 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668891.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ DragonForce - Re-Powered Within (2018) [MP3|320 Kbps] <Power Metal, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668110.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Dream Master - A World Without People (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666706.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Alestorm - No Grave But The Sea (2017) [MP3|320 Kbps] <Power Metal, Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666573.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Saint Vitus - Saint Vitus / Hallow's Victim (1984-1985) Reissue, 1991, Saint Vit
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666062.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Lords of Black - Icons of the New Days (2018) 2CD, Japan, Limited Edition [MP3|3
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666009.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Apocalypse Orchestra - The End Is Nigh (2017) [MP3|320 Kbps] <Doom Metal, Folk M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664263.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Dream Evil - Six (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664200.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Solstafir (Sólstafir) - Berdreyminn (2017) Deluxe Edition [MP3|320 Kbps] <Post-
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664148.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Unkempt Herald - Diatribe (2015) [MP3|320 кб/с]<Heavy Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662433.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Arusha Accord - The Echo Verses (2009) [MP3|320 кб/с]<Progressive / Melod
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660643.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ohmwork - Ohmwork (2015) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660363.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sterbhaus - New Level of Malevolence (2015) [MP3|320 кб/с]<Blackened Thrash/D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660358.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Fall Of Carthage - Behold (2015) [MP3|320 кб/с]<Modern Thrash/Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660287.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Midnight Odyssey - Shards Of Silver Fade (2015) [MP3|320 кб/с]<Atmospheric Bl
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660231.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Luca Turilli's Rhapsody - Prometheus (2015) Single [MP3|320 кб/с]<Symphonic P
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660214.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Paradise Lost - The Plague Within (2015) Deluxe Edition [MP3|320 кб/с]<Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659919.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Tarja - Luna Park Ride (2015) [MP3|320 кб/с]<Power Metal, Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659839.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ Helloween - My God-Given Right (2015) Mailorder Edition [MP3|320 кб/с]<Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659736.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1801125   (15192) от 09.06.2025
-
-Валерия Ананян | Нейросети для маркетплейсов и соцсетей. Тариф PRO (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предназначен для тех, кто только начинает знакомиться с искусственным интеллектом, и для тех, кто уже имеет опыт работы с ИИ, но хочет расширить свои знания и навыки.Жанр: видеокурс, обучающий курс, нейросети, маркетплейсыЯзык озвучки: русскийПродолжительность: 04:56:41Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680759   (15004) от 11.06.2025
 
 Balun.Courses, Олег Козырев | Микросервисы, как в Bigtech-компаниях (2023) WEB-DL [RU]
@@ -32,7 +6,7 @@ Balun.Courses, Олег Козырев | Микросервисы, как в Big
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15004.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Lynda.com | CSS с LESS и SASS (2012) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14375.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13839.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Stepik, Марина Эрштейн | ИИ-помощники в подгото�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13822.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13794.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Skillfactory, Илья Ибрагимов, Валентин Матвейчик, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12833.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ dometrain, Nick Chapsas | From Zero to Hero: Dependency Injection in .NET (2024)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12579.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12485.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ PurpleSchool, Udemy, Антон Ларичев | Golang - Templ Fiber HTMX. Ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11574.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11443.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11247.jpg" />
 </div>
 
 
@@ -327,7 +301,7 @@ Balun.Courses, Игорь Панасюк | Оптимизация Go, как в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11246.jpg" />
 </div>
 
 
@@ -356,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11161.jpg" />
 </div>
 
 
@@ -383,7 +357,7 @@ GeekBrains | Блокчейн-разработка (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11146.jpg" />
 </div>
 
 
@@ -412,7 +386,7 @@ Balun.Courses, Владимир Балун | Дженерики в Golang (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11110.jpg" />
 </div>
 
 
@@ -441,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11049.jpg" />
 </div>
 
 
@@ -470,7 +444,7 @@ NeuralGo | Полный курс по языку Golang. С нуля до REST A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11041.jpg" />
 </div>
 
 
@@ -499,7 +473,7 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11021.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11017.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Kobezzza, Андрей Кобец | IndexedDB в действии (2025) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10703.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Balun.Courses, Виталий Лихачев | Observability, как в BigTech 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10526.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10423.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ Kobezzza, Андрей Кобец | Практический курс по TypeS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10322.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9903.jpg" />
 </div>
 
 
@@ -698,7 +672,7 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9899.jpg" />
 </div>
 
 
@@ -712,6 +686,35 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF708DA9B63C0B317C92AAC5A220AF7C63A0FDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810248   (9473) от 03.08.2025
+
+Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продвинутый курс по внутреннему устройству Git. Осваиваем лучшие практики и экспертные приемы, а не элементарные команды. Ведет бывший разработчик EPAM.
+
+Подходит для программистов любого уровня, стека и языка
+(   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

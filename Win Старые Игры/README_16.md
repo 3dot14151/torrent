@@ -1,3 +1,55 @@
+###  Публикация: 533382   (532303) от 10.08.2012
+
+State of Emergency [Ru] (RePack) 2002 | RG Games/Pilotus
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аркадный и в чём-то близкий к beat-em’up’у action от третьего лица, портированный с приставок, посвящённый вечной теме – борьбе против «Системы». Действие происходит в Америке недалёкого будущего, где вся власть находится в руках деспотичной торговой мегакорпорации (тем не менее, никаких элементов киберпанка в частности или фантастики вообще в игре нет). Игрок выступает в роли «отброса общества», присоединившегося к обязательно существующему в подобных случаях движению Сопротивления с целью свержения режима.(   Читать дальше...   )Тип издания: RePackЖанр: Экшен от третьего лица, Beat 'em upЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533360   (532191) от 10.08.2012
+
+Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практически полностью забытая первая часть дилогии изометрических action'ов про боевых роботов. Сюжет – роботы восстали против своих хозяев-людей, и мы – ура! – играем за команду роботов, вооружённых здоровенными пушками и сражающихся с угнетателями из плоти и крови. Чаще всего в миссиях нашей главной целью является разрушение какого-либо важного человеческого объекта. Как правило, под нашим руководством находится отряд из трёх роботов.(   Читать дальше...   )Тип издания: RePackЖанр: Изометрический экшен от третьего лицаЯзык озвучки: -\-Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533378   (532188) от 10.08.2012
 
 Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kirill Games
@@ -6,7 +58,7 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532188.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License PROPHET [Steam Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531956.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530475.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530220.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530150.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530043.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529464.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529462.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528954.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528399.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526296.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525109.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524748.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524692.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523041.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ NASCAR Racing 3 (1999) [En] (1.2.1.7/dlc) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521551.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521020.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520860.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519858.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Syberia / Сибирь [Русификатор] (2002) [ui/dub] License 1С (Л�
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519259.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ The Original Strife: Veteran Edition (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518955.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518206.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ BioShock (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516758.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515814.jpg" />
 </div>
 
 
@@ -616,59 +668,6 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8F2D9A8B1B437C3B80A9D35A3E10274C04B34D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161510   (514801) от 22.08.2018
-
-Inherit the Earth (1994) [En/Ge] (1.1) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы видим небо, мы видим землю и воду. Неужели мы здесь одни? Задолго до нас Землёй правили Люди. Они делали удивительные вещи, двигали целые горы. Она знали секрет Полёта, секрет Счастья и многие другие тайны, какие мы не можем и вообразить... Именно такой «поэмой» начинается старушка Inherit the Earth, сделанная «Гильдией Мечтателей» в период расцвета сказочных (   Читать дальше...   )Тип издания: LicenseРазработчик: The Dreamers Guild, Wyrmkeep EntertainmentЖанр: Adventure, Point&Click, FantasyЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC415D56DD261B087CF25593002633F7AFDBBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536925   (513366) от 19.08.2012
-
-SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра напоминает смесь из Return Fire и Wild Metal Country.  Тоже вертолётики и машинки, а также какие-то ещё странные передвижные средства.  Среди всех прочих игр жанра SWIV 3D выделяется интересным ландшафтом, красивыми спецэффектами и занятным геймплеем, от которого порой тяжело оторваться.
-(   Читать дальше...   )Тип издания: RePackЖанр: Аркадный экшен, вертолетная аркада, авто экшенЯзык озвучки: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

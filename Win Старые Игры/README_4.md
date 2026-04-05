@@ -1,3 +1,59 @@
+###  Публикация: 631137   (926174) от 16.03.2013
+
+Galactic Civilizations: Ultimate Edition [En] (L) 2003 | PROPHET
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Galactic Civilizations является космической пошаговой стратегией, в которой на ваши плечи ляжет судьба всего человечества.
+
+В 2178 году Земной Альянс изобрел новую технологию, позволившую людям совершать межзвездные путешествия за короткие промежутки времени. Но такое открытие века, в скором времени, стало достоянием и других цивилизаций, населяющих нашу планету, что послужило началом гонки за мировой господство.
+
+Вам как лидеру United Earth предстоит исследовать новые технологии, развивать экономику, накапливать военную мощь, вести политическую деятельность, развивать дипломатию и торговлю, чтобы получить неоспоримое превосходство над другими расами в борьбе за господство в Галактике.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy (TBS)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53719C9DA5273E91D5837625CF4126CAC08865CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363892   (925038) от 10.03.2020
+
+WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (Beta, 1.00-1.27b) Unofficial [Patches]
+
+>>Win Старые Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальные exe-патчи Warcraft ROC/TFT Beta-1.00-1.27b. Так как официальные ftp сервера со старыми патчами отключены, то раздача имеет статус коллекционной. Включает в себя 231 патч, отсутствуют 10 патчей.Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времени, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D884E7FF6A6B0E67DA29F9DBECA1EFF8970EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363894   (924920) от 10.03.2020
 
 WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) Unofficial [Patches]
@@ -6,7 +62,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924920.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924909.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921937.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920124.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915125.jpg" />
 </div>
 
 
@@ -136,7 +192,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914996.jpg" />
 </div>
 
 
@@ -162,7 +218,7 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911914.jpg" />
 </div>
 
 
@@ -188,7 +244,7 @@ Police Quest: SWAT 2 (1998) [En] (1.0.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911789.jpg" />
 </div>
 
 
@@ -214,7 +270,7 @@ Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911604.jpg" />
 </div>
 
 
@@ -240,7 +296,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911590.jpg" />
 </div>
 
 
@@ -266,7 +322,7 @@ Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905978.jpg" />
 </div>
 
 
@@ -292,7 +348,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905972.jpg" />
 </div>
 
 
@@ -318,7 +374,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904786.jpg" />
 </div>
 
 
@@ -344,7 +400,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904415.jpg" />
 </div>
 
 
@@ -370,7 +426,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904245.jpg" />
 </div>
 
 
@@ -396,7 +452,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903626.jpg" />
 </div>
 
 
@@ -422,7 +478,7 @@ Metal Gear (1987) [Multi] (1.0.cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903342.jpg" />
 </div>
 
 
@@ -448,7 +504,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903337.jpg" />
 </div>
 
 
@@ -474,7 +530,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903333.jpg" />
 </div>
 
 
@@ -500,7 +556,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903330.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902643.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902642.jpg" />
 </div>
 
 
@@ -578,7 +634,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898952.jpg" />
 </div>
 
 
@@ -604,7 +660,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898689.jpg" />
 </div>
 
 
@@ -615,58 +671,6 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB063EC684DACF6E31236FD644E865704F6C177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992902   (895036) от 05.03.2016
-
-Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много сотен лет назад, на заре европейской цивилизации, на полуострове Пелопоннес возник греческий полис Спарта. Его жители прославились на весь мир как отважные и доблестные воины, которые никогда не ведали страха. Спарта, или Лакедемон, как она тогда называлась, вела непрерывные войны со всеми своими соседями. Короткие мирные передышки использовались для подготовки (   Читать дальше...   )Тип издания: LicenseРазработчик: Slitherine SoftwareЖанр: Strategy (Turn-based), 3D, Top-downЯзык озвучки: РусскийЯзык субтитров: -/-Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6139E2A7AAC6AB5A42030720C19EFEA9317EABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493874   (891995) от 05.09.2021
-
-MicroProse™ Soccer (1988) [En] (2.0) License GOG
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбольный симулятор, который можно окрестить «самым серьёзным и продвинутым из аркадных». Главная отличительная особенность игры – то, что состоит она из двух частей. Первая и основная – это нормальный европейский футбол, выполненный сравнительно реалистично, хотя некоторые комбинации и удары очень странные и даже забавные. Есть возможность самому выбрать команду, (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroProseЖанр: Спорт, Симулятор, ФутболЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE48DFF8EE02809DCF66B15F95297FC61F078776
 ```
 
 https://mybot314.ru/tekegram_catalog/

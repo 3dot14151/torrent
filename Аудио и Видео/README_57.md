@@ -6,7 +6,7 @@ Pink Floyd - The Dark Side of the Moon (2016) [AAC|~342 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808075.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807840.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Clinton Shorter - Район №9 / District 9 (2009) [AAC|WEB-DL|256 Kbps]<Scor
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807831.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807588.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807471.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807295.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807109.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807106.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807081.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806691.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Be My Lover (Lounge & Deep-House Pearls) (2021) [AAC|~317 Kbps] <Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806525.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ozzy Osbourne - Down To Earth (20th Anniversary Expanded Edition) (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806513.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Ibiza Winter Session 2022 (The Deep-House Smoothies) (2021) [AAC|~322 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806448.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Ibiza Winter Session 2022 (The Lounge Cookies) (2021) [AAC|~321 Kbps] <Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806444.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Duran Duran - Future Past (2021) [AAC|~308 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806381.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806175.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806035.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805315.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805198.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805140.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805058.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bon Jovi - Bounce (2002) [ALAC|2.0 24/88|tracks]<Rock>
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804752.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Britney Spears - In The Zone (2003) [ALAC|2.0 24/88|tracks]<Pop>
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804747.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Bon Jovi - Slippery When Wet (2005) Remastered [ALAC|2.0 24/96|tracks]<Rock>
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804678.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Bon Jovi - This Left Feels Right (2004) [ALAC|2.0 24/88|tracks]<Rock>
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804676.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - Nizza Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804633.jpg" />
 </div>
 
 

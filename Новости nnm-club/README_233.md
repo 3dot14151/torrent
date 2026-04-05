@@ -1,3 +1,57 @@
+###  Публикация: 965381   (224784) от 14.12.2015
+
+Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7163.5000 SP2 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2010 — один из лучших наборов офисных программ для ПК, браузеров и телефонов. Данный пакет имеет все функции, которые нужны многим уже сегодня, а некоторые могут пригодиться в будущем. С данным набором вы можете успешно принять вызов сегодняшней экономической ситуации. и не упустить факторы достижения успеха в области IT. Обычные сотрудники смогут (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0517642B157F12CA5DDA3BA9E1DCAB6B3048FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342136   (224394) от 01.12.2019
+
+Kaspersky Internet Security 2020 20.0.14.1085 (e) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Internet Security -- комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ.
+
+Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, эффективность (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EA7018E4479FE59DAC1DDDE3B1A606D4B0CDE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483209   (224386) от 03.08.2023
 
 Звездный путь: Вояджер / Star Trek: Voyager (1995-2001) DVDRip (сезон 1-7, серии 1-172 из 172)
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224386.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 21H2 RU by OVGorskiy 11.2021
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224276.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224258.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Kaspersky Free 21.8.5.452 Repack by LcHNextGen (19.10.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223910.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223811.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Gothic / Готика (2001) [Multi] (1.08kHF) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223734.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223636.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223568.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223040.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ HitmanPro 3.7.12 Build 253 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222997.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ Adobe Illustrator CC 2015 (v19.2.0) x86-x64 RUS/ENG Update 4
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222977.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222950.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222873.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222807.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222779.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ Gothic II: Gold Edition / Готика 2: Золотое издание (2005) [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222734.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222724.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222112.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ Topaz Gigapixel AI 6.2.2 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221924.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ Far Cry 3: Трейнер/Trainer (+22) (1.0-1.02) | FLiNG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221889.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221611.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ AIMP 4.00 Build 1678 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221592.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221579.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ Obduction (2016) [Ru/Multi] (1.8.4.1-ssl/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221547.jpg" />
 </div>
 
 
@@ -622,58 +676,6 @@ Obduction (2016) [Ru/Multi] (1.8.4.1-ssl/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:945EFED32258F89A282F33B84920A4B95EB2DA66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512609   (221539) от 30.11.2021
-
-Северный бастион / BAC Nord (2020) WEB-DLRip [DVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221539.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 год. Северные кварталы Марселя возглавляют списки территорий с наивысшим уровнем преступности. Начальство вечно подстегивает северный участок улучшать показатели. В опасных кварталах группе полицейских иногда приходится адаптироваться к ситуации и пересекать черту. До тех пор, пока правосудие не оборачивается против них самих.Производство: Франция / Chi-Fou-Mi ProductionsStudio, CanalFrance 2 CinémaЖанр: Боевик, триллер, криминалРежиссер: Седрик ЖименесАктеры: Жиль Леллуш, Франсуа Сивиль, Карим Леклу, Адель Экзаркопулос, Кенза Форта, Идир Азугли, Сириль Леконт, Микаэль Абитбуль, Жан-Ив Бертело, Жак КонтаПеревод: Любительский двухголосый (Pazl Voice)Субтитры: Русские, украинские, английские (отдельно)Продолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257F432303AEE97C67BCA2CC07284F73B8062FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944727   (221366) от 16.12.2015
-
-SOMA (2015) [Ru/Multi] (1.10) SteamRip Let'sРlay
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221366.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOMA - это научно-фантастический ужастик от студии Frictional Games, создателей игры "Amnesia: Призрак прошлого". Вас ждёт пугающая история, ставящая непростые вопросы - что такое сознание, личность и что значит быть человеком. Радио молчит, еда на исходе, а роботы возомнили себя людьми. Путешествуя по подводной станции "Пафос II", которая долгое (   Читать дальше...   )Тип издания: SteamRipРазработчик: Frictional GamesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25009F1E559F0658D8546BA5FB79F34CC6D9D1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

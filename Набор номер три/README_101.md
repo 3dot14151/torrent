@@ -1,3 +1,161 @@
+###  Публикация: 988239   (919934) от 20.02.2016
+
+Resident Evil 0 / biohazard 0 HD REMASTER (2016) [Ru/Multi] (1.0/dlc) Repack SEYTER
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil  рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных телевизоров. Приготовьтесь раскрыть (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8888818B84F30ADC20F0AB1A06E5F13D0FF29C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837549   (919864) от 20.02.2016
+
+Evernote Premium 7.6 [Ru/Multi] - Создание заметок
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Evernote сделает из Android-телефона продолжение Вашей памяти. Это приложение позволяет Вам сохранять и вспоминать всё, что происходит в Вашей жизни. Заметки, идеи, фото- и аудиозаписи - всё это можно поместить в Evernote и синхронизировать с телефона на веб-сервер и далее на компьютер. (с) Evernote.
+Evernote для Android позволяет вам сохранять любые события, идеи, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20.02.16Разработчик: Evernote CorporationПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B149803AB9520913BB79AD6DF64AC4D5BA570B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489951   (919863) от 19.08.2021
+
+HUMANKIND (2021) [Ru/Multi] (1.0.01.0034-S10/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919863.jpg" />
+</div>
+
+
+###  Подробнее
+
+HUMANKIND™ — главный труд Amplitude Studios, историческая стратегия, где ВЫ перепишите историю человечества. Это слияние культуры, истории и ценностей позволит вам создать уникальную цивилизацию. КАК ДАЛЕКО ВЫ ЗАВЕДЕТЕ HUMANKIND?Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Strategy (Turn-based), 4X, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735B57C2392A4410DE2423CC1228A96C90392E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988477   (919861) от 20.02.2016
+
+Parallels Desktop for Mac Business Edition 11.1.3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop для Mac - Самое быстрое, простое и мощное решение для запуска Windows-приложений на Mac без перезагрузки.
+С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 февраля 2016Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57F1E90E54282B2AB72BE22DD620845D3316B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988622   (919858) от 20.02.2016
+
+The Bat! Professional 7.1.18 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919858.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409D81565F0A84C2B1E8FBF352F8F71AEAFC3F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988181   (919854) от 20.02.2016
+
+Prospekt (2016) [Ru/En] (1.0) Repack xatab
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prospekt пересказывает историю оригинальной Half-Life 2 от лица противников героя - солдат спецподразделения HECU. Глава проекта Ричард Сибрук - поклонник творчества Valve. Первоначально он работал над проектом в одиночку, потратив 2,5 тысячи часов на создание прототипа на движке Source. Сибрук отправил раннюю копию Prospekt главе Valve Гейбу Ньюэллу и получил от (   Читать дальше...   )Тип издания: RepackРазработчик: Richard SeabrookЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F571D896DB3EC28BF5BD056C1A91364A95C2CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 798433   (919852) от 20.02.2016
 
 X-COM: UFO Defense OpenXcom (2014) [Ru/Multi] (1.4/1.0) Repack/Mod Pythoon
@@ -6,7 +164,7 @@ X-COM: UFO Defense OpenXcom (2014) [Ru/Multi] (1.4/1.0) Repack/Mod Pythoon
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919852.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919774.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919760.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Ctlos Linux Xfce v1.6.0 [x86-64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919751.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919732.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 20.03.12 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919730.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919727.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.03.12 [Ru]
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919726.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ Pardus 2011 [i686 & x86_64] (2 LivexDVD)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_919580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_919580.jpg" />
 </div>
 
 
@@ -242,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919558.jpg" />
 </div>
 
 
@@ -271,7 +429,7 @@ ERD commander 5.0 с интегрированными SATA/SCSI/RAID драйв�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919555.jpg" />
 </div>
 
 
@@ -299,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919496.jpg" />
 </div>
 
 
@@ -325,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919250.jpg" />
 </div>
 
 
@@ -352,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919242.jpg" />
 </div>
 
 
@@ -378,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919024.jpg" />
 </div>
 
 
@@ -405,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919007.jpg" />
 </div>
 
 
@@ -433,7 +591,7 @@ Dr.Web CureIt! Updater 21.01.2017 by SlimRG [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918532.jpg" />
 </div>
 
 
@@ -459,7 +617,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918523.jpg" />
 </div>
 
 
@@ -485,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918522.jpg" />
 </div>
 
 
@@ -511,7 +669,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.26.4s/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918521.jpg" />
 </div>
 
 
@@ -522,162 +680,6 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEFEBA796EA5EF0B36677A5ED8D8BE2B1A43EDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943786   (918519) от 24.01.2017
-
-Crysis (2007) [Ru/En] (1.1.1.6156) Repack =nemos=
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди не раз представляли конец света, приписывая роковую роль палача то наводнению, то страшной болезни, то ядерной войне. На деле все получилось несколько экзотичнее. Рухнувший на один из отдаленных островов астероид оказался огромным космическим кораблем, способным полностью изменить климат Земли. Отправившиеся на изучение аномалии отряды Северной Кореи и США оказались (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5FD20773E6A86E39100DC0B69D1F76917474FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854425   (918516) от 24.01.2017
-
-Пластинки - 80 (2014-2017) [MP3|320 кб/с]<House, Disco, Rock>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918516.jpg" />
-</div>
-
-
-###  Подробнее
-
-"ПЛАСТИНКИ - 80" - это дискотека на виниловых пластинках 1980-х годов! Во времена, когда функция диджея зачастую сведена к нажатию кнопок на клавиатуре компьютера, мы крутим настоящие виниловые пластинки, каждая из которых - большая история! Легендарные пластинки обеспечивают великолепное качество звучания. Использование винила для игры также воздает дань (   Читать дальше...   )Жанр: House, Disco, RockПродолжительность: 18:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1177EFD373863DD6E1DED9A33FEBF214EADFC1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367038   (918362) от 14.03.2020
-
-Билл Гейтс покидает совет директоров Microsoft
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918362.jpg" />
-</div>
-
-
-###  Подробнее
-
-В заявлении компании отмечается, что Гейтс по-прежнему будет советником по техническим вопросам генерального директора Microsoft.Американский предприниматель Билл Гейтс, который является одним из основателей корпорации Microsoft, вышел из ее совета директоров. Об этом говорится в заявлении, опубликованном компанией и телеканалом CNBC.Как отмечается в документе, Гейтс (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366956   (918356) от 14.03.2020
-
-В Липецке из-за коронавируса отменили крестный ход против коронавируса
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918356.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Липецке из-за введенного из-за опасности коронавируса запрета на проведение массовых мероприятий отменили запланированный на 15 марта автомобильный крестный ход с молебном против коронавируса, сообщают в четверг "Вести.Липецк".Организатор мероприятия, глава липецкой общины Святых Царственных мучеников Юрий Берников написал во "ВКонтакте", что (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489866   (918340) от 20.08.2021
-
-Microsoft разработала блокчейн-систему для борьбы с пиратством
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft задействует блокчейн Ethereum для борьбы с пиратами. Информация об этом появилась в исследовании о повышении эффективности борьбы с нелицензионным софтом и контентом. С помощью программы Argus доносить на пиратские ссылки станет легко и прибыльно. Предполагается, что пользователи будут анонимно жаловаться на нелегальный контент и получать за это (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490198   (918334) от 20.08.2021
-
-В Windows 11 стало сложнее сменить браузер по умолчанию
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918334.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Windows 11 ещё больше усложнился процесс изменения браузера по умолчанию. Более того, ОС игнорирует настройки браузера по умолчанию в некоторых областях. Как отмечает издание TheVerge, усложнение смены браузера в Windows 11 обеспокоило конкурентов Microsoft на браузерном рынке, таких как Mozilla, Opera и Vivaldi.В Windows 11, как и в Windows 10, при установке нового (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

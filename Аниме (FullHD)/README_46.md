@@ -6,7 +6,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203870.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203866.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203865.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203859.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203554.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202097.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Gunslinger Girl: Il Teatrino / Школа убийц: Театр марионе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201826.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Gunslinger Girl / Школа убийц (ТВ-1) [2003, TV, 13] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201825.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201719.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Tensei shitara Slime Datta Ken Movie: Guren no Kizuna-hen | That Time I Got Rein
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200871.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200821.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Brave Witches | Храбрые ведьмы [2016, TV, 12 эп. + 1 OVA] BD-rip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200155.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nomad: Megalo Box 2 | Мегалобокс [ТВ-2] [2021, TV, 13 из 13] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200041.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199883.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Isekai Ojisan | Uncle from Another World | Перерождение Дяди [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199561.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Uma Musume: Pretty Derby - Road to the Top / Девушки-лошадки: Ми
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198371.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Muv-Luv Alternative The Animation | Мав-Лав: Альтернатива [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197623.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197619.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Natsu e no Tunnel, Sayonara no Deguchi | The Tunnel to Summer, the Exit of Goodb
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197566.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197529.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Kyokou Suiri | In/Spectre | Ложные выводы [2020, TV, 24 эп.] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196544.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196149.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Inu ni Nattara Suki na Hito ni Hirowareta. | My Life as Inukai-san's Dog | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195316.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194111.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Tomo-chan wa Onnanoko! | Tomo-chan Is a Girl! | Томо - девушка! [2023
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194105.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194018.jpg" />
 </div>
 
 

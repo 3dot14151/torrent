@@ -1,3 +1,58 @@
+###  Публикация: 1130739   (712089) от 03.05.2017
+
+Гузель Зартдинова | Дизайн интерьера от А до Я (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами новейший подробный практический видеокурс по дизайну интерьеров в 3Ds MAX от А до Я от Гузель Зартдиновой. Эта девушка — профессиональный дизайнер и визуализатор интерьеров, она имеет большой опыт работы в данной сфере. В видеокурс «3Ds Max — Дизайн интерьера от А до Я» Гузель Зартдинова вложила не только необходимую теорию (без теории не понять принципы (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 04:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9645884BA08E94515FC5903F3F4F4C6CDB1AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130733   (712015) от 03.05.2017
+
+Максим Солдаткин | Мобайл с нуля в Adobe Xd (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научись с нуля создавать UX/UI: дизайн мобильных приложений и интерактивные прототипы в Adobe Xd.
+
+Если ты никогда не рисовал мобильных приложений, но всегда хотел научиться – участвуй в курсе. Можно совсем с нуля: мы подробно разбираем возможности программы и делаем все по шагам.
+(   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 03:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328264EF69A29A27D41910D72C751A0689E330EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130719   (712008) от 03.05.2017
 
 Айдар Абильдин | Полноценный видеокурс по After Effects и Моушн Дизайну (2016) PCRec
@@ -6,7 +61,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712008.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710578.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710207.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ studyboom | Профессия: Дизайнер мобильных прилож
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709189.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ VFX Grace | Jaguar Grooming Workflow - Blender Case Study (2020) PCRec [EN / EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708504.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Allan McKay | FX Technical Director Transformation Module 10 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707406.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ Allan McKay | FX Technical Director Transformation Module 8 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707400.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706783.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ Skillbox | Дизайнер промосайтов (2019) CamRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704898.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ Skillbox | Дизайн мобильных приложений с нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704878.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ Skillbox | Дизайнер сайтов на Tilda (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704869.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ Andrew Gordon | Animation Foundations Gesture (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703276.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702956.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702102.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ Allan McKay | FX Technical Director Transformation Module Extras (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701431.jpg" />
 </div>
 
 
@@ -407,7 +462,7 @@ Allan McKay | FX Technical Director Transformation Module 1 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701414.jpg" />
 </div>
 
 
@@ -435,7 +490,7 @@ Allan McKay | FX Technical Director Transformation Module 4 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701410.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ Allan McKay | FX Technical Director Transformation Module 2 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701316.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701208.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ Udemy, Дмитрий Фокеев | Веб дизайн в Figma 2021 - с ну
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700869.jpg" />
 </div>
 
 
@@ -546,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699118.jpg" />
 </div>
 
 
@@ -574,7 +629,7 @@ Andrew Conroy | The Anatomy of an Expression for Facial Animation in Maya (2013)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697425.jpg" />
 </div>
 
 
@@ -600,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694660.jpg" />
 </div>
 
 
@@ -626,7 +681,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part E (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692186.jpg" />
 </div>
 
 
@@ -639,58 +694,6 @@ Simon Payne | Creature Creators Handbook Volume 2 Part E (2012) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34A34BB14D782B5F2B12DCD32B6691BEE1B6370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403299   (691911) от 19.08.2020
-
-Nathan Glemboski | Animating a Short Film in Maya and Unreal Engine (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691911.jpg" />
-</div>
-
-
-###  Подробнее
-
-С этими уроками мы научимся использовать Движок Анрил, как рабочий инструмент для рендеринга анимаций вроде короткого фильма, который мы создали в Майя. Приготовление анимаций и Активов для работы в игровом движке происходит иначе, нежели в привычном движке, вроде Mental Ray. Тут есть свои сложности и то, над чем нужно поработать, но сама возможность делать рендер (   Читать дальше...   )Производство: PluralsightЖанр: Создание видеоПродолжительность: 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEADAEC9008D732FC1D997804D959009743B3971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403703   (688030) от 21.08.2020
-
-Станислав Демченко и Дмитрий Крипаков | Частицы в Гудини (2019) HDRip
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688030.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Частицы в Гудини" - это оригинальный авторский курс по системе частиц на русском языке. Курс предназначен для моушен-дизайнеров и всех, кто хочет не просто повторять чужие уроки, а глубоко понимать логику поведения частиц.Производство: Houdini по-русскиЖанр: 3DПродолжительность: 07:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0ECF82FD0AF47E30693BB1309E9BDAC8724CC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

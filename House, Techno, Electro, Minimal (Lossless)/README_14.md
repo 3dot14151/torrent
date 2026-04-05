@@ -1,3 +1,32 @@
+###  Публикация: 1495806   (877453) от 14.09.2021
+
+Eekkoo - The 4th Season (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change (5:15)
+ 02. The Game (ft. Deji Siegert) (3:14)
+ 03. Barefoot (5:24)
+ 04. Falling (ft. Graham Baxter) (6:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B450E415689C00941AC996D173768C7F07482D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996956   (877318) от 15.03.2016
 
 VA - Ultra Music Festival 2016 (2016) Compilation [FLAC|Lossless|tracks] <Progressive House, Electro House, EDM>
@@ -6,7 +35,7 @@ VA - Ultra Music Festival 2016 (2016) Compilation [FLAC|Lossless|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877318.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Amtrac - Oddyssey (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876904.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Erotic Piano Music (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874633.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873764.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873464.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Paolo Lucchi - The Dusk Sessions (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871199.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bicep - Bicep (2017) Ninja Tune [FLAC|Lossless|tracks+.cue] <House, Techno, Down
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869087.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Telrae Mixed By Salz Vol. 2 (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868646.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Telrae Mixed By Salz Vol. 5 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868585.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Serious Beats 83 [Mixed by Ar-Tee] (4CD) (2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868389.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - We Love Funky by Miguel Vizcaino (2016) [FLAC|Lossless|image + .cue] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868231.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Underworld - A Collection (2012) Compilation [FLAC|Lossless|tracks + .cue] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864614.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [FLAC|Lossless|WEB|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864149.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Telrae Vinyl Mix by Salz (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863141.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Stefan Gubatz - Distanz (2012) [FLAC|Lossless|tracks + .cue] <Dub Techno, Ambien
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863053.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ben Bohmer (Ben Böhmer) - Begin Again (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862982.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - 538 Dance Smash 2016 Vol.1 (2016) [FLAC|Lossless|image + .cue] <House, Pop,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862546.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Ethereal Techno #003 (2017) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862336.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Lagowski - Secret Of Numbers (2020) Zoharum [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862271.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Best Of Disco Balls Records 2018, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860616.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Best Of Disco Balls Records 2018, Pt. 2 (2019) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860615.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Best Of 5 Years Of Disco Balls Records, Pt. 3 (2019) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860614.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Luomo - Vocalcity (2000) Reissue, 2005 [WavPack|Lossless|image + .cue] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857565.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Superpitcher - Kilimanjaro (2010) [FLAC|Lossless|tracks + .cue] <Downtempo, Mini
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857375.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Luomo - The Present Lover (2003) [FLAC|Lossless|tracks + .cue] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857069.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Luomo - The Present Lover (2003) [FLAC|Lossless|tracks + .cue] <Deep House, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C7041DD5D7ECD9ACCF3474FAA1947785609023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109835   (856915) от 28.02.2017
-
-VA - Gabriel Ananda - Selected Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <House,Tech House,Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicolas Ovalle - Come Ci Fa (Gabriel Ananda remix) [07:29]
-02. Rob Hes Steve Slight - Focusing (Gabriel Ananda remix)[06:36]
-03. Yoon - Boundaries (Gabriel Ananda's Breaking Boundaries remix)[07:11]
-04. Mr Morek - 418 (Gabriel Ananda remix) [08:03](   Читать дальше...   )Жанр: House,Tech House,Deep HouseПродолжительность: 02:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD1C3EE97A616F648B65D8AD819A484412D87ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

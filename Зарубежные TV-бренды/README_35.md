@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753656.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753646.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753562.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC. Как устроены шикарные отели. Marina Bay Sands (Си
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753561.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753553.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753551.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753539.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG. С точки зрения науки. Морские чудовища др�
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753437.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752640.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC: Вырастая во Вселенной [5 из 5] / Growing Up in the Uni
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752288.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752142.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752131.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ NG. Реальность или фантастика? Привидения / Is 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752110.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751826.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751824.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751820.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751692.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Discovery. Чужая планета  / Alien Planet (2005) HDTVRip [H.264/720p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751641.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Animal Planet: Дом для рептилий. Террариум юрского
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751609.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750937.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750833.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ BBC. Horizon: Война против науки / A War On Science (2006) DVBRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750647.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ BBC: Величайшие явления природы (эпизоды 1-6 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750310.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Discovery. Техногеника. Ту-144. Первый пассажирски
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749957.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Discovery. Рыбацкие легенды Якуба Вагнера / Rybi Lege
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749911.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ BBC: Суперстая / Swarm: Nature's Incredible Invasions (Megaschwaerme. D
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749819.jpg" />
 </div>
 
 

@@ -1,3 +1,172 @@
+###  Публикация: 991828   (903542) от 29.02.2016
+
+Windows 98 — теперь и в браузере
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энтузиасты запускают в браузере старые игры, программы и операционные системы. При этом работа, которая требуется для реализации некоторых задумок, очень кропотливая и трудемкая, не говоря уже о том, какая уйма времени нужна в некоторых случаях. Для запуска Windows 98 в браузере разработчикам понадобилось целых четыре года. Но оно стоило того — теперь в браузере (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992061   (903504) от 29.02.2016
+
+AusLogics BoostSpeed 8.2.1.0 RePack (& Portable) by KpoJIuK [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496ED939B3F22686304A4DB1614E746D55BFB16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974618   (903484) от 29.02.2016
+
+Кости (2014) SATRip [H.264] (серии 1-24 из 24)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адаптация американского детективного телесериала "Bones".
+Антрополог Анна Костина незаменима в раскрытии преступлений, где от тела жертвы остались только кости или разложившиеся останки. Напарником Анны становится старший следователь Особого отдела Следственного комитета РФ Дмитрий Богров. Убийства — не единственное, с чем приходится иметь дело главным (   Читать дальше...   )Производство: Россия / Good Story MediaЖанр: детективРежиссер: Филипп Коршунов, Виктор Божинов, Дмитрий Киселёв, Антон Борматов, Павел Бардин, Григорий ФёдоровАктеры: Наталья Высочанская, Константин Соловьёв, Вениамин Смехов, Артём Осипов, Анна Старшенбаум, Родион Долгирев, Михаил Куряев, Венчислав Хотяновский, Никита Тезов, Александр Пугачёв , Галина Звягинцева, Екатерина Дубакина, Никас Крюков, Татьяна Борисова, Алла Фомичева, Анна Багмет, Александр Андриенко, Маргарита Иванова-Донская , Сергей Галанин, Юлия Вознесенская, Лейла (   Читать дальше...   )Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF7BFAE7134CD1B5A4E2CA38FFB6E06970DFBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636761   (903195) от 29.03.2013
+
+Побочный эффект / Side Effects (2013) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь главной героини Эмили пошла под откос, когда её мужа посадили в тюрьму. Вначале она пыталась спастись от депрессии своими силами, горстями глотая успокоительное. После того, как стало понятно, что это не поможет, Эмили не оставалось другого выхода кроме отправления в психиатрическую лечебницу к добрым и заботливым людям в белых халатах.
+
+Теперь главная героиня (   Читать дальше...   )Производство: США / Di Bonaventura Pictures, Endgame Entertainment See moreЖанр: Триллер, Драма, КриминалРежиссер: Стивен СодербергАктеры: Джуд Лоу, Руни Мара, Кэтрин Зета-Джонс, Ченнинг Татум, Кармен Пелаес, Марин Айрлэнд, Полли Дрэйпер, Аральдо Альварес, Джеймс Мартинез, Владимир ВерсейлПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6868B794030827C48A2368E99D597751D94DF886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182131   (903127) от 11.03.2010
+
+-=FAN STYLING SE7EN X64 rus 2010 =- 7600.16385 х64 RUS [русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903127.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+-=FAN STYLING SE7EN X64 rus 2010 =- • Год выпуска: 2010
+• Версия:  7600.16385 х64 RUS
+• Разработчик: Microsoft Corporation
+• Платформа:  х64 (64bit) 
+• Совместимость с Vista: полная
+• Совместимость с Seven: полная
+• Формат файла: ISO
+• Авторы сборки: SPA(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369241   (903125) от 23.03.2020
+
+Очередное достижение: 4000 релизов от kosatka!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 4000 релизов от kosatka!Уважаемые одноклубники!
+В очередной раз, выражаем огромную благодарность и искренне поздравляем нашего почётного Релизёра, Трудягу, грамотного и подкованного Доку, нашего Друга, kosatka, с достижением новой вершины - 4000 релизов!
+Желаем от всего сердца нескончаемого вдохновения, терпения, сил и творческих успехов в нашем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099713   (902963) от 02.02.2017
 
 Система искусственного интеллекта Libratus одержала убедительную победу над лучшими людьми-игроками в покер
@@ -6,7 +175,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902963.jpg" />
 </div>
 
 
@@ -32,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902924.jpg" />
 </div>
 
 
@@ -58,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902889.jpg" />
 </div>
 
 
@@ -85,7 +254,7 @@ Parallels Desktop for Mac Business Edition 15.1.3 (47255) + Toolbox 3.8.1 (build
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902879.jpg" />
 </div>
 
 
@@ -113,7 +282,7 @@ Windows 10 Enterprise LTSC 4in1 (x86/x64) by Eagle123 (03.2020) [Ru/En]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902872.jpg" />
 </div>
 
 
@@ -139,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902871.jpg" />
 </div>
 
 
@@ -166,7 +335,7 @@ Microsoft может выпустить облачную версию Windows 10
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902855.jpg" />
 </div>
 
 
@@ -193,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902664.jpg" />
 </div>
 
 
@@ -219,7 +388,7 @@ Need For Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902658.jpg" />
 </div>
 
 
@@ -245,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902655.jpg" />
 </div>
 
 
@@ -271,7 +440,7 @@ Microsoft Windows 7 SP1-u with IE11 (2 x 3in1) - DG Win&Soft 2014.02 (en-US, ru-
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902654.jpg" />
 </div>
 
 
@@ -297,7 +466,7 @@ Adobe Acrobat X Professional v.10.0.1 DVD [RUS / ENG]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_902652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_902652.jpg" />
 </div>
 
 
@@ -323,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902645.jpg" />
 </div>
 
 
@@ -349,7 +518,7 @@ Avira Phantom VPN Pro 2.4.3.30556 RePack by D!akov [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902632.jpg" />
 </div>
 
 
@@ -375,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902541.jpg" />
 </div>
 
 
@@ -401,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902538.jpg" />
 </div>
 
 
@@ -427,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902356.jpg" />
 </div>
 
 
@@ -453,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902289.jpg" />
 </div>
 
 
@@ -479,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902157.jpg" />
 </div>
 
 
@@ -505,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902135.jpg" />
 </div>
 
 
@@ -516,162 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D587457F1191C548207C3A02EB70285B0C3640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991809   (902074) от 01.03.2016
-
-Астрономы сужают область поисков Планеты Х, гипотетической девятой планеты Солнечной системы
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Около месяца назад, Константин Батыгин (Konstantin Batygin) и Майк Браун (Mike Brown), астрономы из Калифорнийского технологического института, представили доказательства возможности существования далеко за орбитой Нептуна Планеты Х, девятой планеты Солнечной системы, масса которой приблизительно в 10 раз превышает массу Земли и период обращения которой вокруг Солнца (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992098   (902071) от 01.03.2016
-
-Очередное достижение: 2000 релизов от vilator
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 2000 релизов от vilator!!!Уважаемые одноклубники , рад сообщить Вам о возможности поздравить нашего товарища с 2000 релизом!От всей души поздравляем vilator с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NNM-Club.me!Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992189   (901902) от 01.03.2016
-
-Роскомнадзор начал бороться с "зеркальными" торрентами
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор проведет совещание с провайдерами и правообладателями по вопросу блокировки "зеркальных" торрентов и других ресурсов с противоправным контентом.Об этом сообщил начальник правового управления Роскомнадзора Борис Едидин на годовом собрании некоммерческого партнерства Поставщиков программных продуктов (НП ППП), сообщает агентство Интерфакс.По (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992035   (901838) от 01.03.2016
-
-Крыса / Ratter (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901838.jpg" />
-</div>
-
-
-###  Подробнее
-
-За Эммой, аспиранткой живущей одной в Нью-Йорке, начинает следить маньяк, который взламывает всю её окружающую технику - ноутбук, сотовый телефон и другие веб-устройства. Эта одержимость продолжает расти, после того как хакер записывает самые интимные моменты Эммы. Когда ощущений от просмотра не достаточно, ситуация обостряется до опасного и ужасающего уровня.Производство: США, Start Motion PicturesЖанр: Ужасы, триллер, драмаРежиссер: Бранден КрамерАктеры: Эшли Бенсон, Мэтт МакГорри, Кайли Вернофф, Ребекка Наоми Джонс, Алекс Кранмер, Майкл Уильям Фриман, Джон Андерсон, Карл Глусман, Джереми Фиорентино, Джон БассПеревод: Профессиональный многоголосый (iTunes)Язык субтитров: Русские, английскиеПродолжительность: 01:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D846F748667FDDDAA441F2B37F85CA44BFE93197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985671   (901837) от 01.03.2016
-
-Wurm Unlimited (2015) [En] (2016-03-01) SteamRip GameComa
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wurm Unlimited представляет собой достаточно хорошо продуманный фентези-мир игры Wurm Online, в которую могут играть множество игроков одновременно, так что если вам нравится охотится за драконами или завоевывать королевства — обязательно стоит сыграть. Девизом этой игры могла бы стать фраза «Исследуй, строй, выживай». Сюжет достаточно прост: выбираете то место, (   Читать дальше...   )Тип издания: SteamRipРазработчик: Code Club ABЖанр: RPG, 3D, 3rd Person, Online-only, Massively multiplayerЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE86C0C4F0590681F8E49C913837A0FD0FDE0E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991883   (901829) от 01.03.2016
-
-Крадущийся тигр, затаившийся дракон: Меч судьбы / Crouching Tiger, Hidden Dragon: Sword of Destiny (2016) WEBRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901829.jpg" />
-</div>
-
-
-###  Подробнее
-
-История потерянной любви, легендарного меча и последнего шанса на искупление.Производство: США, China Film Group, Pegasus Taihe Entertainment, The Weinstein Company, Yucaipa FilmsЖанр: Фэнтези, Боевик, Драма, ПриключенияРежиссер: Юэнь Воо-пинАктеры: Донни Ен, Мишель Йео, Гарри Шам мл., Джейсон Скотт Ли, Евгения Йуан, Жужу Чан, Крис Пэнг, Дэррил Квон, Роджер Йуан...Перевод: Любительский многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:40:50Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D553C254D96276265DCD7D9C987063198DC9A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

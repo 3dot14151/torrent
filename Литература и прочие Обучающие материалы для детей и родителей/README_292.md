@@ -1,3 +1,55 @@
+###  Публикация: 1252522   (409303) от 05.10.2018
+
+Генрих Лейтеман, Михаил Новорусский | Большая книга картин из мира животных (1908) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные. Знакомство с окружающим миром.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099EACF1643B93F15FC82A0D01C1D03C5B128C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066860   (409273) от 27.10.2016
+
+Татьяна Комарда | Полный курс английской лексики. Как учить английские слова, чтобы их выучить (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это уникальное пособие незаменимо для тех, кто освоил английский язык на базовом уровне, но нуждается в значительном пополнении словарного запаса. В этом лексическом курсе слова и выражения сгруппированы по темам. Лексика разделена по основным темам, необходимым для ежедневного общения, работы, учебы и путешествий. Слова и выражения представлены в текстах и диалогах, (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68015A2DA3F76F3FC49E3733AF231C374FA3AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948816   (409247) от 21.10.2015
 
 Виктория Паркер | Новый Завет. Иллюстрированная Библия для детей с комментариями, замечаниями и пояснениями (2002) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409247.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409155.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408973.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408635.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408438.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408417.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408414.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408346.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408343.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408305.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408264.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408094.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408047.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407992.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407988.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407984.jpg" />
 </div>
 
 
@@ -440,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407952.jpg" />
 </div>
 
 
@@ -466,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407755.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407452.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407450.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407442.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407437.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407234.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407182.jpg" />
 </div>
 
 
@@ -640,62 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ACD2954C73380E55367B4E33F241C50CB52B857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413830   (407137) от 05.10.2020
-
-Любовь Вайткене, Ксения Аниашвили, Марина Талер | Детская научная лаборатория. Лучшие опыты и эксперименты на улице и на даче для детей и взрослых (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание предназначено для детей, которые, кажется, родились со словом «Почему?», и взрослых, сохранивших интерес к познанию.
-
-Представленные на его страницах эксперименты станут лучшим напоминанием о том, что весь окружающий мир представляет собой удивительную научную лабораторию. В ней за завесой повседневности скрываются сложнейшие процессы, опирающиеся на (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C2DA989303150BED09D741FB82B7B1EA9AD184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560518   (406519) от 15.10.2012
-
-Валерий Рубанцев | Занимательные уроки с компьютером, или Small Basic для начинающих [2012] [PDF+Исходные коды]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406519.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге для обучения программированию выбрана первая официальная версия среды разработки программ Small Basic. Это новый хит фирмы Майкрософт, который специально создан для изучения основных конструкций и приёмов программирования.
-
-На страницах книги вы найдете несколько десятков уроков по разным школьным предметам. Но уроки эти не простые, а занимательные! Поэтому на каждом уроке мы будем писать интересные компьютерные программы.Формат: PDF+Исходные коды
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3270ACE95D137C0476CCBB356BDE1C4DF3234C
 ```
 
 https://mybot314.ru/tekegram_catalog/

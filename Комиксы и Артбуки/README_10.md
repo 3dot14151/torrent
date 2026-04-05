@@ -6,7 +6,7 @@ Bulwark Studios | Артбук по игре IXION / The Art of IXION (2022) [PD
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243674.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Arkane Studios | Артбук по играм студии Arkane / The Art of A
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243664.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gearbox Software | Артбук по игре Borderlands 2 / The Art of Borderl
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243512.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nintendo | Артбук по игре Fire Emblem Awakening / The Art of Fire Em
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243358.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242907.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IO Interactive | Артбук по игре Hitman: Absolution / The Art of Hitm
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242899.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ City Interactive | Артбук по игре Снайпер: Воин-приз�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242849.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Amplitude Studios | Артбук по игре Endless Legend / The Art of Endle
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242150.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Amplitude Studios | Артбук по игре Endless Space / The Art of Endles
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242142.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Insomniac Games | Артбук по играм Рэтчет и Кланк / The 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242114.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Black Hole Entertainment | Артбук по игре Might & Magic Heroes VI / 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240534.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Born Ready Games | Артбук по игре Strike Suit Zero / Strike Suit Zer
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240411.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Little Green Men | Артбуки по играм Starpoint Gemini / The Art of 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240358.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Colossal Order | Артбук по игре Cities: Skylines / Cities: Skylines 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239985.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Blizzard Entertainment | Артбук по игре Diablo III / The Art of Diab
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239789.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Lisa Fitzpatrick | Артбук по фильму Аватар / The Art of Avat
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239744.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Flying Mollusk | Артбук по игре Nevermind / The Art of Nevermind - V
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239409.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Crytek | Артбук по игре Ryse: Son of Rome / Ryse: Son of Rome - Artb
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239164.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ United Front Games | Артбук по игре Sleeping Dogs / Sleeping Dogs: D
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239086.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Visceral Games | Артбук по игре Dante's Inferno / Dante's Inferno - 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239058.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lionhead Studios | Артбук по игре Fable III / The Art of Fable III (
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239003.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ FOW Interactive | Артбук по игре Subverse / Subverse: Prodigium's Mo
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238732.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Paul Davies | Артбук по игре Horizon Zero Dawn / The Art of Horizon 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238559.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sucker Punch Productions | Артбук по игре Ghost of Tsushima / The Ar
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238124.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Peter Bergting | Артбук художника Peter Bergting / The Art of Pet
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230855.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Marvel | Артбук художника Marko Djurdjevic / The Marvel Art of Ma
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230852.jpg" />
 </div>
 
 

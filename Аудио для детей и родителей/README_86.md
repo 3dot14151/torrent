@@ -1,3 +1,30 @@
+###  Публикация: 345788   (132507) от 03.12.2023
+
+Сельма Лагерлеф, Братья Гримм, Ганс Христиан Андерсен | Любимые герои. Искатели приключений (2007) [MP3, Михаил Ульянов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Любимые герои.
+Серия аудиокниг «Любимые герои» конечно, эти герои сказочные! Произведения, которые представлены на этой аудиокниге, объединены общей темой – это  сказки об искателях приключений знакомых нам с детства героев. В аудиокнигу вошли сказки: «Путешествие Нильса с дикими гусями», «Бременские музыканты», «Подвиги Синдбада-морехода», «Подвиги Геракла» (   Читать дальше...   )Жанр: Литература для детей, сказка, приключенияИздательство: Мост-В, Вимбо, Элитайл, СиДиКомПродолжительность: 03:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A01A51C718892C20FB4A591347481FA83DB41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 345780   (132498) от 03.12.2023
 
 Ш. Перро, Л. Толстой, Р. Киплинг, Дж. Харрис и  П. Ершов | Любимые герои. Усы, лапы, хвост (2007) [MP3, Наталья Варлей, Юрий Яковлев и др.]
@@ -6,7 +33,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132498.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ VA - Детская Discoтека (2012) [MP3|192 кб/с]<Детские пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132496.jpg" />
 </div>
 
 
@@ -70,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132483.jpg" />
 </div>
 
 
@@ -97,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132412.jpg" />
 </div>
 
 
@@ -124,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132248.jpg" />
 </div>
 
 
@@ -151,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132143.jpg" />
 </div>
 
 
@@ -179,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132139.jpg" />
 </div>
 
 
@@ -206,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131981.jpg" />
 </div>
 
 
@@ -234,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131979.jpg" />
 </div>
 
 
@@ -263,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131975.jpg" />
 </div>
 
 
@@ -290,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131971.jpg" />
 </div>
 
 
@@ -317,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131956.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ VA - Disneys Greatest Hits (3CD) (2005) [MP3|320 кб/с]<Soundtrack>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131954.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131951.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131949.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131945.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131589.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131382.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131309.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131295.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131123.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130761.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130736.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130703.jpg" />
 </div>
 
 
@@ -673,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130551.jpg" />
 </div>
 
 
@@ -687,35 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54BA29D93115B27D675DD2B46190A1D795CE31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524949   (130470) от 18.01.2022
-
-Артур Конан Дойл | Study in Scarlet / Этюд в багровых тонах (2008) [MP3, Joseph Samuel Bagley, Кирилл Петров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы изучаете английский язык или свободно на нём говорите, у вас есть замечательная возможность услышать на языке оригинала захватывающий рассказ доктора Ватсона о его первой встрече с Шерлоком Холмсом, а затем проверить своё понимание произведения, прослушав русский перевод.
-
-Текст неадаптирован.
-(   Читать дальше...   )Жанр: Зарубежная образовательная литература, Зарубежные детские книги, Иностранные языки, Учебная литератураПеревод: Евгения КайдаловаЯзык озвучки: русский, английскийПродолжительность: 08:10:04 (03:57:59+04:12:05)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F795406C25CA24D071421C417CECB4EE3A16CA39
 ```
 
 https://mybot314.ru/tekegram_catalog/

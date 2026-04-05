@@ -1,3 +1,55 @@
+###  Публикация: 1834300   (248565) от 03.11.2025
+
+Ксения Напольская | Вся анатомия за 6 часов. Биология ЕГЭ (2023) WEB-DL [RU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вебинарпод названием "Вся анатомия за 6 часов" — это популярный образовательный материал, который ведет преподаватель Ксения Напольская. Этот материал, представляет собой интенсивный разбор основных тем анатомии человека, необходимых для успешной сдачи Единого государственного экзамена по биологии.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255431C9008CD86A696CCCEE970D29D652753D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492787   (248341) от 06.05.2012
+
+О.Л. Голубева | Основы композиции [2004] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248341.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге системно изложены теоретические основы композиции, а также впервые предложена методика практического обучения ее основам. Издание содержит более 100 иллюстраций. Для учащихся средних и высших художественных учебных заведений, а также для всех, кто занимается творческой деятельностью в области изобразительного искусства.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD525E94BC6269F682F5973EF468341C4FCE1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492513   (248278) от 06.05.2012
 
 Малыш | Сивка-Бурка (1973) [Раритет] [DJVU]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248278.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248238.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247997.jpg" />
 </div>
 
 
@@ -91,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247972.jpg" />
 </div>
 
 
@@ -119,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247966.jpg" />
 </div>
 
 
@@ -147,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247956.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247947.jpg" />
 </div>
 
 
@@ -202,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247941.jpg" />
 </div>
 
 
@@ -229,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247846.jpg" />
 </div>
 
 
@@ -258,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246729.jpg" />
 </div>
 
 
@@ -284,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246694.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246598.jpg" />
 </div>
 
 
@@ -336,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246587.jpg" />
 </div>
 
 
@@ -364,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246532.jpg" />
 </div>
 
 
@@ -391,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246440.jpg" />
 </div>
 
 
@@ -419,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246400.jpg" />
 </div>
 
 
@@ -445,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246269.jpg" />
 </div>
 
 
@@ -471,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246206.jpg" />
 </div>
 
 
@@ -497,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246194.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246133.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246128.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246091.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246081.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246059.jpg" />
 </div>
 
 
@@ -639,62 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4361A32310E812B9A33D8E834E8D0CC8A00B339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447675   (246058) от 14.02.2021
-
-Станислав Зигуненко, Анастасия Мещерякова, Марина Собе-Панек | Вопросы и ответы. О Земле и космосе (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "О Земле и космосе" расскажет читателю о том, как устроена Вселенная: что такое космос, как его представляли в древности, какие существуют галактики, планеты и созвездия.
-
-После каждой главы книги идёт увлекательная космическая викторина и простой опыт или задание, которое ребёнок может выполнить самостоятельно. Это не только разбудит у ребёнка интерес (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFBB3C1E0C5761E03264E97AAE12712B006B918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447666   (245999) от 14.02.2021
-
-Вячеслав Ликсо | Для тех, кто хочет знать всё. О технике (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тебе интересно знать, кто придумал автомобиль? Ты не понимаешь, как летает самолет? Твое воображение поражают танки, грохочущие на параде, или плавно скользящий по волнам огромный круизный лайнер? Узнать все о машинах - от примитивных повозок до современных чудес техники - ты сможешь из этой необычной книги с красочным постером.
-
-На ее страницах представлены первые (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4C553758B0ACE7385D79FBE200AECC01E67081
 ```
 
 https://mybot314.ru/tekegram_catalog/

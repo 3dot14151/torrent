@@ -1,3 +1,63 @@
+###  Публикация: 682885   (629421) от 23.07.2013
+
+The Raven: Legacy of a Master Thief (Episode 1) (2013) [Multi] (1.0) License RELOADED
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629421.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Raven — Legacy of a Master Thief — это увлекательное криминальное приключение протяженностью в три эпизода от создателей незабываемой The Book of Unwritten Tales. Полный неожиданных сюжетных поворотов, этот квест погрузит игрока в запутанную историю, вобравшую в себя все самые лучшие черты детективных романов.
+
+Париж, 1960-й год. Таинственный вор по прозвищу Ворон держит в напряжении всю Европу. Ему удается осуществлять самые немыслимые преступления, оставаясь безнаказанным. Но и на такого умелого и изворотливого злодея находится свой охотник. Молодой сыщик Николя Легранд сумел поймать Ворона и посадить его за решетку.
+
+Спустя четыре года после этих событий, жизнь Лондона потрясает грандиозная кража. Из музея пропадает рубин «Глаз Сфинкса». На месте преступления детективы находят перо (такой символ оставлял и Ворон). Неужели у легендарного вора появился последователь? Теперь следствию предстоит ответить и на этот вопрос.
+
+В это же время в Цюрихе раздается звонок. Констебль Джейкоб Зеллнер пробирается к телефону через горы бумаг. Он даже не подозревает, что лежит в банковском хранилище, расположенном всего в нескольких сотнях метрах от полицейского участка. Когда он возьмет трубку, его жизнь ждут большие перемены...(   Читать дальше...   )Тип издания: ЛицензияРазработчик: KING ArtЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Английский / НемецкийЯзык субтитров: Английский / НемецкийЯзык интерфейса: Английский / Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6523E48155D86AABEF39693D663E13B1087CC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 348804   (629175) от 13.06.2011
+
+Dungeon Siege 3 [En] (L) 2011 | RELOADED
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_629175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая серия ролевых игр DUNGEON SIEGE, полюбившаяся миллионам поклонников жанра, обретает долгожданное продолжение. За разработку третьей части игры отвечает студия Obsidian Entertainment – творцы потрясающих фантастических вселенных Neverwinter Nights 2 и Star Wars: Knights of the Old Republic 2. Контроль над процессом находится в надежных руках создателя и вдохновителя серии Криса Тейлора. А за мировой релиз отвечает еще один гранд современной игровой индустрии – компания Square Enix!
+
+Игроков ожидают невероятные приключения в королевстве, погрязшем в хаосе и анархии. Вместе с отрядом уникальных героев вам предстоит совершить отчаянные подвиги, уничтожить бесчисленные орды чудовищ и вернуть жителям страны надежду на счастливое будущее. При этом предусмотрены не только одиночные странствия и приключения в мире, где сошлись в сражении острые клинки и могущественные заклинания, но и совместное прохождение игры по сети.Тип издания: ЛицензияРазработчик: Obsidian EntertainmentЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521151   (628321) от 10.07.2012
 
 S.T.A.L.K.E.R. Чистое Небо - Продолжение (RePack) [Ru] 2012 | R.G. Element Arts
@@ -6,7 +66,7 @@ S.T.A.L.K.E.R. Чистое Небо - Продолжение (RePack) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628321.jpg" />
 </div>
 
 
@@ -32,7 +92,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628035.jpg" />
 </div>
 
 
@@ -58,7 +118,7 @@ Outward (2019) [Ru/Multi] (1.0/upd1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627324.jpg" />
 </div>
 
 
@@ -84,7 +144,7 @@ Storm: Frontline Nation (L) [Multi5\-] 2011 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626875.jpg" />
 </div>
 
 
@@ -110,7 +170,7 @@ Oxenfree (2016) [Ru/En] (2.1.0F26) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625901.jpg" />
 </div>
 
 
@@ -136,7 +196,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504u1.4) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625321.jpg" />
 </div>
 
 
@@ -164,7 +224,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625058.jpg" />
 </div>
 
 
@@ -191,7 +251,7 @@ Dear Esther (RePack/1.0u5) [Ru/En] 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624697.jpg" />
 </div>
 
 
@@ -221,7 +281,7 @@ Dear Esther / Дорогая Эстер (RePack/1.0u5) [Ru/En] 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624527.jpg" />
 </div>
 
 
@@ -247,7 +307,7 @@ D4: Dark Dreams Don’t Die (2015) [Multi] (1.0) Repack R.G. Механики [S
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623082.jpg" />
 </div>
 
 
@@ -274,7 +334,7 @@ Firewatch (2016) [Ru/Multi] (1.06 а) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623000.jpg" />
 </div>
 
 
@@ -300,7 +360,7 @@ Air Conflicts: Secret Wars / Air Conflicts: Secret Wars. Асы двух вой�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622972.jpg" />
 </div>
 
 
@@ -326,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622642.jpg" />
 </div>
 
 
@@ -358,7 +418,7 @@ Hard Reset: Extended Edition + 2 DLC (Repack/1.51.0.0) [Ru] 2011 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622538.jpg" />
 </div>
 
 
@@ -387,7 +447,7 @@ Hard Reset + 2 DLC (Repack/1.51.0.0) [Ru] 2011 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622409.jpg" />
 </div>
 
 
@@ -414,7 +474,7 @@ Dear Esther / Дорогая Эстер (Steam-Rip) [Ru/En/Multi14] 2012 l R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622394.jpg" />
 </div>
 
 
@@ -444,7 +504,7 @@ The Elder Scrolls V: Skyrim Ultimate HD Edition 2013 [Ru/En] (Repack/1.6.89.0.6)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622093.jpg" />
 </div>
 
 
@@ -470,7 +530,7 @@ Endless Space (Repack/1.0.5) [En/Multi2] 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618177.jpg" />
 </div>
 
 
@@ -496,7 +556,7 @@ Deponia (RePack/1.1) [En] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616730.jpg" />
 </div>
 
 
@@ -522,7 +582,7 @@ Shank (RePack/1.0u3) [Ru] 2010 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616609.jpg" />
 </div>
 
 
@@ -548,7 +608,7 @@ Hard Reset. Extended Edition [Ru/En] (L/Steam-Rip/1.51.0.0) 2011 | R.G. Игро
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616332.jpg" />
 </div>
 
 
@@ -578,7 +638,7 @@ Memento Mori / Memento Mori: Помни о смерти [Ru] (L) 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616306.jpg" />
 </div>
 
 
@@ -604,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616190.jpg" />
 </div>
 
 
@@ -630,7 +690,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.312843) Repack R.G. Catalyst [Episode 1-3]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615531.jpg" />
 </div>
 
 
@@ -642,58 +702,6 @@ Life is Strange – эпизодическое приключение, собы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7513BD1ACCBE3D54EEF3A44D09EC1CCB86E91B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523085   (615097) от 17.07.2012
-
-Deponia (Repack) [En] 2012 | SEYTER
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deponia – point & click квест, главным героем которого является неприятный, злой и страдающий манией величия парень по имени Руфус, живущий на окраине небольшого поселка, расположенного в отдаленном уголке загрязненной планеты Депония. Он мечтает о лучшей жизни в одном из богатых и красивых городов, парящих над поверхностью планеты. Очередная неудавшаяся попытка запустить себя на орбиту приводит к тому, что на землю с небесного города падает девушка. Увидев шанс попасть в такое желанное место, Руфус решает вернуть девушку домой...(   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14ECB5D67D3CC24352217673489A5CD19988F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284035   (614716) от 15.04.2019
-
-ASTRONEER (2019) [Ru/Multi] (1.0.15) Repack R.G. Catalyst
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте и меняйте отдаленные планеты! Действие Astroneer разворачивается в 25-м веке, во время космической золотой лихорадки. Игрокам придется исследовать далекие планеты, рискуя жизнями в надежде разбогатеть.Тип издания: RepackРазработчик: System Era SoftworksЖанр: Adventure (Space), 3D, 3rd Person, IndieЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D19CAD5383647C0C0FAF4A0C73772D5D7C39E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

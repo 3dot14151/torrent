@@ -1,3 +1,119 @@
+###  Публикация: 1047465   (549324) от 30.08.2016
+
+VA - Zen Experience, Vol. 1 (Finest Sound of Relaxation) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibiza Sunset - Morninglite (5:35)
+02. Northbound - Driftwood (4:06)
+03. Buddha - Zen Awakening (2:05)
+04. Marga Sol - Free Your Mind (5:18)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5939F7F2FA08A3719F0D132FF5C3EE4E2CDA907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047653   (549323) от 30.08.2016
+
+LX Bliss - Ambient 01 (2003) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Soundscape, Tribal, Psybient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tol Eressea (05:48)
+02. Turnpoint (06:24)
+03. A Landscape (06:18)
+04. Tension/Relief (06:41)(   Читать дальше...   )Жанр: Ambient, Soundscape, Tribal, PsybientПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0642021545E9A91BF6D0BE2A5AF9C582C42E8AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310089   (548879) от 22.06.2019
+
+Skipsapiens - Discography 2 Releases (2001-2005) U-Cover, Mutek_Rec [FLAC|Lossless|tracks+.cue] <IDM>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstracciones En Reversa (04:03)
+ 02. Rastafari Druids (04:54)
+ 03. Dilatacion Neuronal (04:23)
+ 04. Nacimiento De R2D2 (06:32)(   Читать дальше...   )Тип издания: CDЖанр: IDMПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1746B2EC96302EEAFA9FB697C1E9F99F87F64865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310159   (548878) от 22.06.2019
+
+CJ Burnett - Moonlit City (2017) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave, Outrun, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West Side Drive (3:19)
+02. Moonlit City (4:55)
+03. Race Through Time (4:45)
+04. Twilight Dreamer (4:04)(   Читать дальше...   )Жанр: Retrowave, Synthwave, Outrun, DreamwaveПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B122DF05744F3A30B9E73A2012F37CF129DF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310012   (548841) от 22.06.2019
 
 VA - Airbeat One Dance Festival (2019) [MP3|320 Kbps] <House, Trance, Electronic, Dance>
@@ -6,7 +122,7 @@ VA - Airbeat One Dance Festival (2019) [MP3|320 Kbps] <House, Trance, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548841.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Onmutu Mechanicks - Nocturne (2010) Echocord [FLAC|Lossless|tracks+.cue] <Dub Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548835.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Top Dance Hits 2018 [MP3|320 Kbps] <Progressive House, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548832.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ All India Radio - Subspace (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548829.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Selections by Alexander Descroix (2016) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548502.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Heaven and Paradise Vol. 3 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548496.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Paris Lounge (2016) [MP3|320 Kbps] <Chillout,Deep House>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548495.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Heaven and Paradise Vol. 4 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548434.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Heaven and Paradise Vol. 2 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548433.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - The Sweet Lounge Vol.1 (Sea Lounge) (2016) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548432.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Heaven and Paradise Vol. 1 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548431.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Naked Chilling Vol.1 (Pure Summer Chillout Tracks) (2016) [MP3|320 Kbps] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548429.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Ibiza by Night Lounge Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548428.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548423.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Chill Out Bay (2016) [MP3|320 Kbps] <Chillout, Lounge,Deep House>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548415.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - 100 Sexy Chill-Out and Lounge Tracks (2016) [MP3|320 Kbps] <Balearic, Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548347.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Electronica Top Spring 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547485.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Top Zebra Spring (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547483.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Tranquilidad, Chill Out Anniversary (2016) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547482.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Fresh Moods Presents Ambience, Vol. 1 (2014) [MP3|320 Kbps] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547472.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Fresh Moods Presents Ambience, Vol. 2 (2015) [MP3|320 Kbps] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547470.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Fresh Moods Presents Ambience, Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547469.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Fresh Moods Presents Ambience, Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F019747BEB581996CFB69548FC11C49C0A97E627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048102   (547415) от 01.09.2016
-
-VA - Chill House Del Mar, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boogeyman - I've Got This Secret [09:10]
-02. Chirimoya - Srewdriver [06:11]
-03. Mario Chris - Sun Comes Up [05:19]
-04. Dub Mars - Morning Sessions [05:22](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812AA8FFC1275EBD44CD802D6144F7873B53F206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048277   (547409) от 01.09.2016
-
-VA - Pure Ibiza - The Ultimate Deep House & Nu Disco Collection (2016) [MP3|320 Kbps] <Deep House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Exx - Touch Me (5:55)
-02. Selda - The Rain (Zenker Club Mix) (4:46)
-03. Zito - Amazing (Zito's HU On The Rocks Mix) (6:20)
-04. Disco Dice - NYC (Mann & Meer Remix) (5:42)(   Читать дальше...   )Производство: Attractive MusicЖанр: Deep House, Nu DiscoПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4CC6B87098BD0980A553006A35A051D92B06DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048283   (547318) от 01.09.2016
-
-Armin van Buuren - Old Skool (2016) Mini Album [MP3|320 Kbps] <Trance, Progressive, Club>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominator (With Human Resource) (2:30)
-02. The Ultimate Seduction (With The Ultimate Seduction) (2:14)
-03. Pull Over (With Speedy J) (2:26)
-04. Quadrophonia (With Quadrophonia) (3:20)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: Trance, Progressive, ClubПродолжительность: 00:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9772F76B29BEBBDF14F1AC0B5F22E482257A39A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916447   (547273) от 01.09.2016
-
-Random Walkers - No.Real.$.K. (2015) [FLAC|Lossless|WEB-DL]<Techno, Tribal, Industrial, Minimal, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transmutation (07:12)
- 02. Ariadnes Thread (07:10)
- 03. The Sleep Of Reason (06:54)
- 04. Distant Ophelia (06:36)(   Читать дальше...   )Жанр: Techno, Tribal, Industrial, Minimal, ExperimentalПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E143324FD4EC0A4D4300D79528724BFB6CD4DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

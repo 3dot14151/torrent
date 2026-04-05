@@ -6,7 +6,7 @@ Smurfs (RePack) [En] 1996 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254055.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sonic the Hedgehog 4: Episode 2 [Multi5/-] (RePack) 2012 | R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253580.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sonic the Hedgehog 4: Episode 2 (P) [Multi5/-] 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253522.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252478.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252469.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251549.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251060.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20625643) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250932.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250889.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Alien Shooter 2 - The Legend (2020) [Ru/En] (1.3.2) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250600.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248676.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248649.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Street Fighter X Tekken [Ru] (RePack) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248118.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247750.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247472.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Crimsonland (2014) [Ru/Multi] (1.3.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247360.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Simulacrum (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247307.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247045.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246714.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246262.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241091.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Glover (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237638.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236099.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235258.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233373.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Alekon (2021) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230723.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 938065   (483175) от 17.09.2015
+
+Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4753.1001 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F981F3AE197389EF22CD3AC63D63F4365C6DB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056002   (482959) от 24.09.2016
+
+Hotspot Shield Elite 6.20.6 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hotspot Shield VPN – самое полное решение проблем безопасности в Интернет. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC873D40CB360E4594A55D964C04A91186907B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034819   (482796) от 24.09.2016
 
 Мистер Робот / Mr. Robot (2016) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-12 из 12) BaibaKo
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482796.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_482720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_482720.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482521.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Star Wolves 3: Civil War / Звездные волки 2: Гражданская
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482290.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Darksiders 2 Death Lives Limited Edition [Ru/En] (L/u3) 2012 | SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482140.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ TeamGroup представила первый в мире M.2 SSD с испар�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_482061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_482061.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ SYSTweak Advanced System Protector 2.1.1000.9885 [Multi(Rus)]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482031.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ Sniper Elite V2 [Ru] (RePack/2 DLC) 2012 | TimkaCool
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482023.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ Sid Meier's Civilization V: Золотое издание [Ru] (RePack/1.0.1.674
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482011.jpg" />
 </div>
 
 
@@ -255,7 +307,7 @@ Acronis Disk Director Home 11.0.2343 Final RePack by KpoJIuK [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482008.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ Sudden Strike / Противостояние Антология [Ru] (L) 1997 - 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482004.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481457.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ AVG Internet Security 2016 16.0.7134 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481145.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480682.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ Sublime Text 3 Build 3126 Beta + Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480681.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480568.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480479.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480215.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480051.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ Microsoft Office 2007 Enterprise SP3 by OziJ [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479889.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_479707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_479707.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479524.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ Win 8 PE x86x64 Universal by Xemom1 (13.09.15) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479245.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479243.jpg" />
 </div>
 
 
@@ -636,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:324F067126069141C8FAFF8FCDA37E9EF5F7BB44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871392   (479094) от 19.09.2015
-
-Стар против сил зла  / Star vs. The Forces of Evil (2015) WEB-DL [1080p] (Сезон 1, серии 1-11 из 13) [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479094.jpg" />
-</div>
-
-
-###  Подробнее
-
-После бесчисленных драк с опасными монстрами в своём родном измерении, Стар Баттерфляй прибывает на Землю в городок Эхо Крик, где живёт с семьёй Диез. Но и здесь её не ждет мирная жизнь. Вместе с новым другом Марко Диезом она продолжает сражаться с силами зла по всей Вселенной (и в школе), чтобы защитить свой невероятно мощный волшебный жезл, которым, впрочем, она (   Читать дальше...   )Производство: США, Disney XDЖанр: Мультфильм, комедия, приключенияРежиссер: Майкл Маллен, Дэвид ВассонПерсонажи: Иден Шер - Star Butterfly, Адам МакАртур - Marco Diaz, Дженни Слейт - Flying Princess Pony Head, Алан Тьюдик - Ludo и другие.Перевод: Любительский многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: ~ 00:23:00 каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DD0AB6508BA6DB2CD6C78104F3D66644AA1CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938681   (479093) от 19.09.2015
-
-The Vanishing of Ethan Carter Redux (2014) [Ru/Multi] (1.0/upd2) Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479093.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Vanishing of Ethan Carter это мистическая приключенческая игра от первого лица. Никаких драк и взрывов, только изучение и исследование, только поиск истины. Вы будете играть за детектива Пола Просперо, который получил странное письмо от Итена Картера. Подозревая, что мальчуган находится в смертельной опасности, Пол приезжает к нему домойТип издания: RepackРазработчик: The AstronautsЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843CCA7BD0B7F637E93C1849DE891EEF4462EBA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

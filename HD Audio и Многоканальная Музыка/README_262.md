@@ -1,32 +1,3 @@
-###  Публикация: 1817835   (2900) от 13.09.2025
-
-Fargo - Live In '25 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live) (02:03)
- 02. Rain Of Champagne (Live) (03:19)
- 03. Gimme That Bone (Live) (03:30)
- 04. Leave It (Live) (03:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB69D241D361CEB6D08DD367129EF9C2045F8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818030   (2758) от 14.09.2025
 
 I See Stars - The Wheel (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative-Metal, Electronic>
@@ -35,7 +6,7 @@ I See Stars - The Wheel (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2758.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Not Enough Space - Weaponize Your Rage (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2757.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Crucible - Hail To The Force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Speed M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2752.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Speed Queen - ... With a Bang! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2746.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Nicolas Cage Fighter - I Watched You Burn (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2734.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Shame - Cutthroat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Post-Punk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2732.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Starset - Silos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Metal, A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2731.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Nevertel - Start Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2730.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Demon Hunter - Studio Albums (13 releases) (2002-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2667.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2645.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2609.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Tonix - Santo Domingo (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2608.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Taetre - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2606.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Vargas Blues Band - Down Under Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2600.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Led Zeppelin - Live EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bluse Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2490.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2469.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ The Rusties Blues Band - disCOVERing the White Blues (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2467.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Circus of Rock - Hellfire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2461.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2460.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2455.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2451.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Igorrr - Amen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Avantgarde Metal, Br
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2322.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Year Of The Goat - Trivia Goddess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2303.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Modeselektor - DJ-Kicks: Modeselektor (2025) 2CD [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2296.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Parcels - Loved (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop, Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2290.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ Parcels - Loved (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6198FF0B2DA8CB12FE0078EE5346F46F618BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818736   (2145) от 18.09.2025
+
+Exelerate - Hell For The Helpless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Breach [00:02:45]
+02. The Madness [00:03:19]
+03. The Summoning [00:06:07]
+04. Headfirst Into The Void [00:04:27](   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581420F3E7B98A726CF1029BC904864F857D9E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

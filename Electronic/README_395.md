@@ -1,3 +1,119 @@
+###  Публикация: 1617540   (250279) от 07.03.2023
+
+Cosmic Gate - MOSAIIK Chapter Two (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate with Diana Miro - Hear Me Out (04:42)
+02. Cosmic Gate with Nathan Nicholson - Follow You Anywhere (04:06)
+03. Cosmic Gate with Gid Sedgwick - Emotions Of Colour (04:28)
+04. Cosmic Gate with Nathan Nicholson - Just The Beginning (04:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28FF85108793F532748196A5683D9636A7E40C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617223   (250272) от 07.03.2023
+
+Intent:Outtake - Der Stille Tod (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, TBM, Futurepop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Storm [00:05:34]
+02. WTTNA [00:06:05]
+03. Gib nicht auf [00:05:55]
+04. Gott:innen (Gott:außen Remix by Centhron) [00:03:25](   Читать дальше...   )Жанр: Dark Electro, TBM, FuturepopПродолжительность: 2 CD, 01:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFFBC9E6C36F724EBC7AAF2E817D207E3F219B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618004   (250171) от 09.03.2023
+
+VA - Beautiful Afternoon: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Sleepy Eyes (Original Mix) (5:21)
+02. Michael E - Hands on Me (Original Mix) (4:38)
+03. Martin Hiska - Circles (5:35)
+04. Lounge Groove Avenue - Just Fine (4:07)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB37629A7BC8CF7C2378D35DB8E26AFE8CB84C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618430   (249935) от 12.03.2023
+
+Заговор - Формула 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <post-punk, darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Голд [00:03:18]
+02. Таблетка [00:02:39]
+03. Надоело быть приятным [00:03:18]
+04. Подруга [00:02:54](   Читать дальше...   )Жанр: post-punk, darkwaveПродолжительность: 00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE1152DA86D72B6B5F2041C7DACB07A1706B210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618375   (249918) от 12.03.2023
 
 VA - Piano Beach Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Piano>
@@ -6,7 +122,7 @@ VA - Piano Beach Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249918.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Hania Rani - On Giacometti (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249903.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Fever Ray - Radical Romantics (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ex
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249879.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Miami (2023) [MP3|320 Kbps] <Tech House, Club House, Techno, Electronica>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249784.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Discoid Clubbing Vol. 3 (2023) [MP3|320 Kbps] <Funky House, Club House, Ind
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249782.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - UV 250 (Mixed by Paul Thomas) (2023) [MP3|320 Kbps] <House, Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249678.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Uplifting Only Top 15 March 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249665.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Space Odyssey - Trip One: New Year's Voyage (2016) [OGG Vorbis|480 Kbps] <E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249628.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ M83 - Fantasy (2023) [FLAC|Lossless|WEB-DL|tracks] <electronic pop, synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249593.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Vocal Trance Collection (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249546.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ M83 - Fantasy (2023) [MP3|320 Kbps] <electronic-pop, synth-pop, Indie>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249507.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Eguana - Night Ambient (2023) [MP3|320 Kbps] <Electronic, Downtempo>
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249468.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Schiller - Tag Und Nacht (2005) [FLAC|Lossless|tracks + .cue]<Trance, Downtempo,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249398.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Space Odyssey - Trip Three: New Year’s Voyage 2018 (2017) 2 CD [OGG Vorbi
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249381.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Balance 021: Nic Fanciulli (2012) [MP3|~245 кб/с (V0)]<Deep House Tech H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249170.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Forthcoming Fire - 10 albums (1991-2010) [mp3|160-320 kbps] <Darkwave, Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249156.jpg" />
 </div>
 
 
@@ -475,7 +591,7 @@ VA - Ibiza Winter Island 2026 (The Chill Out Edition) (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248594.jpg" />
 </div>
 
 
@@ -504,7 +620,7 @@ Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248486.jpg" />
 </div>
 
 
@@ -539,7 +655,7 @@ VA - Sunset Del Mar Vol.8 Finest In ibiza Chill (2011) [MP3|320 кб/с]<Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248450.jpg" />
 </div>
 
 
@@ -574,7 +690,7 @@ VA - Best Of Deep House (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248443.jpg" />
 </div>
 
 
@@ -609,7 +725,7 @@ Archon Satani - 8 albums (1991-2002) [mp3|192-320 kbps] <Dark Ambient, Ritual Am
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247980.jpg" />
 </div>
 
 
@@ -642,7 +758,7 @@ Eguana - Silent Pulsar (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247785.jpg" />
 </div>
 
 
@@ -656,122 +772,6 @@ Eguana - Silent Pulsar (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FCA7C9B0835C03F863B48FB78CF8D04C377EC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 113254   (247694) от 02.11.2025
-
-Deadушки - ИСКУССТВО КАМЕННЫХ СТАТУЙ (1996) [FLAC|Lossless|tracks] <drum'n'bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Искусство каменных статуй	5:26
-02.	Парашютист	4:27
-03.	Солги мне	5:42
-04.	Шумела - гремела	4:33(   Читать дальше...   )Жанр: drum'n'bass
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB221B7A1DE04868311B936C52A8DC9FAA08AC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110916   (247548) от 16.06.2023
-
-DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты Не Со Мной (при уч. Иракли,Гарик DMC B,Батишта)
-02. Счастье Есть 2008
-03. Forever Dancing (при уч. А. Чумакова)
-04. I Want You (при уч. Audio DJs(Android,M.Pravda)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7CCBA4EFCA0DF0000AE44AC12BFA272330167F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 16500   (247534) от 17.06.2023
-
-DJ Грув - Последние Киноремиксы (2007)
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вокзал прощания из к/ф "17 мгновений весны"
-02 - Камыш 2007
-03 - Прелюдия из к/ф "9 рота"
-04 - Вальс из к/ф "Мой ласковый и нежный зверь"(   Читать дальше...   )Жанр: electronic
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A99B58489A1BEE274BFC71173C6EE5AC85ED57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 424923   (247304) от 28.06.2023
-
-Scooter - Greatest Hits (2011) [MP3|320 kbps] <Progressive, Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247304.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 :Жанр: Progressive/TechnoПродолжительность: 01:18:50
-
- 01. Weekend! [03:37]
- 02. The Night [03:26](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C81FB568080DF2E87A71DD05F5442D369820A13
 ```
 
 https://mybot314.ru/tekegram_catalog/

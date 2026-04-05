@@ -6,7 +6,7 @@ Pixelmator Classic 3.9.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787856.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JPEGmini Pro 2.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787504.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Infinite Color Panel 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787442.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ DxO PhotoLab 4 ELITE Edition 4.3.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787125.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adobe InDesign CC 2017.1 (12.1) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786013.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Illustrator CC2017.1 (21.1) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785999.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Red Giant Knoll Light Factory for Photoshop CS5 - CC 2017 (в составе п�
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785847.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ CyberLink PhotoDirector Ultra 10.0.2302 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785371.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ LRTimelapse Pro 5.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784308.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ LensFlare Studio 6.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780822.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Photo Retouch Movavi 1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779930.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Alien Skin Software Photo Bundle Collection (Update 05.05.2016) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777048.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ iSmartPhoto 1.7.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776114.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Corel ParticleShop 1.2.566 and Brush Pack v1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774698.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Kolor Panotour Pro 2.5.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772284.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771084.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Exposure Software Plug-ins Bundle 2020 update 25.06.2020 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769037.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ PixelStyle Photo 3.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768004.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ iCalamus 2.15 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768000.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Adobe InDesign CC 2018.1 v13.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767153.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Adobe Illustrator CC2018.1 v22.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767147.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ uMark Photo Watermarker 6.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766866.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Super PhotoCut Pro 2.6.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766280.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Orion Label And Print Studio 2.60 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765443.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ DxO Photo Software Suite (02.07.2020) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765185.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Xee 3.5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758834.jpg" />
 </div>
 
 

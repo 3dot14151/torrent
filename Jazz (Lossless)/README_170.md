@@ -6,7 +6,7 @@ Urbie Green - East Coast Jazz, Vol.6 (1955) 2001, Bethlehem [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484209.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Gil Evans Orchestra & Sting - In Perugia (1987) 2CD, 2006, Jazz Door [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484164.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Earl Hines - Lionel Hampton Presents: Earl Fatha Hines - St. Louis Blues (1977) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484067.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bill Evans - Re: Person I Knew (1974) /2012, Universal/[FLAC|tracks+.cue]<Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484066.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jason Marsalis - Music Update (2008) ELM Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483694.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ George Cables Trio - Skylark (1995) 1996, SteepleChase [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483692.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bobby Hutcherson - Wise One (2009) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483125.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bill Evans - 3 Essential Albums (1963 - 1967) 3CD, Universal, 2018 [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482840.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ The Uptown String Quartet - Just Wait A Minute! (1992) Bluemoon [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482448.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Jheena Lodwick - 4 альбома (2002 - 2007) [APE/FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482415.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Ray Charles & Count Basie Orchestra - Ray Sings Basie Swings (2006) Universal [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482203.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Duke Ellington - Black Beauty (1924-1954) 2CD, 2005, Le Chant Du Monde[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482137.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Natalie Cole - As Time Goes By (Single, 1993) /Elektra/[FLAC|tracks+.cue]<Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482093.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Andrea Motis - Emotional Dance (2017) Universal [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482085.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Optimystica Orchestra - Иду Налегке (2010) EP [FLAC|Lossless|Web-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481887.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Optimystica Orchestra - Полубоги Вина (2005) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481880.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Kid Ory's Creole Jazz Band - Tailgate! (1944, 1945) 2007, Membran Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481496.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Charlie Biddle - In Good Company (1996) Justin Time [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481347.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Michel Petrucciani - Best Of - 3CD (2009) [FLAC|Lossless]<Post-Bop, Piano Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480622.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Art Blakey & The Jazz Messengers - feat. Wynton Marsalis (1980) 1988, Fortune [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480543.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Ariel Pocock - Touchstone (2015) Justin Time Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480232.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Jaki Byard - Freedom Together! (1966) /1997, OJC/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480106.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Phillip Bent - The Pressure (1993) /GRP Records/[FLAC|image+.cue]<Smooth, Pop-Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480092.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Bill Carrothers - Home Row (2008) Pirouet [FLAC|Lossless|image + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480085.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Gil Evans - Live At The Public Theater New York 1980, Vol. I and II (1994) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480081.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Noemi Nuti - Nice to Meet You (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480007.jpg" />
 </div>
 
 

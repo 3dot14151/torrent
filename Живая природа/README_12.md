@@ -1,3 +1,29 @@
+###  Публикация: 1390180   (783394) от 14.06.2020
+
+Пела кукушка (1980) TVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм прозвучал как страстная исповедь об охране природы. Причину гибели природы режиссёр видит в человеке.Телекомпания: СССР, КиргизфильмЖанр: Документальный, ПриродаПеревод: Не требуется (фильм без диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C06BB8BDD76FD16765FE9632D615515298A0B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199989   (782343) от 11.05.2010
 
 Страсти по насекомым 2. Насекомые на продажу / Insectia 2. Insects For Sale (2000) HDTVRip (серия 9 из 13)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782343.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781837.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779917.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_779371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_779371.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779367.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778522.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777043.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776354.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774728.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774450.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774436.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771353.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770557.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ NG. Таинственные гориллы / Mystery Gorilla (2009) HDTVRip [H.
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770339.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769187.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768465.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768402.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768301.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767680.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767039.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766855.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ IMAX: Рождение океана (Происхождение океана) / 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766806.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765651.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764355.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764306.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5362CAF5D777CFC83196EB70675F14397149778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277413   (764045) от 31.01.2019
-
-Я и моя собака: на пределе возможностей / Me & My Dog: The Ultimate Contest (2017) HDTVRip [H.264/1080p-LQ] (серии 1-4) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владельцам предстоит провести собак через несколько ворот, используя три способа общения. Некоторым парам еще надо многому научиться, а другим нравится бегать вместе. Кто победит в первом этапе?Производство: Великобритания, Wall to Wall Media, Ten66 Television LtdЖанр: Документальный, собаки, дрессировкаРежиссер: Анна Уильямс, Доминик ШерманПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E5CE94D2E4C056DFBEE2E4E6FEB0FB40C446F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

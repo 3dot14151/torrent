@@ -1,3 +1,56 @@
+###  Публикация: 425580   (73944) от 03.02.2012
+
+Imperium Galactica [Ru] (RePack) 1997 | Pilotus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попытка скрестить жанр X4 с приключенческой игрой. Вместо случайных событий вы получаете стройную сюжетную линию, повествующую о развитии человеческой цивилизации в космосе. Но за это приходится платить свободой действий.Тип издания: RePackРазработчик: Digital RealityЖанр: Космическая стратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA711EB470BED667773F9CE73531EF43559798DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446079   (73934) от 03.02.2012
+
+Хорошие новости - «интеллектуальной собственности» не существует
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_73934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закрытие ресурса EX.UA за нарушение прав «интеллектуальной собственности» взволновало интернет-общественность до такой степени, что эта общественность принялась атаковать правительственные сайты и даже преуспела в этом занятии.
+Оставляя в стороне весьма показательную безумность этой реакции (думаю, правительство только обрадовалось, избавившись от сайтов), отметим, что причина такого поведения очевидна — интернет-общественность активно тырила на этом ресурсе разного рода приятные глазу продукты и это занятие превратилось у нее в добрую привычку. Государство, тоже широко известное своей клептоманией, обидело интернет-общественность, закрыв шаровой ресурс да еще и под соусом защиты прав собственности, что, конечно, выглядит особо цинично, учитывая привычки государства. Общественность возмутилась и под лозунгами «значит нам нельзя а вам можно?» кинулась атаковать вражеские сайты.Оставим, опять-таки, в стороне любимую автором тему украинского «общественного договора», который в полной мере явил свою суть в этом конфликте, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 443711   (73144) от 30.01.2012
 
 Заражение / Contagion (2011) BDRip [H.264] [PR]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73144.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ NNM-Club в социальных сетях - присоединяйтесь!
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73143.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65802.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64451.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63880.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63779.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Gumroad, Pierrick Picaut | Alive! Animation course in Blender 2.9 [Chapters 1-9]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63770.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63665.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63572.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63464.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63460.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ CorelDRAW Graphics Suite 2024 25.0.0.230 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63454.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ NASA показало послание к внеземному разуму, к�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63361.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63254.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63249.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63157.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4170]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63148.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ XCOM 2: Long War of the Chosen (2021) [Ru/Multi] (1.1.0 HF3) Repack/Mod firstlas
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63142.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63141.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ Microsoft Office 2021 for Mac LTSC v.16.83 VL [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63139.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63039.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63010.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62824.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62726.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ Contra: Operation Galuga, последняя часть легендарной �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF48D58250D995F1B40288FB0CC4ABF593C85493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705985   (62722) от 17.03.2024
-
-MInstAll v.10.03.2024 By Andreyonohov (Unpacked) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами обновленный 10 Марта 2024 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B451CF26B37908BB1C8A138AFA2A18E026E75931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707818   (62624) от 18.03.2024
-
-Властелин колец: Братство кольца / The Lord of the Rings: The Fellowship of the Ring (2001) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Extended Edition] [hand made Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказания о Средиземье - это хроника Великой войны за Кольцо, войны, длившейся не одну тысячу лет. Тот, кто владел Кольцом, получал власть над всеми живыми тварями, но был обязан служить злу.
-Тихая деревня, где живут хоббиты. Волшебник Гэндальф, придя на 111-й день рождения к своему старому другу Бильбо Бэггинсу, начинает вести разговор о кольце, которое Бильбо нашел (   Читать дальше...   )Производство: США, Новая Зеландия / New Line Cinema, WingNut FilmsЖанр: фэнтези, приключения, драма, боевикРежиссер: Питер ДжексонАктеры: Элайджа Вуд, Иэн Маккеллен, Шон Эстин, Вигго Мортенсен, Билли Бойд, Доминик Монахэн, Джон Рис-Дэвис, Орландо Блум, Шон Бин, Иэн ХолмПеревод: Дублированный (Мосфильм + "Позитив" на расширенные сцены)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, forced)Продолжительность: 03:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C809D58481E54D803EC1DA7E2F86872821B1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

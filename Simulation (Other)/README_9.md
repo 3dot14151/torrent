@@ -1,3 +1,29 @@
+###  Публикация: 1550471   (591950) от 11.05.2022
+
+Ravenous Devils (2022) [Ru/Multi] (1.0.1) License GOG [18+]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заправляйте ателье и торговлей блюдами из человечины в городе, где преступность, коррупция и бедность - обычное явление. Персиваль и Хилдред только что переехали сюда, преследуя одну-единственную цель: как можно быстрее разбогатеть.Тип издания: LicenseРазработчик: Bad Vices GamesЖанр: Симулятор, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, КитайскийЯзык интерфейса: Русский, Английский, Итальянский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF06FF6679ACCEC6E22296FA9DE23C4E42366E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269231   (582009) от 14.05.2019
 
 Frostpunk (2018) [Ru/Multi] (1.3.3) Repack R.G. Catalyst
@@ -6,7 +32,7 @@ Frostpunk (2018) [Ru/Multi] (1.3.3) Repack R.G. Catalyst
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582009.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Farm Expert 2016 (2015) [Ru/Multi] (2.26/dlc) License POSTMORTEM [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577703.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.7/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577682.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Constructor Plus (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561276.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Mars or Die! (2018) [Ru/Multi] (1.1.1) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556484.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Constructor Plus (2019) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556314.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Farm Expert 2017 (2016) [En/Multi] (1.105) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546205.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Rat Simulator (2017) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534744.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ ZUSI 3 - Aerosoft Edition (2019) [En/De] (3.3.0.1) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532091.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Survive on Raft (2019) [Ru/En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527876.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Deltaplan Simulator (2017) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525125.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525109.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.6.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524158.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Attrition Nuclear Domination (2015) [En] (5.0.2.721524) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523115.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517822.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515814.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515761.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Ship Simulator Extremes [Eng] (L) 2010
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511648.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502920.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496173.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Streamer Life Simulator (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488968.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3406/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480578.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Mini Maker: Make A Thing (2022) [Multi] (1.0) License TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478332.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Digital Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475444.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.00.3598/1/dlc) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475427.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Graviteam Tactics: Миус-Фронт – тактический симулят
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4275FECCE6896F11B493E4B868E5F2BA2A113046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245197   (473662) от 05.09.2018
-
-Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Digital Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Train Sim World — железнодорожный симулятор от британской студии Dovetail Games, создателей Train Simulator. Игра использует игровой движок Unreal Engine 4 и собственную технологию реализации динамики подвижного состава Dovetail Games SimuGraph.Тип издания: RepackРазработчик: Dovetail GamesЖанр: Simulator, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD2B3B6C2BC5965E8F70AEFE1B301E0FF4C97F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

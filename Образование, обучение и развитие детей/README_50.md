@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443892.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442932.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441005.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438550.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438345.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437579.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437354.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436721.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436401.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435864.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435409.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434937.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433971.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433698.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432465.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431827.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431740.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431728.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430609.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429715.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429601.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429490.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428475.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428169.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428040.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427657.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1353372   (991871) от 18.01.2020
+
+Chromatics - Closer to Grey (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie Pop, Dreampop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound Of Silence (03:16)
+02. You're No Good (04:52)
+03. Closer To Grey (02:45)
+04. Twist The Knife (03:28)(   Читать дальше...   )Жанр: Synthpop, Indie Pop, DreampopПродолжительность: 02:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E6EFD74C2F4928B2F495D9DBA4B6FC3E682CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353411   (991814) от 18.01.2020
+
+Gioli & Assia - Night Experience (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry Blood (The Intro) (3:35)
+ 02. Love Me (3:23)
+ 03. Sweet All (3:38)
+ 04. Underwater (4:12)(   Читать дальше...   )Жанр: EDM, Progressive House, Tech HouseПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263FDA140CAB2E561C24793D738D6D5A29DEC0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609985   (991274) от 28.01.2013
 
 Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Deep House>
@@ -6,7 +64,7 @@ Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991274.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ Mario Basanov - Journey (2012) [FLAC|Lossless]<House, Deep House, Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991146.jpg" />
 </div>
 
 
@@ -67,7 +125,7 @@ VA - Ultimate Deep House Selection (The Grand Rhythms) (2020) [MP3|320 Kbps] <Da
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990742.jpg" />
 </div>
 
 
@@ -96,7 +154,7 @@ James Holden - Discography 24 Releases (2000-2019) [FLAC|Lossless|tracks+.cue, t
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990661.jpg" />
 </div>
 
 
@@ -125,7 +183,7 @@ VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990578.jpg" />
 </div>
 
 
@@ -160,7 +218,7 @@ VA - Zirkus Zirkus Vol.1: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<House
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990511.jpg" />
 </div>
 
 
@@ -195,7 +253,7 @@ Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990498.jpg" />
 </div>
 
 
@@ -222,7 +280,7 @@ Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990447.jpg" />
 </div>
 
 
@@ -251,7 +309,7 @@ Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990378.jpg" />
 </div>
 
 
@@ -278,7 +336,7 @@ Martin Roth - Beautiful Life / Make Love To Me Baby (2012) [FLAC|Lossless]<Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990323.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ Space Project - The Return Of Space Raiders (2008) [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989054.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ V.A. - Vintage Cafe 7 - Covered In Gold (4CD) (2012) [FLAC (tracks+cue)|Lossless
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987973.jpg" />
 </div>
 
 
@@ -369,7 +427,7 @@ Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|im
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987881.jpg" />
 </div>
 
 
@@ -398,7 +456,7 @@ VA - Winter Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987582.jpg" />
 </div>
 
 
@@ -427,7 +485,7 @@ VA - Keep Movin: Late Nite House Grooves Vol.1 (2013) [MP3|320 кб/с]<Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987263.jpg" />
 </div>
 
 
@@ -462,7 +520,7 @@ VA - Cafe Bossa Brazil Vol. 2 - Bossa Nova Lounge Compilation (2012) [MP3|320 к
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987104.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987044.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Emancipator - Dusk to Dawn (2013) [MP3|320 кб/с]<Downtempo, Trip-Hop>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987000.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ Cyanotic + Side Projects (CONFORMCO, RoboHop, Vampyre Anvil) - Discography 31 Re
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986979.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986975.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ Pet Shop Boys - Hotspot (2020) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986934.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ VA - Ibiza Spinning House Hits 2020 Session [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986171.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ VA - Chill And Lounge Edition Love Generation Lounge (2020) [MP3|320 Kbps] <Bale
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986158.jpg" />
 </div>
 
 
@@ -706,7 +764,7 @@ VA - Back to Bed: Deep Sounds for Lazy Sundays No.1 (2012) [MP3|320 кб/с]<Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986147.jpg" />
 </div>
 
 
@@ -726,70 +784,6 @@ VA - Back to Bed: Deep Sounds for Lazy Sundays No.1 (2012) [MP3|320 кб/с]<Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA5E02F77B326A7691C89D3352CA74927463C5B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354914   (986041) от 24.01.2020
-
-VA - Drizzly Music presents: 100% Hotel Deluxe Music Series (The Best In Lounge And Chill Out, Essential Luxury Hits) - 8 Releases (2012-2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambien ...
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986041.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - 100% Hotel Deluxe Music
-2013 - 100% Hotel Deluxe Music Vol.2 (The Best In Lounge And Chill Out, Essential Luxury Hits)
-2013 - 100% Hotel Deluxe Music Vol.3 (The Best In Lounge And Chill Out, Essential Luxury Hits)
-2014 - 100% Hotel Deluxe Music Vol.4 (The Best In Lounge And Chill Out, Essential Luxury Hits)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 17:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FCCDA15D4C129DBA3AFD59F11C451635381C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611714   (985994) от 02.02.2013
-
-VA - Mega House Top 100 (2013) [MP3|320 кб/с]<house, dance, club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985994.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:Жанр: house, dance, clubПродолжительность: 01:19:36
-
- 01. Sander Van Doorn vs Julian Jordan - Kangeroo [03:11]
- 02. Basto - I Rave You (SD Radio Edit) [03:04]
- 03. Laura Broad ft Chris Brown - Nobody Can (Wolfpack Radio Edit) [02:58]
- 04. Mickey ft Billie - Weekend (Extended) [04:06]
- 05. Hook N Sling ft Evermore - Surrender [03:35]
- 06. Julian Jordan - Rock Steady [03:20]
- 07. Mobin Master & Ian Carey - Lights Out (Ian Carey Radio Edit) [03:24]
- 08. Patrick Hagenaar - Another Chance (Radio Edit) [02:50](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491D4F1CBF426860B761562B878E7AFCEE3660ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

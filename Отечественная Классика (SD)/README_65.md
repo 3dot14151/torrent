@@ -1,3 +1,56 @@
+###  Публикация: 1794632   (17863) от 18.05.2025
+
+Не стреляйте в белых лебедей (1980) DVDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17863.jpg" />
+</div>
+
+
+###  Подробнее
+
+За Егором Полушкиным закрепилось прозвище «бедоносец». На самом деле, «беда» этого непрактичного человека в том, что не похож он на большинство односельчан, все делает по своему разумению, как душа подсказывает. А душа у него по-детски нежная, ранимая. Наделенный талантом художника, он тонко чувствует красоту и очень хочет, чтобы ее побольше было в жизни людей, чтоб (   Читать дальше...   )Производство: СССР, "Мосфильм"Жанр: драмаРежиссер: Родион НахапетовАктеры: Станислав Любшин, Нина Русланова, Витя Анисимов, Вера Глаголева, Ивар Калныньш, Иван Агафонов, Женя Никитченко, Настя Гладкова, Григорий Шпигель, Анатолий Веденкин, Любовь СоколоваСубтитры: отсутствуютПродолжительность: 01:09:26 + 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059D48BDE7675958F0B9D1E375AACD13B5855B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794748   (17766) от 19.05.2025
+
+Судьба (1977) DVD9
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фильма «Любовь земная». В жизнь неуемного Захара Дерюгина, безоглядно любящей Мани Поливановой, терпеливой Фроси, жены Захара, секретаря обкома партии Тихона Брюханова и многих, многих других их современников ворвалась война.
+Для Фроси и Мани - это бесконечно мучительная жизнь в оккупации; для Захара - фронт, плен, побег и приход к партизанам; для Брюханова (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драма, мелодрама, военныйРежиссер: Евгений МатвеевАктеры: Евгений Матвеев, Зинаида Кириенко, Ольга Остроумова, Юрий Яковлев (I), Валерия Заклунная, Альгимантас Масюлис, Вадим Спиридонов, Владимир Самойлов (I), Георгий Юматов, Александр Потапов и др.Субтитры: отсутствуютПродолжительность: 02:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03345D55D60869C09D92B3EF359FA01063EFFC45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798107   (17688) от 20.05.2025
 
 Берегите мужчин (1982) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17688.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17546.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17544.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17056.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16939.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16736.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15378.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13966.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13691.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13305.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13140.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13048.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12783.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12439.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12423.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12318.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12245.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12166.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11753.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11626.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11106.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10893.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10261.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10209.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69B8B0CFF34759F0F374686B1C11629F63F6EF38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809357   (9769) от 31.07.2025
-
-Ищите женщину (1982) DVDRip (серии 1-2 из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9769.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нотариальной конторе обнаружен покойник. В поиски убийцы включается секретарь конторы — женщина неукротимой энергии. Постепенно выясняется, что чрезмерная активность самодеятельного сыщика не лучшим образом влияет на расследование.Производство: СССР / Мосфильм, Гостелерадио СССРЖанр: детектив, комедия, криминалРежиссер: Алла СуриковаАктеры: Софико Чиаурели, Леонид Куравлёв, Сергей Юрский, Александр Абдулов, Елена Соловей, Леонид Ярмольник, Людмила Дмитриева, Елена Укращенок, Владимир Басов, Нина Тер-ОсипянСубтитры: отсутствуютПродолжительность: 01:16:00+01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2929889D24B9CC3606A2936AB54BA89C0E291E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806886   (9640) от 01.08.2025
-
-Баллада о солдате (1959) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая Отечественная война. Молодой солдат Алёша Скворцов совершает подвиг — подбивает два немецких танка. Командование собирается представить его к ордену, но Алёша просит дать ему отпуск, чтобы повидаться с мамой. Путь домой оказывается долог и непрост.Производство: СССР / МосфильмЖанр: драма, мелодрама, военныйРежиссер: Григорий ЧухрайАктеры: Владимир Ивашов, Жанна Прохоренко, Антонина Максимова, Николай Крючков, Евгений Урбанский, Эльза Леждей, Александр Кузнецов, Евгений Тетерин, Валентина Маркова, Мария Кремнева и другиеСубтитры: отсутствуютПродолжительность: 01:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94816B25F778F25C551A17D56039C1C45E0355A
 ```
 
 https://mybot314.ru/tekegram_catalog/

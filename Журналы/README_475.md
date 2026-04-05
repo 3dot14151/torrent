@@ -1,3 +1,133 @@
+###  Публикация: 1634269   (232429) от 26.05.2023
+
+Газета | Труд № 31-32 (Май 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из старейших общественно-политических газет (издается с февраля 1921 года). Корреспонденты «Труда» ежедневно рассказывают читателям о политике, культуре, спорте, экономике, жизни общества, самых интересных новостях дня и многом другом. Издание рассчитано на широкий круг читателей.Жанр: общественно-политическихФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75A7347D729BC7DFDCCEC4C562648B4D2DED1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634951   (232425) от 26.05.2023
+
+Журнал | F Beauty №1 (Ноябрь 2022) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал F Beauty — гид по индустрии красоты. Ежегодный журнал от команды Forbes: Тренды и вызовы в сфере медицины, wellness, эстетических услуг, мнения ведущих игроков, разбор лучших практик и новинок.Изображение товара носит общий характер и может отличаться от представленного к продаже.Жанр: Здоровье, красота.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312785BF31F91CE3DD670163C87AB301F0E039C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466525   (232377) от 29.05.2022
+
+Подшивка журналов | Техника - молодежи (2021) [PDF] [Обновляемая]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техника молодежи - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E613986ACD9F4B45C6CC4932AE993126CB938DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634278   (232316) от 26.05.2023
+
+Газета | Комсомольская правда. Москва 37 (Май 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232316.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Комсомольская правда» — информационная, общественно-политическая, развлекательная ежедневная газета, журналисты которой стараются быть интересными самому широкому кругу читателей. Безусловно, конек «КП» - скандальные репортажи, необычные истории из жизни, душераздирающие криминальные истории, светские новости, рассказы о звездах.Жанр: История. Общество. ПолитикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5672178F9FF436C6D704C7DBF37DA73A2EEAF48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444008   (232152) от 30.05.2022
+
+Подшивка газет | Дача (2021) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета "Дача" - верный ассистент для садоводов и огородников. Все ответы на основные вопросы дачников и садоводов Вы просто отыщите на страничках издания. Своими секретами больших урожаев, советами и фуррорами делятся огородники со стажем Воспользуйтесь их опытом и таковым образом Вы убережете высадки от почти всех напастей. На страничках журнальчика - (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1D06B473EDB33BE7B7CEA9EDA8F5F721D63A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443417   (232111) от 30.05.2022
 
 Подшивка журналов | Садовод и огородник [+спецвыпуски] (2021) [PDF]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232111.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231913.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231894.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231891.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231883.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231878.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231716.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231569.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231298.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231280.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231274.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231207.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231201.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231197.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231191.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231189.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231133.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231116.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230979.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230895.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230885.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1183AC58A94EA34FED31DB7726C727656F03EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648985   (230844) от 26.07.2023
-
-Журнал | Знание-сила №3 (2023) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC3AD90AA3679DBF40A6A0A6329A00D54DFAF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649151   (230831) от 26.07.2023
-
-Подшивка журналов | InfoCity № 3-7 (2023) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230831.jpg" />
-</div>
-
-
-###  Подробнее
-
-InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыИздательство: InfoCityФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEE9826EC4D18D199AD92EFD21AE25D98370A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448245   (230803) от 06.06.2022
-
-Подшивка журналов | National Geographic [Россия] (2021) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230803.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает National Geographic по-настоящему общемировым изданием.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC4D6D028AE9085B87B619121BBA6F9C9D62B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648776   (230420) от 26.07.2023
-
-Подшивка журнала | М-Хобби № 4-7 (2023) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230420.jpg" />
-</div>
-
-
-###  Подробнее
-
-М-Хобби - один из лучших на сегодняшний день российский журнал для любителей масштабного моделизма и военной истории. Издание постоянно публикует материалы о моделях военной техники, авиации, автомобилях, обзоры новинок модельного рынка. Мастера моделизма делятся секретами своего мастерстваЖанр: Моделизм, военная историяИздательство: ЦейхгаузФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15ED6F4F75B6DC43D25CADE2A25CA4AD091C6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649079   (230410) от 26.07.2023
-
-Подшивка журналов | Химия и жизнь № 1-7 (2023) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230410.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Химия и жизнь» – это не обычный научно-популярный журнал, а произведение искусства, которое заключает в себе сущность современного знания о нашем мире. Журнал в значительной мере ориентирован на преподавателей и школьников. В журнале опубликованы статьи по проблемам образования и материалы, которые могут быть использованы как дополнительные к школьному курсу.Жанр: Научно-популярный журналИздательство: АНО Центр "НаукаПресс"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F067F10D65674C35EFB1456F10563AA6CB4CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

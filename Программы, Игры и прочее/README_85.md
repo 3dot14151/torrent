@@ -1,3 +1,107 @@
+###  Публикация: 1835944   (252300) от 08.11.2025
+
+Background Video Recorder Pro v13.9.77 Mod by NURIK kz [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Background Video Recorder Pro — это приложение, которое помогает записывать видео также в фоновом режиме. Оно имеет много полезных функций, например: обнаружение движения, наблюдение за ребенком, запись по расписанию и захват изображения. Вы даже можете использовать кнопки громкости или множество вспомогательных виджетов для управления камерой.Тип издания: ProРелиз состоялся: 07.11.2025Разработчик: Arbel SolutionsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF21113163878C6A10EDDCBAF6D42C185C96797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836035   (252299) от 08.11.2025
+
+Photo Studio PRO v2.8.7.4631 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 08.11.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9329F7EB6EB248DACCA5D96D8D7050C66CB1F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835781   (252298) от 08.11.2025
+
+Words of Wonders: Игра в слова v5.3.5 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир 7 чудес Words of Wonders! Эта замечательная игра в жанре «кроссворд» с элементами соединялки позволит вам не только улучшить запас слов и их написание, но и путешествовать, пересекать земной шар, искать скрытые тайны 7 чудес. найти слова соединить буквы в 7 чудес и увеличить свой запас слов запас.Тип издания: ModРелиз состоялся: 06.11.2025Разработчик: Fugo GamesПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BEE0A5C1CCE5920551424568B7D3BEE822881F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835971   (252297) от 08.11.2025
+
+Лайм HD STB v1.12.17 Mod by vadj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровое ТВ (ЦТВ) для Android телевизора и приставок. Телеканалы для всей семьи! Смотрите  фильмы, сериалы и ТВ-каналы онлайн на большом экране телевизора вместе с Лайм HD TV онлайн! Лайм HD TV online — это приложение c трансляцией более 330 телеканалов для современных телевизионных приставок, которое предоставляет пользователям доступ к широкому спектру мультимедийного (   Читать дальше...   )Тип издания: Mod / AdFreeРелиз состоялся: 01.11.2025Разработчик: ООО Лайм Эйч ДиПоддерживаемая ОС: Android TV 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A40C2EDC42821484AC24DF3AB5A4EA5BC264010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835929   (252296) от 08.11.2025
 
 WPS Office + PDF v18.22 Mod by Balatan [Ru/Multi]
@@ -6,7 +110,7 @@ WPS Office + PDF v18.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252296.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Plus Messenger (Telegram+)  v12.1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252293.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251904.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251902.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251900.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251892.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251889.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251886.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Vanced Tube v5.5.80.142 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251884.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251882.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Portrait Painter v1.17.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251794.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ MP3 Cuter v1.7.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251760.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Parrot Timer / Кухонный таймер v2.11.0 Mod by Alex.Strannik [Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251758.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Material Pods: батарея AirPods v6.70 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251750.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Jewel Legend: игра три в ряд v3.18.00 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251749.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Photo Editor v12.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250496.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Photo Editor v12.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250495.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Vanced Tube v5.5.80.136 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250485.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ NokoPrint v5.24.4 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250430.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ HiPER Calc Pro v11.2.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250429.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Sky Words: Слова из Букв v1.4.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250404.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.9.5 Mod by v
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250403.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.9.5 Mod by v
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFE397BBC6581DC12DD6FF02F7721E5DFE8D9851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834476   (250402) от 03.11.2025
-
-OsmAnd+  Карты & GPS Офлайн v5.2.7 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250402.jpg" />
-</div>
-
-
-###  Подробнее
-
-OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету. OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: Live ModРелиз состоялся: 02.11.2025Разработчик: OsmAndПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B946E21EB593BB247F60A9CF0CB32F4CBC93C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834482   (250397) от 03.11.2025
-
-Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пазлы — игра-головоломка для взрослых в хорошем качестве. Любимая миллионами, увлекательная игра в магазине Google Play. Вы можете скачать бесплатную игру в пазлы для телефона или планшета Android. Она поможет вам держать мозг в тонусе и отвлечься от повседневных забот. Пазлы развивают ваше логические мышление и укрепляют память. Игра в пазлы - это хороший способ (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 02.11.2025Разработчик: Oakever GamesПоддерживаемая ОС: Android 7.0+Жанр: Головоломка, ПазлыЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C502E999467F42F852BB07793F4249ACF271A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834440   (250396) от 03.11.2025
-
-Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к сообществу Picsart, насчитывающему более 150 миллионов авторов по всему миру. С помощью фоторедактора и видеоредактора Picsart AI вы сможете воплотить свои творческие идеи в жизнь. Создавайте с помощью инструментов искусственного интеллекта, создавайте коллажи профессионального уровня, создавайте и добавляйте наклейки, быстро удаляйте и меняйте (   Читать дальше...   )Тип издания: Full / GoldРелиз состоялся: 02.11.2025Разработчик: PicsArt, Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD830D969F1DDEE444253702F95881C325A07421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834383   (250393) от 03.11.2025
-
-Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой видеопроигрыватель с поддержкой 4K и 8К и расширенными возможностями. Позволяет транслировать видео через Google Cast, устанавливать в качестве статуса WhatsApp да воспроизводить оное в плавающем окне. 📱Приложение работает безупречно, что позволяет смотреть видео без задержек и перерывов. Он также оптимизирован для использования аккумулятора, поэтому (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.11.2025Разработчик: I N F I N I T YПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB31691F1B0443EDA731778F6629E2A7855E073
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 730879   (303298) от 05.12.2013
+
+Фиона Келли | А ларчик просто открывался (2002) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казалось, все правильно рассчитали многоопытные сыщики Холли, Пит и Миранда, а в результате — ясно, что ничего не ясно! По всем законам столь любимого ребятами детективного жанра именно в потайном отделении старинной шкатулки должно быть спрятано завещание, по которому молодые талантливые актеры становились владельцами театра, но вместо него там нашлась записка с очень странными стихами. Вообще-то похоже, что именно в них-то и скрыт ключ к тайне завещания, но как расшифровать эту нелепую на вид шараду? «Снаружи ты меня не обнаружишь, да и внутри — как ни гляди…» А где же тогда, если не внутри и не снаружи?! Долго ломают головы Юные детективы и вдруг совершенно случайно находят подсказку в театральном зале…Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E8D0027D89227E56AA33AE1DF69C971D8DE744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261634   (303272) от 11.11.2018
+
+П.Я. Великина | Сборник задач по геометрии (1971) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303272.jpg" />
+</div>
+
+
+###  Подробнее
+
+В целях повышения эффективности учебного процесса необходимо четко представлять закономерную логическую последовательность всех этапов обучения, чтобы на каждом этапе использовать строго целенаправленные приемы активной познавательной деятельности учащихся.
+Приобретение знаний, умений и навыков осуществляется учащимися в процессе выполнения разнообразных упражнений, (   Читать дальше...   )Жанр: Учебное пособие, задачникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C906235042A194FA9E4E8B9891792FDE9DF7D85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261626   (303251) от 11.11.2018
 
 В.М. Брадис | Как надо вычислять? (1960) [DJVU]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303251.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303176.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303174.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303171.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303169.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303165.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303164.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303163.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303161.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303159.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303157.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303084.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303043.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303028.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303024.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303020.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302919.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302866.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302864.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302858.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302854.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302682.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302667.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302635.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B5F73255EDFF7235CEADBB175CAF37D02A1C238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730911   (302488) от 05.12.2013
-
-Л. Воронкова | Синее облачко (1954) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов Любови Воронковой, изданный в серии «Библиотечка детского сада».Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D129668F71DC88F465BEA540991EA8E3CAFE448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730691   (302486) от 05.12.2013
-
-Л. Воронкова | Солнечный денёк (1948) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таня прошла через двор к палисаднику. Возле сирени на самом солнцепёке росли в палисаднике весёлые цветы мальвы. Таня подняла голову к розовым бутонам, – как они высоко растут! – взялась рукой за шершавый стебель; стебель покачнулся, и капелька росы из алого цветка упала ей прямо на лицо....Жанр: Детская литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C71825111FB5772055C411A032EEEF2444D4AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

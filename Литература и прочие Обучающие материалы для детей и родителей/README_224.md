@@ -1,3 +1,56 @@
+###  Публикация: 1041682   (582245) от 09.08.2016
+
+Журнал | Санька в стране сказок №12 (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Санька в стране сказок замечательный развлекательно-познавательный журнал для младших школьников и старших дошкольников. Оригинальная идея журнал состоит в том, что задания надо делать на время и записывать сколько ушло времени, а затем в конце подчитать сколько времени ушло на весь журнал, что бы узнать быстро ли ты его прошел и не надо ли второй раз разбирать все (   Читать дальше...   )Жанр: Детский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122716A48A12F77E292033ED8785EC09C3A4DB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919718   (582004) от 20.07.2015
+
+Николай Григорьев | Избранное (1986) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582004.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу старейшего ленинградского писателя вошли лучшие повести и рассказы, посвященные В. И. Ленину, Октябрьской революции и героям нашей современности.
+Для среднего и старшего школьного возраста.Жанр: Повести, рассказы для детейФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89278516DAC293223809A9C684EE8D03DC80AC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919754   (581788) от 20.07.2015
 
 Е.Тудоровская | Приключения Одиссея. Троянская война и ее герои (1993) [FB2, EPUB]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581788.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581524.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581501.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581431.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581420.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581392.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581389.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581380.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581353.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581314.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581248.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581181.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581146.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581143.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581120.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581022.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580586.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580533.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580433.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580336.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580191.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580189.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580185.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580183.jpg" />
 </div>
 
 
@@ -632,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2645865540237D383D7A627A32445180E7EEAF94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920349   (580181) от 22.07.2015
-
-Юрий Дмитриев | Путешествие на всю жизнь (1977) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1975 году в издательстве вышла книга «Солнцеворот», которая рассказывала читателю о растениях. Новая книга писателя как бы продолжение начатого разговора об охране природы. Приглашая читателя совершить путешествие в лес, в поле, на луг, берег водоема, автор поведет разговор о животных. Пользуясь книгой, пионерский актив, учитель биологии смогут организовать работу (   Читать дальше...   )Жанр: Природа и животныеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A8DC5693D30D5DB8665FD91B69C33888313EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302619   (580173) от 16.05.2019
-
-Подшивка журналов | Юный читатель [17 журналов] (1906) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-«Юный читатель» - иллюстрированный литературный и научно-популярный журнал для детей старшего возраста. Журнал «Юный читатель» выходит два раза в месяц: 1-го числа каждого месяца книжкой, заключающей в себе одно беллетристическое или научно-популярное произведение, и 15-го – книжкой такого же формата, но с разнообразным содержанием (рассказы, очерки, стихотворения, (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0062C141074246F0335BE14F4847AC3C0617E2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

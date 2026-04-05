@@ -1,3 +1,165 @@
+###  Публикация: 1502276   (824306) от 16.10.2021
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.10.14 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEA75AD5C6421916E1AD2FC909863ED76FCCA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501688   (824305) от 16.10.2021
+
+Windows 11 16in1 +/- Office 2019 x86 by SmokieBlahBlah 2021.10.10 [Ru/En]
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824305.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 редакции Windows 11 (русские и английские) с обновлениями по сентябрь 2021, основанных на оригинальном образе и интегрированными системными библиотеками и 4 таких же редакций со встроенным MS Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены в отдельный (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4A5390301E5C95782D5E6E0008C344055D14B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115934   (824096) от 19.03.2017
+
+Очередное достижение: 2000 релизов от kosatka
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824096.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+ Очередное достижение: 2000 релизов от kosatka Дорогие друзья!
+Выражаем огромную благодарность и искренне поздравляем нашего ответственного Релизёра, Трудягу, грамотного и подкованного Доку, нашего Друга и Коллегу kosatka с, поистине, серьезным достижением, которое стоило огромного труда и не меньшего количества своего личного времени - 2000 релизов! На сегодняшний (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838997   (824009) от 28.11.2025
+
+Как удалить всю инфу о себе из интернета
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный канал УБК МВД России внезапно выпустил пошаговый гайд, как минимизировать цифровой след.
+Полностью исчезнуть нельзя, но можно серьёзно сократить риски:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116006   (823955) от 19.03.2017
+
+Многокилометровые линии в степях России озадачили астронавта с МКС
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астронавт Европейского космического агентства Тома Песке, один из членов действующей миссии на МКС, разместил в соцсети фотографию изломанных линий на территории России, признавшись, что не может объяснить их назначение.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 20415   (823941) от 25.03.2015
+
+Самогонщики, Пес Барбос и необычный кросс, 100 грамм для храбрости (1961-1976) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_823941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник включает три новеллы: "Самогонщики", "Пес Барбос и необычный кросс" и "Сто грамм для храбрости"
+- "Самогонщики". Трус, Балбес и Бывалый решают поставить на широкую ногу изготовление самогона — и снова фиаско…
+- "Пес Барбос и необычный кросс". О приключениях все тех же трех друзей - Труса, Балбеса и Бывалого. (   Читать дальше...   )Жанр: КомедияРежиссер: Леонид Гайдай, Георгий Щукин, Борис Бушмелев, Анатолий МаркеловАктеры: Евгений Моргунов, Георгий Вицин, Юрий Никулин, Владимир Пицек, Игорь Ясулович, Юрий Кузьменков, Николай Гринько, Борислав Брондуков, Татьяна Васильева, Александр Белявский, Нинель Мышкова, Владимир Басов, Георгий Кавтарадзе, Михаил Светин, Валентина Титова, Элене Кипшидзе, Дима ШаройченкоПродолжительность: 00:18:12 + 00:10:04 + 01:11:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 881422   (823933) от 25.03.2015
 
 Ultimate Adobe Photoshop Plug-ins Bundle 2015.03 [Multi/Ru]
@@ -6,7 +168,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2015.03 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823933.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Adobe Photoshop CC 2014 (v15.2.2) x86-x64 RUS/ENG Update 3
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823931.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ Snappy Driver Installer R193 [Multi/Ru]
 >>76
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823930.jpg" />
 </div>
 
 
@@ -84,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823841.jpg" />
 </div>
 
 
@@ -110,7 +272,7 @@ Clover 3.5.4.20416 beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823840.jpg" />
 </div>
 
 
@@ -137,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>19
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823834.jpg" />
 </div>
 
 
@@ -164,7 +326,7 @@ Adobe Photoshop 2020 (21.1.2.136) Portable by XpucT [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823827.jpg" />
 </div>
 
 
@@ -190,7 +352,7 @@ VA - Need For Speed / NFS Underground 1, 2 / Carbon / Most Wanted OST (2003-2006
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823825.jpg" />
 </div>
 
 
@@ -216,7 +378,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823812.jpg" />
 </div>
 
 
@@ -242,7 +404,7 @@ ESET Endpoint Security / Antivirus 6.5.2094.1 RePack by KpoJIuK [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823801.jpg" />
 </div>
 
 
@@ -268,7 +430,7 @@ Windows 7 Ultimate Ru x86-x64 Orig wBootMenu by OVGorskiy 03.2017 1DVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823800.jpg" />
 </div>
 
 
@@ -294,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823733.jpg" />
 </div>
 
 
@@ -321,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823731.jpg" />
 </div>
 
 
@@ -347,7 +509,7 @@ Retouching Toolkit 2.0.1 for Adobe Photoshop [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823722.jpg" />
 </div>
 
 
@@ -376,7 +538,7 @@ Windows 7 Professional SP1 x64 Game OS 2.0 by CUTA [Ru]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823716.jpg" />
 </div>
 
 
@@ -402,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823715.jpg" />
 </div>
 
 
@@ -430,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823131.jpg" />
 </div>
 
 
@@ -456,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823130.jpg" />
 </div>
 
 
@@ -484,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823112.jpg" />
 </div>
 
 
@@ -510,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822572.jpg" />
 </div>
 
 
@@ -521,163 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503037   (822567) от 17.10.2021
-
-Этика беспилотников: как нельзя кодировать мораль
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кого должен сбить беспилотный автомобиль в безвыходной аварийной ситуации — пожилого человека или беременную женщину? Ребенка с собакой или кого-то похожего на воришку? Или врезаться в бетонное ограждение, чтобы спасти пешеходов, но рискнуть пассажиром? Примерно такие вопросы возникают в публичных обсуждениях, когда речь заходит об этике беспилотных автомобилей. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007250   (822465) от 14.04.2016
-
-Российские правообладатели пожаловались Google на Telegram
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во вторник, 12 апреля, в Роскомнадзоре в рамках семинара прошла первая встреча правообладателей с представителями Google. Правообладатели выразили обеспокоенность появлением в приложениях для обмена сообщениями ботов, распространяющих пиратский контент, и попросили компанию оперативнее реагировать на жалобы.Самые большие претензии были предъявлены мессенджеру Telegram, сообщает издание «Известия». В качестве примера правообладатели привели заблокированный на территории России торрент-трекер, к которому без труда можно получить доступ через Telegram.
- (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007416   (822459) от 14.04.2016
-
-Kaspersky Reset Trial 5.1.0.21 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Reset Trial - Программа для сброса триала (для многократного использования пробного периода активации) антивирусных продуктов ЛК. KRT сбрасывает триал мгновенно на всех продуктах ЛК, заявленных в программе. По поводу детекта от ЛК - вредоносного ПО в оригинальной версии KRT никогда не было, нет и не будет. Таким способом ЛК защищает свои продукты, присваивая (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5E615BACE004BE728338F3A7EC8C030936F89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007289   (822447) от 14.04.2016
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4366.1000 VL (x86) RePack by SPecialiST v16.4 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB67ECDC8068295B4C628CEB0302DF4CCBAA8119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007026   (822443) от 14.04.2016
-
-Дедушка легкого поведения / Dirty Grandpa (2016) WEBRip [H.264/720p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейсон, покладистый правильный парень, накануне свадьбы вляпывается в увеселительную поездку к морю со своим дедом, отставным генералом с легким нравом, бурной фантазией и вполне определенными потребностями… И, похоже, дедские каникулы изменят жизнь Джейсона навсегда!Производство: США, Lionsgate, QED International, Josephson EntertainmentЖанр: КомедияРежиссер: Дэн МазерАктеры: Роберт Де Ниро, Зак Эфрон, Зои Дойч, Обри Плаза, Джейсон Манцукас, Дермот Малруни, Джулианна Хаф, Джеффри Бауэр-Чепман, Брэндон Майкал Смит, Джейк ПикингПеревод: Дублированный (Чистый звук)Продолжительность: 01:40:54Реклама: Присутствуют вставки голосовой и текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B135D670BBDA97AEC317F835D931ABECF4E033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999556   (822442) от 14.04.2016
-
-Polaris Sector (2016) [Ru/Multi] (1.03с) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра представляет из себя полномасштабную космическую 4X-стратегия, с акцентом на космических кораблях и космических сражениях.Тип издания: LicenseРазработчик: SoftWarWareЖанр: Grand Strategy, Turn-BasedЯзык озвучки: -/-Язык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA221EF1DDAEEEEBEA42631604EA477A4A7FDBD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

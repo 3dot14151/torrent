@@ -1,3 +1,55 @@
+###  Публикация: 1265381   (270894) от 01.12.2018
+
+Мой питомец /  You're my pet / Neoneun pet (2011) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270894.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Чи Ын-и парни долго не задерживаются. Не каждый способен терпеть рядом девушку, которая и карьеру сделала, и зарабатывает больше, и куда ни глянь — везде умница да красавица. Но тяжело девушке одной, хочется тепла, чтобы дома кто-нибудь ждал, и было, о ком заботиться. И в тот момент, когда Ын-и уже морально готова завести домашнего питомца, её братец притаскивает (   Читать дальше...   )Производство: Корея Южная, Lotte Entertainment,Production RudensЖанр: Комедия, Мелодрама, РомантикаРежиссер: Пён-гон КимАктеры: Ким Ха-ныль, Чан Гын-сок, Рю Тхэ-джун, Чон Ю-миПеревод: Двуголосый закадровый (любительский) Nas, CollapseСубтитры: отсутствуютПродолжительность: 01:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F0B96BE3A761245F08346860BC4CD6A6211E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266584   (269975) от 02.12.2018
+
+Расчлененка / Cheun / Slice (2009) BDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жертвами серийного убийцы становятся совершенно разные люди, полиция не может понять, по какому принципу убийца их отбирает. Убийство всегда совершается максимально жестоким способом, после чего тело жертвы расчленяется и упаковывается в красный чемодан. После того, как очередной жертвой становится сын министра, лейтенанту полиции Чину поставлен жесткий ультиматум: (   Читать дальше...   )Производство: Таиланд / Five Stars Production CompanyЖанр: Детектив, Триллер, КриминалРежиссер: Конгкиат КхомсириАктеры: Арак Аморнсупасири, Сонтхая Читмани, Джессика Пасапхан, Чатчай Пленгпанич, Сикарин Полюонг, Артхаран ПулсавадПеревод: Многоголосый закадровый (СВ-студия) - ненормативная лексика!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556582C1C8FE251E783F7BF5E67A14CC72DD06D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266627   (269913) от 02.12.2018
 
 Плоды страсти / Les fruits de la passion (1981) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269913.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269844.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269416.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268121.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267528.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267110.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267108.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267072.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267069.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267066.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267061.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267060.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267008.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267001.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266880.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266146.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266120.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266113.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266111.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266076.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266074.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265793.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264664.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264266.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D3C6FBB50F6BBD90391FFEE3340FE739A16D4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 98118   (263659) от 15.12.2017
-
-Сезон любви / Koi No Kisetsu (1969) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мори Ёко вот-вот закончит учебу и начнет работать, помогая своей небогатой семье. Сбежав с вечера танцев от своего поклонника студента Ясумуро, она случайно прячется в машине Куросавы — управляющего фирмы, куда Ёко устраивается на работу…Производство: Япония, Shochiku CompanyЖанр: Мюзикл, мелодрамаРежиссер: Умэцугу ИноэАктеры: Ёко Кон, Джордж Хамано, Луис Такано, Кенсаку Морита, Ясунори ИрикаваПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6347C85F9A41D5D925CD094D349D2D6DB91524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339344   (263590) от 24.11.2019
-
-Сын генерала / Janggunui adeul  / Son of the General (1990) BDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предвоенные 30-е годы, оккупированная японскими войсками Корея. Ким Ду Хан, который с юных лет стал сиротой и находится под надзором полиции, ищет свое место в жизни. В городишке Янг Ро он прибивается в клану местного гангстера Ву Ми Квана. Идет борьба клана за сферы влияния с японскими якудза. В ходе этой борьбы молодой Ким Ду Хан быстро завоевывает авторитет в (   Читать дальше...   )Производство: Южная Корея, Taehung PicturesЖанр: Боевик, драма, криминалРежиссер: Лим Гвон-тхэкАктеры: Пак Сан-мин, Щин Хён-джун, Ли Иль-джэ, Пан Ын-хи, Ким Хён-иль, Хван Джон-мин, Чон Ду-хон, Но Сын-джинПеревод: Одноголосый любительский (Неизвестно, найден в сети)Субтитры: отсутствуютПродолжительность: 01:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29B00DD740EE7B59CCF647EB17572126E6B9703
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 686337   (805104) от 23.04.2016
+
+White Noise v6.1.2 Pro / Full [Ru/En] - будильник с релаксирующими звуками
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите расслабиться? Выспаться? Улучшить свое самочувствие? Загрузите White Noise и спите здоровым сном! В White Noise собрано 40 аудизаписей различных окружающих обстановок, чтобы помочь Вам расслабиться или заснуть. Воспроизведение аудио в фоне, таймер выключения, несколько мелодий будильников, настройка звуковых эффектов и идеально сведенные для бесконечного воспроизведения (   Читать дальше...   )Тип издания: Пиратка (Full и Pro)Релиз состоялся: 09.04.2016Разработчик: TMSOFTПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C6EA49F544E64151465B7CECCD1BACDDC3F51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009833   (805101) от 23.04.2016
+
+Король обезьян: Начало / Xi you ji zhi: Sun Wukong san da Baigu Jing / The Monkey King the Legend Begins (2016) BDRip [H.264/720p] [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805101.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой части фильма зрителю предстоит узнать, как зародилась легенда про непобедимого Короля обезьян.Производство: Китай, США / FilmkoЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Поу-Сои ЧингАктеры: Аарон Квок, Гон Ли, Чоу Юнь-Фат, Чунг, Хим Ло, Шаофен Фен, Сяо ШенъянПеревод: Одноголосый закадровый, любительский (Хихидок)Продолжительность: 01:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737FAADC8BB57D2363BA4BE43BE4E4D1C8D0E006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010061   (805100) от 23.04.2016
+
+Navitel / Навител Навигатор v9.6.2385 Full и другие  [Ru/Multi] - только программа навигации
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 23.04.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069567F52578F192B48E0C8C9BD74834C7477051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940237   (805099) от 23.04.2016
+
+The Long Dark (2014) [Ru/Multi] (0.326) Unofficial
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805099.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма. Главной вашей задачей будет выжить как можно дольше, чтобы выяснить что же произошло с миром и как он изменился?Тип издания: UnofficialРазработчик: Hinterland Studio Inc.Жанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2AFF543DB75CCCEDF8AF7310967BCBDEBD729B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009841   (805098) от 23.04.2016
+
+Навител / Navitel v9.6.2221 [Ru/Multi] - с авто-определением настроек GPS для автонавигаторов ГУ на WinCE
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 21.04.2016Разработчик: NAVITEL ®Поддерживаемая ОС: WinCE5&6Язык интерфейса: Multilanguage / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE4C271E65435E7563E519EBDBC40DB5D580F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306970   (805097) от 23.04.2016
+
+Маша и медведь (2009-2016) BDRemux [H.264/1080p] (1-55 серии) [ОБНОВЛЯЕМЫЙ]
+
+>>3
+>>17
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805097.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Маша и Медведь" - самый удачный и успешный российский анимационный сериал.
+Новое прочтение любимой детской сказки про Машу и Медведя. Сюжет и персонажи этой русской народной сказки знакомы любому ребенку, но характеры их и взаимоотношения сильно изменены – не Маша боится Медведя, скорее он боится осложнений в своей размеренной жизни, которые приносит с (   Читать дальше...   )Производство: Россия, Студия "Анимаккорд"Жанр: Компьютерная анимация, Детский, Приключения, СемейныйРежиссер: Олег Кузовков, Олег Ужинов, Денис ЧервяцовПерсонажи: Маша и медведьПродолжительность: 55 х ~ 00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5A69D9D6BB6DE60F0C6384395F77E9A7DED05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 318859   (804933) от 04.04.2011
 
 Путь домой / The Way Back (2010) [Двухголосый] HDRip
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804933.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_804899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_804899.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804868.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ XviD4PSP 7.0.373 DAILY Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804578.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ SIGERSHADERS Corona Material Presets Pro 2.0.2 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804572.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804567.jpg" />
 </div>
 
 
@@ -166,7 +323,7 @@ Vikings - Wolves of Midgard (2017) [Ru/Multi] (1.0/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804564.jpg" />
 </div>
 
 
@@ -192,7 +349,7 @@ AVG PC Tuneup 16.74.2.60831 [Web Installer] [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804560.jpg" />
 </div>
 
 
@@ -218,7 +375,7 @@ Windroye (+ Root) v2.8.0 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804475.jpg" />
 </div>
 
 
@@ -246,7 +403,7 @@ Nuance Vocalizer Expressive Premium-High TTS Milena, Katya, Yuri Rus 1.0.2.3p [R
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804467.jpg" />
 </div>
 
 
@@ -272,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_804105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_804105.jpg" />
 </div>
 
 
@@ -298,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_803862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_803862.jpg" />
 </div>
 
 
@@ -324,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_803856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_803856.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.282]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803855.jpg" />
 </div>
 
 
@@ -379,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803849.jpg" />
 </div>
 
 
@@ -405,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803847.jpg" />
 </div>
 
 
@@ -431,7 +588,7 @@ Minecraft (2011) [Ru/Multi] (1.7.7) Repack Kron
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803813.jpg" />
 </div>
 
 
@@ -461,7 +618,7 @@ YouTube пересмотрел классические стандарты ка�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_803743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_803743.jpg" />
 </div>
 
 
@@ -487,7 +644,7 @@ SARS-CoV-2. Короновать нельзя раскороновать
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_803742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_803742.jpg" />
 </div>
 
 
@@ -515,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803739.jpg" />
 </div>
 
 
@@ -526,168 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80EBF18FC15E9A61F186698D706330165EE98416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384353   (803736) от 19.05.2020
-
-Adobe Photoshop 2020 21.1.3.190 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8342A029112D8A3EEC3710B4092014EA24E103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009522   (803316) от 24.04.2016
-
-LockScreen 2.0 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа LockScreen предназначена для блокировки компьютера путем установки горячих клавиш.Блокируются клавиатура и мышка.Стандартная блокировка(Win+L) не блокируется.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EA21DE7216BB538C4922A02310AC26E0A1012A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010332   (803232) от 24.04.2016
-
-Bandicam 3.0.4.1036 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D887A9AF096B55F0C5AB421BBF1F9030C127D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471317   (803220) от 24.04.2016
-
-Joe Bonamassa - 23 альбома (2000-2016) Официальная дискография [FLAC|Lossless|image + .cue]<Blues Rock, Hard Rock, Rock and Roll>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Studio Albums:
-2000 A New Day Yesterday
-2002 So, It's Like That
-2003 Blues Deluxe(   Читать дальше...   )Live Albums:
-2002 A New Day Yesterday Live
-2008 Live from Nowhere in Particular
-2009 Live from the Royal Albert Hall(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Rock and RollПродолжительность: 31:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627B252B19779145C0D0A534144055130CFD4418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905695   (803208) от 24.04.2016
-
-Супердевушка / Супергёрл / Supergirl (2015) HDTVRip, WEB-DLRip [H.264/1080p-LQ] (сезон 1, серия 1-20 из 20) (LostFilm)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803208.jpg" />
-</div>
-
-
-###  Подробнее
-
-В двенадцать лет Кара Зор-Эл была вынуждена покинуть родную планету Криптон. На Земле её приютила семья Дэнверс. Всю свою земную жизнь она тщательно скрывала свои сверхспособности. Сейчас Каре 24 года, она работает в крупной медийной корпорации помощником руководителя. Никто из её знакомых не знает о том, кто она на самом деле, и девушку это вполне устраивает. Но (   Читать дальше...   )Производство: СШАЖанр: фантастика, боевик, приключенияРежиссер: Глен ВинтерАктеры: Мелисса Бенойст, Дерек Мио, Бен Бегли, Лаура Бенанти, Мехкад Брукс, Дин Кэйн, Калиста Флокхарт, Тони Френч, Роберт Гант, Дэвид Хэрвуд и др.Перевод: многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~ 00:46:00 серияРеклама: присутствуют заставка и логотип LostFilm.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF79E3770BA612A74CB4EC99A83F428FD0B81CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010271   (803207) от 24.04.2016
-
-Помнить / Remember (2015) HDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие годы Зев Гутман старается забыть все то, что произошло с ним в Освенциме. Прошло уже семьдесят лет: Зев обзавелся семьей, построил уютную и спокойную жизнь, и сейчас он находится на заслуженном отдыхе в доме престарелых. Но он так и не смог преодолеть ужас, пережитый в лагере смерти. Макс, его старый друг, вышел на след человека, мучившего их обоих в Освенциме...Производство: Канада, Германия, Serendipity Point Films, Egoli Tossell FilmЖанр: Триллер, ДрамаРежиссер: Атом ЭгоянАктеры: Кристофер Пламмер, Дин Норрис, Мартин Ландау, Джеймс Кейд, Юрген Прохнов, Генри Черни, Бруно Ганц, Натали Крилл, Питер ДаКуна, Джанет Портер, София Уэллс, Дуан МюррэйПеревод: Дублированный (iTunes)Продолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB62F700F981EC38353ECB858FACD307AF389A23
 ```
 
 https://mybot314.ru/tekegram_catalog/

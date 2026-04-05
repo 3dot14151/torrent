@@ -1,3 +1,55 @@
+###  Публикация: 1174829   (382358) от 16.10.2017
+
+Зеро 3 / Zero 3 (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда прокурор, замешанная в скандале с наркотиками, объявляет аукцион материала, доказывающего коррупцию властей, лидер оппозиции решает сделать всё, чтобы заплатить самую высокую цену, даже если придётся взять рискованный кредит. Всё переворачивает с ног на голову последний не сбежавший из Литвы беженец, впутавшийся в отлаженный механизм взяточничества.Производство: Литва / Kinokultas, Never EverЖанр: ТриллерРежиссер: Эмилис ВеливисАктеры: Андрюс Бялобжескис, Рамунас Рудокас, Инга Янкаускайте, Риманте Валюкайте, Гедрюс Савицкас ...Перевод: Профессиональный многоголосый (Лицензия)Субтитры: Английские (хардсаб)Продолжительность: 01:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E5285BC00DE04ECFB6B898880DCD6BA7D22210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174922   (382357) от 16.10.2017
+
+Revo Uninstaller Pro 3.2.0 RePack (& portable) by KpoJIuK  [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FF45ACA80F3C494BD5F034B4ED3A4E2FC74BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174915   (382354) от 16.10.2017
 
 Battlefield 3 (2011) [Ru] (1.6.0) Repack Other s
@@ -6,7 +58,7 @@ Battlefield 3 (2011) [Ru] (1.6.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382354.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382170.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Windows 7 Enterprise SP1 IDimm Edition v.14.12 х86/x64 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_382166.jpg" />
 </div>
 
 
@@ -94,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381960.jpg" />
 </div>
 
 
@@ -120,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381920.jpg" />
 </div>
 
 
@@ -146,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381849.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381847.jpg" />
 </div>
 
 
@@ -200,7 +252,7 @@ Mem Reduct 3.2 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381812.jpg" />
 </div>
 
 
@@ -226,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381234.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380935.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380317.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380314.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ Mafia II: Definitive Edition (2020) [Ru/En] (1.0u1/dlc) Repack R.G. Механи
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380292.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380280.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 Final (b) [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379689.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ Xubuntu 16.04 LTS (Xenial Xerus) by Lazarus [64-bit] (1xDVD) [Авторская
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379560.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379551.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ Apple сделала невозможным самостоятельный ре�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379186.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ Windows 7 Ultimate SP1 Point Blank Design v 9.10.11 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379052.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ AVG PC TuneUp 16.3.1.24857 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378717.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ The Beatles WPI DVD StartSoft 76-2015 Lite [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378713.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378705.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378608.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ PotPlayer 1.7.20538 Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378204.jpg" />
 </div>
 
 
@@ -633,61 +685,6 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46F120A9A83D81F58F06B53D2834A97DD053DF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415404   (377973) от 11.10.2020
-
-[javascript.ru] Игорь Непипенко | Курс по Angular (2020) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот онлайн-курс посвящён профессиональной разработке веб-приложений с помощью Angular.
-Цели курса:
-- быстро и качественно начать создавать приложения с использованием современного Angular.
-- отлаживать уже существующие приложения и проводить их улучшение.(   Читать дальше...   )Производство: javascript.ruЖанр: ПрограммированиеПродолжительность: 21:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4946934D3EAABCCA28C977407D7E006D30F95DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098282   (377967) от 11.10.2020
-
-Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack Other s [Complete Pack]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377967.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Resident Evil 6» — это потрясающая смесь экшена и хоррора, которая обещает стать самым сильным произведением в жанре ужасов 2013 года. К любимцам серии «Resident Evil» Леону Кеннеди, Крису Редфилду и Аде Вонг присоединяются новые герои, включая Джейка Мюллера. Им придется столкнуться с новым кошмаром — опаснейшим вирусом C, а также побывать в Северной Америке, восточноевропейской (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C90D73718303C5036F08B6C82A2B32562F8D2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

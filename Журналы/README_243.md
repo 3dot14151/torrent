@@ -1,3 +1,135 @@
+###  Публикация: 1293472   (637670) от 03.04.2019
+
+Журнал | Elle Decoration [France] №271 (апрель 2019) [PDF] [Fr]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A96ADCDFE534AED889231B1C84FB7A6E6347805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293474   (637667) от 03.04.2019
+
+Журнал | Цветок. Спецвыпуск №3 (35). Папоротники в саду (июль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: цветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3430EC856A4FAAFB527AA679A9B6B3E3A12C584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293437   (637666) от 03.04.2019
+
+Журнал | В помощь огороднику №8. Выращиваем тюльпаны без ошибок (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал для широкого круга читателей.
+Интернет-издание.Жанр: садоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B58546B3F3447898F6E7F26BFFD3E542BBF05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293481   (637665) от 03.04.2019
+
+Журнал | Петербургская охота №1 (148) (февраль 2019) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-рекламный журнал "Петербургская охота" проинформирует Вас о предстоящих выставках, посвященных охоте и рыбалке в России, расскажет о новинках экипировки для рыбаков и охотников, даст советы по реставрации оружия в Санкт-Петербурге.
+Журнал распространяется бесплатно.Жанр: охотаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F50C7B052FBA0C1E320A39C60CCD302F032B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293468   (637663) от 03.04.2019
+
+Журнал | Цветок №21 (348) (ноябрь2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: цветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221997A00D559034CD73640ACE4775C519D49D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907472   (637636) от 12.06.2015
 
 Журнал | Hi-Tech Pro №4-6 (апрель-июнь 2015) [PDF]
@@ -6,7 +138,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637636.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637571.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637566.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637564.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637562.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637560.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637557.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637421.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637413.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637193.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637104.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636961.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636960.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636956.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636508.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636267.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636263.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636262.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636156.jpg" />
 </div>
 
 
@@ -501,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636151.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636062.jpg" />
 </div>
 
 
@@ -538,138 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DFBB417769E3199AC52274BA6E05E6F5F2C8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228544   (635953) от 01.06.2018
-
-Журнал | Дачные секреты №6 (37) (июнь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635953.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дачные секреты» - это универсальный помощник всем садоводам и огородникам. В каждом номере: наиболее интересные советы читателей, мнение экспертов и рекомендации специалистов по благоустройству садового участка. Основные рубрики журнала: на огороде, работы в саду, плодовый сад, цветник, своими руками, будьте здоровы, дачные рецепты.
-
-Основные рубрики журнала: на (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A955E1CDD36A26C3388345AD3C22C5E028AAD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228543   (635952) от 01.06.2018
-
-Журнал | Сад своими руками №6 (июнь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических решений для (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44AE917508F5B956EA4B7A71D3AF6251E63EDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228545   (635951) от 01.06.2018
-
-Газета | Дача и жизнь №6 (50) (июнь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание является отличным помощником для тех у кого есть дача! Ведь так хорошо вырваться из загазованного и душного города на ухоженный дачный участок, чтобы можно было попариться в баньке, пожарить шашлык и подать к нему выращенные своими руками овощи. А после этого заварить чай на ягодах и целебных травах, собранных своими руками. Проще говоря все это — дача (   Читать дальше...   )Жанр: Дача, огород, садФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4FE04BFC541BFD61E9A0D0A1F8B4DCD37D3C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228539   (635948) от 01.06.2018
-
-Журнал | Любимая дача №6 (июнь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный иллюстрированный журнал о загородной жизни круглый год. В каждом номере - советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным; полезные советы о нахождении на садовом участке и за его пределами; информация о том, как выращивать овощи и фрукты на дачном (   Читать дальше...   )Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816D05B5A5DF9580E7AA9BD7FAF67A5D97F0D31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908194   (635849) от 13.06.2015
-
-Журнал | Дилетант №5 (41) (май 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы. В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD0EA5F156E168CF827A0B91DA09E1C91A51D59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1763699   (35402) от 02.12.2024
+
+VA - Progressive Trance Awakening, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AaYmin - By Your Light (For Saylee) (Extended Mix) (05:53)
+02. Kinesthetics - Mish (05:46)
+03. Alex007 - Satellite (06:47)
+04. Michael Alan - Dark Matter (03:52)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E287CB921993268EFEE7BCF804DE6BB400D4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763813   (35319) от 03.12.2024
+
+VA - Amsterdam Music Festival, Johan Cruijff ArenA, Netherlands (2024-10-19) [MP3|320 Kbps] <Progressive House, Hard Dance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive House, Hard Dance, TechnoПродолжительность: 08:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791920F9D9BCF48871ADEA2DC802F359A7B03316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763841   (35312) от 03.12.2024
+
+Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feature Presentation [00:00:20]
+02 - Murder Miami 1983 [00:03:41]
+03 - Renegade [00:03:09]
+04 - Higher [00:03:55](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB82A332DC8B39CFB49CB76412BD6FC1E3C30EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763784   (35310) от 03.12.2024
+
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lenzi & Soriani - Poker Face (Extended Mix) (04:58)
+02. Heart Of Space - Save Me (Euro Mix) (05:07)
+03. Bsharry & Fiamma - Breathe Of Sunshine (Simon Gekk Remix) (07:00)
+04. Pierpaolo Cricenti & Kekko DMC - Love Don't Let Me Go (Aux In Re-Edit) (03:39)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86B0D14376776667B04AD7FE7D122DB68DB6AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763762   (35306) от 03.12.2024
 
 VA - Snowy Evenings: Chillout Your Mind (2024) [FLAC|Lossless|tracks] <Balearic, Downtempo>
@@ -6,7 +119,7 @@ VA - Snowy Evenings: Chillout Your Mind (2024) [FLAC|Lossless|tracks] <Balearic,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35306.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - Future Sound of Egypt Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35209.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - The Best Of Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35208.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ Leather Strip - 4 Albums (2024) [MP3|320 Kbps] <EBM, Techno, Electro-Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35205.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35204.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 2 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35201.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ GOODBOYS - GOODBOYS Pres. LINKED (001-006) (2023-2024) [MP3|320 Kbps] <Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35128.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - The Annual 2025 - Ministry of Sound (2024) 2 CD [MP3|320 Kbps] <Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35099.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ DJ Bobo - There Is a Party (30th Anniversary Edition) (1994) Reissue, 2024, Yes 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34994.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ VA - Winter Chillout Lounge 2024 - Smooth Lounge Sounds for the Cold Season [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34800.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ VA - Lounge Philosophy Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34697.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ Alphaville - I Die For You Today (2023) The Blank & Jones Mixes [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34694.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ The Orb - Orboretum: The Orb Collection (2024) 2CD [FLAC|Lossless|tracks + .cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34685.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ VA - Elliptical Sun Recordings 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34589.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ Clarky - Forever In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34585.jpg" />
 </div>
 
 
@@ -438,7 +551,7 @@ VA - Love Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34553.jpg" />
 </div>
 
 
@@ -467,7 +580,7 @@ VA - Best Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34499.jpg" />
 </div>
 
 
@@ -496,7 +609,7 @@ VA - The Winter Chillout Collection: Chillout Your Mind (2024) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34497.jpg" />
 </div>
 
 
@@ -525,7 +638,7 @@ VA - Anjunabeats presents Vocal Trance 02 (2024) [MP3|320 Kbps] <Trance, Vocal T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34381.jpg" />
 </div>
 
 
@@ -554,7 +667,7 @@ VA - Anjunadeep The Remixes 2024 (2024) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34377.jpg" />
 </div>
 
 
@@ -583,7 +696,7 @@ VA - A State Of Trance Year Mix 2024 (DJ Mix) (Mixed By Armin Van Buuren) (2024)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34292.jpg" />
 </div>
 
 
@@ -612,7 +725,7 @@ VA - Love Lounge, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34192.jpg" />
 </div>
 
 
@@ -626,119 +739,6 @@ VA - Love Lounge, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:886B6FFBEFE267B4E29C6318530C9927F46B5AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765914   (34080) от 15.12.2024
-
-Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Mysteries (2024) [MP3|320 Kbps] <Downtempo, House, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Röyksopp - Waking Up From A Thousand Year Slumber [00:06:57]
-02 - Röyksopp - Slow Fade  R [00:01:32]
-03 - Alison Goldfrapp - We Enter  State Of Awareness [00:03:30]
-04 - Röyksopp - The Uxtáca Bridge [00:05:21](   Читать дальше...   )Жанр: Downtempo, House, AmbientПродолжительность: 02:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D490D74DF3CEFFF6F6B50C726B202D488EA81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766099   (33967) от 16.12.2024
-
-Whigfield - Whigfield Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Last Christmas (Major Version) [4:16]
-02 - Be My Baby (Radio Cut) [3:33]
-03 - It's Alright (Radio Edit) [3:42]
-04 - Another Day (The Glee Radio Edit by Mark Picchiotti & Teri Bristol) [3:52](   Читать дальше...   )Жанр: Eurodance, Euro-House, PopПродолжительность: 01:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF955A754A9761B98A375D753479544064B1F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766164   (33962) от 16.12.2024
-
-VA - Lump Records Greatest Hits (2024) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adassiya, Ghenwa Nemnom - KawaiyaЖанр: Deep HouseПродолжительность: 03:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B10D4502124E1EDC3D8CAA7748736C3A31F335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766390   (33763) от 18.12.2024
-
-VA - Best of Argento 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitrous Oxide & Seb Hennig - Constellation (Phillip Castle Extended Remix) (05:56)
-02. Rodrigo Deem - Bad Kingdom (Extended Mix) (05:56)
-03. Marcos - Human (Extended Mix) (07:30)
-04. Digital Drift - You Don't Mind (Extended Mix) (06:02)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B83986559B0F46781C6E4017B2BDFF61E7D8749
 ```
 
 https://mybot314.ru/tekegram_catalog/

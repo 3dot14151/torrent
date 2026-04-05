@@ -1,3 +1,32 @@
+###  Публикация: 1797966   (66673) от 19.05.2025
+
+Manowar - Kings of Metal (1988) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66673.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Wheels Of Fire
+A2. Kings Of Metal
+A3. Heart Of Steel
+A4. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF917A4B48A2FE7DD100AF9766E85FC2B3E9B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797927   (66661) от 19.05.2025
 
 Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
@@ -6,7 +35,7 @@ Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66661.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66655.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66654.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66651.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66590.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66553.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66503.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66355.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66342.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ The Duskfall - Studio Albums (5 releases) (2002-2014) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66280.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66105.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66045.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65967.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65950.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Thenighttimeproject - Studio Albums (2 releases) (2016-2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65904.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65814.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65813.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65746.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65558.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Alkonost - Дар Саламандры (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Pa
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65469.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ DGM - Endless (2024) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65427.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65426.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65320.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Super Grup Electrecord - Slagare, Slagare, Slagare (1977) [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65302.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Annisokay - Studio Albums (9 releases) (2010-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65272.jpg" />
 </div>
 
 
@@ -708,33 +737,6 @@ Annisokay — немецкая металкор-группа из Галле, С
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA331C6AA37AFF91FC4BE0DE2FADBADDC509C7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807906   (65091) от 21.07.2025
-
-Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Alchemist - метал-группа из города Холмэстранд, Норвегия.2003 - Intervening Coma Celebration
-2012 - Disgusting HedonismЖанр: Symphonic Black MetalПродолжительность: 01:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611AC3F9BD47C43F5EC663AAAB2AF11C07824863
 ```
 
 https://mybot314.ru/tekegram_catalog/

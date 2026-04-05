@@ -1,138 +1,3 @@
-###  Публикация: 1755770   (40132) от 17.10.2024
-
-Льюис Хобли | Самоучитель разведчика (2023) [DOCX, EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этой книги — в прошлом агент Ми-6 — раскрывает некоторые тайны своей профессии. Как правильно вести слежку? Как определить, что следят за вами? Как не оставлять опасных улик и как обнаружить то, что не замечает простой человеческий глаз. Ответы на эти и многие другие вопросы находятся в указанных здесь следующих частях издания:
-1. Способы получения и оценки (   Читать дальше...   )Жанр: военное дело, спецслужбы, зарубежная публицистика, самоучителиИздательство: Москва: ООО «Издательство Родина»Формат: DOCX, EPUB, FB2, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BCC545F5D498F8E4445576EEE09732C2FD554A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755753   (40076) от 17.10.2024
-
-М. Вострышев | 7 великих глав государства российского и еще 63 правителя от Рюрика до Путина (2022) [PDF, EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40076.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказано обо всех государях России, правивших ею последние десять веков.
-Конечно, с течением времени форма правления трансформировалась, но одно оставалось неизменным – единоначалие высшей власти. Поэтому жизнеописания этих людей – это во многом и история нашей страны. Их волевыми решениями Россия или возвышалась, или катилась вниз. Читатель сам определит, (   Читать дальше...   )Жанр: история РоссииИздательство: Москва: "Родина"Формат: PDF, EPUB, FB2, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC1272ADF091E149AF286D8AE6C228133C22FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755917   (39982) от 18.10.2024
-
-А.С. Компанеец | Курс теоретической физики (1972) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39982.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первом томе изложены три раздела теоретической физики: «Механика», «Электродинамика» и «Квантовая механика». В каждом из этих разделов автор формулирует наиболее общие принципы и законы, из которых как следствия получаются частные законы и уравнения.
-
-Во втором томе изложены четыре раздела теоретической физики: «Статистическая физика», «Гидродинамика и газовая (   Читать дальше...   )Жанр: ФизикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F478A7C58FA465730C0FC24B9F1433E955E8203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755981   (39981) от 18.10.2024
-
-В.Н. Юренев, П.Д. Лебедев | Теплотехнический справочник [2 книги] (1975 - 1976) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теплотехнический справочник представляет собой свод знаний по теоретической и прикладной теплотехнике.
-Справочник является практическим пособием для инженерно-технического персонала, работающего в области теплотехники, теплоэнергетики и теплофизики.Жанр: Технические наукиИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EFD0B19719651B978203B15DE9AB5D185AB224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755983   (39979) от 18.10.2024
-
-Н.И. Кошкин | Элементарная физика. Справочник (1991) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены основные понятия, определения и законы физики. Логика и структура изложения позволяют оперативно находить четкие и краткие ответы или справочные данные по различным вопросам элементарной физики. Наряду с простотой теоретический уровень изложения соответствует современному состоянию принятых в научных исследованиях понятий и формулировок основных законов (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4329DEF21B3DAADCECC33345545F8A2B2F64B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755982   (39976) от 18.10.2024
 
 Н.И. Кошкин, Е.Н. Васильчикова | Элементарная физика. Справочник (1996) [DJVU]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39976.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39797.jpg" />
 </div>
 
 
@@ -195,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39791.jpg" />
 </div>
 
 
@@ -221,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39762.jpg" />
 </div>
 
 
@@ -247,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39715.jpg" />
 </div>
 
 
@@ -273,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39714.jpg" />
 </div>
 
 
@@ -299,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39711.jpg" />
 </div>
 
 
@@ -325,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39704.jpg" />
 </div>
 
 
@@ -351,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39513.jpg" />
 </div>
 
 
@@ -377,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39512.jpg" />
 </div>
 
 
@@ -403,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39507.jpg" />
 </div>
 
 
@@ -429,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39315.jpg" />
 </div>
 
 
@@ -457,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39218.jpg" />
 </div>
 
 
@@ -483,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39209.jpg" />
 </div>
 
 
@@ -509,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39119.jpg" />
 </div>
 
 
@@ -537,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39100.jpg" />
 </div>
 
 
@@ -566,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39090.jpg" />
 </div>
 
 
@@ -592,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39081.jpg" />
 </div>
 
 
@@ -618,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39032.jpg" />
 </div>
 
 
@@ -644,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39002.jpg" />
 </div>
 
 
@@ -671,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38995.jpg" />
 </div>
 
 
@@ -682,6 +547,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C961BD16A29951364553B7B5D4276753220AB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757767   (38933) от 29.10.2024
+
+Тимофей Кармацкий | Доказательная психосоматика: факты и научный подход. Очень полезная книга для всех, кто думает о здоровье (2023) [PDF, FB2, RTF, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тимофей Кармацкий — врач в третьем поколении, невролог, автор You-Tube-канала с миллионной аудиторией. Уже более 10 лет он активно занимается изучением и развитием естественных методов оздоровления, которые реально работают.
+
+В этой книге вы узнаете, что такое доказательная психосоматика, увидите, как на самом деле работают психика, мозг и весь организм, почему реагирует (   Читать дальше...   )Жанр: Красота, здоровье и спортИздательство: АСТФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB8A217F27AED6655FE1F7F6BCC2DB177F1436E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757987   (38865) от 30.10.2024
+
+В. Черепнюк, А. Николаева | Мифы народов России. Коллекция из 4 книг (2024) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38865.jpg" />
+</div>
+
+
+###  Подробнее
+
+В комплект входят книги: «Славянские мифы», «Мифы Русского Севера, Сибири и Дальнего Востока», «Мифы Урала и Поволжья», «Мифы Карелии и Ингерманландии».
+
+Комплект «Мифы народов России» представляет собой уникальное издание, в котором собраны и бережно рассказаны мифы и легенды различных народов, населяющих обширные просторы нашей страны от Карелии до Дальнего Востока. (   Читать дальше...   )Жанр: Мифы. Легенды. ЭпосИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73179BB5A4B50327849D6A168F112A32C51E4507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757886   (38846) от 30.10.2024
+
+Г. Дубинина | Красота своими руками. Практикум по гимнастике для лица (2022) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мы знаем, что хорошо выглядим, то чувствуем и ведем себя увереннее. Люди, довольные собой, чаще вызывают у других симпатию. Они прекрасно получаются на фотографиях, потому что не зажаты, любят себя и принимают свою внешность. Но как этого добиться, если время берет свое, и все мы с годами меняемся. Можно ли без оперативного вмешательства, радикальных мер сохранить (   Читать дальше...   )Жанр: Красота и здоровьеИздательство: СПб.: «Весь»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B567EE6A3074A3001600CF36CC266990AD18644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757898   (38839) от 30.10.2024
+
+Л.В. Ровнейко, З.И. Помаскина | Лепка (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38839.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии представлены материалы для практических занятий, цель которых – помочь учащимся овладеть знаниями, умениями и навыками при выполнении лепки с натуры, по собственным композициям правильных геометрических и растительных форм, объемных этюдов птиц, животных, головы и фигуры человека. Даны основные понятия, сущность, порядок и способы изображения объектов (   Читать дальше...   )Жанр: Учебное пособие, изобразительное искусствоИздательство: Минск: Республиканский институт профессионального образованияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60F9A6EB02AD3930C39F878FADA2822DD219181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758100   (38739) от 31.10.2024
+
+Л. Утин и др. | Военные системы спутниковой и транкинговой связи (2023) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит информацию для изучения основ и принципов организации спутниковой и транкинговой связи, о назначении, составе, технических характеристиках, устройствах, принципах работы аналоговых и цифровых радиостанций транкинговой связи, станций полевых узлов связи и их составных частей, а также информацию, необходимую для обеспечения правильной эксплуатации и максимально (   Читать дальше...   )Жанр: учебно-методические пособияИздательство: БГУИРФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C871B4EEF96035DCF42FF8441960B945109DC900
 ```
 
 https://mybot314.ru/tekegram_catalog/

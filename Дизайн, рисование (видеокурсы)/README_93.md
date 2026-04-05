@@ -1,3 +1,57 @@
+###  Публикация: 1693071   (122111) от 19.01.2024
+
+CG Boost, Louis du Mont | Robotic Planet (2023) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Твёрдотельное моделирование в Blender стало увлекательным и простым делом.
+Боретесь со сложностями создания моделей с твердыми поверхностями в Blender?
+Именно поэтому мы создали наш комплексный курс Robotic Planet для Blender, призванный помочь вам сэкономить время и приобрести необходимые навыки для работы с твердыми поверхностями, используя бесплатные инструменты. (   Читать дальше...   )Производство: CG BoostЖанр: 3D моделирование, АнимацияЯзык озвучки: АнглийскийПродолжительность: 11:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70E43FC2CC542FD672EAF8054CC0E81FC267678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693098   (122083) от 19.01.2024
+
+CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122083.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом видео вы узнаете, как вылепить кота-сфинкса в Blender 2.7 и как настроить процедурные шейдеры и анимацию камеры в Blender 2.8 (EEVEE).Производство: CG BoostЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 02:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFDD3D115D36F80A37299569A6FE633C8B0353F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693138   (122082) от 19.01.2024
 
 Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blender 2.92 (2021) PCRec [EN / EN Sub]
@@ -6,7 +60,7 @@ Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122082.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Color school, Анна Давидян | Фотография в интерьер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122059.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121881.jpg" />
 </div>
 
 
@@ -91,7 +145,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121657.jpg" />
 </div>
 
 
@@ -120,7 +174,7 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121565.jpg" />
 </div>
 
 
@@ -149,7 +203,7 @@ Enterclass, Анна Хопта | Белое на белом (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121534.jpg" />
 </div>
 
 
@@ -175,7 +229,7 @@ Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120694.jpg" />
 </div>
 
 
@@ -204,7 +258,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120551.jpg" />
 </div>
 
 
@@ -232,7 +286,7 @@ Mircourse, Ольга Привалова | Художник-дизайнер и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120533.jpg" />
 </div>
 
 
@@ -260,7 +314,7 @@ Bazanova Art, Ольга Базанова | Как начать писать м�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120514.jpg" />
 </div>
 
 
@@ -289,7 +343,7 @@ Artefacto school, Любовь Титова | Цветы и стеклянные
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120497.jpg" />
 </div>
 
 
@@ -317,7 +371,7 @@ Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120401.jpg" />
 </div>
 
 
@@ -343,7 +397,7 @@ Udemy, Daren Perincic | 2024 Blender Beginner Course - Create Cinematic Scenes (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120207.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ Solid Factory, Антон Ильин | SolidWorks. Базовый курс (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120204.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ VideoSmile, Дмитрий Кузнецов | Супер Photoshop (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119589.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117077.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender Material Nodes Master: Create Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116963.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Geometry Nodes in Blender 4: Create Comp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116962.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116469.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ Jcenters | C разбега в синематик (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116466.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116311.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116284.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ Gustavo Pezzi | 3D Computer Graphics Programming (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116264.jpg" />
 </div>
 
 
@@ -646,7 +700,7 @@ Raffo VFX, Patreon | Уроки с сайта Patreon по VFX в Blender (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115948.jpg" />
 </div>
 
 
@@ -658,64 +712,6 @@ YouTube канал автора с примерами его работ и др�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86CB55FB6FBA39B00D5E3593F3F26F2B1E1D1F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702695   (115647) от 26.02.2024
-
-Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля до результата, основы UX - UI (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью обновленный курс
-Веб дизайн в Figma с нуля до результата!
-Основы UX/UI Web Design
-В этом курсе, вы найдете все для успешного старта карьеры в UX/UI.(   Читать дальше...   )Производство: StepikЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 16:19:32Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C3040127B49992C769924F51ED55F8225B34AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703405   (115146) от 29.02.2024
-
-Skillbox, Андрей Миронов, Екатерина Воронина | Инфографика для маркетплейсов (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь создавать яркие и цепляющие карточки товаров для своего магазина и на заказ. Сможете получать дополнительный доход или увеличить продажи собственного бренда на маркетплейсах.
-Чему вы научитесь:
-✅Анализировать конкурентов. Узнаете, как отстраиваться от других продавцов и выгодно выделять товар на фоне похожих.
-✅Делать информативные изображения. (   Читать дальше...   )Производство: SkillboxЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 05:04:51Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076C50072FAC5B708478D854CB1CD268EBE78D1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

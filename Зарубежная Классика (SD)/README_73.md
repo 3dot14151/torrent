@@ -1,3 +1,56 @@
+###  Публикация: 823313   (473005) от 21.09.2014
+
+Муха / The Fly (1986) HDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый и немного эксцентричный ученый Сет Брандл изучает проблемы телепортации. Начав с перемещения в пространстве неодушевленных предметов, гений от науки решает поэкспериментировать с живыми существами.
+ Воодушевленный удачным результатом опыта по телепортации обезьяны, он сам хочет стать объектом эксперимента. Но по воле случая в стерильную камеру залетает (   Читать дальше...   )Производство: США, Великобритания, Канада / Brooksfilms, SLM Production GroupЖанр: Ужасы, Фантастика, ДрамаРежиссер: Дэвид КроненбергАктеры: Джефф Голдблюм, Джина Дэвис, Джон Гец, Джой Баушел, Лесли Карлсон, Джордж Чувало, Майкл Коупмен, Дэвид Кроненберг, Кэрол Лазар, Шон ХьюитПеревод: Многоголосый закадровый, авторскийПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B830BE71A04977FB187C0C68C15FEF3FF9F1EB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386745   (471718) от 11.09.2011
+
+Смертельная охота / Death Hunt (1981) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Боевик, Триллер, КриминалРежиссер: Питер Р. ХантАктеры: Чарльз Бронсон, Ли Марвин, Эндрю Стивенс, Карл Уэзерс, Эд Лотер, Энджи Дикинсон, Скотт ХайлендсПеревод: Русский профессиональный (многоголосый, закадровый)Продолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFBCAC8A4ED1A5FECEA6FD39847171341B24B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937494   (470812) от 23.09.2015
 
 Черный Джек / Black Jack (1979) HDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470812.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470425.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470144.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470056.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469709.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469610.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468789.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468685.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468417.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468024.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466938.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466050.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465928.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465907.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465499.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465355.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464705.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464532.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464522.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464155.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463794.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463358.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462385.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461700.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00D8505BD556E3D9D2C13A1C8FA99379AEE6DE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053169   (461625) от 04.10.2016
-
-Венецианский палач / Il boia di Venezia (1963) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смертельно больной правитель Венеции открывает своему сыну Сандриго тайну его происхождения: малыш был найден им на палубе атакованного венецианцами пиратского судна. В день свадьбы Сандриго с прекрасной Леонорой его арестовывают по приказу Верховного Инквизитора, который сам домогается любви Леоноры...Производство: Италия / Liber FilmЖанр: ПриключенияРежиссер: Луиджи КапуаноАктеры: Лекс Баркер, Гай Мэдисон, Алессандра Панаро, Марио Петри, Альберто Фарнезе, Джулио Маркетти, Федор Шаляпин мл., Франко Фантазия, Раф Бальдассарре, Мирелла РоксиПеревод: Двуголосый закадровый (НТВ-Профит)Продолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D6A38F7BF9C72FADB1776B970704143A9EBD76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160150   (461190) от 31.08.2017
-
-Языческая любовная песнь / Pagan Love Song (1950) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мими Беннетт, наполовину таитянка и наполовину американка, живёт на вилле на острове Tаити вместе со своей богатой тётей. Мими откровенно скучает на острове, где жизнь напоминает бесконечные каникулы, и мечтает уехать в Америку. В один прекрасный день девушка и её друзья отправляются поприветствовать по таитянскому обычаю прибывающий пароход. Там её замечает один (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, МелодрамаРежиссер: Роберт ЭлтонАктеры: Эстер Уильямс, Ховард Кил, Минна Гомбелл, Рита Морено, Бен Чэпман, Джин Кугэн, Карло Кук, Марсель Кордей, Филип КостаПеревод: Одноголосый закадровый (Матвей Кенс)Субтитры: Русские (Forced, Full), английскиеПродолжительность: 01:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BF02EFB5FF1125C9E6606F786580D4F4CDB420
 ```
 
 https://mybot314.ru/tekegram_catalog/

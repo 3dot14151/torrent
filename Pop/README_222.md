@@ -1,176 +1,3 @@
-###  Публикация: 1175958   (374345) от 20.10.2017
-
-Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sidonie
-02. L’Appareil A Sous
-03. Les amis de la musique
-04. El cuchipe(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB22655815E64F80C8AA9FBA6DF9952E6AB29577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176144   (374344) от 20.10.2017
-
-Cook County - Pinball Playboy (Playboy Theme) (1979) LP [MP3|320 Kbps] <Disco, Sax-Jazz-Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pinball Playboy (5:30)
-02. Little Girls & Ladies (3:42)
-03. Comin' To Getcha (4:25)
-04. Olympiad '84 (3:54)(   Читать дальше...   )Жанр: Disco, Sax-Jazz-FunkПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA73F19401171F6B1AB738BEBD7AF606922C2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176096   (374336) от 20.10.2017
-
-Диана Гурцкая - Паника (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374336.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Звезда
-2. Пудель
-3. Аллилуйя
-4. Свадьба(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A254D2427866491171ECE8D57A0AE1D0455973D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415820   (374176) от 13.10.2020
-
-Christian Kolonovits - 3 Albums (1976-1984) LP Collection [MP3|320 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый австрийский композитор и аранжировщик Кристиан Колоновиц относится к числу самых заметных музыкантов, формировавших ландшафт европейской поп-сцены в 70-х-80-х годах XX века. Работал с такими звёздами как Chilly, Boney M., Eruption , Scorpions, Tiger Lillies, Jose Carreras, Wolfgang Ambros, Ludwig Hirsch, Einstein, Black Jack, Joy и многими другими.Список альбомов:
-1976 - Life Is Just A Carnival
-1982 - Christian Kolonovits
-1984 - Erbsünde Für Fortgeschrittene(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E175719FB19E0DE78A22C18C4069E95C88239B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069415   (373976) от 04.11.2016
-
-Innocence - Natural Thing (1989) Maxi-Single, 1990, Chrysalis [FLAC|Lossless|image + .cue] <Electronic, Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373976.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Natural Thing (7 Inch) 4:05
-2. Natural Thing (Elevation) 10:03
-3. Natural Thing (Original) 4:15Жанр: Electronic, Pop, Funk, SoulПродолжительность: 00:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F006843CF644E2D5B5FDD729DDB81CA97477FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415655   (373787) от 13.10.2020
-
-Boney M - Oceans Of Fantasy + Single Hits (2000) [FLAC|Lossless|image + .cue] <Funk, Soul>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It All Be Music (04:56)
-02. Gotta Go Home (03:48)
-03. Bye Bye Bluebird (04:52)
-04. Bahama Mama (03:19)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AFDEF6E6EAFE74B336E1B58C240B08DDA3B03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254668   (373190) от 14.10.2018
 
 Gotham Flasher - Gotham Flasher (1979) [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -179,7 +6,7 @@ Gotham Flasher - Gotham Flasher (1979) [MP3|320 Kbps] <Electronic, Funk/Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373190.jpg" />
 </div>
 
 
@@ -208,7 +35,7 @@ Giorgio And Chris - Love’s In You, Love’s In Me (1978) Remaster, 2010, Gold 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373104.jpg" />
 </div>
 
 
@@ -237,7 +64,7 @@ VA - Звездная Италия. Хиты 80-х (2010) [MP3|128 kbps]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372966.jpg" />
 </div>
 
 
@@ -263,7 +90,7 @@ The Beloved - X (1996) [FLAC|image+.cue]<House, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372929.jpg" />
 </div>
 
 
@@ -292,7 +119,7 @@ Louis Prima & Keely Smith - Buona Sera (1999) [MP3|320 кб/с]<pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372786.jpg" />
 </div>
 
 
@@ -318,7 +145,7 @@ September - September (2004) [MP3|256 кб/с]<Pop, Dance, Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372582.jpg" />
 </div>
 
 
@@ -347,7 +174,7 @@ Ricchi E Poveri - The Best Dance Remixes (2015) [MP3|320 кб/с]<Dance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372581.jpg" />
 </div>
 
 
@@ -376,7 +203,7 @@ Silver Pozzoli - Around My Dreams (1987) CD [MP3|320 Kbps] <Electronic, Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372440.jpg" />
 </div>
 
 
@@ -405,7 +232,7 @@ Stars On 45 - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372333.jpg" />
 </div>
 
 
@@ -434,7 +261,7 @@ Naomi - 2 Albums (2018, 2019) [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372275.jpg" />
 </div>
 
 
@@ -463,7 +290,7 @@ Mozzart - Devil's Rendezvous - Greatest Hits & More (2019) Compilation, Remaster
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372270.jpg" />
 </div>
 
 
@@ -492,7 +319,7 @@ Bat & Ryyd - Ehtaa Tavaraa (1989) Reissue CD, Snap Records, 2000 [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372174.jpg" />
 </div>
 
 
@@ -521,7 +348,7 @@ Albert One - Everybody (1988) Reissue CD, ZYX Music, 2001 [MP3|320 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372166.jpg" />
 </div>
 
 
@@ -550,7 +377,7 @@ Shobizz - Shobizz (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371923.jpg" />
 </div>
 
 
@@ -579,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371648.jpg" />
 </div>
 
 
@@ -608,7 +435,7 @@ VA - Studio 57 vol.1 (1983) 2xLP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371401.jpg" />
 </div>
 
 
@@ -637,7 +464,7 @@ Champagne - The Best Of (2007) CD [MP3|320 Kbps] <Disco, Funk-Soul, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371320.jpg" />
 </div>
 
 
@@ -666,7 +493,7 @@ Jack Savoretti - Sleep No More (2016) [FLAC|Lossless|image + .cue] <Pop, Folk, A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371290.jpg" />
 </div>
 
 
@@ -695,7 +522,7 @@ Serebro - Сила трёх (2016) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370997.jpg" />
 </div>
 
 
@@ -724,7 +551,7 @@ Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370897.jpg" />
 </div>
 
 
@@ -744,6 +571,198 @@ Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576116   (370837) от 12.09.2022
+
+Svenne & Lotta - 6 Albums (1973-1983) Collection [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Svenne & Lotta (в некоторых странах Sven & Charlotte) - поп-дуэт Свенне Хедлунд и Лотты Хедлунд. Они познакомились в 1967 году, когда (вместе с Бенни Андерссоном из ABBA) Свенне Хедлунд был вокалистом в группе Hep Stars. Шарлотта Уокер, которую в то время звали Лотта Хедлунд, гастролировала по Швеции с женским американским трио The Sherrys. Стремясь пойти (   Читать дальше...   )Список альбомов:
+1973 - Oldies But Goodies
+1975 - 2
+1976 - Letters(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, SchlagerПродолжительность: 03:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7245E0CACAE5E3F7C743512783F50A59A7FB259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574846   (370542) от 14.11.2012
+
+VA - Суперхиты дискотеки 90-х ...продолжение (2011) [MP3|320 кб/с]<Pop, Eurodance>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East 17 - It's Alright
+02. E-Type - Set the World on Fire
+03. Captain Hollywood - Over and Over
+04. DJ BoBo - Take Control
+05. Ardis - Ain't Nobody's Business
+06. Mr.President - Coco Jambo
+07. Sonic Dream Collective - Don't Go Breaking My Heart
+08. Gala - Freed from Desire
+09. Jimmy Somerville - Comment Te Dire Adieu
+10. Haddaway - Rock My Heart(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC04CFE1F247CDF774AD03EC3E14892063773B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575109   (370424) от 14.11.2012
+
+Радмила Караклаич - Цыганские песни разных лет (1981) [MP3|256 кб/с]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ja sam takva
+02. Samo ljubav
+03. Dve gitare
+04. Doslo vreme
+05. Sare patrja (Sve karte)
+06. Kad se setis
+07. Jo deves (Uvece)
+08. Aj Danu-Da naj
+09. Sunce
+10. S pesmom i gitarom(   Читать дальше...   )Жанр: РетроПродолжительность: 01:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8419DAFF1B4A4D0CB1AD7A57927EA6F93D44BA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950521   (370250) от 26.10.2015
+
+One Direction - Four • The Ultimate Edition (2014) [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steal My Girl [03:48]
+02. Ready To Run [03:16]
+03. Where Do Broken Hearts Go [03:49]
+04. 18 [04:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0667ABA1BDD495AE880DD41E88B55A379BDD5AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574844   (370092) от 14.11.2012
+
+VA - Суперхиты дискотеки 90-х. Золотые баллады (2011) [MP3|320 кб/с]<Pop, Eurodance>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haddaway - I Miss You
+02. East 17 - Thunder
+03. Seal - Crazy
+04. Simply Red - Stars
+05. Rialto - Monday Morning
+06. Chris Rea - The Road To Hell (Part II)
+07. Coolio - Gangsta's Paradise
+08. Sarah Brightman - Eden
+09. Shakespears Sister - Stay
+10. East 17 feat. Gabrielle - If You Ever(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA1D0EDD08F97AB548E7C2E3B67188062698C52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176590   (369846) от 22.10.2017
+
+Carl Douglas - Kung Fu Fighting (1994) The Best Of Carl Douglas [MP3|320 Kbps] <Electronic, Pop-Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kung Fu Fighting (3:16)
+02. When You Got Love (3:30)
+03. I Want To Give You My Everything (2:37)
+04. Run Back (3:23)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, DiscoПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B5546A60B3F9B61352246490B7C009CE164C9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

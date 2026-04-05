@@ -6,7 +6,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321478.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Разрушители легенд. Звёздные войны: О�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321099.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318958.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318953.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318487.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ N.G. Большие кошки. Удивительная семья / Big Cats: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318465.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318176.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317326.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317024.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316873.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316409.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG. Экстремальный Китай. Хайнань / Extreme China. Haina
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316405.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery: Смертоносные эпидемии / Killer outbreaks (2011) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316395.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery: Вот это странно / Williams Shatner's Weird or What (2012
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316170.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Невидимый Рим / Rome's Invisible City (2015) HDTV [H.264/1080i-
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316168.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NGW: Сексуальное рабство 21 века / 21st Century Sex Slaves
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316148.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DLRip (1 сезон:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315957.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NGW: Акулы на охоте / Shark The Hunt. Kill Zone (2018) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315876.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315053.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG: Международный аэропорт Дубай. Серия 4 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315036.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NGW: Дикая природа Перу: арена боев – Анды. Ди�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314014.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NG: Международный аэропорт Дубай. Серия 5 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312524.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ PBS Nature: Гималаи / PBS Nature: The Himalayas (2011) [H.264/1080p-LQ] B
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312143.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NG. Открытие потерянной могилы Ирода / Uncovering H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311832.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311531.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311503.jpg" />
 </div>
 
 

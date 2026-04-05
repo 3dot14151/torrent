@@ -1,3 +1,32 @@
+###  Публикация: 1674189   (161725) от 04.11.2023
+
+Udemy, Luis Ramirez Jr | Complete Modern PHP Developer Course in 2023 (2023) WEB-DL [AD] [EN, RU / EN, RU Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161725.jpg" />
+</div>
+
+
+###  Подробнее
+
+PHP - один из самых популярных языков программирования в мире. На нем работает весь современный Интернет. Он обеспечивает миллионы высокооплачиваемых рабочих мест по всему миру.
+
+Поэтому вы тоже хотите изучать PHP. И вы пришли по адресу!
+(   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, РусскийПродолжительность: 23:35:31Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4AEF99C83A56ACF9EE437CDC44D5861B04EE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674293   (161688) от 04.11.2023
 
 Udemy, Banza Academy | SQL для нетехнических специалистов (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@ Udemy, Banza Academy | SQL для нетехнических специалис�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161688.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161677.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Yiihuu, Wingfox, Ji Yu | Creating a AAA Character from Scratch: A Nameless Samur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161658.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161652.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ Community Traders, Сергей Привалов | Программируем т
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161634.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161545.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Skillbox, Eight, Наиля Синицына и др. | Рекламная фо�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161543.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ Skillbox, BangBang, Tagline, Илья Митрошин и др. | Скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161526.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161414.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161406.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161360.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161353.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161297.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161272.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Enterclass, Елена Куракина | Розы акрилом (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161252.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ ZartSchool, Павел Зубов, Татьяна Зубова | Море на �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161213.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161179.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ JUG Ru Group | Heisenbug 2023 Autumn. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161051.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Skillshare, Dave Bergin | Character Creation in Cinema 4D and Daz Studio (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161044.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161032.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161030.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ Skillshare, Marco Bucci | Digital Painting 3 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161021.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ New masters academy, Glenn Vilppu | Foundations of Composition (2016) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161010.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ ArtStation, Realtime GraphX | Create Next Gen AAA Characters for Unreal Engine (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160984.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ JUG Ru Group | Joker 2023. Конференция для опытных Java‑�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160978.jpg" />
 </div>
 
 
@@ -672,34 +701,6 @@ Joker - конференция для Java-программистов, прох�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1D502362BA957F75D8F9F4A6C29E1EC9B5B4E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579041   (160975) от 21.12.2022
-
-Лера Мартинова | Курс для мужчин «Супер-любовник» (2014) CamRip [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите ли вы, чтобы ваша женщина испытывала любые виды оргазмов, в том числе сквиртинг, любила разнообразный секс и охотно воплощала бы ваши фантазии?
-Хотели бы вы взять от секса по максимуму, испытывая наслаждение в разы сильнее предыдущего опыта?
-Готовы ли вы узнать всю правду о женском удовольствии из первых уст - от женщины секс-тренера, которая расскажет ВСЁ, (   Читать дальше...   )Жанр: Сексология, ОтношенияЯзык озвучки: РусскийПродолжительность: 01:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3015D17CAFFC5AE88F95D685F9640B8A8985FB22
 ```
 
 https://mybot314.ru/tekegram_catalog/

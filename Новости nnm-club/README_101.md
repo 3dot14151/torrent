@@ -1,3 +1,29 @@
+###  Публикация: 1023880   (721823) от 06.06.2016
+
+Freemake Video Converter 4.1.9.14 RePack by CUTA [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7911CE9AF29749ACE4839FF5CFB379D6EF7A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982165   (721488) от 06.06.2016
 
 Территория (2014) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721488.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Acronis True Image 19.0.6571 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721485.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_720669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720669.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ ABBYY Lingvo X6 Professional 16.2.2.133 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720613.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720612.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Windows 7 SP1 4in1 (x64) Elgujakviso Edition (v.25.02.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720384.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720380.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719730.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719688.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Daum PotPlayer 1.7.10667 Stable RePack (& portable) by 7sh3 (06.04.2018) [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718977.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718575.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ ITVDN | Подборка учебных курсов IT специальност
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718512.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718465.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718464.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Android сертифицирована FIDO2 - пользователей изб
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718374.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Watch Dogs / Watch_Dogs (2014) [Ru/En] (1.06.329/dlc) Repack R.G. Origami [Delux
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717873.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Portable by conservator [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717867.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717856.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717038.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716896.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716894.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ DFX Audio Enhancer 11.400 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716826.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716613.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Twonky Media Server 8.0.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716550.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716444.jpg" />
 </div>
 
 
@@ -652,33 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BDF9854C04EA72F3B8BA9131A5F28E04AFFE0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285729   (716438) от 28.02.2019
-
-Робот "Федор" и его четвероногий друг
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зарубежные компании отказались поставлять комплектующие для робота "Федора" в Россию после того, как узнали, что он научился стрелять из пистолетов, сообщил в интервью РИА Новости исполнительный директор НПО "Андроидная техника" Евгений Дудоров.
-"Возможно, мы бы и дальше продолжили пользоваться зарубежной продукцией, но после того, как наши (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

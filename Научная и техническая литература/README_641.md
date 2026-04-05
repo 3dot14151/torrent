@@ -1,137 +1,3 @@
-###  Публикация: 1786829   (23859) от 22.03.2025
-
-Андрей Школьников | Национальные стратегии: Геостратегический взгляд на будущее мира и России (2021-2090 годы) (2023) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами уникальная книга, посвященная вопросам теории и практики современной геостратегии. Книга включает подробное описание методологии сценарных и стратегических решений для мира в целом, России, крупнейших стран, союзов и территорий на период 2021–2090 годов. Настоящая книга является расширенной, фундаментально дополненной и доработанной версией первого издания, (   Читать дальше...   )Жанр: ГеостратегияИздательство: Издательский дом «КОРВУС»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B4AB04881CBA97DC3E9F3B73BC32AE7FF9A7DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786957   (23769) от 23.03.2025
-
-Альберт Шубаев | Английский в деталях. Изучаем тонкости языка с @VeryEnglish! (2025) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучаете английский язык? Не упустите шанс познакомиться с книгой лингвиста Альберта Шубаева, оформленной в стиле газеты!
-
-Внутри вас ждет:
-1. 35 глав на самые актуальные темы: от тонкостей грамматики до полезных лайфхаков.(   Читать дальше...   )Жанр: Изучение языковИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5428A2062A7C35ED9B5579B8486A1CFB2FE29997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786987   (23757) от 23.03.2025
-
-Иоханнес Иттен | Искусство цвета (2014) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иоханнес Иттен - швейцарский художник, крупнейший исследователь цвета в искусстве и один из ведущих преподавателей знаменитого Баухауза, знаток классического и новейшего европейского искусства, а также философии и культуры Индии и Китая. Книга написана на основе наблюдений художника за цветом в природе и произведениях искусства различных времен и народов. Автор разбирает (   Читать дальше...   )Жанр: Графический дизайнФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAFE496AF45BC883192842A1259D6B0DB06E3770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786959   (23744) от 23.03.2025
-
-Киран Сетия | Жизнь жестче (2024) [FB2, RTF, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нелегко – вы в этом не одиноки. В книге «Жизнь жестче» американский философ Киран Сетия на личных примерах рассказывает, как мы сталкиваемся с физической болью, горем из-за утраты близких, ощущением, что каждый день происходит худшее, и ничего не изменишь. Но отчаиваться не стоит. Призывая на помощь Аристотеля и Канта, Теодора Адорно и Симону Вейль, а также (   Читать дальше...   )Жанр: Научная и научно-популярная литератураИздательство: ИндивидуумФормат: FB2, RTF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C27AB5A37AD252975C9DF464AB0135C172971CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786922   (23740) от 23.03.2025
-
-Д. Элуэлл | Искусственные драгоценные камни (1986) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23740.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге Д. Элуэлла (Великобритания) рассмотрены методы выращивания синтетических минералов, используемых в ювелирной промышленности, в том числе соединений, не имеющих аналогов в природе, описаны их свойства, определяющие пригодность для использования в украшениях.
-Для специалистов, выращивающих и обрабатывающих искусственные драгоценные материалы, а также для любителей (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FE21B2FF5F8C6038DD618459E5DD05EB1C87EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787156   (23647) от 24.03.2025
 
 И.Г. Булавко | Методическое руководство для самостоятельной работы студентов по математике (1976) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23647.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23646.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23641.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23620.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23619.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23618.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23564.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23550.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23523.jpg" />
 </div>
 
 
@@ -376,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23457.jpg" />
 </div>
 
 
@@ -402,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23456.jpg" />
 </div>
 
 
@@ -428,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23454.jpg" />
 </div>
 
 
@@ -454,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23351.jpg" />
 </div>
 
 
@@ -480,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23333.jpg" />
 </div>
 
 
@@ -506,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23330.jpg" />
 </div>
 
 
@@ -532,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23324.jpg" />
 </div>
 
 
@@ -558,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23323.jpg" />
 </div>
 
 
@@ -584,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23298.jpg" />
 </div>
 
 
@@ -610,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23233.jpg" />
 </div>
 
 
@@ -638,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23230.jpg" />
 </div>
 
 
@@ -666,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23229.jpg" />
 </div>
 
 
@@ -678,6 +544,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B579977B2D5AD2A965EB7F5FA3CF1F913044B42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787931   (23210) от 28.03.2025
+
+В.В. Прасолов, Ю.П. Соловьев | Эллиптические функции и алгебраические уравнения (1997) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой вводный курс в теорию эллиптических функций и эллиптических кривых.
+Основные вопросы, рассматриваемые в книге - это геометрия кубических кривых, эллиптические функции и их свойства, эллиптические интегралы, теоремы сложения эллиптических функций и интегралов, теоремы Абеля о лемнискате, теорема Морделла, тэта-функции, кривые Серре. И приводится (   Читать дальше...   )Жанр: МатематикаИздательство: ФакториалФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A20CC414C0A8C19CACAC122AB717534F63381A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787932   (23209) от 28.03.2025
+
+А.А. Ярославцев | Сборник задач и упражнений по аналитической химии (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник систематически подобранных задач и упражнений (около 1500) по основным разделам курса аналитической химии. Каждому разделу предшествует небольшое теоретическое введение и решение типовых задач. Третье издание вышло в 1973 г.Жанр: ХимияИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B0EE250DEE98B2F5AB9A7E8BB7D4180A036377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788270   (23120) от 29.03.2025
+
+В.В. Буканов | Цветные камни. Энциклопедия (2008) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга зарекомендовала себя как один из лучших справочников о цветных камнях. Её первый вариант в виде «Геммологического словаря» вышел в 2001 году, затем в 2006 году в Праге напечатано её расширенное и прекрасно иллюстрированное английское издание. На конкурсах Российского минералогического общества, обе книги отмечены дипломами. В данный вариант энциклопедии, (   Читать дальше...   )Жанр: Минералогия. Геммология. Энциклопедия. Учебная литература.Издательство: Гранит, ПрагаФормат: PDF, DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8113BDF526D2353C5D7D819FF1859E381CFD2413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788341   (23103) от 29.03.2025
+
+Л.М. Брагина (отв. ред.) | Книга в культуре Возрождения (2002) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпоха Возрождения - время информационной революции, связанной с изобретением и широким распространением книгопечатания как нового средства коммуникации, выполняющего различные функции в общественной, политической, религиозной и культурной жизни Европы XV - начала XVII в. В статьях сборника рассматриваются: специфика содержания и оформления различных типов печатных (   Читать дальше...   )Жанр: ИсторияИздательство: НаукаФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9C14ABBC0F4E5263A77CDA40434125301BD233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788288   (23101) от 29.03.2025
+
+М. эль-Массарини, В.С. Сегаль | Арабско-русский словарь сирийского диалекта (1978) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арабско-русский словарь сирийского диалекта
+(Эль-Массарани Мохамед, Сегаль Владимир Соломонович )
+ включает около 12 тыс. слов сирийского диалекта. В словаре даны распространенные словосочетания и широко употребительные выражения, специфичные для сирийского диалекта. Слова и фразеология даны в арабской графике и латинской транскрипции. Заглавные слова расположены (   Читать дальше...   )Жанр: Арабский языкИздательство: Русский языкФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A154CDAA8B14E28730857002EFD7BDDABAA6C518
 ```
 
 https://mybot314.ru/tekegram_catalog/

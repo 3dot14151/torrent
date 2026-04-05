@@ -1,29 +1,3 @@
-###  Публикация: 1045577   (559825) от 23.08.2016
-
-В теме. Спорт как оружие (23.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559825.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В теме» - информационно-аналитическая программа. Известные политологи - о самых актуальных событиях и тенденциях в мире.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEF1345F3D40BFD6B7AAE28D2C679C67885743C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045306   (559820) от 23.08.2016
 
 В теме. GAME OVER (22.08.2016) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559820.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559177.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559105.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557188.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556973.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556954.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556928.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556927.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556505.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555545.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555199.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554995.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553509.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553119.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553050.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552757.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552221.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552201.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552016.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551854.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551629.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551175.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551169.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551096.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550932.jpg" />
 </div>
 
 
@@ -671,6 +645,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF4B17B1D3FB26586FF0BFA5A51DD1084D6657FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047134   (549920) от 29.08.2016
+
+Гуд бай, Америка! (2016) SATRip
+
+>>След.
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отдаст ли когда-нибудь Америка долги? Для чего биржевые спекулянты сбрасывают акции американских банков? Грядет кризис посерьезнее 2008 года, когда на улице без работы оказались десятки тысяч человек? Никто из экономистов и политологов не пожелает краха Америки и ее экономики. Ведь в этой стране вся экономическая стабильность планеты.
+Доллары - главная мировая валюта (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: Документальный, политика, финансыПродолжительность: 01:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9472985AB633E53DD7D392643CC9540750F0793
 ```
 
 https://mybot314.ru/tekegram_catalog/

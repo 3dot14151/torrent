@@ -1,3 +1,57 @@
+###  Публикация: 1318629   (492724) от 07.08.2019
+
+студия Диафильм | Рикки-Тикки-Тави (1967) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рикки-Тикки-Тави — молодой мангуст, главный герой рассказа. Во время наводнения его уносит от родителей сильнейшим потоком воды. Очнувшись, он оказывается в саду дома, где живёт семья британцев. Защитив их сына Тедди от ядовитой змейки Караит (ленточный крайт), Рикки-Тикки-Тави сразу же становится их другом. Он исследует дом и сад, знакомится с их обитателями: мускусной (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA130A33343479B600B62B4B5E55F5682BA60F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318769   (492712) от 07.08.2019
+
+Лора Ли | Хочу всё знать о балете. Детская энциклопедия балета: история, музыка и волшебство классического танца (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детская энциклопедия балета. Хочу все знать о балете! История, музыка и волшебство классического танца — Каждая девочка мечтает стать балериной. Что может быть прекраснее изящной фигурки в пачке и пуантах, танцующей в свете софитов? Балет - это невероятно красивый и волшебный мир, о котором тебе расскажет энциклопедия.
+Как появился балет?
+Сколько позиций ног существует (   Читать дальше...   )Жанр: Детская энциклопедияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6A7CEA15D24A35800B4917321A705C1CF3A37D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543806   (492709) от 06.09.2012
 
 О.Д.Ушакова | Проверялочка: Разбор слова по составу, 2-4 классы [2008] [PDF]
@@ -6,7 +60,7 @@
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492709.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492590.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492484.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492479.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492475.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492366.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492320.jpg" />
 </div>
 
 
@@ -198,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492305.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492200.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492159.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492065.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491489.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491103.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491083.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490893.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490867.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490574.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490410.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490274.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490272.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490269.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490268.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490266.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490265.jpg" />
 </div>
 
 
@@ -636,59 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA3776220AE6999883CF10061DB47789AA145B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937147   (490187) от 14.09.2015
-
-Владимир Благов | Сезон несбывшихся желаний (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Ключников – талантливый предприниматель – организует в школе клуб изучения истории Древнего Египта. Его подходы к предмету неожиданны и нетрадиционны. Он мечтает увлечь подростков свежими идеями и стать для них другом. Но его инициатива встречает непонимание и активное противодействие со стороны родителей и директора школы. Взрослые не хотят замечать, что дети (   Читать дальше...   )Жанр: Детская проза, Детская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E1484EA04B07218E30200D7C0B49881EBB0CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937167   (490178) от 14.09.2015
-
-Владимир Благов | Повелитель крылатого диска (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490178.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе приключенческого романа «Повелитель крылатого диска» лежит современная гипотеза о том, что все сооружения Древнего Египта построены не фараонами, а исчезнувшей цивилизацией Атлантиды.
-Тринадцатилетний школьник Иван Жуков получает от своего деда, профессора-египтолога, приглашение отправиться в Прошлое, ко двору фараона Тутмоса Завоевателя. Вместе с Иваном (   Читать дальше...   )Жанр: Детская фантастика, Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEA7ABBCC55C382ECF71CD00C6E673BF1407EBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

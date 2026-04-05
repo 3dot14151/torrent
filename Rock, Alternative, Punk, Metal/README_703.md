@@ -1,3 +1,32 @@
+###  Публикация: 952351   (355719) от 01.11.2015
+
+The BossHoss - Dos Bros (2015) [FLAC|Lossless|WEB-DL]<Alternative, Country Rock, Southern Rock, Pop Rock, New Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Diggity (feat. Xavier Naidoo) (3:33)
+02. Jolene (feat. The Common Linnets) (3:28)
+03. Geronimo (feat. Aura Dione) (3:18)
+04. The Beautiful People (3:49)(   Читать дальше...   )Жанр: Rock, Country, Alternative, Country Rock, Southern Rock, Pop Rock, Rockabilly, New Country, CoversПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FA33341CA99E47C65D192C1DFD8B830A994049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952247   (355717) от 01.11.2015
 
 АЛЁNA - Подумаю (2015) [MP3|320 кб/с]<Folk-Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355717.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Brian Setzer Orchestra - Rockin' Rudolph (2015) [FLAC|Lossless|WEB-DL]<Rocka
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355697.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Withering Surface - Meet Your Maker (2020) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355625.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355620.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355472.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Brutto - Родны Край (2015) [FLAC|image+.cue]<Punk Rock, Alternative roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355450.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Honeydrippers (Robert Plant, Jimmy Page, Jeff Beck) - Volume One (CD EP) (19
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355142.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Magoa - Imperial (2016) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355041.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Pain - We Come In Peace (2012) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354984.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ Mekaora - Elysium (2016) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354885.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ The Rolling Stones - Grrr! (2012) [MP3|~190 кб/с (V2)]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354858.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ Joe Cocker - Hit Collection (2000) [FLAC|Lossless|image + .cue]<Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354853.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ Terra Atlantica - Beyond The Borders (2022) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354825.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ Gift Giver - White Devil (2016) [MP3|320 Kbps] <Technical Nu Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354788.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Freedom Call - Master of Light (2016) Limited Edition  [MP3|320 Kbps] <Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354779.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Overdrivers - Rockin' Hell (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354776.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ David Byron (ex.Uriah Heep) - 7 альбомов (1975 - 1984) дискогра�
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354757.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ Megadeth - The Sick, The Dying... And The Dead! (2022) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354726.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ Glenn Hughes - Resonate (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354676.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ DIIV - Deceiver (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354598.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ The Menzingers - Hello Exile (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354597.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Wilco - Ode to Joy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354595.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Oceans of Slumber - Winter (2016) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354593.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Casual - #Не_Умру_По_Утру (2019) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354592.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354591.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98342C62DBAAACF7ED6CD2245287F3CDBDE6207E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256486   (354567) от 22.10.2018
-
-Bilskirnir - Hammerschlag (2017) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Wacht
-02. Flammenschwur
-03. Sonnenwende
-04. Feuerzauber(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9BF5B401D0B4A7CB8A4D82A4AAB187B132C3B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

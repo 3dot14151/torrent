@@ -1,3 +1,66 @@
+###  Публикация: 1290947   (672218) от 23.03.2019
+
+Royal Philharmonic Orchestra London - Rock Dreams (Unknown) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Deep Is Your Love (4:12)
+02. He Ain't Heavy, He's My Brother (4:30)
+03. Nobody Does It Better (3:30)
+04. Arthur's Theme (The Best You Can Do) (3:28)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 03:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B0B9DF50C278247C1B9BA22800114653E36827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509995   (672202) от 13.06.2012
+
+Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain Leuh (05:08)
+02. Jeroen Van Aken (09:11)
+03. Three (05:26)
+04. Adolescent (05:30)
+05. Abutting, Dismantling (06:26)
+06. Young and Old (06:33)
+07. Du Meine Leise / ALTMIX (03:52)
+08. XXX / GS + Tiempo (04:40)
+09. Lean / GS + B Donne (07:09)2002-2009Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509646   (672078) от 13.06.2012
 
 John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
@@ -6,7 +69,7 @@ John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672078.jpg" />
 </div>
 
 
@@ -39,7 +102,7 @@ VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671839.jpg" />
 </div>
 
 
@@ -68,7 +131,7 @@ Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670695.jpg" />
 </div>
 
 
@@ -97,7 +160,7 @@ Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|L
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_670651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670651.jpg" />
 </div>
 
 
@@ -132,7 +195,7 @@ Balaklava Blues - Fly (2019) [MP3|320 Kbps] <NewAge & Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670575.jpg" />
 </div>
 
 
@@ -161,7 +224,7 @@ Royal Philharmonic Orchestra - Rock Dreams 2 (1994) Box Set, 3CD, Compilation [F
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670490.jpg" />
 </div>
 
 
@@ -187,7 +250,7 @@ Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670331.jpg" />
 </div>
 
 
@@ -216,7 +279,7 @@ Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_670316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670316.jpg" />
 </div>
 
 
@@ -251,7 +314,7 @@ The Witcher 2: Assassins of Kings (Original Soundtrack) (2012) Enhanced Edition 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670047.jpg" />
 </div>
 
 
@@ -280,7 +343,7 @@ The Romantic Strings and Orchestra - Great Broadway Favorites (1993) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669132.jpg" />
 </div>
 
 
@@ -309,7 +372,7 @@ Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668804.jpg" />
 </div>
 
 
@@ -338,7 +401,7 @@ Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668668.jpg" />
 </div>
 
 
@@ -367,7 +430,7 @@ Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668647.jpg" />
 </div>
 
 
@@ -396,7 +459,7 @@ VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668646.jpg" />
 </div>
 
 
@@ -425,7 +488,7 @@ Midori - Soul Healing / The Best of Midori (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668644.jpg" />
 </div>
 
 
@@ -454,7 +517,7 @@ John Williams - The BFG / Большой и добрый великан (Origina
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668594.jpg" />
 </div>
 
 
@@ -483,7 +546,7 @@ John Williams - The BFG / Большой и добрый великан (Origina
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668587.jpg" />
 </div>
 
 
@@ -512,7 +575,7 @@ Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrument
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_668470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668470.jpg" />
 </div>
 
 
@@ -546,7 +609,7 @@ James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668441.jpg" />
 </div>
 
 
@@ -575,7 +638,7 @@ Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668433.jpg" />
 </div>
 
 
@@ -604,7 +667,7 @@ Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668428.jpg" />
 </div>
 
 
@@ -633,7 +696,7 @@ Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richt
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667810.jpg" />
 </div>
 
 
@@ -662,7 +725,7 @@ Orquestra Club da Valsa - As Mais Belas Valsas Brasileiras (1999) [MP3|320 Kbps]
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667318.jpg" />
 </div>
 
 
@@ -691,7 +754,7 @@ Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimenta
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_667225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667225.jpg" />
 </div>
 
 
@@ -710,64 +773,6 @@ Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimenta
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137737   (666771) от 27.05.2017
-
-VA - Buddhatronic The Compilation Vol.2 (2017) [MP3|320 Kbps] <New Age, Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666771.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Artenovum - Blue Sun (ambient Lounge mix) 05:33
-2. Pascheba - Nirvana 03:28
-3. Buddhatronic - World Of Grace (Mystic Voice mix) 04:54
-4. Artenovum - Francesca (Mystic Dream mix) 04:54(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 01:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427D6B2BDEA4C54E98C9A4F1B36BBA38E9365E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137485   (666770) от 27.05.2017
-
-Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gimme The Beat (3:05)
-02 - Dirt Rich (2:43)
-03 - Fight (3:27)
-04 - Unbroken (3:25)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB62227CCF6F2E310F7CD18BA60E57C79464617
 ```
 
 https://mybot314.ru/tekegram_catalog/

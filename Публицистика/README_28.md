@@ -1,3 +1,32 @@
+###  Публикация: 1396074   (749933) от 13.07.2020
+
+Захар Прилепин | Имя рек. 40 причин поспорить о главном (2020) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749933.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Быть может, у меня ничего не получилось, но я так не думаю.
+Перед вами – итоги моих болезненных размышлений о нашем с вами Отечестве.
+Чтоб понять, кто мы и зачем, нужно было заново пересобрать все представления, и я бережно, с тщанием ребёнка, пересобрал.
+В какой точке бытия находимся мы и куда следуем. Что есть Родина. Какое отношение мы имеем к Древней Руси. Насколько (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B249EC0BD94EE05646B68EBB6A7FCB617DE9107B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281840   (749925) от 09.02.2019
 
 В. Краснов | Ходынка [Очерки не до смерти растоптанного] (1926) [DJVU]
@@ -6,7 +35,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749925.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749574.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748683.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748647.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748610.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748510.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748421.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748420.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748310.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748204.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748076.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747990.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746557.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746339.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746261.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745983.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745730.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745433.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745143.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_745074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745074.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744724.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743909.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742556.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740877.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740866.jpg" />
 </div>
 
 
@@ -652,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD1CF9EB350D69AD9D77A8F1A876CADAA8E20AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217733   (740245) от 07.04.2018
-
-К. Сэндберг | Линкольн (1961) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя выдающегося государственного деятеля, президента США Авраама Линкольна уже более ста лет справедливо связывается с лучшими демократическими традициями американского народа. Его жизнь сама по себе представляет увлекательный роман. Безграмотный дровосек, сплавщик леса, он овладевает знаниями, становится крупнейшим политическим деятелем, выступая защитником интересов (   Читать дальше...   )Жанр: История, политология, биография, публицисткаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A732153A3E04F0B7898CB1D11B2D9938792863
 ```
 
 https://mybot314.ru/tekegram_catalog/

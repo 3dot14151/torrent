@@ -1,3 +1,107 @@
+###  Публикация: 1007605   (821609) от 15.04.2016
+
+Журнал | Дачный клуб №4 (Апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный журнал "Дачный клуб" содержит множество полезных советов для садоводов и огородников.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E639E07E2535BDADD0A897375D82D76085020E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007267   (821608) от 15.04.2016
+
+Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №7 (127) (Апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F34FFF4C703C00741AD3FB4CEB5B723FC6E7AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007341   (821607) от 15.04.2016
+
+Журнал | Маленькая Diana №5 (май 2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая Diana - ежемесячный журнал по вязанию для женщин. Пользуется любовью читательниц благодаря практичным моделям на любой вкус: спортивным и классическим, для работы и отдыха. Изюминка журнала - модели для вязания на спицах и крючком, подчеркивающие женственность и сексуальность.Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E83F14CB4590B632B7D6094D64ACD4942A0A292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 655208   (821536) от 12.05.2013
+
+Журнал | Fine Woodworking №233 (май-июнь 2013) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный, широко известный во всем мире и авторитетный журнал Fine Woodworking предлагает статьи, посвященные столярному делу и мастерству работы с деревом и адресован тем, кто любит столярничать и плотничать. Здесь Вы найдете обзоры материалов, инструментов и новых технологий, а также детально описанные проекты и интересные идеи для творчества.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC45A04816EBBB2CF330CB3BF058C734CD6FDC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 655200   (821530) от 12.05.2013
 
 Журнал | Fine Woodworking №230 (winter 2012/13) [PDF] [En]
@@ -6,7 +110,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821530.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821497.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821378.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821261.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821192.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821171.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821169.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821167.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821164.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_821158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_821158.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821071.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821067.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821040.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821013.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820925.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820924.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820913.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820911.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820669.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820634.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820632.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820627.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D341393F9E43290E446EF82E712C915A985C508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196782   (820318) от 04.01.2018
-
-Журнал | Chip [Россия] №2 (февраль 2018) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C7A2B52C0A5108AABCAE69BEEBCD33FC5FCE3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776361   (820259) от 11.04.2014
-
-Журнал | Всему свету по совету. Спецвыпуск №2. Семена и рассада (2014) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства. В каждом номере – актуальная тема сезона: будь то встреча Нового года или празднование Пасхи, защита от простудных заболеваний или правила здорового загара, сборы в школу с минимальными (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CC562CA19B95E7FE414183449E3DDED3261F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631950   (820244) от 27.03.2015
-
-Подшивка журналов | Aviation Classics №1-27 (2009-2014) [PDF] [En] [Обновлено 26.03.2015]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aviation Classics - журнал издается в Великобритании с 2009 года, специализируется на истории авиации.  Каждый выпуск содержит информацию об истории одного из этапных самолетов в истории авиации, его конструировании, испытаниях, производстве  и эксплуатации.Жанр: Научно-популярный журналЯзык: АнглийскийИздательство: Mortons Media Group LtdФормат: PDFКачество: Отличный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089019ED7112082F3BF65946C2F7AD34541E701B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655604   (820116) от 13.05.2013
-
-Журнал | Жилая среда №5 (97) [май 2013] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет на своих страницах самые интересные реализованные интерьеры архитекторов и дизайнеров Санкт-Петербурга. Помогает читателю разобраться в многообразии стилей и направлений, рассказывает о тенденциях в интерьерном дизайне, о новинках мировых и отечественных брендов, являясь эффективным навигатором, позволяющим ориентироваться в многообразии рынка (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3819A46AF31EF9E8D9E357167C3DD20AAF811A3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1376450   (860173) от 17.04.2020
+
+SQLite Expert Professional 5.3.5.475 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860173.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLite Expert Professional – мощный визуальный инструмент для удобного управления БД SQLite3. Программа совмещает управление базами данных и их обслуживание в единой интегрированной среде с четким и интуитивно понятным пользователю графическим интерфейсом. С помощью этого приложения пользователь может редактировать и просматривать таблицы, перестраивать поля, проставлять (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CBDE18CE7CEF6198AF450B75C6C82B90BE1244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875115   (859128) от 05.03.2015
+
+BOOTICE 1.3.3.2 Portable [Ru/En]
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859128.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOOTICE - утилита для изменения или бэкапа/восстановления MBR (Master Boot Record) или PBR (Partition Boot Record). Поддерживается загрузочные записи: Grub4DOS, SysLinux, PLoP Boot Manager, MS NT52/60, ... Например, с помощью этой утилиты, вы можете установить Grub4DOS вашим MBR или PBR, установить NTLDR или BOOTMGR к вашему PBR, установить SYSLINUX на PBR, установить (   Читать дальше...   )Язык интерфейса: Русский, Английский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FA782799EBDF358928B3BBC2EACFF249BB5A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109924   (854968) от 01.03.2017
+
+Security Eye 3.5 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Security Eye - бесплатная программа для наблюдения с помощью камер, поддерживает работу с Веб и IP камерами, записывает видео и имеет встроенный детектор движения. Это программное обеспечение позволяет организовать систему видеонаблюдения и в реальном времени мониторить обстановку дома, в офисе, на автостоянке и в других местах где установлены ваши камеры. Интерфейс (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45673F77EC8EBCDACBC4428C20F5DA2C3F664009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002622   (846211) от 01.04.2016
 
 Win Toolkit 1.5.4.4 Portable [En]
@@ -6,7 +84,7 @@ Win Toolkit 1.5.4.4 Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846211.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ PWBoot 3.0.2 [английский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835469.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Geany 1.38.0 + Plugins [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820967.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Veeam Backup & Replication 10.0.0.4461 P1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818473.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ HxD Hex Editor 2.5.0.0 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799335.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ USB Drive Factory Reset Tool 3.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797175.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ WinSetupFromUSB 1.10 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797174.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ ChemOffice Professional 18.0.0.231 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791547.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ KDevelop 5.5.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783037.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ AMIDuOS 2.0.9.10342 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763860.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Safe Mode Launcher 1.1 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763220.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ WinHex 19.6 SR-6 PortableAppC by Joo Seng's [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760054.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ SystemTools Hyena 12.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751497.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ SQLyog 12.5.1 Pro/Enterprise/Ultimate [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740568.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Novicorp WinToFlash Professional 1.8.0000 Final + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714051.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ QR-Code Studio 1.0.2.20600 [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713132.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ IDM UltraCompare Pro 18.00.0.62 Repack by Alex Zaguzin [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696485.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ MTS CNC-System 8.0 Demo [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690798.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ ISS SecurOS Lite 9.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686659.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ SAPIEN PrimalScript 2022 v8.0.161 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650467.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ Ghidra 9.0.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642553.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Novicorp WinToFlash Professional 1.11.0000 Final RePack (& portable) by KpoJIuK 
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626923.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ VMware Workstation 16 Pro 16.2.3 Build 19376536 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625178.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ VMware Workstation — популярная программа для созда
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2469BE2930B45D392FB9AAFD192A74AF15A0AD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546327   (607457) от 23.04.2022
-
-Blumentals Rapid CSS 2022 17.3.0.244 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rapid CSS – программа для изменения существующих и создания новых каскадных таблиц стилей (CSS). Обладает большим количеством специально заготовленных шаблонов, с помощью которых можно быстрее создавать каскадные таблицы стилей. Вы сможете написать код каскадной таблицы стилей вручную, либо предоставить это сделать данной программе. Результат работы можно оценить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4FDEF681C99C3A6921549DB2F9F2F252DAEC32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546328   (607449) от 23.04.2022
-
-Blumentals HTMLPad 2022 17.3.0.244 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607449.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTMLPad – продвинутый HTML, CSS, javascript и XHTML редактор, которому доверяют тысячи профессиональных разработчиков. Чистый и продуманный интерфейс, быстрый запуск, гибкие и продвинутые функции помогут вам создавать и редактировать код на языках HTML, CSS, javascript и XHTML быстро и легко, чем когда-либо. А интегрированные в HTMLPad инструменты позволят проверять, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31DA2E202155DA8048D40A64CBDC095CBD7901A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547810   (601975) от 30.04.2022
-
-Nintex Workflow 2016 4.6.2.70 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Nintex Workflow предназначено для автоматизации как повседневных бизнес-процессов, так и решения сложных задач. Ориентированный на бизнес-пользователей и IТ-профессионалов, Nintex Workflow обеспечивает преобразование бизнес-процессов за счет объединения людей, задач и контента в один рабочий процесс.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70D7E96F86CE22F1242AB31323694EF6A5ACE83
 ```
 
 https://mybot314.ru/tekegram_catalog/

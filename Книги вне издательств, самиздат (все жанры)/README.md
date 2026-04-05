@@ -1,4 +1,109 @@
 https://t.me/izofen
+###  Публикация: 1863389   (1063979) от 
+
+Сергей Карелин | Компиляции циклов [28 циклов] (2001-2026) [FB2, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Карелин родился 13 ноября 1971 года в городе Москве.Фантастикой увлекался с самого детства. Писать стихи и прозу начал с 14 лет, но только для себя и для друзей. Серьезно занялся этим делом только в 2000 году. Учился в Литературном институте им М. Горького. Первое законченное произведение «Хроники Шандала», написал в 2000 году и выкладывал частями в Интернете. (   Читать дальше...   )Жанр: Роман / Попаданцы в магические миры, Боевое фэнтези, Бояръ-Аниме, Фэнтези, ЛитРПГ, РеалРПГИздательство: СамиздатФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3D8E14174B27FB27ABECCAEA626477BC60872E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862263   (1063254) от 
+
+Михаил Капелькин, Сергей Карелин | Цикл "Из Золота в Свинец" [1 книга] (2026) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы слышали про Философский камень? Я дорожки им в саду посыпал. Лучший алхимик последним зельем превратил своё тело в орудие против Порчи, грозившей уничтожить всё живое. По воле богов или случая я не погиб при этом, а оказался в теле лаборанта-неудачника, в мире, где алхимия под запретом, коллеги выродились в шарлатанов, повсюду Порча, а балом правят фармацевтические (   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Городское фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F1DD6D42E997F40531A662A629EA5F117EFF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862282   (1063246) от 
+
+Олег Дмитриев | Цикл "Штопанная жизнь" [2 книги] (2026) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто из нас не хотел бы проснуться в своём детстве, где всё так просто и знакомо, где живы и здоровы и мы сами, и наши близкие? А если при этом ещё сохранить память взрослого? Чтобы исправить главную ошибку жизни — ту, после которой всё покатилось под откос? А если не только своей жизни?
+Михаил Петелин получил эту возможность. Вернее, это возможность получила его (   Читать дальше...   )Жанр: Городское фэнтези, Попаданцы, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2F7390EDF3E461F4DB9BF6A4570F344FD1EB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860671   (1063176) от 
+
+Сокол Анис | Космический Мусорщик: Беглецы (2024) [MOBI]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан космических мусорщиков Ариадны Ричард Шейлео был на рядовой миссии на Иргадиаре, когда его вызвали во дворец. Личный приказ императора -  не та вещь, которую можно игнорировать. Что ему сулит эта встреча? И почему, после более двадцати лет молчания, император снова обратился к нему? Кажется, дело серьёзное.Жанр: ФантастикаИздательство: Самиздат, ЛитресФормат: MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDD51499AAD9EEF72D6DAC00937C966649B4448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862185   (1062980) от 
 
 Андрей Мороз | Цикл "Эпоха справедливости" [5 книг] (2019-2021) [FB2]
@@ -7,7 +112,7 @@ https://t.me/izofen
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062980.jpg" />
 </div>
 
 
@@ -36,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062887.jpg" />
 </div>
 
 
@@ -65,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062742.jpg" />
 </div>
 
 
@@ -91,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062718.jpg" />
 </div>
 
 
@@ -120,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062706.jpg" />
 </div>
 
 
@@ -149,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062686.jpg" />
 </div>
 
 
@@ -176,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062640.jpg" />
 </div>
 
 
@@ -202,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062334.jpg" />
 </div>
 
 
@@ -228,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062291.jpg" />
 </div>
 
 
@@ -256,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062286.jpg" />
 </div>
 
 
@@ -282,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062281.jpg" />
 </div>
 
 
@@ -311,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062234.jpg" />
 </div>
 
 
@@ -337,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062176.jpg" />
 </div>
 
 
@@ -364,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061768.jpg" />
 </div>
 
 
@@ -390,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061723.jpg" />
 </div>
 
 
@@ -416,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061700.jpg" />
 </div>
 
 
@@ -442,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061565.jpg" />
 </div>
 
 
@@ -470,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061470.jpg" />
 </div>
 
 
@@ -496,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061345.jpg" />
 </div>
 
 
@@ -523,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061337.jpg" />
 </div>
 
 
@@ -549,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061336.jpg" />
 </div>
 
 
@@ -575,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061161.jpg" />
 </div>
 
 
@@ -587,112 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8FFB87CB2AF813E359D9133B867E357AF85C602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858981   (1060985) от 13.03.2026
-
-Кирилл Шарапов | Цикл "Зазеркалье" [5 книг] (2024-2026) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зеркала видят и помнят все. С ними связано огромное количество мистических историй и суеверий. Многие их боятся и не доверяют им, и правильно делают. Однажды Радим Вяземский, черный копатель, работающий по заброшенным деревням, находит особенное зеркало, открывающее ему дорогу в загадочный, полный мистики и опасности, мир зазеркалья. Нет, он не попаданец, просто (   Читать дальше...   )Жанр: Городское фэнтези, Боевая фантастика, МистикаИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC3D39330D8BE08CDB07D60128448F1D4AC2CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859054   (1060943) от 14.03.2026
-
-Андрей Панченко | Цикл "Империя огня" [4 книги] (2025-2026) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ты беглец и спасаешь свою жизнь, уходя от преследования, то дороги иногда выводят тебя в странные места, вот как это, например. Новая галактика, где не был ещё ни один звездолет людей. Что нас тут ждёт? Новый дом, или смерть? Время покажет, а пока только и остаётся, что барахтаться и пытаться выбраться из той каши, что ты сам же и заварил, не думая о последствиях.Жанр: Боевая фантастика, Попаданцы в космос, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1199DD1F10BCD13222159BF8F5F0F154982C2DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859166   (1060872) от 14.03.2026
-
-Артем Каменистый | Цикл "Альфа-ноль" [10 книг] (2020-2026) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я тот, кто не должен существовать. Такие, как я, рождаются мертвыми, или, в лучшем случае, умирают в младенчестве. Никто из детей пустоты никогда не дотягивал до года.
-Я же дотянул до тринадцати. Долгие тринадцать лет жалкого существования, при котором все, что мог - с трудом передвигаться. Да и то не всё время. За каждую минуту моей жизни клану приходилось платить (   Читать дальше...   )Жанр: ЛитРПГ, РеалРПГ, Попаданцы в магические миры, Темное фэнтези, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C5673EFC10C05F945E02B52959E7945C8BAD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859255   (1060813) от 
-
-Алексей Ковтунов | Цикл "Строитель" [2 книги] (2026) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, перед смертью вся жизнь проносится перед глазами. Враньё. Перед глазами проносятся плиты перекрытия и куски бетона. Ну а потом — новый мир, средневековье, чужое тело и печь, которую надо сложить до возвращения заказчика.
-Ну и система которая ненавязчиво намекает, что я или стану сильнее, или умру...Жанр: РеалРПГ, Попаданцы в магические миры, Бытовое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E54CA2F619D4A7924ABE746D2DE990DDA31286A
 ```
 
 https://mybot314.ru/tekegram_catalog/

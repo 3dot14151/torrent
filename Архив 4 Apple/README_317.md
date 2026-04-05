@@ -6,7 +6,7 @@ Barcode 2.3 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604427.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ ConceptDraw DIAGRAM 15 v15.1.0.404 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604422.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pixelmator Pro 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604417.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Typeeto 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604409.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Hazel 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604396.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Parallels Desktop for Mac Business Edition 11.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604374.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Movavi Picverse Photo Editor 1.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604336.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wondershare PDFelement Pro OCR 8.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604332.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ConceptDraw MINDMAP 13 v13.2.0.246 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604327.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ DjVu Reader Pro 2.6.3 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604290.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Dreamweaver 2021 v21.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604286.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604281.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Aiseesoft Mac Blu-ray Player 6.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604251.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Money Pro 1.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604238.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Beamer 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604223.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Movavi Screen Recorder 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604133.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Combo Cleaner Antivirus Premium 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604118.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ iMazing 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604117.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Things 3.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604048.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Sublime Text 3.2.1 (Dev Build 3208) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604013.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ AnyMP4 Screen Recorder for Mac 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603975.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ PDF Reader Pro Edition 2.8.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603967.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ iNet Network Scanner 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603966.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Alfred 4 Powerpack 4.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603960.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ A Better Finder Rename 10.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603939.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ RAR Extractor Max-Unzip Winrar 8.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603927.jpg" />
 </div>
 
 

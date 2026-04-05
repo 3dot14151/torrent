@@ -1,3 +1,85 @@
+###  Публикация: 997048   (875256) от 16.03.2016
+
+Л. Н. Колосова (ред.) | Индийский океан. Справочная карта (1989) [JPG]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875256.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Индийского океана (масштаб 1:15 000 000).
+2) Обложка с выходными данными.
+(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E4FEB958E443AB2EAFDA2C54884F87767B5367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997245   (873688) от 17.03.2016
+
+М. П. Ивановский | Законы движения (1957) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга М. Ивановского «Законы движения» знакомит читателей с основными законами механики и с историей их открытия. Наряду с этим в ней рассказано о жизни и деятельности великих ученых Аристотеля, Галилея и Ньютона. Книга рассчитана на школьников среднего возраста. Ввиду скоропостижной смерти автора рукопись осталась незаконченной. Работа по подготовке ее к печати (   Читать дальше...   )Жанр: История, естествознание, механика, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB85E3736E91E970F5C259726DB24FA7AA1CCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997690   (871969) от 18.03.2016
+
+Ю.А. Бахтурин | Основные структуры современной алгебры (1990) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основана на лекционных курсах, прочитанных автором на механико-математическом факультете МГУ. Цель книги - изложение ряда глав алгебры, не входящих в обязательные алгебраические курсы.
+В число глав, представленных в книге, входят элементы коммутативной алгебры, теории групп, колец, алгебр Ли, основы гомологической алгебры и теории алгебраических групп, многообразия (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7D39568A0E150920B220B6E52355B89308530D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997893   (871770) от 18.03.2016
 
 В. И. Семишин | Периодическая система химических элементов Д. И. Менделеева (1972) [DJVU]
@@ -6,7 +88,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871770.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870368.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870305.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870278.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870216.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870165.jpg" />
 </div>
 
 
@@ -168,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865705.jpg" />
 </div>
 
 
@@ -195,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864823.jpg" />
 </div>
 
 
@@ -221,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864820.jpg" />
 </div>
 
 
@@ -249,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864816.jpg" />
 </div>
 
 
@@ -275,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864810.jpg" />
 </div>
 
 
@@ -304,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864617.jpg" />
 </div>
 
 
@@ -333,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864513.jpg" />
 </div>
 
 
@@ -362,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857236.jpg" />
 </div>
 
 
@@ -388,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855539.jpg" />
 </div>
 
 
@@ -417,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855234.jpg" />
 </div>
 
 
@@ -445,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850272.jpg" />
 </div>
 
 
@@ -471,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850132.jpg" />
 </div>
 
 
@@ -500,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850124.jpg" />
 </div>
 
 
@@ -526,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849560.jpg" />
 </div>
 
 
@@ -553,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849558.jpg" />
 </div>
 
 
@@ -580,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848906.jpg" />
 </div>
 
 
@@ -606,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848683.jpg" />
 </div>
 
 
@@ -620,84 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DDE8340E37E988D7CFBF9BA6E3283DB4CF06BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111286   (848508) от 05.03.2017
-
-Я. И. Перельман | Межпланетные путешествия. Начальные основания звездоплавания (1929) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этой маленькой экскурсией в область космической физики автор, помимо прямой задачи, преследует и другую цель: он желал бы до некоторой степени рассеять существующее в публике предубеждение против небесной механики и физики, как знаний слишком отвлеченных, неспособных будто бы дать пищу живому уму. Наука, которая открывает возможность успешно соперничать в полете (   Читать дальше...   )Жанр: История, науковедение, астрономия, физика, астрофизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BE124464132D9E3B302A6F4EF8E2E2C61D3737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111538   (848436) от 05.03.2017
-
-В. И. Вернадский | Начало и вечность жизни (1922) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848436.jpg" />
-</div>
-
-
-###  Подробнее
-
-В. И. Вернадский вошел в историю мировой и отечественной науки как крупнейший ученый-энциклопедист и выдающийся мыслитель, оказавший огромное влияние на формирование научного мировоззрения нашей эпохи. Не менее велик, хотя и менее известен, его вклад в развитие отечественной культуры. Он был страстным публицистом, педагогом и просветителем, гуманистом и неутомимым (   Читать дальше...   )Жанр: История, науковедение, естествознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9BFE2E195A78FE77E185281F624B07953A4073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002184   (847103) от 01.04.2016
-
-В. Г. Фесенков | Звёзды (1924) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847103.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом кратком очерке мы постараемся изложить историю развития звезд и обрисовать строение нашей звездной вселенной, как она представляется нам по современным исследованиям.Жанр: История, астрономия, химия, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159900913C31175067CA364E002940410501BA0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

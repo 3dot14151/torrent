@@ -1,3 +1,60 @@
+###  Публикация: 1564024   (6220) от 24.08.2025
+
+Максим Вердикт | Авторские курсы (18 курсов) (2020-2025) WEB-DLRip [AD] [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Максим Вердикт — один из известнейших в русскоязычном сегменте интернета людей, оказывающий помощь мужчинам в правильном построении отношений с женщинами. Изучать тематику взаимоотношений начал достаточно давно, более 10 лет назад. Первоначально консультировал как женщин, так и мужчин, но затем переключился исключительно на консультации мужчин. Максим учит правильно (   Читать дальше...   )Жанр: Психология отношенийЯзык озвучки: РусскийПродолжительность: 43:27:38Реклама: * - В этих курсах есть рекламные логотипы сторонних ресурсов
+
+Максим Вердикт | Авторские курсы (16 курсов) (2020-2025)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A9989B915CC4CA951C28B2DA96D4651939E821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523848   (6049) от 25.08.2025
+
+Robin Trower - 43 альбома, 2 Box Set (1973 - 2025) 84 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист Робин Трауэр (Robin Trower) получил широкую известность не только из-за участия в "Procol Harum", но и благодаря своей манере игры, напоминавшей Jimi Hendrix. Робин родился 9 марта 1945 года в английском городе Кэтфорд. В начале 60-х он перебрался в Лондон, где играл в различных местных командах. Самой известной из этих групп была "The Paramounts", (   Читать дальше...   )Список альбомов:
+1973 Twice Removed from Yesterday
+1974 Bridge of Sighs
+1975 For Earth BelowЖанр: Blues RockПродолжительность: 68:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770B09D7A226D36529EF8FA36A36614E12AFC513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814457   (6022) от 25.08.2025
 
 Очередное достижение: 2000+ релизов от dark_elf2
@@ -6,7 +63,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6022.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ Apple обсуждает с властями РФ установку RuStore н�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5891.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5766.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5745.jpg" />
 </div>
 
 
@@ -112,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5464.jpg" />
 </div>
 
 
@@ -138,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5460.jpg" />
 </div>
 
 
@@ -164,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5457.jpg" />
 </div>
 
 
@@ -190,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5286.jpg" />
 </div>
 
 
@@ -216,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4898.jpg" />
 </div>
 
 
@@ -242,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4628.jpg" />
 </div>
 
 
@@ -269,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4595.jpg" />
 </div>
 
 
@@ -295,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4512.jpg" />
 </div>
 
 
@@ -322,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4503.jpg" />
 </div>
 
 
@@ -348,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4502.jpg" />
 </div>
 
 
@@ -374,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4491.jpg" />
 </div>
 
 
@@ -400,7 +457,7 @@ Microsoft нашла способ отключить рекламу в YouTube �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4375.jpg" />
 </div>
 
 
@@ -426,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4373.jpg" />
 </div>
 
 
@@ -453,7 +510,7 @@ VA - Workout Motivation (Special Edition) (2021-2025) [Mixed by Sergey Sychev] [
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4258.jpg" />
 </div>
 
 
@@ -482,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4253.jpg" />
 </div>
 
 
@@ -508,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4224.jpg" />
 </div>
 
 
@@ -534,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4001.jpg" />
 </div>
 
 
@@ -560,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3968.jpg" />
 </div>
 
 
@@ -586,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3935.jpg" />
 </div>
 
 
@@ -614,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3795.jpg" />
 </div>
 
 
@@ -625,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814008   (3679) от 09.09.2025
-
-Формула-1 / F1: The Movie (2025) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенду гоночного спорта, Сонни Хейза, ушедшего на покой, уговаривают вернуться. Он должен возглавить отстающую команду «Формулы-1» и обучить молодого пробивного гонщика, заодно получая еще один шанс прославиться.Производство: США / Apple Studios, Jerry Bruckheimer Films, Plan B EntertainmentЖанр: боевик, драма, спортРежиссер: Джозеф КосинскиАктеры: Брэд Питт, Демсон Идрис, Хавьер Бардем, Керри Кондон, Тобайас Мензис, Ким Бодния, Сара Найлз, Уилл Меррик, Пепе Балдеррама, Абдул СэлисПеревод: Дублированный (Movie Dubbing официальный; Red Head Sound, Jaskier неофициальные)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские (Full, SDH)Продолжительность: 02:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720561   (3676) от 09.09.2025
-
-Серж Винтеркей, Артем Шумилин | Цикл "Ревизор: возвращение в СССР" [43 книги] (2024-2025) [FB2] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не думал, не гадал матерый московский аудитор, что на шестом десятке лет помрет и угодит в СССР, аж в 1971 год. Прощай, раскрученный бизнес и уютная Мазда СХ-5 с трехмесячным пробегом. Зато... здравствуй, молодость! Вот за молодость-то все это не жалко и отдать!Жанр: Попаданцы, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14764B9341F5FE7B4B0807DD25E04A0D4E9BECD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

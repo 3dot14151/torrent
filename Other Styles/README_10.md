@@ -1,3 +1,58 @@
+###  Публикация: 163621   (988284) от 05.01.2010
+
+Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, CelticПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658858   (987773) от 22.01.2020
+
+Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <Flamenco, Latin>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volare (Nel Blu Di Pinto Di Blu) - 3:39
+02. Bamboleo - 3:24
+03. Djobi Djoba - 3:25
+04. Bem, Bem, Maria - 3:04(   Читать дальше...   )Жанр: Flamenco, LatinПродолжительность: 00:75:40 + 00:75:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970808   (987322) от 02.01.2016
 
 Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music Of The Beatles (2001) SACD [FLAC|Lossless|tracks + .cue] <Pop, Classical>
@@ -6,7 +61,7 @@ Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987322.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986533.jpg" />
 </div>
 
 
@@ -70,7 +125,7 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986039.jpg" />
 </div>
 
 
@@ -99,7 +154,7 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985958.jpg" />
 </div>
 
 
@@ -128,7 +183,7 @@ Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985265.jpg" />
 </div>
 
 
@@ -154,7 +209,7 @@ Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984976.jpg" />
 </div>
 
 
@@ -183,7 +238,7 @@ VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984868.jpg" />
 </div>
 
 
@@ -212,7 +267,7 @@ Mashrou' Leila - Ibn El Leil (2015) [MP3|320 кб/с] <Ethnic, Indie, Pop Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984472.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ Enigma - Revival from Disuse (feat. Fato Deejays) 2009 (2009) [MP3|320 kbps]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983989.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983440.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ Ennio Morricone - Once Upon A Time... (2004) [FLAC|Lossless]<Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982455.jpg" />
 </div>
 
 
@@ -340,7 +395,7 @@ David Arkenstone - Dream Palace. Pan Pipes with String Orchestra (2005) [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981913.jpg" />
 </div>
 
 
@@ -369,7 +424,7 @@ VA - Los clasicos argentinos Tango - Vol.05 (1996) [MP3|128 кб/с] <Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981863.jpg" />
 </div>
 
 
@@ -398,7 +453,7 @@ Deep Forest - World Mix (1992) 1994 Columbia [FLAC|Lossless|tracks + .cue] <Hous
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981844.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981529.jpg" />
 </div>
 
 
@@ -453,7 +508,7 @@ VA - Волшебные мелодии. Коллекция Ридерз дайд
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981148.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ Angelo Badalamenti - Twin Peaks (1990) [FLAC|Lossless|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980899.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ Jim Brickman - Pure (2006) Japanese Edition [FLAC|Lossless|image + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980712.jpg" />
 </div>
 
 
@@ -546,7 +601,7 @@ VA - Variations Of Silence (2009) p*dis [FLAC|Lossless|tracks + .cue] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980542.jpg" />
 </div>
 
 
@@ -575,7 +630,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980540.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980538.jpg" />
 </div>
 
 
@@ -633,7 +688,7 @@ Jim Brickman - Timeless (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980532.jpg" />
 </div>
 
 
@@ -662,7 +717,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980515.jpg" />
 </div>
 
 
@@ -691,7 +746,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980506.jpg" />
 </div>
 
 
@@ -705,64 +760,6 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55577E204176F458A41F231A55DDD0243735E190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356231   (980497) от 29.01.2020
-
-Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Motion Picture Score) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys for Life (02:47)
-02. It's Good Shit Lieutenant (03:19)
-03. Take Back What's Ours (02:09)
-04. We're Dangerous People (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400EFB816888870B2B2DCFDDF360D75D438CBDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356271   (980489) от 29.01.2020
-
-Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
-02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
-03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
-04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

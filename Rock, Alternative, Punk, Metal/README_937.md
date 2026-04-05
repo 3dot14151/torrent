@@ -1,3 +1,32 @@
+###  Публикация: 1651259   (222570) от 06.08.2023
+
+Tombstalker - 2 Albums (2015-2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Black Metal, Crust>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forlorn Recollections [00:01:41]
+02. Chaos Undivided [00:03:32]
+03. Blood Thirster [00:04:36]
+04. Fate Weaver [00:03:34](   Читать дальше...   )Жанр: Death Metal, Black Metal, CrustПродолжительность: 2 CD, 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8E9CFDE6C87AEEF8C1703DFD636CE44B5E2A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513729   (222567) от 30.11.2021
 
 The Ronnie Wood Band - Mr Luck - A Tribute To Jimmy Reed: Live At The Royal Albert Hall (2021) [FLAC|Lossless|tracks + .cue] <Rock, Blues>
@@ -6,7 +35,7 @@ The Ronnie Wood Band - Mr Luck - A Tribute To Jimmy Reed: Live At The Royal Albe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222567.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gateway - Flesh Reborn (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222557.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gateway - Aeternae (2014) Demo [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222551.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ The New Roses - Sweet Poison (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222549.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Brutally Deceased - Black Infernal Vortex (2014) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222537.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Mracnij Znec - 8 Albums (2022-2023) [MP3|320 Kbps] <Epic Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222525.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Brutally Deceased - Satanic Corpse (2016) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222515.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Gateway - Gateway (2015) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222505.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Abyssos - Together We Summon the Dark (1997) [MP3|320 Kbps] <Melodic Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222493.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222487.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Gingerpig - 3 albums (2011-2015) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222486.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Avantasia - A Paranormal Evening With The Moonflower Society (2022) [MP3|320 Kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222479.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Carthus - Images of Tyranny (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222477.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222469.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Iron Allies - Blood In Blood Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222468.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222453.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Hawaii Death - ...The Cult Still Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222448.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Warhawk - Dambuster (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222441.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Adriano Celentano - Il Rock Di Adriano Celentano (2006) Re-Mastered SAAR Studio 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222434.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Nothingness - Supraliminal (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222423.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Iron Allies - Blood In Blood Out (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222421.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Manfred Mann's Earth Band - Criminal Tango (1986) remaster, 1999, Cohesion [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222419.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Avatar - Fenyre varva (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222416.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222376.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Forest. - Parts Work (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222371.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Forest. - Parts Work (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A84FA89235A7DE1028274ECBFF45A670939FB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651414   (222365) от 06.08.2023
-
-Dryadel - Dreams of the Dead Forest (Сны мёртвого леса) (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Dark Ambient, Neofolk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На пути к забвению [00:06:49]
-02. Безмолвие северных гор [00:08:51]
-03. Чёрное пламя столетия [00:14:22]
-04. Последняя звёздная ночь [00:09:34](   Читать дальше...   )Жанр: Atmospheric Black Metal, Dark Ambient, NeofolkПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76515D2B2B910A72FDEE614EF0D501D4BDC38CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

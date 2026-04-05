@@ -1,3 +1,29 @@
+###  Публикация: 1742762   (46945) от 13.08.2024
+
+Антон Гломозда | Как стать мужчиной, о котором мечтают 98% женщин (2018) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я знаю, что тебе не терпится ринуться сразу в бой и так везде обучают на пикап тренингах. Давай иди подходи, а там к тебе все само придет. Только вот я наблюдал очень много печального опыта, когда само это все не приходило, этот армейский метод через силу действовал не у всех. Далеко не у всех. И у ребят оставался негативный опыт и якоря на подходы к девушкам, на (   Читать дальше...   )Жанр: Психология, пикапЯзык озвучки: РусскийПродолжительность: 18:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DF9A6FA170E07A9415DB6912C7840E163E7304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743003   (46893) от 14.08.2024
 
 Варвара Королева | Курс для начинающих по китайскому языку (2021) PCRec [RU]
@@ -6,7 +32,7 @@
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46893.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46755.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Christopher Schwarz | Изготовление стульев без страх�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46686.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ Network for Everyone (NFE, N4E) | Dynamic Multipoint VPN (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46681.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46639.jpg" />
 </div>
 
 
@@ -151,7 +177,7 @@ Design Wonderland, Алиса Яковлева | Профессия дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46545.jpg" />
 </div>
 
 
@@ -180,7 +206,7 @@ Mark | 5 Творческих проектов по деревообработк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46504.jpg" />
 </div>
 
 
@@ -208,7 +234,7 @@ Kyle Kwiatkowski | Три основных соединения «ласточк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46372.jpg" />
 </div>
 
 
@@ -234,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45997.jpg" />
 </div>
 
 
@@ -263,7 +289,7 @@ Solid Factory, Антон Ильин | Основы инженерного ан�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45933.jpg" />
 </div>
 
 
@@ -289,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45899.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45880.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45849.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Y Beats, Иван Юрченко | Курс по cозданию музыки 13
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45821.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender 4.2 Simulation Nodes - Master An
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45819.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Codeby | Тестирование Веб-Приложений на проник�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45817.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ Proprofiling, Алексей Филатов | Иллюзии мозга. Как 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45803.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Mike Siemsen | Скамейки и ящики (2020) WEBRip [EN, RU / EN Sub]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45781.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Proprofiling, Алексей Филатов | Онлайн курс по про�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45775.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ Bill Thomas | Изгиб и формирование (2023) WEBRip [EN, RU / EN 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45663.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45110.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45093.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45071.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45042.jpg" />
 </div>
 
 
@@ -671,7 +697,7 @@ Vesperfin, Арина Веспер и др. | Личные финансы (2021)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45012.jpg" />
 </div>
 
 
@@ -685,32 +711,6 @@ Vesperfin, Арина Веспер и др. | Личные финансы (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE30F4503FDB29FC21495134369024C5DD11B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746722   (44982) от 01.09.2024
-
-Институт современного НЛП, Михаил Пелехатый, Евгений Спирица | Профессиональный переговорщик (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научись беспрекословному влиянию и стань престижным переговорщиком всего за 6 месяцев! Сейчас мир изменился. И процесс обучения тоже! То чему нужно было учиться годами, можно освоить гораздо быстрее используя современные технологии обучения. Спрос на услуги профессиональных переговорщиков особенно вырос на период кризиса. Клиентам нужен быстрый результат, люди не (   Читать дальше...   )Производство: Институт современного НЛПЖанр: видеокурс, обучающий курс, вебинар, НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 75:31:47Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806311B5CF3445457DA94AAE6A82052349EE6EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

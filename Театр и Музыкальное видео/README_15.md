@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968241.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Jacques Loussier Trio - Play Bach... and more (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967783.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Paramore -  Now (2013) [1080p] HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967734.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967688.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip (MPEG-2, PCM)
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967665.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967522.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967200.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Roger Taylor - The Lot (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967150.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967117.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966951.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966128.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965409.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964996.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964934.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Gregorian - Epic Chants Tour 2013 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964828.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964048.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964011.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ UFO - On Air At The BBC TV 1979-1982 (Disc Six) (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963749.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ James Last - Live at the Royal Albert Hall (2008) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963738.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963225.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962993.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Roxette - Live, Travelling the World (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962532.jpg" />
 </div>
 
 

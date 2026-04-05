@@ -1,3 +1,60 @@
+###  Публикация: 1630833   (236781) от 02.05.2023
+
+Альберто Васкес-Фигероа | Туарег (Книга 2) (2023) [MP3, Александр Гаврилин]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236781.jpg" />
+</div>
+
+
+###  Подробнее
+
+День, когда Гасель Сайях погиб, вошел в историю и стал началом новой легенды.
+Легенды, о силе духа и борьбе за выживание.
+Семья Охотника подвержена гонениям и нигде они не могут обрести покой. Казалось, после многих лет скитаний, забрезжила надежда, но пустыня слишком безжалостна и голодна до человеческих жизней.
+С приходом французов под угрозой оказывается единственный (   Читать дальше...   )Жанр: Зарубежные приключения, Книги о приключенияхПродолжительность: 08:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF8DC0537BE2C136F894F83085B969FA17B11BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643078   (234222) от 30.06.2023
+
+Кёндок Ли | Корейские мифы. От небесного владыки и принцессы Пари до королей-драконов и духов-хранителей (2022) [MP3, Джэм Небеский]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор культурной антропологии Кёндок Ли рассказывает об основных сюжетах и героях корейской мифологии, а также объясняет символизм и потайной смысл старинных легенд и преданий.
+
+Корея долгое время находилась под влиянием других государств, и её мифология оказалась основательно забытой. Теперь, когда культура этой страны завоёвывает мир, пришло время побольше (   Читать дальше...   )Жанр: зарубежная образовательная литература, мифы / легенды / эпосПеревод: Лидия АзаринаИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 07:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C6869B3DD88544F09958A558D746BB89E63094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268191   (229571) от 09.12.2018
 
 Эдуард Веркин | Кусатель ворон (2018) [MP3]
@@ -6,7 +63,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229571.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223071.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222607.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222586.jpg" />
 </div>
 
 
@@ -110,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222403.jpg" />
 </div>
 
 
@@ -136,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222286.jpg" />
 </div>
 
 
@@ -162,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221089.jpg" />
 </div>
 
 
@@ -188,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220863.jpg" />
 </div>
 
 
@@ -214,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220197.jpg" />
 </div>
 
 
@@ -240,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220048.jpg" />
 </div>
 
 
@@ -266,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218874.jpg" />
 </div>
 
 
@@ -292,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218708.jpg" />
 </div>
 
 
@@ -318,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217714.jpg" />
 </div>
 
 
@@ -344,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216586.jpg" />
 </div>
 
 
@@ -370,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215101.jpg" />
 </div>
 
 
@@ -396,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213780.jpg" />
 </div>
 
 
@@ -422,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207655.jpg" />
 </div>
 
 
@@ -449,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200968.jpg" />
 </div>
 
 
@@ -478,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200950.jpg" />
 </div>
 
 
@@ -506,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200946.jpg" />
 </div>
 
 
@@ -532,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200829.jpg" />
 </div>
 
 
@@ -558,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199945.jpg" />
 </div>
 
 
@@ -586,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199890.jpg" />
 </div>
 
 
@@ -613,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198245.jpg" />
 </div>
 
 
@@ -624,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:690758CC360983E6C75CFCA7C3488F491CA58B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827854   (193296) от 23.10.2025
-
-Джеймс Фенимор Купер | Морские львы (2025) [MP3, Вадим Яруткин]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых знаменитых романов Купера «Морские Львы». Это захватывающая морская история о двух китобойных судах, пустившихся в холодный и длинный путь к берегам Антарктиды за опасным товаром. Два «Морских Льва» – два корабля, два капитана, два экипажа! Станут ли они врагами или друзьями в колючих льдах, грозящих раздавить их всех. И только алая кровь китов, величественных (   Читать дальше...   )Жанр: ПриключенияИздательство: ИДДКПродолжительность: 07:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29ED0E30E9D99F2C1BF810D3F59285E17DEECCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589047   (190774) от 07.11.2022
-
-Андрей Буровский | Необъяснимые явления. Это было на самом деле (2019) [MP3, Сергей Вышегородцев]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190774.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой книге известного писателя, кандидата исторических и доктора философских наук, Андрея Буровского собраны реальные истории о необычных, странных, необъяснимых явлениях. Примечательно, что все эти истории рассказывают ученые, историки, археологи.
-
-Эти заметки автор так и разделил на четыре части: рассказы археолога, рассказы ученого, рассказы «экспедишника». (   Читать дальше...   )Жанр: Ужасы, Мистика, ЭзотерикаПродолжительность: 14:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0140754B995FF7C3828DEAC4B5100B492451CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1462586   (1020709) от 16.04.2021
+
+Где самый дешевый мобильный интернет в мире?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский портал Cable.co.uk недавно опубликовал свежий отчет о стоимости интернета в мире. Проанализировав данные о более чем 6 тысячах тарифных планов, которые были доступны у сотовых операторов в 230 странах в период с 8 декабря 2020-го по 25 февраля 2021 года, специалисты сравнили, во сколько в среднем обходился 1 Гигабайт мобильного трафика жителям разных уголков (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683491   (1020701) от 16.04.2021
+
+Blitzkrieg 2.5 / Блицкриг 2.5 (2020) [Ru] (2.0.7) Repack/Mod Stroibat II
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мод "Блицкриг 2.5" меняет тактико технические характеристики техники времен ВМВ и игру в целом в сторону реализма. Новые качественные образцы техники, новое звуковое оформление, качественные ретекстуринг создают уникальную атмосферу и выводят игру на новый уровень. Поиграв в "Блицкриг 2.5" Вы погрузитесь в атмосферу Второй Мировой войны, побываете (   Читать дальше...   )Тип издания: Repack / ModРазработчик: Nival InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Немецкий, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51014D8CFA078B0321838DAAFB6EDAFDDFA7415B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845342   (1020700) от 16.04.2021
+
+Поисковик NNM-Club 3.2.1.0 Portable [Ru] (Авторская раздача)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Само название программы говорит за себя. Отмечу лишь, что она не требует установки в систему, очень проста в использовании (Запустил, ввёл запрос и нашёл искомое), есть RSS-Ридер. Результат поиска откроется в браузере, который установлен в Вашей системе по умолчанию. Пользуйтесь быстрым поиском нужных Вам релизов на NNMClub.toЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29283BCA7B197089F4377516A3C45E18FBE2EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463043   (1020537) от 17.04.2021
+
+Плановое обновление Windows 10 приводит к сбоям, проблемам с играми и «Синему экрану смерти»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft выпустила на этой неделе традиционное ежемесячное «обновление по вторникам» (Patch Tuesday) для операционной системы Windows 10. Судя по отзывам пользователей, обновление обернулось изрядными неприятностями.Для Windows 10 версий 20H2 (октябрьский апдейт) и 2004 (майский), обновление имеет маркировку KB5001330. Оно приносит исправление более чем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462589   (1020531) от 17.04.2021
+
+«Вельми понеже» и другие фразы Якина , которые зрители не поняли
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020531.jpg" />
+</div>
+
+
+###  Подробнее
+
+В культовой картине Леонида Иовича Гайдая «Иван Васильевич меняет профессию» имеется весьма интересный эпизод, в котором кинорежиссер Карп Савельевич Якин вынужден упасть перед Иваном Грозным на колени. После этого между персонажами случился довольно любопытный диалог.Царь садится на кресло и начинает спрашивать Карпа: «Ты боярыню соблазнил?», Якин отвечает невнятными (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463076   (1020523) от 17.04.2021
+
+Windows 10 Enterprise LTSC (x86/x64) 4in1 by Eagle123 (04.2021) [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Enterprise LTSC v1809 17763.1879, включающая в себя 2 русских и 2 английских редакции x86/x64, с обновлениями по 04.2021, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE71387F8800B5C7A85D28FF0FD985AB87BFA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463059   (1020522) от 17.04.2021
 
 Jinn'sLiveUSB 9.1 - флешка с Windows 7, 8.1 и 10 [Ru/En] [Авторская раздача]
@@ -6,7 +162,7 @@ Jinn'sLiveUSB 9.1 - флешка с Windows 7, 8.1 и 10 [Ru/En] [Авторск
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020522.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020521.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020386.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020359.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020355.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020343.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020342.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020341.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ War Thunder: Ixwa Strike (2012) [Ru/Multi] (2.5.1.85) License
 >>39
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020340.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ Google намерена сотрудничать с российскими вл�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020204.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ Nvidia на уровне «железа» запретила добывать к
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020192.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020183.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020060.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020034.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ Wink Universe v1.30.1 [Ru] - ТВ, кино, сериалы, UFC для Android 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020030.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ KRT CLUB 3.1.0.29 RePack v6.21.4 Fix5 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020025.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020024.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019863.jpg" />
 </div>
 
 
@@ -482,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019861.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 21.04.15 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019850.jpg" />
 </div>
 
 
@@ -519,167 +675,6 @@ Windows 7 SP1 х86-x64 by g0dl1ke 21.04.15 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3AEA16D598D2D1FEED7DFA0564B82C7EF5390C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461614   (1019846) от 21.04.2021
-
-Родные (2021) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды утром отец семейства решает исполнить мечту всей жизни: отправиться с родными на Грушинский фестиваль и выступить там со своей песней. Семья вынуждена смириться с желанием отца-самодура и пуститься в автопутешествие через всю Россию.
-В пути их ждут приключения, различные испытания, проверка отношений на прочность и важная встреча, которую отец ждал двадцать (   Читать дальше...   )Производство: Россия, Hype FilmЖанр: комедия, драмаРежиссер: Илья АксеновАктеры: Сергей Бурунов, Ирина Пегова, Семен Трескунов, Монеточка, Катерина Беккер, Анна Уколова, Никита Павленко, Сергей Шакуров, Павел Ворожцов, Дмитрий РусаковПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A3D581D3B9ACF5C6DD49A7AAB64C68BA2A91FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464238   (1019714) от 22.04.2021
-
-Очередное достижение: 8000 релизов от Весельчак У !!!
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 8000 релизов от Весельчак У !!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 8000-м релизом!
-От всей души поздравляем!
-Весельчак У(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464280   (1019696) от 22.04.2021
-
-Вышел трейлер 2-го сезона анимационной фантастической анталогии "Любовь. Смерть. Роботы".
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стриминговый сервис Netflix выпустил трейлер второго сезона анимационной антологии «Любовь, смерть и роботы», в создании которой приняли участие Дэвид Финчер («Бойцовский клуб», «Охотник за разумом») и Тим Миллер («Дэдпул»). Главным постановщиком нового сезона стала Дженнифер Ю Нельсон («Кунг-фу Панда 2»).
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060021   (1019679) от 22.04.2021
-
-IT DarkMaycal Sysadmins | Построение сетей CISCO с нуля. Часть 1 (2016) PCRec [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019679.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном видекурсе:
-Научитесь администрировать, проектировать и защищать локальные сети уровня предприятий, а так же работать с активным сетевым оборудованием CISCO.Производство: РоссияЖанр: CISCO, системная администрацияПродолжительность: 34:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0BD1601E99BAAD61468E45895058D0798E992C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464755   (1019584) от 23.04.2021
-
-Дни между майскими праздниками сделают нерабочими
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майские выходные продлятся 10 дней — с 1 по 10 мая включительно, на работу выходить во вторник 11 мая — сообщил пресс-секретарь президента Дмитрий Песков в интервью РИА Новости.В течение последнего месяца число новых случаев заражения коронавирусом практически не снижается. Сейчас это, как правило, от 8-ми до 9-ти тысяч человек.Первые сообщения в СМИ о том, что во (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464654   (1019578) от 23.04.2021
-
-Ученые обнаружили гендерные предубеждения в алгоритмах музыкальных рекомендаций
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальные критики часто обвиняют музыкальную индустрию в том, что лейблы и премии игнорируют женщин-исполнительниц. Как показало новое исследование, даже компьютерные алгоритмы для рекомендации музыки в стриминговых приложениях с гораздо большей вероятностей будут рекомендовать композиции мужчин-исполнителей, чем женщин.В исследовании, опубликованном в Proceedings (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

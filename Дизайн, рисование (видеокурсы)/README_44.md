@@ -1,3 +1,56 @@
+###  Публикация: 945909   (430838) от 11.10.2015
+
+Джошуа Дэвис | Программирование графики I: Введение в генеративное искусство / Programming Graphics I: Introduction to Generative Art (2014) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс для всех, кто интересуется генеративным искусством и программированием.
+Даже если вы профи в Processing, вы познакомитесь с HYPE Framework и увидите как это ускорит ваш рабочий процесс, и возможно, покажет новые направления в творчестве.Жанр: Программирование, Генеративное искусствоПродолжительность: 06:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F9912544B6AFDD8CC1C5D94A04E2E425A6D485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571678   (429336) от 23.08.2022
+
+Artstation Learning, Rico Cilliers | Intro to Sculpting in Blender (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429336.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы познакомитесь с набором инструментов и функций для скульптинга в Blender. Рико покажет вам свой подход к работе в процессе скульптинга скальной породы. Вы узнаете как создавать свои собственные альфа текстуры и кисти, которые позволят вам работать максимально быстро и эффективно.Производство: Artstation LearningЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D948B891D7ECDC9E1C34B244DC7BA341356C8786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571896   (427216) от 24.08.2022
 
 Artstation, Aleksandr Kirilenko | Bringing Life To Clothes In ZBrush (2020) HDRip [EN]
@@ -6,7 +59,7 @@ Artstation, Aleksandr Kirilenko | Bringing Life To Clothes In ZBrush (2020) HDRi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427216.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Schoolism, Nathan Fowkes | Environment Design (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427215.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ M-Art, Ольга Адамовна | Графический медиа и моу
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427214.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ SideFX, Moeen Sayed | Magic Market - L-Systems (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425509.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ SideFX, Alejandro Perez | Intoduction to Creature Fur (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425501.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ SideFX, Chetal Gazdar | Procedural chess pawn (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425410.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ SideFX, Tyler Bay | Artist Quick Tips (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425400.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422413.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418016.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Gumroad, Pierrick Picaut | Багровый Ронин: Создание пер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417645.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417638.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ Artstation Masterclasses, Mathew O | Render and Presentation Techniques (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416496.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ The Gnomon Workshop, Justin Holt | Painting Realistic Skin in Mari 2.0 (2013) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412213.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ Sabatovsky, Влад Сабатовский | After Effects от новичка 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411749.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ Lynda.com | Learning Cinema 4D R20 (2018) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410651.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410644.jpg" />
 </div>
 
 
@@ -440,7 +493,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн Sci-Fi меха в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409322.jpg" />
 </div>
 
 
@@ -467,7 +520,7 @@ Lynda, Joel Bradley | Substance B2M (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408736.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ Lynda, Joel Bradley | Substance Designer Essential Training Updated (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408582.jpg" />
 </div>
 
 
@@ -519,7 +572,7 @@ Digital Tutors, Dan Cox | Designing a Modular Structure for Games in 3ds Max (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408577.jpg" />
 </div>
 
 
@@ -545,7 +598,7 @@ Lynda, Aaron F. Ross | 3ds Max Advanced Materials (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408573.jpg" />
 </div>
 
 
@@ -571,7 +624,7 @@ Gumroad, Tim Bergholz | Ultimate Weapon Tutorial – Complete Edition (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408292.jpg" />
 </div>
 
 
@@ -598,7 +651,7 @@ Pluralsight | Моделирование штурмовой винтовки в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407959.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407840.jpg" />
 </div>
 
 
@@ -637,59 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E006BC340152B5C0A404C329EE74C7C653068803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131142   (407577) от 06.10.2018
-
-Елена Разумова | Комплексное обучение «Специалист по Adobe InDesign CC». Уровни 1, 2, 3 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Adobe InDesign представляет собой новейшую версию одной из самых функциональных на настоящий момент издательских систем. Великолепные возможности верстки сочетаются с очень удобным и гибким интерфейсом. Исключительные возможности при работе с цветом и графикой дополняют превосходные возможности для работы с текстом, а набор визуальных эффектов вообще не (   Читать дальше...   )Производство: Россия/СпециалистЖанр: Обучающее, графика, видеокурсыПродолжительность: 30:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8F0B0FB4338D76A8886667851737A355219A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574140   (407227) от 03.09.2022
-
-Udemy, Nexttut, Nikolay Naydenov | Female Character Creation in Zbrush (2019) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь скульптить женское тело, одежду, аксессуары, оружие, создавать позу и визуализировать персонажа в Zbrush.
-К концу этого курса вы сможете моделировать симпатичных женских персонажей с одеждой, аксессуарами и оружием в Zbrush от начала до конца.Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 25:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F64599C3D1437AF875186174EAA3C02FABA479
 ```
 
 https://mybot314.ru/tekegram_catalog/

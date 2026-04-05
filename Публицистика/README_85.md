@@ -1,3 +1,29 @@
+###  Публикация: 1816788   (4177) от 06.09.2025
+
+Хайс Кесслер | Россия: страна, которая хочет быть другой (2025) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцать лет назад, после распада Советского Союза, Россия устремилась к будущему, надеясь стать страной, открытой миру, с рыночной экономикой и демократией. Но многие из этих надежд так и не реализовались. Почему тридцать лет перемен не принесли россиянам того, что они ожидали? Историк Хайс Кесслер ищет ответ, опираясь на собственный опыт жизни в России: он впервые (   Читать дальше...   )Жанр: Политическая публицистика, политическая социология, Россия глазами иностранцевИздательство: Новое литературное обозрениеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33585DF1DDC2BECD0AD1E2168B9C029B6F22AA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817128   (3628) от 09.09.2025
 
 Илья Бер и др. | Правда ли (2023) [PDF, EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3628.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3372.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3330.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2970.jpg" />
 </div>
 
 

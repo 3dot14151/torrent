@@ -1,3 +1,81 @@
+###  Публикация: 1325556   (412098) от 15.09.2019
+
+Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412098.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Sea of Solitude вы поможете юной девушке бросить вызов одиночеству. Отправляйтесь в плавание по завораживающему и развивающемуся миру, где вас повсюду поджидает обман. Познакомьтесь с фантастическими существами и монстрами, узнайте их истории и решите головоломки. Исследуйте затопленный город, перемещаясь на лодке, пешком или прямо по воде. Осмельтесь взглянуть (   Читать дальше...   )Тип издания: LicenseРазработчик: Jo-Mei GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F340015E3801AC3C6BBE9C4CE954B8F8BCA5EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325651   (411941) от 15.09.2019
+
+Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411941.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Sea of Solitude вы поможете юной девушке бросить вызов одиночеству. Отправляйтесь в плавание по завораживающему и развивающемуся миру, где вас повсюду поджидает обман. Познакомьтесь с фантастическими существами и монстрами, узнайте их истории и решите головоломки. Исследуйте затопленный город, перемещаясь на лодке, пешком или прямо по воде. Осмельтесь взглянуть (   Читать дальше...   )Тип издания: RepackРазработчик: Jo-Mei GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CAF9DF5DF198BC834A5C0EABEE1E4A4FBEFFAFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573209   (411755) от 31.08.2022
+
+The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страх, тревога и смех являются символами молодости. Испытайте настоящие паранормальные явления вместе с друзьями от первого лица и оставайтесь в живых. The Bridge Curse Road to Salvation — это экранизация фильма ужасов, включающая в себя тайваньскую городскую легенду и интригующую предысторию.Тип издания: RepackРазработчик: SOFTSTAR ENTERTAINMENTЖанр: Adventure (Horror), Stealth, 1st Person, 3DЯзык озвучки: КитайскийЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC860DAAB58D6346A7F0384151BE607341E691FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066480   (411081) от 26.10.2016
 
 Full Throttle (1995) [Ru/En] (2.0) Repack R.G. Catalyst
@@ -6,7 +84,7 @@ Full Throttle (1995) [Ru/En] (2.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411081.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409202.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409148.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409076.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408944.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Figment (2017) [Ru/Multi] (1.0) Repack CoolGames
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408556.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408300.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Observation (2019) [Ru/Multi] (1.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407750.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Heaven's Vault (2019) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407317.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Runaway 3: A Twist of Fate (2011) [En] (2.0.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407051.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404662.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Danganronpa V3: Killing Harmony (2017) [En/Ja/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402891.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401687.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ RiME (2017) [Ru/Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398263.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396407.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Alter Ego (2010) [Ru] (1.07) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394556.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Forgotten Land (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391652.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1 202) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391034.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Artania (2017) [Ru/Multi] (1.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389473.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Artania (2017) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389469.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Exorcise The Demons (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386562.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386127.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Deponia Dilogy / Дилогия Депонии [Ru/En] (RePack/1.3/1.1.4) 2012 |
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384669.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ Chaos on Deponia - это продолжение чарующего двухме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD5E32E436E714E7732026E79FD92C5F087B073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068051   (384151) от 30.10.2016
-
-Manual Samuel (2016) [Ru/Multi] (1.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manual Samuel - забавная приключенческая аркада о мажоре по имени Сэмюэл, который заключил сделку со Смертью, что будучи мертвым сможет продержаться 24 часа, вручную управляя своим телом! Знакомьтесь, это Сэмюэл. Он красив, богат и - что немаловажно - мертв. Сделка со Смертью даст Сэмюэлу возможность пожить еще, если он продержится один день, делая все вручную.Тип издания: LicenseРазработчик: Perfectly ParanormalЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829316A116F54B34AA0D4A684D84C5006F237081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326466   (380364) от 22.09.2019
-
-Loco Parentis (2019) [Ru/En] (1.0.0.4242) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loco Parentis — сюрреалистичный survival-horror, где вам в одиночку, или с другом, предстоит решать загадки и пытаться выжить среди чудовищ внутри бесконечного подъезда.Тип издания: LicenseРазработчик: Fair Games StudioЖанр: Adventure (Survival horror), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C351E39BF0B5C026D597BBA445143CA9F872B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175459   (378323) от 18.10.2017
-
-B A S E M E N T (2017) [En] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попал в незнакомый для тебя подвал? Тогда держи наше руководство! Твоя цель выбраться отсюда. У тебя есть три попытки, что бы не умереть. Мы представляем вам indie horror от первого лица. Вам предстоит встретиться с ужасной тварью живущей в гниющем подвале, если с ней встретишься ты сразу поймёшь это, по бьющемуся сердцу и накаляющейся музыкой. Но после вы узнаете, (   Читать дальше...   )Тип издания: LicenseРазработчик: Golden Bear's CompanyЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EBFF6C3D3BF7EF846996E58CA10C20614D4CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

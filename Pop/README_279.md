@@ -1,177 +1,3 @@
-###  Публикация: 1513844   (220547) от 01.12.2021
-
-Григорий Лепс - Честь имею! Высоцкий (2020) 5xCD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания «Юнайтед Мьюзик Групп» представляет новый проект Григория Лепса на стихи В.С. Высоцкого "Честь имею!". Это серия из 5 альбомов разных периодов творчества поэта, но основной упор сделан на издании редких, малоизвестных песен. Работа над проектом велась более полутора лет на студии исполнителя с участием лучших российский музыкантов. Целью этой работы (   Читать дальше...   )CD - 1 - Мой первый срок
-CD - 2 - Разведка боем
-CD - 3 - На дистанции
-CD - 4 - Городской романс(   Читать дальше...   )Жанр: PopПродолжительность: 04:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409C696071B6498343FC0535280D4163291A1461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966184   (220497) от 17.12.2015
-
-Emin - 8 в падении (2015) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одна на миллион
-02. Не больно
-03. Забыть тебя
-04. Ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C959E1AD67F21C785DD8C6BE2C4F3CF31D29EA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425668   (220446) от 21.11.2020
-
-Sarah Brightman - France (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Show Me How To Love You
-02. Nella Fantasia
-03. There For Me
-04. Dans La Nuit(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66676E4E7242052D865328271580366FEEAC0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966191   (220392) от 17.12.2015
-
-Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad (4:08)
-02. The Way You Make Me Feel (4:58)
-03. Speed Demon (3:59)
-04. Liberian Girl (3:55)(   Читать дальше...   )Жанр: Pop Rock, Ballad, DiscoПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6055395D5DBDFE641A75A22B08D65DAC07BA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585586   (220305) от 23.10.2022
-
-Various - The Best Of Duets (2000) 4 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.B.King & Eric Clapton - Riding With The King
-02. Elton John & Rendy Newan - It's Tough To Be God
-03. Celin Dion & Andrea Bocelli - The Prayer
-04. Pet Shop Boys & Lisa Minelli - Losing My Mind(   Читать дальше...   )Жанр: PopПродолжительность: 05:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2690327DF9003D229F51A0C26B8FD9A063CDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585696   (220252) от 23.10.2022
-
-Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrender My Heart
-02. Joshua Tree
-03. Talking to Yourself
-04. Far Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8493BAB1077C601F1860B6341F7DDBACAE406986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651807   (220209) от 08.08.2023
 
 Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image + .cue] <Pop Rock, New Wave, AOR>
@@ -180,7 +6,7 @@ Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220209.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Tina Turner - All The Best (2012) [MP3|320 кб/с]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220114.jpg" />
 </div>
 
 
@@ -244,7 +70,7 @@ Taylor Swift - Midnights (2022) 3am Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220022.jpg" />
 </div>
 
 
@@ -273,7 +99,7 @@ Michael Jackson - Dangerous (1991) [FLAC|Lossless|tracks + .cue] <Soul, Ballad, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219932.jpg" />
 </div>
 
 
@@ -302,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219929.jpg" />
 </div>
 
 
@@ -331,7 +157,7 @@ Joe Dassin - Grand Collection (2001) [MP3|320 кб/с]<Chanson, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219905.jpg" />
 </div>
 
 
@@ -366,7 +192,7 @@ VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219608.jpg" />
 </div>
 
 
@@ -395,7 +221,7 @@ VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219565.jpg" />
 </div>
 
 
@@ -424,7 +250,7 @@ VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219559.jpg" />
 </div>
 
 
@@ -453,7 +279,7 @@ VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219551.jpg" />
 </div>
 
 
@@ -482,7 +308,7 @@ VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlage
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219533.jpg" />
 </div>
 
 
@@ -511,7 +337,7 @@ VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219523.jpg" />
 </div>
 
 
@@ -540,7 +366,7 @@ VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219514.jpg" />
 </div>
 
 
@@ -569,7 +395,7 @@ VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219484.jpg" />
 </div>
 
 
@@ -598,7 +424,7 @@ VA - Karneval am Ballermann 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219458.jpg" />
 </div>
 
 
@@ -627,7 +453,7 @@ VA - Ballermann Party Hits Megamix 2022.2 (2022) [MP3|320 Kbps] <Pop, Dance, Sch
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219440.jpg" />
 </div>
 
 
@@ -656,7 +482,7 @@ VA - Ballermann 6 Balneario Pras.: Die Party Hits (2022) [MP3|320 Kbps] <Pop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219433.jpg" />
 </div>
 
 
@@ -685,7 +511,7 @@ VA - Ballermann Opening Party Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219364.jpg" />
 </div>
 
 
@@ -714,7 +540,7 @@ VA - EFFECTIVE COVERS (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219334.jpg" />
 </div>
 
 
@@ -743,7 +569,7 @@ VA - Workout Dance 2019 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219332.jpg" />
 </div>
 
 
@@ -757,6 +583,180 @@ VA - Workout Dance 2019 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD837B51408E997F7188C655817C92F8A47F566E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514149   (219143) от 02.12.2021
+
+Марина Хлебникова - Лучшие Песни (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219143.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чашка кофию
+2. Дожди
+3. Солнышко моё, вставай!
+4. Нева(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F822B009E45DC034067E92E365C447F84A32C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425989   (218878) от 22.11.2020
+
+Camaro's Gang - Decamerone (The Camaro One) (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ali Shuffle  (7:37)
+02. Maskarp-One  (5:30)
+03. Move A Little Closer  (5:39)
+04. Snake Your Money  (6:02)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0F1646DA5FC7138B2B68F024A8DAEF08D1BAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343248   (218747) от 06.12.2019
+
+Die Partymixer - Hit Sommer Mix (1998) [FLAC|Lossless|tracks] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley 1: Coco Jambo, Macarena, Tic Tic Tac, Jo Jo Action, Lovefool, (Un, Dos, Dres) Maria, Samba De Janeiro (12:32)
+
+02. Medley 2: Ymca, Born To Be Alive, A Walk In The Park, Hands Up, Agadou, Espania, Bellissima Sole, Please Don't Go, Vamos A La Playa, Dolce Vita, Lemon Tree (16:27)
+(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0078F49CD7632D773FC5A0510101B651355D16DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343131   (218738) от 06.12.2019
+
+VA - Best of 2019 - Frühlingshits (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218738.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Nico Santos - Unforgettable
+02. Ariana Grande - 7 Rings
+03. Sam Smith & Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDEA9E99F608D64FEF59BBDDEBE6183CCDF71AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343207   (218706) от 06.12.2019
+
+New Mexico - New Mexico (1980) LP [MP3|320 Kbps] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take It To Your Limit (4:36)
+02. It's Love (4:00)
+03. Skate With Me (3:21)
+04. Get Up And Dance (3:13)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA4F55004E02BB994CB0655E970D04A0DEA0ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343258   (218703) от 06.12.2019
+
+Vision Mastermixers - Reggae Mega Mix (1999) [FLAC|Lossless|image + .cue] <Reggae, Pop, Cover/Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reggae Mix 1 (22:20)
+- No Woman No Cry
+- Stir It Up
+- Starry(   Читать дальше...   )Жанр: Reggae, Pop, Cover/MedleyПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACCEBC7A089A600CE71BA0168FC48E14897CB63
 ```
 
 https://mybot314.ru/tekegram_catalog/

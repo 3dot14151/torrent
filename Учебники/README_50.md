@@ -1,3 +1,57 @@
+###  Публикация: 1552889   (585620) от 22.05.2022
+
+Никольский С.М. | Курс математического анализа [2 книги] (1990 - 1991) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник для студентов физических и механико-математических специальностей ВУЗов написан на основе курса лекций, читаемого автором в Московском физико-техническом институте. Фактически принят как учебное пособие в некоторых ВТУЗах с повышенной программой по математике.
+
+Книга содержит дифференциальное и интегральное исчисления функций одной и многих переменных, теорию (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C21210A7AE338AAAFB809987B0CB4F7AC79D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301321   (585125) от 11.05.2019
+
+М.Ю. Рачков | Физические основы измерений (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585125.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены общие аспекты измерения, основные понятия о метрологическом обеспечении измерений, а также в области наноизмерений. Представлена информация о принципах измерения различных физических величин на примерах измерения параметров автомобильных систем. Отдельная глава содержит практические работы по составлению измерительных схем на базе резистивных, (   Читать дальше...   )Жанр: Учебное пособие, ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7ED1508ACFDD7E2FA560D15D78FB271F8866336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301267   (585124) от 11.05.2019
 
 А.И. Апарнев, Л.И. Афонина | Общая химия. Сборник заданий с примерами решений (2019) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585124.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585121.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585116.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585109.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585098.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585004.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584959.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584952.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584851.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584091.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582783.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582300.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580874.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580871.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580426.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580124.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579704.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578853.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578377.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577878.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576574.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576162.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576155.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576059.jpg" />
 </div>
 
 
@@ -623,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA7BD2E33AAFF966799DC2B15D67DD797B618891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302766   (575994) от 19.05.2019
-
-С.Ю. Литвинчук | Информационные технологии в экономике. Анализ и прогнозирование временных рядов с помощью Excel (2010) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575994.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом пособии аспекты прогнозирования рассмотрены с позиций социально-экономического явления. Дана общая схема процесса прогнозирования. Описаны встроенные средства Excel, пригодные для быстрого построения прогнозов. Способы прогнозирования снабжены алгоритмическими описаниями. Пособие предназначено для изучения дисциплины «Информационные технологии в экономике» (   Читать дальше...   )Жанр: Учебное пособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F310347F9A9D17E878CA8A9EA7714E5293D388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302768   (575990) от 19.05.2019
-
-О.Н. Салманов | Математическая экономика с применением Mathcad и Excel (2003) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575990.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дано систематическое изложение основных базовых математических методов, применяемых в экономике. Приведены общая методология использования математического инструментария и математических моделей в экономике, а также конкретное изложение основных математических понятий и методов: применение дифференциального исчисления в экономике, матричная алгебра, интегральное (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0510769A303038485687ADB7C8A70CE7F8062C
 ```
 
 https://mybot314.ru/tekegram_catalog/

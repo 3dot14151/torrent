@@ -1,30 +1,3 @@
-###  Публикация: 1082043   (281053) от 11.12.2016
-
-Правда Гурнова (11.12.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный тележурналист, профессор МГИМО в своей информационно-аналитической программе представит авторский взгляд на те события недели, которые, по его мнению, дают повод серьезно их проанализировать, подробно разобраться.
-Авторская аналитика в студии, прямые включения ньюсмейкеров из любой точки мира, специальные репортажи корреспондентов проекта, а также ток-шоу (   Читать дальше...   )В этом выпуске: Правда ли, что российских спортсменов могут не пустить на следующую Олимпиаду и есть ли у России запасной вариант? Из-за сокращения числа психбольниц скоро начнут выпускать на улицу настоящих буйных — неужели и это правда? Смена власти в Вашингтоне толкает Меркель в лидеры мирового антироссийского фронта. Приведет ли это Германию в прошлое, к временам Бисмарка и (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5369D7ED355B6EA23ECDC56D1C32F733D36840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082010   (281045) от 11.12.2016
 
 Главное. Итоговая программа (11.12.2016) SATRip
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281045.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281035.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280916.jpg" />
 </div>
 
 
@@ -112,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280898.jpg" />
 </div>
 
 
@@ -138,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280778.jpg" />
 </div>
 
 
@@ -164,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280633.jpg" />
 </div>
 
 
@@ -190,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280273.jpg" />
 </div>
 
 
@@ -216,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280127.jpg" />
 </div>
 
 
@@ -242,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280014.jpg" />
 </div>
 
 
@@ -268,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279427.jpg" />
 </div>
 
 
@@ -297,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279423.jpg" />
 </div>
 
 
@@ -325,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279245.jpg" />
 </div>
 
 
@@ -351,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278857.jpg" />
 </div>
 
 
@@ -377,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277493.jpg" />
 </div>
 
 
@@ -403,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277379.jpg" />
 </div>
 
 
@@ -429,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276691.jpg" />
 </div>
 
 
@@ -455,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276680.jpg" />
 </div>
 
 
@@ -481,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276249.jpg" />
 </div>
 
 
@@ -507,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276041.jpg" />
 </div>
 
 
@@ -533,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275986.jpg" />
 </div>
 
 
@@ -559,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274887.jpg" />
 </div>
 
 
@@ -585,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274638.jpg" />
 </div>
 
 
@@ -611,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273787.jpg" />
 </div>
 
 
@@ -637,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273593.jpg" />
 </div>
 
 
@@ -663,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273566.jpg" />
 </div>
 
 
@@ -674,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:652E24612E207A2E906EBD7BA095E1C22A014EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188754   (273156) от 03.12.2017
+
+Теория заговора. Уличная еда (2017.12.03) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают: перекусывать на ходу может быть опасно и вредно. Но что делать, если голод застал врасплох? Мы расскажем, что можно схватить в качестве перекуса по дороге, а что лучше обходить стороной.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46ACA20F5F50990F2AA09D66DD01051DCEF518C
 ```
 
 https://mybot314.ru/tekegram_catalog/

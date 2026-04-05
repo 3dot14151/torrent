@@ -1,3 +1,32 @@
+###  Публикация: 879054   (835414) от 19.03.2015
+
+Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio-DVD (BD-Audio)] <Rock, Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835414.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 2014 Stereo Remaster
+
+01 Funeral For A Friend/ Love Lies Bleeding (2014 Remaster) 11:10
+02 Candle In The Wind (2014 Remaster) 3:49(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:19 + 00:13:11 (4 bonus tracks)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501310   (835028) от 10.10.2021
 
 Nirvana - Легенды Зарубежного Рока (2001) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Grunge>
@@ -6,7 +35,7 @@ Nirvana - Легенды Зарубежного Рока (2001) Unofficial Relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835028.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Frank Sinatra - Close To You (1957) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jaz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834908.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834257.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Puhdys / Пудис (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834167.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833536.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832949.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832820.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832753.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831490.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Andy Williams - Showstoppers. Recorded 1965 (1974) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831443.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Frank Sinatra - Some Nice Things I've Missed (1974) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831231.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ The Doors - Strange Days (1967) Reissue, 1991 [FLAC 2.0|192/24|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829699.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Electric Light Orchestra - Eldorado (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829271.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Nazareth - Легенды Зарубежного Рока (1999) Unofficial Rele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826499.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Smokie - Легенды Зарубежного Рока (1999) Unofficial Releas
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826412.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826134.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ VA - Песни Виктора Дорохина и Любови Воропаев
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825797.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824358.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Depeche Mode - Spirit (2017) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Synth-Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822065.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Rainbow - Bent Out Of Shape (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Har
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816626.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815733.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815567.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814903.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813553.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813537.jpg" />
 </div>
 
 
@@ -725,36 +754,6 @@ Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65DA53995E74B98AA39E14DC51B0B5FA07B18EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882873   (812853) от 31.03.2015
-
-Кино - запись студии "Тон" (1991) [FLAC 2.0 24/96|image (Tape-Rip)]<русский рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Это не Любовь
-02.Спокойная ночь
-03.Троллейбус
-04.Закрой за мной дверь я ухожу
-05.Попробуй спеть вместе со мной(   Читать дальше...   )Жанр: русский рокПродолжительность: 0:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B9DFEF0958E0E409EF36361E761A7DC95B7479
 ```
 
 https://mybot314.ru/tekegram_catalog/

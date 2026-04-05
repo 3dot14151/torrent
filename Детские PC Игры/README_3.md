@@ -6,7 +6,7 @@
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918051.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888333.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876503.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857683.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Littlest Pet Shop (2008) [3+] [Ru] (1.0) Repack Fixed EXE
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846337.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846017.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801907.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Chemicus2/Химикус II [5+] (L) [Русский] (2004)
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799508.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Matematikus / Математикус [5+ лет] (L) [Русский] (2004)
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799430.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sonic Generations [10+ лет] (2011) [Ru/En] (1.0.0.5/dlc) Repack Mizantrop1337
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785179.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Let's Explore The Farm / Весёлая ферма (1995) [3-8] [Ru/En] Repack
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695535.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Let's Explore The Jungle / Весёлые приключения в Джунгл
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690046.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Let's Explore The Airport / Для почемучек: Аэропорт (1995) [
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689923.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689386.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689252.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Alice and the Magic Gardens / Алиса и волшебные острова (P
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685005.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Catz 6 [3+] (L) [Ru] (2006)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680575.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656840.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513262.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_483748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_483748.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482145.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473800.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Ugly Duckling and Me! / Гадкий Утенок и Я (L) [Ru] (2007) [6-1
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460113.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sonic Generations [Ru] (Repack/u1.0.r6) 2011 | R.G. World Games
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452133.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ WALL-E / ВАЛЛ-И [Multi3\+] (Р) 2008
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436271.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397296.jpg" />
 </div>
 
 

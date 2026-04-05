@@ -1,3 +1,61 @@
+###  Публикация: 1194996   (142476) от 29.12.2017
+
+Heather Lynne Horton - Don't Mess with Mrs. Murphy (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Murphy's Law (5:13)
+02 - Wheelchair Man (6:01)
+03 - Did You Feel That? (3:29)
+04 - Save the Rain (3:00)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA72E5C4ADBE5C14BA8CA226E163C266C1D728A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195370   (142320) от 29.12.2017
+
+Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadness (Reprise) (02:53)
+02. Honour Thy Father and Thy Mother (04:25)
+03. Time Will Pass (04:00)
+04. Rise Above the Bustle (04:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969940   (141439) от 30.12.2015
 
 Paul Hardcastle - The Jazzmasters 4 (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, New Age>
@@ -6,7 +64,7 @@ Paul Hardcastle - The Jazzmasters 4 (2003) [FLAC|Lossless|tracks + .cue] <Smooth
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141439.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141160.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140918.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Michael Forster - Christmas Piano Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140629.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TV
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139596.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139550.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139535.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Down
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138721.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138290.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electroni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138081.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137794.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137685.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Hit Mania 2019 (2018) [MP3|320 Kbps] <Synthpop, Hip Hop, Dancehall>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137620.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136486.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136202.jpg" />
 </div>
 
 
@@ -456,7 +514,7 @@ Oscar Sher - The Classical Spanish Guitar (1996) [MP3|320 кб/с]<Instrumental,
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135636.jpg" />
 </div>
 
 
@@ -491,7 +549,7 @@ Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135397.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135296.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ Helen Jane Long - 3 albums (2007-2012) [MP3|320 kbps]<Instrumental, Solo Piano, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135189.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135183.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ James Last - дискография (1966-2011) [AAC, 320kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135121.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_134516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134516.jpg" />
 </div>
 
 
@@ -683,7 +741,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134346.jpg" />
 </div>
 
 
@@ -709,7 +767,7 @@ VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134223.jpg" />
 </div>
 
 
@@ -723,76 +781,6 @@ VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CC0EE13583F8B95524739AC73C5AF405FB7C6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594217   (133923) от 25.12.2012
-
-Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origin (Guitar - Mike Oldfield)
-02. Traveller
-03. Flight Of The Eagle (Guitar - Mike Oldfield)
-04. Gayatri
-05. Shadow Dancer
-06. Jai Ram
-07. Moola Mantra
-08. Mangalam
-09. Dancer In The Void (Guitar - Mike Oldfield)
-10. Be StillЖанр: New Age, RelaxПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594117   (133526) от 26.12.2012
-
-Судья Дредд / Dredd (2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She’s A Pass [3:16]
-02. Mega City One [3:13]
-03. The Plan [2:37]
-04. The Rise Of Ma-Ma [1:55]
-05. Anderson’s Theme [2:37]
-06. Lockdown [2:46]
-07. Cornered [2:17]
-08. Kay Escapes [3:17]
-09. Mini-Guns [2:02]
-10. Undefined Space [1:17](   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD1DE88CF89DDE0D980953C6EF786D4C32891C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

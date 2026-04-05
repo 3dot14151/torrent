@@ -1,3 +1,29 @@
+###  Публикация: 1471861   (1014599) от 23.05.2021
+
+ScienceAlert: Физикам из США удалось превысить скорость света, нарушив теорию Энштейна
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Физики из Соединенных Штатов Америки провели работу, в ходе которой, задействовав световые импульсы, превысили скорость света. Подчеркивается, что ученые использовали горячую плазму для проведения эксперимента. При этом специалисты придерживались того, что скорость света не представляет собой константу. Иными словами, есть возможность преодолеть скорость в 300 000 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471837   (1014567) от 23.05.2021
 
 Windows 10 Enterprise LTSC (x86/x64) 8in1 +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
@@ -6,7 +32,7 @@ Windows 10 Enterprise LTSC (x86/x64) 8in1 +/- Office 2019 by Eagle123 (05.2021) 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014567.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014564.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.05/upd4/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013900.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ SYNTHETIK: Legion Rising (2018) [Ru/Multi] (26.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013735.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013733.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013477.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013415.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013145.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Google получала информацию о местоположении п�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1012960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1012960.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012677.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012603.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.0/dlc) License PLAZA [Delu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012596.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012594.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012479.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012361.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012032.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Adobe Photoshop 2021 22.4.2.242 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011860.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011601.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Adobe Photoshop 2021 22.4.2.242 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011548.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011543.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Hades (2020) [Ru/Multi] (1.38100) EGS-Rip InsaneRamZes (обновляемая)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011361.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011262.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Before We Leave (2020) [Ru/Multi] (1.0241) EGS-Rip InsaneRamZes
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011180.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011018.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011016.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD6A353B766DBCD9FB1AEE018F8DD07B8B81B5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477933   (1010534) от 17.06.2021
-
-Прабабушка легкого поведения. Начало (2021) WEBRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010534.jpg" />
-</div>
-
-
-###  Подробнее
-
-1980 год, вся страна следит за событиями московской Олимпиады. Один только Вова Рубинштейн под шумок переодевается в звезд советской эстрады и пытается разбогатеть, устраивая фейковые концерты. На одном из таких концертов его разоблачают сотрудники КГБ и вербуют как агента под прикрытием. Теперь, чтобы не попасть за решетку, Вова должен выполнить ответственную миссию (   Читать дальше...   )Производство: Россия, Vice FilmsЖанр: КомедияРежиссер: Марюс ВайсбергАктеры: Александр Ревва, Глюкоза, Марина Федункив, Евгений Герчаков, Дмитрий Нагиев, Михаил Галустян, Наталья Бардо, Максим Лагашкин, Игорь Жижикин, Ирина БяковаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18556104BBEE53743375A3D01FE1DD1CFF76A60
 ```
 
 https://mybot314.ru/tekegram_catalog/

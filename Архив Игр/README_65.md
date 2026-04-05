@@ -1,3 +1,61 @@
+###  Публикация: 265990   (308322) от 04.12.2010
+
+[Repack] Spider-Man: Shattered Dimensions [Ru/Multi6+] 2010 | cdman
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поклонников серии игр о легендарном супергерое ждут приключения нового поколения – приключения в четырех мирах, объединенных сюжетом и главным героем.
+
+История за авторством известного художника комиксов Дэна Слотта (Dan Slott) отправит игроков на поиски осколков таинственного артефакта — Скрижали порядка и хаоса (Tablet of Order and Chaos), — которые разлетелись по нескольким параллельным вселенным. Собирая части Скрижали, игроки побывают в самых разных местах — в непроходимых джунглях, безграничных пустынях и огромных мегаполисах (некоторые локации не фигурировали ни в одной из предшествующих игр).
+
+В каждом из четырех миров предстоит выступить в роли одного из воплощений легендарного супергероя и использовать уникальные способности и возможности каждого, чтобы расправиться со всеми противниками, собрать артефакт и восстановить порядок мироздания.Тип издания: РепакЖанр: Action / 3D / 3rd PersonЯзык озвучки: Английский, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266196   (308101) от 04.12.2010
+
+TRON: Evolution: The Video Game / ТРОН: Эволюция [Multi6\-] (RePack) 2010 l RELOADED
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было время, когда потрясающий блокбастер «ТРОН» произвел эффект разорвавшейся бомбы. Этот фильм пришелся по душе всем ценителям настоящей научной фантастики. Впечатляющий ремейк знаменитой кинокартины от студии «Дисней» вовсю готовится к выходу на большие экраны по всему миру. Но принять личное участие в виртуальных сражениях и приключениях куда интереснее!
+
+Захватывающий экшен «ТРОН: Эволюция» позволит вам погрузиться в мир виртуальной реальности, одержать впечатляющие победы с помощью разрушительного светового диска и освоить легендарный светоцикл. Игра раскроет события, предшествующие сюжету нового фильма «Трон: Наследие». Различные удары и комбо-приемы умело сочетаются с невероятной мобильностью персонажа – в передвижении среди башен и небоскребов задействованы элементы паркура. Поклонники сетевых сражений смогут сразиться с умелыми соперниками по Интернету, причем в каждой битве смогут принять участие до десяти человек.Тип издания: ЛицензияЖанр: ActionЯзык озвучки: Английский, Немецкий, Французский, Голландский, Итальянский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Голландский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584346   (307188) от 04.12.2012
 
 Zero: Shinku no Chou (零 ~眞紅の蝶~) [Wii] [NTSC-J] [JPN] (2012)
@@ -6,7 +64,7 @@ Zero: Shinku no Chou (零 ~眞紅の蝶~) [Wii] [NTSC-J] [JPN] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307188.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ Fantastic Fishing / Фантастическая рыбалка (2013) [Ru] (1.1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306841.jpg" />
 </div>
 
 
@@ -60,7 +118,7 @@ Black lightning / Черная молния [Ru] (RePack) 2010  | Ultra
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306010.jpg" />
 </div>
 
 
@@ -86,7 +144,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru] (RePack) 2010 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305912.jpg" />
 </div>
 
 
@@ -114,7 +172,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru] (RePack) 2010 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305794.jpg" />
 </div>
 
 
@@ -141,7 +199,7 @@ Farming Simulator 19 (2018) [Ru/Multi] (1.5.1.0/dlc) Repack xatab [Platinum Edit
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304568.jpg" />
 </div>
 
 
@@ -167,7 +225,7 @@ Torchlight II [Ru/En] (RePack/1.19.5.7) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304527.jpg" />
 </div>
 
 
@@ -195,7 +253,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304187.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.6.0-f4/dlc) License SKIDROW [Deluxe Editio
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303942.jpg" />
 </div>
 
 
@@ -247,7 +305,7 @@ Bastion (2011) [Ru/En] (build 0.12367) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303915.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Angry Birds Seasons [En] (L/3.1.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_302514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_302514.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ Darksiders Дилогия [Ru/En] (Lossless RePack) 2010-2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302302.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Torchlight: Dilogy / Torchlight: Дилогия [Ru/En] (RePack) 2009 - 2012 | R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302154.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Mass Effect: Trilogy Edition  [PS3] [ENG] [USA] [4.30] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302152.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Primordia [En] (L/2.0.0.2) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302149.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ Darksiders: Warmastered Edition (2016) [Ru/Multi] (1.0.2246) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301763.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299613.jpg" />
 </div>
 
 
@@ -463,7 +521,7 @@ Dishonored (2013) [Ru/En] (1.0.0.0/4dlc) Repack Samael [Game of the Year Edition
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298248.jpg" />
 </div>
 
 
@@ -489,7 +547,7 @@ WRC: FIA World Rally Championship [Ru/Multi6+] (RePack) 2010 l R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297518.jpg" />
 </div>
 
 
@@ -521,7 +579,7 @@ The Dwarves (2016) [Ru/Multi] (1.1.2.57) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297410.jpg" />
 </div>
 
 
@@ -547,7 +605,7 @@ WRC FIA World Rally Championship [Ru/Multi6+] (L) 2010 l Шмель
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297377.jpg" />
 </div>
 
 
@@ -579,7 +637,7 @@ WRC: FIA World Rally Championship [Ru] (RePack) 2010 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297376.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ Homefront (2011) [Ru] (1.5/dlc) Rip Other s [Collection Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296372.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296298.jpg" />
 </div>
 
 
@@ -648,59 +706,6 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) SteamRip Let'sPlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33E85C5C19F8C86BD2C632ACD266A1E321DDF312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334900   (290586) от 31.10.2019
-
-iMazing 2.10.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290586.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC40DC260D1DAE917A7E026B428770F4F084EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962664   (290472) от 06.12.2015
-
-9Dragons / 9Драконов (2009) [Ru] (0.9d) License
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра погружает игрока в захватывающий мир Средневекового Китая, находящийся в состоянии гражданской войны между шестью сильнейшими кланами мастеров боевого Кун-фу, а так же под угрозой захвата могучих и таинственных сил. Сюжет игры повествует как о судьбах простых смертных, так и о величайших воителях и мудрецах достигших просветления в те далекие времена. Вы можете (   Читать дальше...   )Тип издания: LicenseРазработчик: Indy21 CorporationЖанр: RPG (Japanese-style), 3D, 3rd Person, Online-only, Massively multiplayerЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3F1FE0ECA959D5C69FA97EEA62679B1B743D7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

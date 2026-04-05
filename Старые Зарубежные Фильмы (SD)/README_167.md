@@ -1,3 +1,133 @@
+###  Публикация: 1341929   (227075) от 30.11.2019
+
+В погоне за мечтой / The Dream Chasers (1984) WEB-DLRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Больной ребёнок, который отчуждён от своего отца, объединяется в компанию со стариком, недавно отправленного в дом престарелых. Вместе они решают сбежать от своих проблем, пустившись в "ковбойское" путешествие по дикой Америке. В этом путешествии они узнают очень многое о важности дружбы, верности и прощении.Производство: США, Pacific International EnterprisesЖанр: драма, приключения, семейный, вестернРежиссер: Артур Р. Дубс, Дэвид Э. ДжексонАктеры: Харольд Гулд, Джастин Дэна, Кэролин Кэрредин, Уэсли Бишоп, Дж.Дж. Льюис, Джеффри Тэмбор, Джерион Монро, Стэйси Мортон, Арт Бурк, Лиа ВернонПеревод: Одноголосый любительский (Семён Ващенко)Субтитры: ОтсутствуютПродолжительность: 01:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7567F045FE9F26011CA9EE82BFE1D34BE798552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584180   (226711) от 17.10.2022
+
+Чарли Чейз. Свидание на одну ночь / A One Night Stand (1915) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое забавных рабочих сцены вытворяют в театре всяческие безобразия, усложняя работу труппе и мешая зрителям получать удовольствие. Как все эксцентрик-комедии она немного сумбурна. Говорят, в те времена в кейстоун многие короткометражки снимали вообще без всякого сценария или плана. Просто задавали тему актерам и пошла импровизация перед кинокамерой. Наверное, поэтому (   Читать дальше...   )Производство: США, Keystone Film CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Уолтер РайтАктеры: Честер Конклин, Мэй Буш, Чарльз Арлинг, Гарри Букер, Гарри Бернард, Бобби Данн, Чарли Чейз, Минта Дарфи, Билли Гилберт, Гарри МакКойПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF5C2EF789AA8A7A5936CEC181597644847857E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584171   (226698) от 17.10.2022
+
+Его фотография в газетах / His Picture in the Papers (1916) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пит Приндл, чтобы жениться на любимой девушке, обещал, что его фотография появится в центральных газетах. Ему непременно надо сдержать обещание...Производство: США, Fine Arts Film CompanyЖанр: комедия, немое киноРежиссер: Джон ЭмерсонАктеры: Дуглас Фэрбенкс, Clarence Handyside, Rene Boucicault, Джин Темпл, Чарльз Батлер, Лоретта Блейк, Гомер Хант, Helena Rupport, Терри МакГоверн, Ник ТомпсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EB3A0ED412F59FCC24E4D82C0A637B554F37A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424935   (226078) от 18.11.2020
+
+Макс Линдер. Беспокойная ночь / Une nuit agitee (1912) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Докучливое насекомое портит Максу его первую брачную ночьПроизводство: ФранцияЖанр: Короткометражка, комедия, немое киноРежиссер: Макс ЛиндерАктеры: Макс Линдер, Стасья Напьерковска, Jane RenouardtЯзык озвучки: НемойСубтитры: Русские интертитрыПродолжительность: 00:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2052154159E13E9F1977F662AB66362DA71D985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965499   (226007) от 14.12.2015
+
+Док / «Doc» (1971) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226007.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о знаменитых героях Дикого Запада. В городке Тумстоун, штат Аризона, железной рукой порядок наводит грозный шериф Уайтт Эрп. С помощью друга, блестящего стрелка Дока Холлидэя, и своих братьев Эрп поддерживает в городе мир и покой.Производство: США / FP FilmsЖанр: ВестернРежиссер: Фрэнк ПерриАктеры: Стейси Кич, Фэй Данауэй, Харрис Юлин, Майкл Уитни, Денвер Джон Коллинз, Дэн Гринберг, Джон Скэнлон, Ричард МакКензи, Джон Боттомс, Филип ШаферПеревод: Многоголосый закадровый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2C68B6199B4C4F35129D46A7E14D077F2AB852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268016   (225776) от 11.12.2018
 
 Филадельфийский эксперимент (Секретный эксперимент) /  The Philadelphia Experiment (1984) BDRip [H.264]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225776.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225550.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225491.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225472.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225347.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225245.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224741.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224574.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224383.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223674.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223657.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223603.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223579.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223546.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223490.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223081.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222934.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222867.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222831.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222822.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222728.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2EAEB0AE10BC28F186C2197B1D6A7DCDF307943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585367   (222519) от 21.10.2022
-
-Чарли Чейз. Любовь в доспехах / Love in Armor (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не будучи приглашённым на день рождения своей любимой родителями девушки, молодой человек тайком пробирается в дом, и, не желая быть обнаруженным, облачается в доспехи одиноко стоящего железного рыцаря.Производство: США, Keystone Film CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Ник Когли, Френсис Дж. Грэндон, Фрэнк ГриффинАктеры: Чарли Чейз, Мэй Буш, Фриц Шод, Фрэнк Опперман, Билли Беннетт, Уильям Хаубер, Берт Ханн, Билли Броуэлл, Хелен Карлайл, Гроувер ЛигонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180D6D55E3A9A5C75E74AC71B6C0E2339AB5BB37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513688   (222495) от 30.11.2021
-
-Семь нот в темноте / Sette note in nero (1977) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина, терзаемая мучительными предчувствиями и видениями, которые предрекают смерть её знакомым, разрушает часть стены в доме мужа и находит там скелет. Вместе со своим психиатром она пытается разобраться, кто это может быть. В то же время, в попытках понять природу своего ужасного дара, она вспоминает своё детство, когда её мать прыгнула в пропасть и, видимо, (   Читать дальше...   )Производство: Италия, Rizzoli Film, CinecompanyЖанр: детектив, триллерРежиссер: Лучио ФульчиАктеры: Дженнифер О’Нил, Габриэле Ферцетти, Марк Порель, Джанни Гарко, Ида Галли, Дженни Тамбури, Фабрицио Джовине, Риккардо Парисио Перротти, Лоредана Савелли, Сальваторе ПунтильоПеревод: любительские одноголосые (Эрнест Мусин, hammerklavier)Субтитры: русские (2 варианта), английскиеПродолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FF85AB0C53FA305F8A72F0867BF39E685E82D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651489   (222460) от 06.08.2023
-
-Актерские дети / The Actor's Children (1910) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой фильм о нелегкой судьбе актеров в безжалостном мире капитализма. И жизнь так складывается, что скорее всего, их детей ждет таже непростая актерская судьба.Производство: США, Thanhouser Film CorporationЖанр: короткометражка, драма, немое киноРежиссер: Бэрри О’НилАктеры: Orrilla Smith, Йейл Босс, Фрэнк Холл Крэйн, Николас Джордан, Ллойд Лонерган, Anna Rosemond, Гертруда СанхаузерПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7254F992084CF59527D6E706F5F8FB22B4ABE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421683   (222380) от 20.11.2020
-
-Головокружение / Le Vertige / The Living Image, or the Lady of Petrograd (1926) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222380.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Петрограде, в начале революции, генерал Свирский застрелил любовника своей жены поручика Дмитриева. Эмигрировав в Ниццу, Наташа Свирская знакомится с Анри де Касселем, живым портретом покойного. Полная страха она становится его любовницей...Производство: Франция / CinégraphicЖанр: ДрамаРежиссер: Марсель Л’ЭрбьеАктеры: Эмми Линн, Жак Катлен, Роже Карл, Клер Прелиа, Алексей Бондарёв, Лео Да Коста, Эндрюс Энгельман, Inger Früs, Odette Granger, Гастон ЖакеПеревод: Отсутствует (немое кино)Субтитры: Русские (nigelliri) - отдельным файломПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D43256031630A5882E1F4456F6D38B30BF1526F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585339   (222195) от 21.10.2022
-
-Последний фильм ужасов / The Last Horror Film (1982) BDRip [H.264] [AVO] [Uncut Special Edition]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винни работает водителем такси, но в его душе живёт мечта стать кинорежиссёром. Он очень сильно хочет снять свою картину со звездой фильмов ужасов Жанной Бейтс, поэтому следует за ней на Каннский кинофестиваль, где она представляет свой последний фильм под названием «Крик». Вскоре люди вокруг Жанны начинают погибать загадочными смертями... Фильм снимался на натуре (   Читать дальше...   )Производство: США, Shere Productions, Winters Hollywood Entertainment Holdings CorporationЖанр: ужасы, комедияРежиссер: Дэвид УинтерсАктеры: Джейлен Уинтерс, Джон Келли, Джо Спинелл, Симона Оверман, Малгозия Кэйси, Пэтти Салье, Чип Хэмилтон, Джордж Валисмис, Питер Д’Арси, Филомена СпаньолоПеревод: авторский (Владимир Штейн)Субтитры: нетПродолжительность: 01:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C66854469062959047F4212C3A1AFCE5B55300
 ```
 
 https://mybot314.ru/tekegram_catalog/

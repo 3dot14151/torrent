@@ -1,3 +1,119 @@
+###  Публикация: 1188565   (274902) от 02.12.2017
+
+VA - Ori Uplift & Dr. Riddle - Uplifting Only 251 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRE-RELEASE PICK: illitheas - Levity (Intro Mix) (EXCLUSIVE PREMIERE)
+02. Manuel Rocca - Amortentia (EXCLUSIVE PREMIERE)
+03. FAN FAVORITE: Ahmed Romel - Vanaheim
+04. Naoufal Lamrani - Suits(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F79F1DFE89051D74F91CD1D816EE7AB7611090A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188489   (274896) от 02.12.2017
+
+VA - Amsterdam Coffeeshop Chillout Vol.16 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulful-Cafe  -  My Own Life (Radio Version) 3:44
+02.  Tedjep Soulful House  -  I Believe in Love 3:12
+03.  Dreadboxx  -  Do Brasil 3:17
+04.  Soul-Ty  -  Sun Is Coming Out 3:02(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E490AE6E807A0C2E07C3D00C3420A7B13FBA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337179   (274893) от 10.11.2019
+
+VA - Synthetique: A French Synthwave Compilation 1982-2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philippe Laurent - Rapide 2 (1982) (3:25)
+02. Art & Technique - Lovers (1983) (5:32)
+03. No Unauthorized - Crocodile (1984) (5:10)
+04. End Of Data - Breathless (1984) (3:10)(   Читать дальше...   )Жанр: Synthwave, New WaveПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB3113C5ACAE918F4EDE39FEDB0F1DF327E07F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188395   (274888) от 02.12.2017
+
+VA - Lounge Bar Milano Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Schwarz & Funk  -  Under My Skin 5:14
+02.  Gerald Peklar  -  Schon Acht 4:59
+03.  Aatoo Cito  -  My Sun 5:05
+04.  Wine & Dine  -  Lost On The Caribbian Sea 4:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B556CBB722BB34421BA2970C95E7CEA976513957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188541   (274884) от 02.12.2017
 
 VA - Markus Schulz & Talla 2XLC - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -6,7 +122,7 @@ VA - Markus Schulz & Talla 2XLC - Global DJ Broadcast (2017) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274884.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - House Lifes (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274882.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Top Of Lounge And Chillout Tracks (2017) [MP3|320 Kbps] <Balearic, Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274879.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Relaxed Vortex 002 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274876.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Thomas Lemmer & Setsuna - Juno (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274664.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Eisfabrik - Null Kelvin (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274635.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Goa Culture Vol.26 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274611.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Suduaya - Venus (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill out>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274606.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Fourth Dimension - Ubique (2019) Synphaera Records [FLAC 2.0|44.1/24|tracks|WEB-
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274576.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Midge Ure (Ex. Ultravox) - Orchestrated (2017) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274483.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Best of Trance  Vol.08 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274142.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Black Hole Trance Music 11-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274139.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Markus Schulz - We Are the Light (The Extended Mixes) (2018) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274138.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Vocal Trance Legends (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274128.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Ecliptic Chapter Four (Compiled & Mixed by Seven24) (2016) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273861.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Strongcamp Killer Workout Experience (2016) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273860.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Get a Taste of Stretching with Music (2016) [MP3|320 Kbps] <Funky, Club Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273859.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Emma Lock - Broken Sleep (Remix Album) (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273776.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Grum - Deep State (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273764.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Deugene Music Winter Selection Vol. 10 (2017) [MP3|320 Kbps] <Trance,Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273754.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Electric Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273752.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Tag Und Nacht (2016) Total Black [FLAC|Lossless|WEB-DL|tracks] <Techno, Ind
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273748.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Tag Und Nacht (2016) Total Black [FLAC|Lossless|WEB-DL|tracks] <Techno, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D310AB6D1CD337C76328C1622F50221A4A632B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083424   (273727) от 16.12.2016
-
-VA - Coffee Bar Lounge Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - The Essence 4:03
-02. Clelia Felix - Music For Your Soul 3:53
-03. Svendaq - Cosmic Sweeper 4:33
-04. Unit Blue - Tango Bay 5:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E94C7130CECBF7D0FF6DBB406970D84B74A505B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333686   (273717) от 11.11.2019
-
-Sansibar - Targeted Individuals (2019) FTP [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Programming (06:04)
- 02. Technology (03:47)
- 03. My Mind (05:02)
- 04. Meri (08:00)(   Читать дальше...   )Жанр: Electro, IDM, BreaksПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59757107369CF977CC370AF5C2FCD41202D5B136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337509   (273715) от 11.11.2019
-
-Stargazers - Crystalize (The Best Of) (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargazers & Fenna Day - Crystalize
-02. Stargazers & Neev Kennedy - Walk Between Your Shadows
-03. Stargazers & Kate Louise Smith - Black Diamond (Radio Edit)
-04. Stine Grove & Stargazers - Time Travel Away (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79239C344E66BD80ABCE93CB1DC59F833338BA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337600   (273707) от 11.11.2019
-
-Grum - Deep State (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep State [02:17]
-02. Stay (feat. Natalie Shay) [08:12]
-03. Lose Control [05:38]
-04. Tomorrow (feat. Dom Youdan) [05:09](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1431F4A9BF46AB579D916D169585D5B46D7CA19A
 ```
 
 https://mybot314.ru/tekegram_catalog/

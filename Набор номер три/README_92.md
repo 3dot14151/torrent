@@ -1,3 +1,169 @@
+###  Публикация: 765279   (932862) от 05.03.2020
+
+Космос: Пространство и время / Cosmos: A SpaceTime Odyssey (2014) HDTVRip [H.264/720p] (сезон 1, серии 1-13 из 13)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал рассказывает о последних научных открытиях, которые были сделаны в области астронавтики, астрофизики и других наук. Сериал «Космос: Путешествие во времени» является продолжением научно-популярной серии фильмов «Космос: Персональное путешествие с Карлом Саганом» и отражает события последних трех десятилетий. Астрофизик Нил Деграсс Тайсон с соавторами (   Читать дальше...   )Производство: США / Cosmos Studios, Fuzzy Door Productions, National Geographic Channel, Six Point Harness, Syon MediaЖанр: Документальный, наука, космосРежиссер: Брэннон Брага, Энн Драйэн, Билл ПоупПеревод: Профессиональный одноголосый (студия Арк-ТВ)Продолжительность: ~ 00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FDA4DB99CEE9ACD6C551C6B5934D5BF0D9BEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629281   (932702) от 12.03.2013
+
+Sniper: Ghost Warrior 2 [XBOX360] [Region Free] [RUSSOUND] [LT+1.9] (XGD2 / 15574) (2013)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безжалостный боец-одиночка вновь выходит на тропу войны. Действие второй части популярного экшена, снискавшего признание игроков по всему миру, развернется среди непролазных джунглей, горных хребтов и городских развалин. Впечатляющая подборка самого современного снаряжения включает тепловизор и прибор ночного видения, которые значительно расширят ваши возможности по устранению противника.
+
+Как и первая часть игры, Sniper: Ghost Warrior 2 предложит различные способы достижения поставленной цели. Вам предстоит выбрать свой путь к победе, будь то смертоносный огонь из снайперской винтовки на дальних дистанциях или бесшумные убийства в ближнем бою. Но в любом случае придется принимать во внимание невероятно реалистичные погодные условия и продвинутую баллистику. И помните: один выстрел – один труп! Ведь снайперы, как и саперы, ошибаются только раз… (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык интерфейса: Русский / Английский / Multi4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00ED2031FFA44FBA569A05262E59EF5FA28266B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629490   (932693) от 12.03.2013
+
+Kali Linux 1.0 (ex. BackTrack) Аудит безопасности, хакинг. [i386 + amd64] (2xDVD)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышла принципиально новая версия известного дистрибутива по тестированию безопасности и хакинга BackTrack с новым названием Kali Linux, т.е. вместо долгожданного BackTrack 6 вышел данный релиз.
+
+Основанный на Ubuntu, дистрибутив BackTrack "переехал" на платформу Debian. Уже готово более 300 Debian-совместимых собственных пакетов с поддержкой 8 языков.
+
+Изменений оказалось так много, что дистрибутив решено было полностью переименовать.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619805   (932685) от 12.03.2013
+
+Crysis 3: Hunter Edition [Ru/Pl] (Origin-Rip/1.2.1.0) 2013 | R.G. Игроманы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crysis 3 продолжает знаменитую серию шутеров от Crytek. Действие игры разворачивается в 2047 году, а вам предстоит выступить в роли Пророка. Он возвращается в Нью-Йорк, где узнает о том, что город находится под куполом Nanodome, который был создан корпорацией C.E.L.L. Жителям сообщают, что Nanodome необходим для их защиты и очистки метрополисов от последних цефов, однако, на самом деле, его строительство является частью тайной операции по захвату технологий ради мирового господства. Надев усовершенствованный нанокостюм и вооружившись смертоносным луком и разрушительными инопланетными технологиями, Пророку предстоит помешать коварным планам C.E.L.L. и уничтожить оставшихся пришельцев. (   Читать дальше...   )Тип издания: Лицензия (Origin-Rip)Разработчик: CrytekЖанр: Action / ShooterЯзык озвучки: Русский, ПольскийЯзык субтитров: Русский, ПольскийЯзык интерфейса: Русский, Польский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985626   (932049) от 13.02.2016
+
+Ученые обнаружили сотни новых галактик, скрывавшихся позади Млечного Пути
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые-астрономы, работающие на радиотелескопе Паркса австралийского Национального исследовательского агентства CSIRO (Commonwealth Science and Industrial Research Organisation), который недавно был оборудован новым высокочувствительным приемником, обнаружили сотни галактик, которые достаточно долго "скрывались" позади нашей собственной галактики, галактики (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364948   (931802) от 06.03.2020
+
+Очередное достижение: 4000 релизов от vilator!!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 4000 релизов от vilator!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 4000-м релизом!От всей души поздравляем
+vilator
+с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!
+Все любители электронной музыки знают его уникальные релизы! Это тот случай, когда количество и качество в одном флаконе!
+ Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986045   (931715) от 13.02.2016
 
 Ученые эксперимента LIGO официально подтвердили факт обнаружения гравитационных волн, являющихся последней частью загадок Общей теории относительности
@@ -6,7 +172,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931715.jpg" />
 </div>
 
 
@@ -32,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931577.jpg" />
 </div>
 
 
@@ -58,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931573.jpg" />
 </div>
 
 
@@ -84,7 +250,7 @@ Microsoft Office Picture Manager 2010 14.0.4750.1000 RePack by SPecialiST [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931571.jpg" />
 </div>
 
 
@@ -110,7 +276,7 @@ WinPE 10 Sergei Strelec (x86/x64) 12.02.2016 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931570.jpg" />
 </div>
 
 
@@ -136,7 +302,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2/upd1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931569.jpg" />
 </div>
 
 
@@ -162,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931568.jpg" />
 </div>
 
 
@@ -190,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931525.jpg" />
 </div>
 
 
@@ -217,7 +383,7 @@ Q4OS 1.8.2 (Легкий дистрибутив) [Trinity - форк KDE 3.5]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931477.jpg" />
 </div>
 
 
@@ -245,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931472.jpg" />
 </div>
 
 
@@ -271,7 +437,7 @@ Microsoft Windows x86 x64 Plus PE StartSoft 03-2017 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931469.jpg" />
 </div>
 
 
@@ -297,7 +463,7 @@ Call of Duty (2004) [Ru] (1.5/dlc) Repack =nemos= [Gold edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931466.jpg" />
 </div>
 
 
@@ -323,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931462.jpg" />
 </div>
 
 
@@ -349,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931452.jpg" />
 </div>
 
 
@@ -375,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931450.jpg" />
 </div>
 
 
@@ -401,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931149.jpg" />
 </div>
 
 
@@ -427,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931144.jpg" />
 </div>
 
 
@@ -453,7 +619,7 @@ S.T.A.L.K.E.R. Trilogy / S.T.A.L.K.E.R. Трилогия (2007-2009) [Ru/Multi] 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931014.jpg" />
 </div>
 
 
@@ -479,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930275.jpg" />
 </div>
 
 
@@ -505,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930243.jpg" />
 </div>
 
 
@@ -514,163 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Российские правообладатели разработали законопроект, который предлагает наказывать за рассказ о том, как можно обойти блокировку сайта в интернете. Документ опубликован на сайте Ассоциации по защите авторских прав в интернете (АЗАПИ) и одобрен рабочей группой Роскомнадзора.
 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982261   (930120) от 14.02.2016
-
-Игро-Новости Февраля
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dying Light - разработчики опубликовали занятное видео, освещающее эволюцию зомби в поп-культуреСтудия Techland, которая готовит к скорому выходу крупное дополнение для зомби-экшена Dying Light - The Following, опубликовала в сети довольно занятное видео. Посвящено оно тем, кто являются частью поп-культуры уже на протяжении долгого периода времени - зомби.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986643   (930113) от 14.02.2016
-
-Воскресный вечер с Владимиром Соловьевым (2016.02.14) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930113.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E4811235BBE20E27243A197AFB21D9DE703537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986043   (929976) от 14.02.2016
-
-Компания Northrop Grumman выпустила ролик, демонстрирующий концепт будущего истребителя 6-го поколения
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская оборонная компания Northrop Grumman, известная, прежде всего, как разработчик и изготовитель  бомбардировщика-невидимки B-2 Spirit, нового бомбардировщика Long Range Strike Bomber, недавно опубликовала короткий 30-секундный видеоролик, который по праву можно отнести к разряду рекламы. Действующими "лицами" этого видеоролика являются боевые летательные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286081   (929942) от 24.01.2011
-
-Microsoft Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated (AIO) [22.01.11]
-
->>3
->>37
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка включает в себя 9 модификаций русской и 9 модификаций английской версииЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920055   (929872) от 07.03.2020
-
-Пираты ХХ века (1979) HDTVRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский сухогрузный корабль перевозил большой груз опиума для фармакологической промышленности. Современные пираты, охотившиеся за ценным грузом, коварством завладели кораблем и экипажем. Чтобы не осталось свидетелей этого разбойного нападения, пираты попытались уничтожить всю команду корабля. В океанских просторах разыгралась напряженная борьба между горсткой (   Читать дальше...   )Производство: СССР / Киностудия имени М. ГорькогоЖанр: Боевик, триллер, криминал, приключенияРежиссер: Борис ДуровАктеры: Николай Ерёменко мл., Пётр Вельяминов, Талгат Нигматулин, Рейн Арен, Дилором Камбарова, Наталья Хорохорина, Майя Эглите, Тадеуш Касьянов, Павел Ремезов, Виктор Жиганов, Виктор ГордеевПеревод: Не требуетсяСубтитры: Русские / UTF-8 (вшитые, отключаемые)Продолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89431D8895F1B319787C736F5F918DB6AB98DAA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364834   (929869) от 07.03.2020
-
-Проект SETI@home по поиску внеземных цивилизаций завершает работу после 21 года безрезультатных поисков
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929869.jpg" />
-</div>
-
-
-###  Подробнее
-
-SETI (Search for Extraterrestrial Intelligence) — общее название проектов и мероприятий по поиску внеземных цивилизаций и возможному вступлению с ними в контакт. И SETI@home, некоммерческий проект на платформе распределенных вычислений BOINC, пожалуй, является самым известным в своем роде. Точнее, являлся.После 21 года безрезультатных поисков исследовательский центр (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

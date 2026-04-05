@@ -1,3 +1,38 @@
+###  Публикация: 550588   (458521) от 22.09.2012
+
+Hostsonaten - Summereve (2011) [MP3|320 кб/с]<Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Seasons's Overture (10:51)
+I.  Rite Of Summer
+II. In The Rising Sun
+III. The Last Shades Of Winter
+IV. A Church Beyond The Lake
+V. La Route Pour Finistére
+VI. Springtheme
+2. Glares Of Light (07:25)
+3. Evening Dance  (04:13)
+4. On The Sea (04:20)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8458AEB98A4816965D5F6B735F427D12293F0436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408067   (458419) от 11.09.2020
 
 Axenstar - The Final Requiem (2006) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
@@ -6,7 +41,7 @@ Axenstar - The Final Requiem (2006) [FLAC|Lossless|image + .cue] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458419.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Protest The Hero - Palimpsest (2020) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458415.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Illdisposed - Reveal Your Soul For The Dead (2019) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458411.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Mastodon - Medium Rarities (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458406.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ Winter's Verge - The Ballad of James Tig (2020) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458398.jpg" />
 </div>
 
 
@@ -153,7 +188,7 @@ Anathema - Falling Deeper (2011) [FLAC|Lossless]<Post-Rock,Atmospheric Rock,Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458340.jpg" />
 </div>
 
 
@@ -179,7 +214,7 @@ Toehider - I LIKE IT! (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458307.jpg" />
 </div>
 
 
@@ -208,7 +243,7 @@ Mastodon - Medium Rarities (2020) [MP3|320 Kbps] <Groove Metal, Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458306.jpg" />
 </div>
 
 
@@ -237,7 +272,7 @@ Messiah - Fracmont (2020) [MP3|320 Kbps] <Death Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458304.jpg" />
 </div>
 
 
@@ -266,7 +301,7 @@ Skeletal Remains - The Entombment Of Chaos (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458301.jpg" />
 </div>
 
 
@@ -295,7 +330,7 @@ The Beauty of Gemina - Skeleton Dreams (2020) [FLAC|Lossless|tracks + .cue] <Got
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458298.jpg" />
 </div>
 
 
@@ -324,7 +359,7 @@ Rick Miller - Immortal Remains (2013) [FLAC|image+.cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458214.jpg" />
 </div>
 
 
@@ -353,7 +388,7 @@ The Flaming Lips - American Head (2020) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458165.jpg" />
 </div>
 
 
@@ -382,7 +417,7 @@ Rick Miller - Heart Of Darkness (2014) [FLAC|image+.cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458125.jpg" />
 </div>
 
 
@@ -411,7 +446,7 @@ Bonafide - Ultimate Rebel (2012) [FLAC|Lossless]<Hard-Rock, Blues-Rock, Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458106.jpg" />
 </div>
 
 
@@ -440,7 +475,7 @@ Artful Dodger - Artful Dodger (1975) Remastered /1997, P.E.G./ [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458102.jpg" />
 </div>
 
 
@@ -469,7 +504,7 @@ Red Rum - Booze And Glory (2015) [MP3|320 кб/с]<Epic Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458099.jpg" />
 </div>
 
 
@@ -498,7 +533,7 @@ Dokken - Broken Bones (2012) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458098.jpg" />
 </div>
 
 
@@ -527,7 +562,7 @@ Massacra - 3 Albums (1990 - 1992) Reissue, Remastered 2014 [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458050.jpg" />
 </div>
 
 
@@ -556,7 +591,7 @@ Arcana XXII - Anthems of Adversity (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458049.jpg" />
 </div>
 
 
@@ -585,7 +620,7 @@ Arcana XXII - This Burning Darkness (2002) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458048.jpg" />
 </div>
 
 
@@ -614,7 +649,7 @@ Black Earth - 20 Years of Dark Insanity: Japan Tour 2016 (2017) 2CD [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458045.jpg" />
 </div>
 
 
@@ -643,7 +678,7 @@ Eskimo Callboy - MMXX (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458018.jpg" />
 </div>
 
 
@@ -672,7 +707,7 @@ Lord Of The Lost - Swan Songs III (2020) 2xCD [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458004.jpg" />
 </div>
 
 
@@ -701,7 +736,7 @@ Artful Dodger - Artful Dodger (1975)/Remastered/1997, P.E.G./[FLAC|tracks+.cue]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457976.jpg" />
 </div>
 
 
@@ -715,35 +750,6 @@ Artful Dodger - Artful Dodger (1975)/Remastered/1997, P.E.G./[FLAC|tracks+.cue]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E0D2147ECDAA1C895802403767BC5BEE8731C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941979   (457973) от 29.09.2015
-
-Chris Cornell - Higher Truth (2015) Deluxe Edition [FLAC|image+.cue]<Rock, Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nearly Forgot My Broken Heart (3:54)
-02. Dead Wishes (4:56)
-03. Worried Moon (4:32)
-04. Before We Disappear (3:52)(   Читать дальше...   )Жанр: Rock, Alternative Rock, GrungeПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F229DACF7325634ACE068BFC13EB87B915719A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

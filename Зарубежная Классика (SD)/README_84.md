@@ -1,3 +1,56 @@
+###  Публикация: 1254071   (363275) от 18.10.2018
+
+Поезд / Le train (1973) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Француз Жюльен и молодая привлекательная немка еврейского происхождения Анна бегут от наступающей гитлеровской армии. Они оказываются в одном поезде, и с первого взгляда между ними возникает глубокое чувство.
+Но по прибытии к месту назначения они вынуждены расстаться, ведь у Жюльен есть семья. Через несколько лет судьба вновь сводит их вместе на допросе в гестапо… (   Читать дальше...   )Производство: Франция, Италия / Capitolina Produzioni Cinematografiche, Lira FilmsЖанр: Драма, ВоенныйРежиссер: Пьер Гранье-ДеферАктеры: Жан-Луи Трентиньян, Роми Шнайдер, Морис Биро, Поль Амио, Нике Арриги, Поль Ле Персон, Анн Вяземски, Роже Ибанез, Жан Лекот, Франко МацциериПеревод: Профессиональный (двухголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087259BD87526E6F720E9E65082834F692FFAC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946993   (362748) от 29.10.2015
+
+Цеппелин / Zeppelin (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая мировая война. Двойной агент Джеффри Рихтер-Дуглас попадает на борт нового дирижабля, который отправляется с секретной миссией в Шотландию.Производство: ВеликобританияЖанр: Драма, Приключения, ВоенныйРежиссер: Этьен Перье / Etienne PrierАктеры: Майкл Йорк (Geoffrey von Richter-Douglas), Эльке Зоммер (Frau Dr. Ericka Altschul), Питер Карстен (Maj. Tauntler), Мариус Горинг (Prof. Christian Altschul), Антон Диффринг (Col. Johann Hirsch), Эндрю Кир (Von Gorian), Руперт Дейвис (Capt. Whitney), Александра Стюарт (Stephanie), Уильям Марлоу (Cmdr. Anderson), Richard Hurndall (Adm. Blinker Hall), Майкл Роббинс (Cockney (   Читать дальше...   )Перевод: Профессиональный (многоголосый, закадровый) Питер ТВ5Продолжительность: 01:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E6CCEB4FD6BAA978C6BE741550199210784C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175100   (362695) от 25.10.2017
 
 Двое в пути / Two for the Road (1967) BDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362695.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362535.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362519.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362459.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361739.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361556.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361089.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361013.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360970.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360421.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359789.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359674.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358561.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358093.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357935.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357804.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355328.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355324.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355249.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355234.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355220.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354477.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354068.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353947.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6F6E225A3E04DE249AB8C149C568DCB6A8563BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254347   (353580) от 22.10.2018
-
-Девушка на мотоцикле / The Girl on a Motorcycle (1968) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательная девушка по имени Ребекка одна едет через всю Европу на своем мотоцикле. Проезжая разные города и встречая новых людей, она вспоминает свою прошлую любовь и мечтает о будущей, т. к. едет к своему новому возлюбленному. Но не так все просто у нее на душе, да и длинная дорога полна неожиданностей.Производство: Великобритания, Франция / Adel Productions, Ares Production, Mid-Atlantic Film (Holdings) Ltd., SNCЖанр: МелодрамаРежиссер: Джек КардиффАктеры: Ален Делон, Марианна Фэйтфулл, Роджер Маттон, Мариус Горинг, Катрин Журдан, Жан Ледюк, Жак Марен, Андре Маранн, Бари Йонсон, Арнольд ДаймондПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05AAC50A9C02540325E5C27C2BB5F94654157984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178818   (353449) от 29.10.2017
-
-Марни / Marnie (1964) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня фильма Марни Эдгар устраивается на работу в различные фирмы под чужим именем и, проработав некоторое время, исчезает с деньгами компаний, не оставляя никаких следов. Она неуловима, так как постоянно меняет не только имена, но и внешность. Марк Ратлэнд, деловой партнер одной из бывших жертв Марни, разоблачает ее, когда она устраивается к нему на работу. Но (   Читать дальше...   )Производство: США / Alfred J. Hitchcock Productions, Geoffrey Stanley, Universal PicturesЖанр: Триллер, Драма, Мелодрама, Криминал, ДетективРежиссер: Альфред ХичкокАктеры: Типпи Хедрен, Мартин Габел, Шон Коннери, Луиз Лэтэм, Дайан Бэйкер, Алан Напье, Боб Суини, Милтон Зельцер, Генри Бекман, Эдит Эвансон, Мэриетт Хартли, Брюс ДернПеревод: Дублированный, многоголосый закадровыйСубтитры: Русские (полные, форсированные), английские (полные, SDH)Продолжительность: 02:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0992BD2F43990D8ED52FBFCF3D2053B01962187
 ```
 
 https://mybot314.ru/tekegram_catalog/

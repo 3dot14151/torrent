@@ -6,7 +6,7 @@ Serious Sam: The Second Encounter [Wineskin] [Rus]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78073.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Saw: The Video Game [Cider] [Rus + Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78052.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78024.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Heart de Roommate / Соседка По Комнате [Wineskin] [Rus]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77841.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Assassin's Creed: Brotherhood (L) [Eng]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77834.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Doom 3 [Native] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77628.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77610.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77594.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Need For Speed: Porsche Unleashed [Cider] [Eng]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77450.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Mortal Kombat 4 [Wineskin] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77250.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ FlatOut 2 [Native] [Eng]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77038.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76605.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76407.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Made Man [CiderX] [Rus]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75994.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Misadventures of P.B. Winterbottom [Wineskin] [Rus]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75722.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Settlers 2: Awakening of Cultures [Wineskin] [Rus]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75172.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Northgard v.3.4.8.36964 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63144.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Stardew Valley v.1.6.3.24087_6495347694 (2016)  [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61051.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Crusader Kings III v.1.12.4 (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60309.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Sneaky Sasquatch v.2.0.5 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11266.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Cyberpunk 2077: Ultimate v2.3 (2025) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11137.jpg" />
 </div>
 
 

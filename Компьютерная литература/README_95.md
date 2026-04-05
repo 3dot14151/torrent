@@ -1,165 +1,3 @@
-###  Публикация: 1646903   (208832) от 16.07.2023
-
-Е.П. Зараменских, И.Е. Артемьев | Интернет вещей. Исследования и область применения (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография содержит исследование Интернета вещей как технической концепции, анализ возможных последствий ее развертывания и основных трендов, обзор существующих проектов и разработок, а также характеристику используемых на практике технологий из данной сферы.Жанр: Компьютерная литератураИздательство: Инфра-МФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FE6D9A46086670CBC4DF656DE28107CEF693EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607744   (208823) от 28.01.2023
-
-М. Виннер | Компьютер и ноутбук для тех, кому за... Простой и понятный самоучитель (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучиться работе на компьютере не так сложно, как кажется, — нужно всего лишь вооружиться хорошим и понятным самоучителем. В этой книге информация подана очень доступно и ориентирована на читателей старшего возраста, никогда не имевших дела с компьютером или ноутбуком.
-
-Обновленное под Windows 10 издание самоучителя поможет приобрести самые важные и необходимые для (   Читать дальше...   )Жанр: Самоучитель. Производственно-практическое изданиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACAB0AEB2E578B32AA941789D7C77463EC6CC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814909   (208743) от 29.01.2023
-
-Д. Н. Тороп, В. В. Терликов | Teamcenter. Начало работы (2011) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой учебное пособие для освоения базовых принципов работы с системой Teamcenter®. В книге приводится общее описание всех модулей, входящих в состав системы Teamcenter, подробно рассмотрены функциональные возможности базовых модулей, предназначенных для управления данными об изделии, которые применяются в повседневной работе пользователей вне (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894D36772008F78F413B3A68D3D4B0D37D2D5AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575640   (208455) от 10.09.2022
-
-Sylvain Kerkour | Black Hat Rust (2022) [PDF, EPUB, MOBI] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будь то в фильмах или в средствах массовой информации, хакеры часто романтизируются: их изображают волшебниками черной магии, мерзкими преступниками или, в худшем случае, ворами с капюшоном и ломом.
-На самом деле спектр злоумышленников чрезвычайно широк: от скучающего подростка, исследующего Интернет, до армии суверенного государства, а также несчастного бывшего (   Читать дальше...   )Жанр: Пентест, OSINTФормат: PDF, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E85CC7A4198F1417A544A65E2BAD5B0A7D7D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610057   (208116) от 05.02.2023
-
-И.Б. Аббасов | Основы графического дизайна в Photoshop 2021 (2021) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга предназначена для освоения графического редактора Adobe Photoshop с нуля. Кратко и емко описаны все многочисленные возможности Photoshop. Закрепить изученный материал помогают практические упражнения с пошаговыми инструкциями. Рассматриваемые темы: - интерфейс программы Adobe Photoshop; - особенности растровой графики; - обработка изображений; - использование (   Читать дальше...   )Жанр: Графика, Дизайн, ПроектированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF2E1E87EC822C1907EC4E6888C9A908AE7F6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610240   (208083) от 06.02.2023
-
-Forrest Brazeal | The Cloud Resume Challenge Guidebook, AWS, GCP & Azure ed. [3 Книги] (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208083.jpg" />
-</div>
-
-
-###  Подробнее
-
-A proven way to advance your cloud career.​
-Since April 2020, the Cloud Resume Challenge has helped thousands of peopleskill up on cloud,
-improve their career prospects,
-and even land cloud jobs from totally non-tech fields like plumbing, professional poker, and HR.Now, I've packed their top tips, strategies, and resources into one e-book, so you too can build (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C385A18DDA5AFD7BC209596F1292CC6F6FEB59ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610210   (208080) от 06.02.2023
 
 Maximilian Schwarzmüller | React Key Concepts: Consolidate your knowledge of React’s core features, 1st Edition (2022) [PDF] [EN]
@@ -168,7 +6,7 @@ Maximilian Schwarzmüller | React Key Concepts: Consolidate your knowledge of Re
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208080.jpg" />
 </div>
 
 
@@ -196,7 +34,7 @@ John Canning и др. | Структуры данных и алгоритмы н
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208007.jpg" />
 </div>
 
 
@@ -222,7 +60,7 @@ Benjamin Evans, Jason Clark, Martijn Verburg | The Well-Grounded Java Developer,
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207904.jpg" />
 </div>
 
 
@@ -250,7 +88,7 @@ John M. Blain | Blender 2D Animation: The Complete Guide to the Grease Pencil (2
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207764.jpg" />
 </div>
 
 
@@ -279,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207728.jpg" />
 </div>
 
 
@@ -305,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207724.jpg" />
 </div>
 
 
@@ -331,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207596.jpg" />
 </div>
 
 
@@ -357,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207592.jpg" />
 </div>
 
 
@@ -384,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207484.jpg" />
 </div>
 
 
@@ -410,7 +248,7 @@ Adam Freeman | Pro ASP.NET Core 6: Develop Cloud-Ready Web Applications Using MV
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207442.jpg" />
 </div>
 
 
@@ -436,7 +274,7 @@ Peter Spath | Pro Android with Kotlin - 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207299.jpg" />
 </div>
 
 
@@ -464,7 +302,7 @@ Joel Holmes | Shipping Go (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207002.jpg" />
 </div>
 
 
@@ -490,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206988.jpg" />
 </div>
 
 
@@ -516,7 +354,7 @@ Prabhu Eshwarla | Rust Servers, Services, and Apps (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206976.jpg" />
 </div>
 
 
@@ -542,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206907.jpg" />
 </div>
 
 
@@ -568,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206778.jpg" />
 </div>
 
 
@@ -595,7 +433,7 @@ Sufyan bin Uzayr | Mastering Python for Web (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206705.jpg" />
 </div>
 
 
@@ -621,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206624.jpg" />
 </div>
 
 
@@ -647,7 +485,7 @@ Primoz Gabrijelcic | Delphi High Performance, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206590.jpg" />
 </div>
 
 
@@ -675,7 +513,7 @@ Natale Vinto, Alex Soto Bueno | GitOps Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206587.jpg" />
 </div>
 
 
@@ -686,6 +524,165 @@ Natale Vinto, Alex Soto Bueno | GitOps Cookbook (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CBD984F099FE208D62F1A78AEB3C962093DF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613752   (206504) от 24.02.2023
+
+Эндрю Траск | Грокаем глубокое обучение (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубокое обучение - это раздел искусственного интеллекта, цель которого научить компьютеры обучаться с помощью нейронных сетей - технологии, созданной по образу и подобию человеческого мозга. Онлайн-переводчики, беспилотные автомобили, рекомендации по выбору товаров именно для вас и виртуальные голосовые помощники - вот лишь несколько достижений, которые стали возможны, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А.КиселевФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A37D27894190EEF36E903D9537C12648AA4CC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614969   (206500) от 24.02.2023
+
+Бхавик Мерчант | Power BI. Передовые методы оптимизации (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга научит вас поддерживать решения Power BI любой степени сложности с минимальными усилиями. Вы узнаете, как проводить оптимизацию на всех слоях Power BI - начиная с рабочей области отчета и заканчивая моделированием данных, их преобразованием, хранением и архитектурой. Выясните, что необходимо сделать, чтобы при масштабировании проекта не страдало его быстродействие. (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.Ю. ГинькоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BE9B84BE38C9058137D9378C005C95135F4A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615448   (206416) от 25.02.2023
+
+Jos Dirksen | Learn Three.js: Program 3D animations and visualizations for the web with JavaScript and WebGL, 4th Edition (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга начинается с основных концепций и строительных блоков, используемых в Three.js, и помогает вам подробно изучить эти важные темы с помощью обширных примеров и образцов кода. Вы узнаете, как создавать реалистично выглядящие 3D-объекты с помощью текстур и материалов и как загружать модели из внешнего источника. Далее вы поймете, как управлять камерой с помощью (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6641E0B36AAFB336E25F68E11DD846FBF91DE04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615753   (206258) от 27.02.2023
+
+В.П. Дьяконов | MATLAB 6.5 SP1/7 + Simulink 5/6. Обработка сигналов и проектирование фильтров (2017) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья книга в серии работ, посвященных двум последним реализациям мощных матричных систем компьютерной математики MATLAB 6.5 SP1/7 + Simulink 5/6. Впервые дан вводный курс по новейшей версии MATLAB 7 + Simulink 6. Описаны последние версии пакетов расширения по обработке сигналов и проектированию фильтров: Signal Processing Toolbox, Signal Processing Blockset, Digital (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD916E16D85A167737A5BC67403C1E6077E0389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582854   (206125) от 11.10.2022
+
+Martin Joo | Microservices with Laravel (Premium Package) (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное руководство по освоению микросервисов с помощью Laravel. Избавьтесь от монолитного монстра! 151 страница высококачественного контента, который научит вас создавать микросервисы с помощью Laravel.
+
+«Микросервисы с Laravel» — это полное руководство по созданию микросервисов. Книга охватывает такие темы, как:
+Написание небольших сервисов с одной обязанностью(   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86C182C0EE3AD616D72FD267EA16E7456D7216E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654130   (205969) от 19.08.2023
+
+Dan Wellman | Ultimate Typescript Handbook (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой исчерпывающее руководство по TypeScript, языку программирования, расширяющему JavaScript такими мощными возможностями, как статическая типизация, классы и интерфейсы. Книга состоит из тринадцати глав, в которых рассматривается все, начиная с настройки среды разработки и заканчивая созданием приложения на языке Angular с использованием (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Orange Education Pvt Ltd, AVA™Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F362DA9D3146E1B8541E836FC96E1C0A13A7BCE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

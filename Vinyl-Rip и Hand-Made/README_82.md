@@ -1,3 +1,31 @@
+###  Публикация: 1782902   (69857) от 03.03.2025
+
+Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thrashfire - турецкая метал-группа, основанная в январе 2006 года2011 - Thrash Burned The Hell
+2015 - Vengeance of Fire (EP)
+2019 - Into the ArmageddonЖанр: Thrash MetalПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782961   (69853) от 03.03.2025
 
 Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Bluegrass>
@@ -6,7 +34,7 @@ Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69853.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69848.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69847.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69846.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ Thrashist Regime - Studio Albums (2 releases) (2012-2018) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69799.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69556.jpg" />
 </div>
 
 
@@ -174,7 +202,7 @@ Cryptosis (ex-Distillator) - Studio Albums (5 releases) (2015-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69506.jpg" />
 </div>
 
 
@@ -203,7 +231,7 @@ Moonsorrow - Voimasta Ja Kunniasta (2001) Released, 2017, Blood Music [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69477.jpg" />
 </div>
 
 
@@ -232,7 +260,7 @@ Space Chaser - Studio Albums (5 releases) (2013-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69471.jpg" />
 </div>
 
 
@@ -261,7 +289,7 @@ Zventa Sventana - коллекция (4 издания) (2006-2023) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69424.jpg" />
 </div>
 
 
@@ -291,7 +319,7 @@ Legion of the Damned - The Poison Chalice (2023) [FLAC|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69412.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69410.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ Seventh Storm - Maledictus (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69406.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ Sentenced - North From Here (1993) Reissue, 2009, 	Century Media [FLAC|24/96|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69400.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ Swallow The Sun - Studio Albums (10 releases) (2003-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69331.jpg" />
 </div>
 
 
@@ -436,7 +464,7 @@ Carach Angren - Death Came Through A Phantom Ship (2010) Reissue, 2013, Season O
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69312.jpg" />
 </div>
 
 
@@ -465,7 +493,7 @@ Elton John - Star Collection (2001) Compilation, Unofficial Release [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69275.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69255.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ The Mission (U.K.) - Studio Albums (6 releases) (1996-2016) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69254.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69234.jpg" />
 </div>
 
 
@@ -581,7 +609,7 @@ Madonna - Star Collection vol.2 (2000) Compilation, Unofficial Release [FLAC|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69194.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ Sentenced - Frozen (1998) Reissue, 2016, Century Media [FLAC|24/192|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69169.jpg" />
 </div>
 
 
@@ -639,7 +667,7 @@ Sentenced - The Funeral Album (2005) Reissue, 2016, Century Media [FLAC|24/96|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69150.jpg" />
 </div>
 
 
@@ -668,7 +696,7 @@ W.A.S.P. - The Last Command (1985) [DSD128|24/44,1|tracks|Vinyl-Rip] <Heavy Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69139.jpg" />
 </div>
 
 
@@ -697,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69137.jpg" />
 </div>
 
 
@@ -711,35 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EDCA1DB2644008EE8623231B92D47B644020FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785954   (69128) от 18.03.2025
-
-The Bleeding (U.K.) - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69128.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bleeding - рок-группа из Великобритании (Лондон, Англия). Образована в 2010 году.2013 - Death Eternal (EP)
-2017 - Rites of Absolution
-2019 - Morbid Prophecy
-2023 - MonokratorЖанр: Death/Thrash MetalПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0AB573A9D22E875D2884DF5AD4A43741A36E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Bobby Hackett - 1938 - 1940 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016799.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Louis Armstrong - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016792.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Glenn Miller - 1935 - 1938 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016790.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Django Reinhardt - Guitar Genius (2000) [FLAC|Lossless|image + .cue] <Swing, Gyp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016783.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Stan Getz - 5 Original Albums (1955 - 1958) 5CD, 2016, Verve [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016698.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Goat’s Notes - Machine (2020) [FLAC|Lossless|image + .cue] <Free Jazz, Free Im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016466.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Djinn - Transmission (2021) [FLAC|Lossless|WEB-DL|tracks] <Free Jazz, Free Impro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016458.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ella Fitzgerald & Louis Armstrong - Oldies Selection: Gold Records (2021) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016437.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Emmet Cohen - Future Stride (2021) Mack Avenue Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016305.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bill Evans - The Secret Sessions: Recorded At The Village Vanguard (1966 - 1975)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016150.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Frank Sinatra - Reprise Rarities - Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016057.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Robert Hohner Percussion Ensemble - Far More Drums (2000) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015996.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lester Young - 1936 - 1943 (2003) Columbia [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015972.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kelly Broadway - In Concert (1996) Pillar Productions [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015816.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Karima - No Filter (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015803.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lester Young - The Classic Albums Collection (1955 - 1958) 4CD, 2017, Enlightenm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015651.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Carla Van Blake - Land of Enchantment (2018) [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015517.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lena Horne - The Best Of Lena Horne (1941 - 1946) 2005, Chestnut [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015512.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lester Young - The Masters Touch (1944 - 1949) 2003, Savoy Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015344.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Charles Mingus & John LaPorta - Jazzical Moods (1954) 1995, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015171.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ella Fitzgerald - The Lost Berlin Tapes (1962) 2020, Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015005.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Fletcher Henderson - Tidal Wave (1931 - 1934) 1994, GRP [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014860.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Oscar Peterson - Songbooks+ (1956 - 1959) 10CD, 2014, The Intense Media [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014548.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Benny Goodman - Florida Sessions (1959) 1992, MusicMasters Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014061.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dawda Jobarteh - Northern Light Gambian Night (2011) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013888.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ella Fitzgerald - Ella Fitzgerald At Mister Kelly's 1958 (2017) 2CD, Essential J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013884.jpg" />
 </div>
 
 

@@ -1,3 +1,136 @@
+###  Публикация: 1842884   (1048988) от 18.12.2025
+
+Keysight Advanced Design System 2026 Update 1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система ADS является самой передовой в отрасли системой автоматизированного проектирования (САПР) ВЧ, СВЧ и высокоскоростных цифровых электронных устройств. В САПР ADS впервые использованы такие инновационные и коммерчески успешные технологии, как X-параметры* и 3D электромагнитное (ЭМ) моделирование, применяемые ведущими компаниями в сфере беспроводной связи, компьютерных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9718FDE5B7F4F488826B4912B863062B8504A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843095   (1048940) от 18.12.2025
+
+Hex Editor Neo Ultimate 7.50.04.8813 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hex Editor Neo – Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
+Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39703A93B0B16214CD006DC583CF6A51F11D245C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842804   (1048870) от 17.12.2025
+
+1С:Зарплата и управление персоналом (ЗУП) базовая 3.1.36.39 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для управления человеческими ресурсами предприятия фирмой «1С» разработан современный инструмент автоматизации задач управления персоналом, ведения кадрового учета и расчетов в соответствии с требованиями законодательства для коммерческих предприятий различного масштаба — 1С:Зарплата и управление персоналом 8.
+
+1С:Зарплата и управление персоналом 8 — решение для (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473AC5F36404578CDF50E911999A8C464F4F3F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842222   (1048577) от 16.12.2025
+
+WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.12.14 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F406AFB847D0041AB9356D5B8DB12F62368369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841670   (1048075) от 12.12.2025
+
+SAS.Планета 251212 portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Системы навигации и карты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048075.jpg" />
+</div>
+
+
+###  Подробнее
+
+SAS.Планета / SAS.Planet / SASPlanet – свободно распространяемая портативная программа, предназначенная для просмотра и загрузки спутниковых снимков высокого разрешения и обычных карт, представляемых такими сервисами, как Google Earth, Google Maps, Bing Maps, DigitalGlobe, “Космоснимки“, Яндекс.карты, Yahoo! Maps, VirtualEarth, Gurtam, OpenStreetMap, eAtlas, iPhone (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39921FC81B73E25738A55173F903A9F4EEEA85B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841353   (1047926) от 10.12.2025
 
 Microsoft Visual Studio 2026 Enterprise 18.1.0 (Offline Cache) [Ru/En]
@@ -6,7 +139,7 @@ Microsoft Visual Studio 2026 Enterprise 18.1.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047926.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Microsoft Visual Studio 2026 Professional 18.1.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047924.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.22 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047913.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ Wolfram Mathematica 14.3 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047789.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ FontViewOK 9.19 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047738.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ NVIDIA GeForce Desktop Studio 591.44 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047277.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047197.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046917.jpg" />
 </div>
 
 
@@ -218,7 +351,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.2 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046816.jpg" />
 </div>
 
 
@@ -244,7 +377,7 @@ MInstAll v.27.11.2025 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046577.jpg" />
 </div>
 
 
@@ -270,7 +403,7 @@ MInstAll v.27.11.2025 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046465.jpg" />
 </div>
 
 
@@ -296,7 +429,7 @@ VanDyke SecureCRT 9.3.1 build 2929 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046380.jpg" />
 </div>
 
 
@@ -314,33 +447,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605633   (1044806) от 18.01.2023
-
-Java SE Development Kit 19.0.2 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF353C6611B8F66A98697F1808B1530F0F3F52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612267   (1040240) от 15.02.2023
 
 Visual C++ Runtimes AIO 2023 v1.0 x86-x64 RePack by ivandubskoj [Ru]
@@ -349,7 +455,7 @@ Visual C++ Runtimes AIO 2023 v1.0 x86-x64 RePack by ivandubskoj [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040240.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ Magma Computational Algebra System 2.20.9 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039795.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ ORF Fusion 5.5.1 registered [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039740.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ Adobe Dreamweaver 2021 (21.1.0.15413) Portable by XpucT [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038644.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ Inno Setup 6.2.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038536.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ Zuken CADSTAR 16.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036387.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ Anhdv Boot 2023 Premium v23.4 x86-x64 (03.03.2023) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035800.jpg" />
 </div>
 
 
@@ -531,7 +637,7 @@ Proteus Professional 8.15 SP1 Build 34318 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035520.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ ColorAndCode 20.2 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035146.jpg" />
 </div>
 
 
@@ -571,112 +677,6 @@ Color and Code - программа позволяет определить но
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B8403157072C53F933453A1AAFFB9380BFE643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444401   (1034593) от 01.02.2021
-
-Apowersoft CAD Viewer 1.0.3.1 Portable by Spirit Summer [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apowersoft CAD Viewer. Простое в использовании, но полнофункциональное программное обеспечение САПР, которое может быстро просматривать, комментировать, измерять, редактировать и преобразовывать Ваши чертежи..Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1595F97F96B4E36E9B2833BF977D3E99260680E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618128   (1034266) от 10.03.2023
-
-MCBoot WinPE VN 2023 PRO v9.6 build 010323 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034266.jpg" />
-</div>
-
-
-###  Подробнее
-
-MCBoot WinPE VN 2023 PRO Набор инструментов для восстановления компьютера с современным дизайном, чрезвычайно быстрой скоростью загрузки, совместимый со старыми компьютерами и новейшими компьютерами. MCBoot WinPE VN 2023 PRO предлагает множество расширенных функций для решения компьютерных проблем, особенно подходящих для инженеров-ИТ. Каждая деталь MCBoot WinPE (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F2AF662AE3EF48C0CCF3F2367F1D0DF05A9C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619558   (1032906) от 16.03.2023
-
-Microsoft Visual Studio 2019 Enterprise 16.11.25 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53499241617CC4CD90601B869CDD032907815A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445687   (1032806) от 08.02.2021
-
-Microsoft SQL Server 2012 11.0.7001.0 (Service Pack 4) [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Серверное ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032806.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQL Server 2012, известный ранее под кодовым именем Denali, получил новую редакцию Business Intelligence и будет доступен по новым схемам лицензирования. Первая CTP-версия продукта была представлена еще в ноябре 2010 года. С того момента SQL Server 2012 успели оценить более 150 000 пользователей.
-
-В SQL Server 2012 компания решила сфокусироваться на обеспечении высокой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA1A457A88151C1BA57AB6D1A0BE10980904DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

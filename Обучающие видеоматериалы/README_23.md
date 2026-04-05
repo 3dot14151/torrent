@@ -1,3 +1,30 @@
+###  Публикация: 1444566   (1034332) от 02.02.2021
+
+Дмитрий Шатров | Организация хранилища для фотографа (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преврати архив в удобное хранилище
+С каждым годом производители выпускают всё более навороченные камеры, выдающие всё более прожорливые файлы. Где их хранить? Как организовать архив и управлять им? Если вы уже пытались разобраться в аббревиатурах HDD, SSD, NAS, RAID – то проблема стоит для вас остро. Если нет, то у вас есть шанс заблаговременно позаботиться об архиве, (   Читать дальше...   )Производство: LiveclassesЖанр: ФотографияПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AD86765DD2BDEC6936387A0FDFE6CF2FD92DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444620   (1034324) от 02.02.2021
 
 Дарья Остапенко | Живописный рисунок. Приёмы графики (2020) PCRec
@@ -6,7 +33,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034324.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034284.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Udemy, Ben Tristem и др. | Complete C# Unity Game Developer 3D (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034281.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ Udemy,  Dr. Angela Yu  | 100 Days of Code - The Complete Python Pro Bootcamp for
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034280.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ Udemy, Chad Darby и др. | Full Stack: Angular and Java Spring Boot (2020) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034272.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ Zero To Mastery Academy (ZTM), Jayson Lennon | Rust Programming: The Complete De
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034259.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Stepik, Иосиф Дзеранов | Алгоритмы поиска и сор�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034254.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ Udemy | Аве Кодер: Практический Курс по Продвин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034252.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Dvxuser | Освещение для кино и телевидения (2019) PC
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034177.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ Fstoppers | Введение в видео -  Руководство по кин
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034148.jpg" />
 </div>
 
 
@@ -281,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034147.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ Art Five | Онлайн фотоакадемия «Art Five» (2020) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034143.jpg" />
 </div>
 
 
@@ -338,7 +365,7 @@ Udemy, Imran Afzal | Complete Linux Training Course to Get Your Dream IT Job 202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034119.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034111.jpg" />
 </div>
 
 
@@ -394,7 +421,7 @@ FilmЕditingРrо | Искусство монтажа трейлеров от г
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034109.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034103.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034101.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034090.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ Udemy, Maximilian Schwarzmüller  | Understanding TypeScript - 2021 Edition (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034088.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034086.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ Emiel Sleegers | 3D game asset creation: Fire hydrant (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033967.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ Eric Keller | Maya Viewport 2.0 and Shader FX (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033958.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ Stanislav Poritskiy | Modeling a Detailed Ship in Maya (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033950.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ Wes McDermott | Substance Painter 2019 Essential Training (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033941.jpg" />
 </div>
 
 
@@ -667,7 +694,7 @@ Andy Beane | Maya: Advanced Modeling (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033914.jpg" />
 </div>
 
 
@@ -678,33 +705,6 @@ Andy Beane | Maya: Advanced Modeling (2017) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9AF19FFA75C8C725C47953BB791B452D60A59C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444993   (1033911) от 04.02.2021
-
-James Schauf | Vehicle Modeling for Production (2018) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033911.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе James Schauf поделится своими методами/подходами на примере моделирования хотрода в стиле Безумного Макса.
-Начнет James с пояснения значимости этапа сбора референсных изображений, которые при последующей разработке и моделировании будут направлять, ориентировать, вдохновлять, служить основой и источником идей.Производство: The Gnomon WorkshopЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 08:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34054EABB895CF7E651C14C48B0C04EF2A88ABF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

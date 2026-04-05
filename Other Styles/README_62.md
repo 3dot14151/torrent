@@ -1,3 +1,61 @@
+###  Публикация: 1285121   (716811) от 28.02.2019
+
+Kitaro - Tenku (1986) Remastered, 1997, DOMO [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tenku 4:14
+ 02 - Romance 4:41
+ 03 - Wings 5:20
+ 04 - Aura 7:24(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3F4DBA4E106D0389388AA5DB6C1B54BBF75115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285352   (716679) от 28.02.2019
+
+Moreza - Fragrance (2019) [MP3|320 Kbps] <New age, Nuevo Flamenco, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fragrance (5:28)
+02.King Of Guitarras (feat. Lorenzo De Medici) (4:44)
+03.Love Story (4:29)
+04.Miss Guitar (5:42)(   Читать дальше...   )Жанр: New age. Nuevo Flamenco, ChilloutПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797DCAF72F5D0FA2A4E5DBE4E6947405FC56E3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023598   (716127) от 09.06.2016
 
 Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
@@ -6,7 +64,7 @@ Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716127.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716126.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716035.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) L
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716020.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA, Tyler Bates - Guardians of the Galaxy / Стражи Галактики (Ori
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715964.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715958.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715830.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Dr. Jeffrey Thompson & Mick Rossi - Dancing Clouds (2007) [FLAC|Lossless|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715730.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715508.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715500.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715453.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715076.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Jim Brickman - Relax to the Hits of Jim Brickman (2019) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714911.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Meditation Music Zone & Ensemble de Musique Zen Relaxante - Bouddha 2019: Bar, l
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714910.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, R
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714825.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Two Steps From Hell - Dragon (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714718.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Shannon Rae - Shannon Rae (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714143.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714139.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714134.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714083.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714075.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713994.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Are Lonesome Tonight. 23 Romantic Instrumentals (UY) Unofficial Release [AP
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713962.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713796.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0D959E4A1B1609B7C8FBFE50E8EB78A496D3FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219499   (713353) от 14.04.2018
-
-Danheim - Herja (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atgeir 3:04
-02. Berserkir 3:55
-03. Feigr 3:30
-04. Fimbulvetr 4:25(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFC0BBF078B654067DEB5089B428FD73B921112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401024   (713041) от 08.08.2020
-
-Ikaiki Taky - Inka Llacta (2009) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qarwa Yaku
-02. Ruminahu
-03. Akuchimay
-04. Sumac Llacta(   Читать дальше...   )Жанр: Ethnic, Folk, New AgeПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EF7B6D8B27487DBC54C46680ED2094C28BDC42
 ```
 
 https://mybot314.ru/tekegram_catalog/

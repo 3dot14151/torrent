@@ -1,3 +1,148 @@
+###  Публикация: 1015622   (773937) от 11.05.2016
+
+Creedence Clearwater Revival - 6 альбомов (1968 - 1986) 6CD, 24 Karat Gold Collection [FLAC|Lossless|image + .cue]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk On The Water 04:28
+02. Susie Q (Part II) 03:48
+03. Born On The Bayou 05:10
+04. Good Golly Miss Molly 02:38(   Читать дальше...   )Жанр: Classic RockПродолжительность: 04:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E13511EA4012375EF5356658F99824D30EF8590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124862   (773528) от 13.04.2017
+
+Oni - Ironshore (2016) [FLAC|Lossless|image + .cue] <Progressive Death Metal, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barn Burner 04:00
+02. Eternal Recurrence 04:49
+03. The Only Cure (featuring Randy Blythe of Lamb of God) 05:04
+04. The Science 11:15(   Читать дальше...   )Жанр: Progressive Death Metal, DjentПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A10E80258AE3BE59D4F6BB33ED2DE199099D95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124922   (773453) от 13.04.2017
+
+Paleons - Hyperborean (2017) [FLAC|Lossless|tracks + .cue] <indierock, noise, krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773453.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moon Dragon (05:33)
+2. The Circle and Eternity (12:23)
+3. Wheel of Anguish (03:16)
+4. Sun at the Eastern Gate (07:14)(   Читать дальше...   )Жанр: indierock, noise, krautrockПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9F3481AEFFAFD192BC62E343C2853B2096815F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125093   (773450) от 13.04.2017
+
+Вино и ртуть - Вино и ртуть "Ожидание" (2017) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здесь (03:54)
+02. Заклятие (04:26)
+03. Вороном (03:34)
+04. Когда не хватает джаза (04:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B00922CAD37AC13A28AE47411D2373175F341E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125096   (773394) от 13.04.2017
+
+American Dog - Poison Smile (2012) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil Dog  (02:52) 
+02. Just Like Charlie Sheen  (02:54) 
+03. Old Dog New Tricks  (04:29) 
+04. The Real Nitty Gritty  (04:56) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C5916074E48D3BB3DA6B42FC12D867D1737E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213181   (773353) от 15.03.2018
 
 Blueneck - Discography 12 Releases (2006-2018) Don't Touch, Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <Post Rock>
@@ -6,7 +151,7 @@ Blueneck - Discography 12 Releases (2006-2018) Don't Touch, Denovali Records [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773353.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Motley Crue - Shout At The Devil (1983) Japan +5 Bonus Track [APE|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773352.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Bazooka - Bazooka (2012) [FLAC|Lossless|tracks + .cue] <Garage Rock, Psychedelic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773305.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Ottone Pesante - Apocalips (2018) [FLAC|Lossless|tracks + .cue] <Black Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773304.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Mastodon - Radio Sampler (2006) Promo, Sampler [FLAC|Lossless|tracks + .cue] <Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773302.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ Clandestine Blaze - Tranquility of Death (2018) [FLAC|Lossless|tracks + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773301.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ Coriky - Coriky (2020) [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773262.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ Tense Machine - Echoes (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773249.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773197.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773194.jpg" />
 </div>
 
 
@@ -292,7 +437,7 @@ Lorelle Meets The Obsolete - De Facto (2019) [FLAC|Lossless|tracks + .cue] <Drea
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773180.jpg" />
 </div>
 
 
@@ -321,7 +466,7 @@ Missy Higgins - 18 Releases (2003-2018) Коллекция [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773169.jpg" />
 </div>
 
 
@@ -350,7 +495,7 @@ Weezer - Weezer (Teal Album) (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773167.jpg" />
 </div>
 
 
@@ -379,7 +524,7 @@ Ex Animo - Neverday (2016) [MP3|320 кб/с] <Gothic Metal, Doom Metal, Dark Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773145.jpg" />
 </div>
 
 
@@ -408,7 +553,7 @@ Richard Schneider Jr. - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Krautrock, Expe
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773120.jpg" />
 </div>
 
 
@@ -437,7 +582,7 @@ Steelheart - Through Worlds of Stardust (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773093.jpg" />
 </div>
 
 
@@ -466,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773082.jpg" />
 </div>
 
 
@@ -495,7 +640,7 @@ The Sweet - The Polydor Albums (2017) 4CD Box set, Compilation, Reissue [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773078.jpg" />
 </div>
 
 
@@ -524,7 +669,7 @@ The Goo Goo Dolls - Boxes (2016) [MP3|320 кб/с] <Alternative Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772969.jpg" />
 </div>
 
 
@@ -553,7 +698,7 @@ Kvelertak - Nattesferd (2016) [MP3|320 кб/с] <Black Metal, Punk Rock, Black'n
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772968.jpg" />
 </div>
 
 
@@ -582,7 +727,7 @@ Shadows Fall - 13 Releases (1997-2012) [MP3|~245-320 кб/с]<MDM (early), Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772842.jpg" />
 </div>
 
 
@@ -596,148 +741,6 @@ Shadows Fall - 13 Releases (1997-2012) [MP3|~245-320 кб/с]<MDM (early), Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74B3B7B02AACCEC4EC34F3FC42AF00076029ECEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278253   (772838) от 24.01.2019
-
-Bring Me The Horizon - amo (2019) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. i apologise if you feel something (2:20)
- 02. MANTRA (3:53)
- 03. nihilist blues (feat. Grimes) (5:26)
- 04. in the dark (4:31)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC5DD49A2C52BBFB5DCBCBFAD23F3888EFC5E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964611   (772824) от 24.01.2019
-
-Rival Sons - 6 Albums, 1 EP, 1 Compilation, 1 Live (2009-2019) [MP3|320 кб/с]<Hard Rock, Blues Rock, Rock and Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772824.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - Before The Fire
-2011 - Prime Cuts (EP)
-2011 - Pressure & Time (Redux Edition 2012)
-2012 - Head Down(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock and RollПродолжительность: 07:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6399B36A7FF75264AB7359FD7D651F4B9E097DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015750   (772823) от 12.05.2016
-
-John Carpenter - Lost Themes II (2016) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Electronic Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Dream
-02. White Pulse
-03. Persia Rising
-04. Angel's Asylum(   Читать дальше...   )Жанр: Cinematic Post Rock, Electronic Rock, AmbientПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB130A681AA21956DE6B27212B216036AB3B15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015751   (772662) от 12.05.2016
-
-Maroon 5 - Songs About Jane (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harder to Breathe (2:53)
-02. This Love (3:26)
-03. Shiver (2:59)
-04. She Will Be Loved (4:17)(   Читать дальше...   )Жанр: Alternative Rock, Soft Rock, Pop RockПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385A3D4D9224B7EF384C05E6AFF132F86EE62146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016067   (772231) от 12.05.2016
-
-Ленинград - В Питере - пить (2016) Single [MP3|320 кб/с] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В Питере - питьЖанр: Rock, SkaПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1EB66F1DCE04645138EAB76F9D7BC7F2B6961C
 ```
 
 https://mybot314.ru/tekegram_catalog/

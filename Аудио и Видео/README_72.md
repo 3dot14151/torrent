@@ -6,7 +6,7 @@ Zucchero - Discover (2021) [AAC|~325 Kbps] <Pop, Rock, Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789191.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789020.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789007.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789003.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788988.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788970.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788958.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788942.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788781.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788597.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788540.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788535.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788528.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788518.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788501.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788454.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Piano Moods Collection, Vol. 1 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788425.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Aimée Sol presents Lounge Attitudes, Vol. 2 (2021) [AAC|~316 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788424.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Chill Out Perfection, Vol. 1 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788423.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Calm Down and Chill, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788421.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - The Perfect Lounge (Santorini Edition) (2021) [AAC|~290 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788420.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788404.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Piano Moods Collection, Vol. 3 (2021) [AAC|~296 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788381.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Sia - Everyday Is Christmas (Snowman Deluxe Edition) (2021) [AAC|~315 Kbps] <Pop
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788377.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA - Life is Beautiful (2021) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788376.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Amanda Lear - Tuberose (2021) [AAC|~302 Kbps] <Pop, Chanson>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788374.jpg" />
 </div>
 
 

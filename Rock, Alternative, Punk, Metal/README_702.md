@@ -1,3 +1,32 @@
+###  Публикация: 1256413   (356784) от 21.10.2018
+
+Чумацький Шлях - Самурай (2015) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Самурай
+02. Не зникає день
+03. Мантра
+04. Хап (кліп)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72BFD3FF404BAC0CFA63FC968143A6606469B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256393   (356557) от 21.10.2018
 
 The Sweet - Greatest Hits (2000) Compilation, Repress [FLAC|Lossless|image + .cue] <Hard Rock, Glam >
@@ -6,7 +35,7 @@ The Sweet - Greatest Hits (2000) Compilation, Repress [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356557.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Insomnium - Heart Like A Grave (Deluxe Editioin) (2019) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356514.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Eclipse - Paradigm (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356508.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Naka - Пора (2010) [FLAC|Lossless] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356362.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Broken Glazz - Divine (1991) [FLAC|image +.cue]<Heavy Metal / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356338.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dream Evil - Evilized (2003) Japanese Edition / King Record /[FLAC|image +.cue]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356329.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Disturbed - Evolution (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356325.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Stranglers - All Live And All Of The Night (1987) [FLAC|image+.cue]<Punk, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356203.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Bif Naked - Superbeautifulmonster (2005) [MP3|320 кб/с]<Rock, Pop, Pop-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356198.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Stranglers - Dreamtime (1986) [FLAC|image+.cue]<Punk, Post-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356196.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356110.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Enemy - It's Automatic (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356056.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Spirit Of John Morgan - Spirit Of John Morgan (1971) /1993, Repertoire Records /
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356055.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Darren Hayes Feat. Savage Garden - Music Box (2002) [APE|image+.cue]<Soft Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356051.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Mega Colossus - HyperGlaive (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355907.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Dying Aura - Of Death, Kings and Solitude (2020) [MP3|320 Kbps] <Atmospheric Bla
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355902.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Lancelot - But I Just Can't Stay Behind (1983) Reissue, Remastered, 2015, Limite
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355901.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Ricochet - Pieces of the Ricochet (2020) [MP3|320 Kbps] <Progressive Rock, Heavy
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355900.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Vengeance - Piece Of Cake (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355899.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Paradise Lost - In Requiem (2007) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355896.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Lachy Doley - Double Figures (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355894.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Aerosmith - Rocks Donington 2014 (2015) 3CD Japanese edition, Live [FLAC|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355858.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Paradise Lost - Faith Divides Us - Death Unites Us (2009) Japanese Edition [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355763.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355752.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Tragik - Faith Healer (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355736.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Tragik - Faith Healer (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47FE13B39A022D95D742C4B69E70B845B0F8B456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952351   (355719) от 01.11.2015
-
-The BossHoss - Dos Bros (2015) [FLAC|Lossless|WEB-DL]<Alternative, Country Rock, Southern Rock, Pop Rock, New Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Diggity (feat. Xavier Naidoo) (3:33)
-02. Jolene (feat. The Common Linnets) (3:28)
-03. Geronimo (feat. Aura Dione) (3:18)
-04. The Beautiful People (3:49)(   Читать дальше...   )Жанр: Rock, Country, Alternative, Country Rock, Southern Rock, Pop Rock, Rockabilly, New Country, CoversПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FA33341CA99E47C65D192C1DFD8B830A994049
 ```
 
 https://mybot314.ru/tekegram_catalog/

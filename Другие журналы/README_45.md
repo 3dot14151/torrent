@@ -1,3 +1,55 @@
+###  Публикация: 1154960   (537124) от 01.08.2017
+
+Журнал | Красноармеец. Краснофлотец №21-22 (ноябрь) (1937) [PDF, DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухнедельный литературно-художественный журнал. Журнал вел свою родословную от литературно-политического журнала Красной Армии «Красноармеец», который начал выходить в апреле 1919 года. До 1936 года выпускался политуправлением РККА и Осоавиахима. Публиковал литературно-публицистические и политические материалы о жизни и проблемах Красной армии, на темы воинского (   Читать дальше...   )Жанр: Литературно-художественныйФормат: PDF (OCR с ошибками), DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FEB7D70FB74B536CEBFB452D513FAEEF1BC7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154963   (537068) от 01.08.2017
+
+Журнал | Календарь колхозника (1949,1950) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь колхозника представлял собой информационно-справочный ежегодный журнал для работников сельского хозяйства СССР. В нем был расписанный по месяцам календарь сельскохозяйственных работ, а также много других полезных советов для колхозников и лиц, занимающимися земледелием и животноводством в колхозах, включая и технические новинки и механизмы, используемые (   Читать дальше...   )Жанр: Сельское хозяйство, справочное издание, календарьФормат: PDF (OCR с ошибками)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBDE4A6197D737C4A8F4C234A9AFBB54908BF91C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050849   (536591) от 09.09.2016
 
 Журнал | Таинственые истории №17 (2016) [PDF]
@@ -6,7 +58,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536591.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536583.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536558.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536538.jpg" />
 </div>
 
 
@@ -123,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536398.jpg" />
 </div>
 
 
@@ -151,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536397.jpg" />
 </div>
 
 
@@ -177,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536390.jpg" />
 </div>
 
 
@@ -203,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536315.jpg" />
 </div>
 
 
@@ -230,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536235.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534719.jpg" />
 </div>
 
 
@@ -282,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534626.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534425.jpg" />
 </div>
 
 
@@ -337,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534424.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534382.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534346.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534289.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534198.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532641.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530818.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529730.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529628.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528176.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527308.jpg" />
 </div>
 
 
@@ -643,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526655.jpg" />
 </div>
 
 
@@ -654,59 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71C5CFBD8537A1115F6C3D6AEF40FC0C6A7B3C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053258   (526650) от 16.09.2016
-
-Журнал | Дарья. Биография №10 (октябрь 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
-Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Жизнь знаменитых людейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BB18E742FA5B408D5E3060015C3D745524DFCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927683   (524118) от 14.08.2015
-
-Журнал | Вооруженные силы стран мира №101 (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F72F6CA7864A12DDC1FCA211D8D5A86CB30267F
 ```
 
 https://mybot314.ru/tekegram_catalog/

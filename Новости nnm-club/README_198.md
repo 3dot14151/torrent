@@ -1,3 +1,58 @@
+###  Публикация: 1074050   (339656) от 18.11.2016
+
+Risen 3: Titan Lords (2015) [Ru/Multi] (3.0.30.0/dlc) License GOG [Enhanced Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Risen 3! Мир, забытый богами и раздираемый войной титанов, мир, где угроза исходит из самой земли. Вы - молодой воин, получивший удар из теней, лишивший вас души. Вам нужно отправиться в путь, чтобы вернуть то, что потеряно во тьме и расползается по миру. Вы не одиноки в своей борьбе: изгнанные маги могут быть мощными союзниками.Тип издания: LicenseРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51000677784CBBEA4779ED95D8D4B39ABAED1360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489839   (339637) от 18.11.2016
+
+Дельфин (Dolphin) - 13 Albums+2 Compilations+2 Live+2 Singles (Различные издания) (1992-2016) [FLAC|Lossless|tracks + .cue] <Alternative, Experimental, Electronic>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся ум, непосредственность и следование своему пути отличает Дельфина от большинства современных музыкантов. Карьера Андрея длится более четверти века. За это время у него было много проектов: удачных и не очень, но они всегда идеально вписывались в концепцию своего времени и были наполнены недоступной для многих музыкантов глубиной.Список альбомов:
+2016 - Она
+2014 - Андрей
+2011 - Существо(   Читать дальше...   )Жанр: Alternative, Experimental, Hip Hop, ElectronicПродолжительность: 39:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008280A9A63017AF67491AAD88A73EA64E965624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954614   (339597) от 08.11.2015
 
 Самоуправляемые роботы - почтальоны и курьеры следующего поколения
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339597.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339528.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Internet Download Manager 6.29 Build 2 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339159.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Windows 10 PE (x86/x64) v.5.0.9 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339152.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339053.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ Adobe Photoshop CC 2015.0.1 (20150722.r.168) RePack by alexagf [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338838.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_338525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338525.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338524.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ Call of Juarez (2006) [Ru] (1.1.1.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338335.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ openSUSE 12.1 [i586 + x86_64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_338142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338142.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ fleur-group | Керамическая флористика в 10 видео-у�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338124.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ Microsoft успешно завершил сделку по покупке GitHu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_338108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338108.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ Horizon Forbidden West / Horizon Запретный Запад (2022) [PS4] [EUR
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338023.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337981.jpg" />
 </div>
 
 
@@ -373,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337980.jpg" />
 </div>
 
 
@@ -399,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337323.jpg" />
 </div>
 
 
@@ -425,7 +480,7 @@ Beholder (2016) [Ru/Multi] (1.0/u1) License RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337315.jpg" />
 </div>
 
 
@@ -451,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_336791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_336791.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336759.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336556.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336554.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ IBM приобрела Red Hat за $34 миллиарда
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_335997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_335997.jpg" />
 </div>
 
 
@@ -581,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335870.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335213.jpg" />
 </div>
 
 
@@ -618,58 +673,6 @@ Classic ROCK предлагает читателям глубокие анали
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B7919C5C370DC51756718236547CDD158F67BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074542   (335202) от 20.11.2016
-
-PROMT Professional 12 Build 12.0.52 + Dictionaries Collection [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335202.jpg" />
-</div>
-
-
-###  Подробнее
-
-PROMT Professional 12 – переводчик и словарь для малого и среднего бизнеса. Программа позволяет быстро и качественно перевести деловой документ, сайт, письмо или сообщение от партнера. При этом гарантируется сохранение конфиденциальности переводимой информации.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1044D6B46081E57DE2761783611586E02B8AF248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419433   (335075) от 30.10.2020
-
-Путину пожаловались на абсурдную возрастную маркировку книг
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_335075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава комитета Госдумы по культуре Елена Ямпольская на заседании президентского совета по культуре и искусству пожаловалась Владимиру Путину на излишнюю возрастную маркировку литературы.Она заявила, что существующие ограничения "уже не первый год" мешают книготорговле, театру, кинематографу, а также музеям и библиотекам.В качестве примера депутат привела (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

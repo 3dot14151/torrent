@@ -1,3 +1,30 @@
+###  Публикация: 1464061   (1019949) от 21.04.2021
+
+Microsoft Windows 10.0.19041.928 Version 2004 (Updated April 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.928.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE34C2DBFC49F3266CEF83C2189F53C5444057C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464056   (1019939) от 21.04.2021
 
 Microsoft Windows 10.0.17763.1879 Version 1809 (Updated April 2021) - Оригинальные образы от Microsoft MSDN [En]
@@ -6,7 +33,7 @@ Microsoft Windows 10.0.17763.1879 Version 1809 (Updated April 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019939.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Microsoft Windows 10.0.18363.1500 Version 1909 (Updated April 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019915.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Microsoft Windows 10.0.17763.1879 Version 1809 (Updated April 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019905.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Microsoft Windows 10.0.19041.928 Version 2004 (Updated April 2021) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019904.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Microsoft Windows 10.0.19042.928 Version 20H2 (Updated April 2021) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019887.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Microsoft Windows 10.0.19042.928 Version 20H2 (Updated April 2021) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019844.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ Microsoft Windows 10.0.19041.985, Version 2004 (Updated May 2021) - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015123.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Microsoft Windows 10.0.18363.1556, Version 1909 (Updated May 2021) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015120.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Microsoft Windows 10.0.17763.1935, Version 1809 (Updated May 2021) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015112.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Microsoft Windows 10.0.18363.1556, Version 1909 (Updated May 2021) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015071.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ Microsoft Windows 10.0.19042.985, Version 20H2 (Updated May 2021) - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015065.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ Windows Server, Version 20H2 (10.0.19042.985) (Updated May 2021) - Оригин�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015048.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ Microsoft Windows 10.0.19041.1052, Version 2004 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009971.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009931.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009925.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009901.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009603.jpg" />
 </div>
 
 
@@ -464,7 +491,7 @@ Windows 8.1 6.3 (Build 9600.20069) (24in2) x86/x64 by Sergei Strelec [Ru]
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006315.jpg" />
 </div>
 
 
@@ -491,7 +518,7 @@ Windows 10 21H1 (Build 19043.1110) (60in2) x86/x64 by Sergei Strelec [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006180.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ Microsoft Windows 10.0.19041.1110, Version 2004 (Updated July 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005813.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ Microsoft Windows 10.0.19042.1110, Version 20H2 (Updated July 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005805.jpg" />
 </div>
 
 
@@ -572,7 +599,7 @@ Windows Server, Version 20H2 (10.0.19042.1110) (Updated July 2021) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005780.jpg" />
 </div>
 
 
@@ -598,7 +625,7 @@ Microsoft Windows 10.0.17763.2061, Version 1809 (Updated July 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005770.jpg" />
 </div>
 
 
@@ -625,7 +652,7 @@ Microsoft Windows Server 2012 (x64) - Ознакомительная верси�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998440.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ Recovery Partition for ASUS K54C (X54C) / Windows 7 Home Basic (х64) SP1 [ру�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994601.jpg" />
 </div>
 
 
@@ -664,33 +691,6 @@ Recovery Partition for ASUS K54C (X54C) / Windows 7 Home Basic (х64) SP1 [ру�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354488   (987827) от 22.01.2020
-
-Microsoft Windows 10.0.17763.973 Version 1809 (January 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.973.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8D7342CB0D4BC1C69A2260E21FD26C568364F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

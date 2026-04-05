@@ -1,29 +1,3 @@
-###  Публикация: 568410   (394923) от 31.10.2012
-
-С.Трофимов (ред.) | Болезни кожи [2010] [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394923.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге доступно рассмотрены наиболее часто встречаемые болезни кожи. Представлены причины, симптомы, современные методы диагностики и лечения, а также средства народной медицины. Особое внимание в книге уделено наиболее распространенным заболеваниям кожи - псориазу, экземе, себорее, грибковым и онкологическим заболеваниям.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569F1AD619726A69F0ECF50C73838904CEC71076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 401109   (394089) от 19.10.2011
 
 Свами Сатьянанда Сарасвати | Древние тантрические техники йоги и крийи [3 тома] (2004-2007) [PDF, DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394089.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_393582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393582.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393150.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391770.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389547.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_388513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388513.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387144.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386728.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383419.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375862.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372157.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372145.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372027.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371917.jpg" />
 </div>
 
 
@@ -404,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371801.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370500.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369962.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369573.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368196.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368193.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368054.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367312.jpg" />
 </div>
 
 
@@ -617,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367189.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365488.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365377.jpg" />
 </div>
 
 
@@ -680,6 +654,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:713D3C9817BED1AB6A450B95B9785F7348E17375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177257   (365171) от 24.10.2017
+
+Антонина Шмак | Методы распознавания фертильности или когда возможно зачатие (2003) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга знакомит читателей с основами деторождения, физиологическими процессами, протекающими в женском организме, и основными признаками, позволяющими распознать, когда возможно зачатие.
+
+Будет полезна как медицинским работникам, руководствующимся в своей деятельности этическими нормами, так и супругам, заинтересованным в создании крепкой семьи и в здоровом образе (   Читать дальше...   )Жанр: ГинекологияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4DBF9C1DE0CCD324DF90D684E79CBF504DBE5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

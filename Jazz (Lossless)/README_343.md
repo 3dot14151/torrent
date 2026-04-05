@@ -6,7 +6,7 @@ Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71960.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71930.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71921.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Pop International Hits (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71860.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Enrico Pieranunzi & Bert Joris - Afterglow (2021) Challenge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71826.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Enrico Pieranunzi & Marc Johnson - Yellow & Blue Suites (1990) 2008, Challenge J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71801.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ David "Fathead" Newman - Four Classic Albums (1958 - 1961) 2CD, 2018, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71744.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Boogie Woogie & Blues Piano: Milestones of Legends (1920-e -1960-e) 10CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71734.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71727.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Enrico Pieranunzi Trio - New Visions (2019) Storyville [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71725.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lowell Hopper - Never Too Late (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71724.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Enrico Pieranunzi Jazz Ensemble - Time's Passage (2020) Abeat Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71715.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Teddy Wilson - Just A Mood (1934 - 1946) 2CD, 2001, History [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71692.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Enrico Pieranunzi, Enzo Pietropaoli, Roberto Gatto - Moon Pie (1988) Divox [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71675.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71615.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Classic Vanguard Small Group Swing Sessions (1953 - 1957) 7CD, 2024, Mosaic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71563.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dave Stryker - Stryker With Strings Goes to the Movies (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71558.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Blue Notes, Vol.1: The Essence Of Modern Jazz (1953 - 1962) 10CD, 1999, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71531.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Oscar Peterson - Get Happy (1949 - 1950) 2019, Dreyfus Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71515.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71467.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sun Ra - Inside The Light World: Sun Ra Meets The OVC (1986) 2CD, 2024, Strut [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71412.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bobby Hutcherson - Classic Blue Note Sessions (1963 - 1970) 7CD, 2024, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71378.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Red Rodney - Bird Lives! (1973) 1989, Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71335.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Joe Pass & Paulinho da Costa - Tudo Bem! (1978) 1985, Pablo Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71334.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Gerry Mulligan/Art Farmer Quartet - In Stockholm & Hollywood (1959) 2010, Solar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71333.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71332.jpg" />
 </div>
 
 

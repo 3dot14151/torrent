@@ -1,3 +1,30 @@
+###  Публикация: 1454184   (1026548) от 13.03.2021
+
+Udemy, Maher Haddad | MikroTik Switching - Spanning Tree Protocol  (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первый курс на рынке, где обсуждают переключение в MikroTik. Начиная с версии RouterOS 6.41 и выше, MikroTik имеет очень надежные функции коммутации, от которых вы можете получить прибыль: Одной из функций является протокол связующего дерева.
+Протокол связующего дерева (STP) помогает вашим избыточным коммутирующим сетям избежать петель и эффективно работать. (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02546FC1CE14E5760358D242B3DCC9FDA57D101A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453926   (1026537) от 13.03.2021
 
 Udemy, Maher Haddad | MikroTik Failover Setup with LABS (2019) PCRec [En]
@@ -6,7 +33,7 @@ Udemy, Maher Haddad | MikroTik Failover Setup with LABS (2019) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026537.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Udemy | MikroTik from Beginner to Expert (2018) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026525.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Udemy, Maher Haddad | Network Automation on MikroTik using Python (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026520.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Sephiroth Art | Gumroad collection - Tutorials & Brushes (2019) HDTV [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026516.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ Udemy, Khaled Alhaibi | Mikrotik Vpn Tunnels Real Labs With OpenVpn, pptp, 2tp,s
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026509.jpg" />
 </div>
 
 
@@ -145,7 +172,7 @@ Udemy, Paweł Ciepliński | Mikrotik MTCNA (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026507.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026494.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026493.jpg" />
 </div>
 
 
@@ -231,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026492.jpg" />
 </div>
 
 
@@ -258,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026456.jpg" />
 </div>
 
 
@@ -284,7 +311,7 @@ Mark Fancher | Rigid Body Destruction (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026370.jpg" />
 </div>
 
 
@@ -311,7 +338,7 @@ Udemy, Ervis Trupja | The Complete Guide to ASP.NET Core (.NET 5) Web API  (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026331.jpg" />
 </div>
 
 
@@ -338,7 +365,7 @@ Udemy, Maher Haddad | VLAN on MikroTik with LABS (RouterOS & SwOS) (2020) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026314.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ Udemy, Aviral Mishra | Complete Electronics Hardware Design Course 2021  (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026313.jpg" />
 </div>
 
 
@@ -394,7 +421,7 @@ David Lesperance | Introduction to Game Art (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026211.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026193.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026189.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026108.jpg" />
 </div>
 
 
@@ -498,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026094.jpg" />
 </div>
 
 
@@ -524,7 +551,7 @@ Udemy, Hardware Academy  | The Complete Electronics Course 2020: Analog Hardware
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026086.jpg" />
 </div>
 
 
@@ -550,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026080.jpg" />
 </div>
 
 
@@ -576,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026076.jpg" />
 </div>
 
 
@@ -602,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026053.jpg" />
 </div>
 
 
@@ -628,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025931.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ Thiago Klafke | Making an Office Environment in Unreal 4 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025908.jpg" />
 </div>
 
 
@@ -666,35 +693,6 @@ Thiago Klafke | Making an Office Environment in Unreal 4 (2016) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:365D0436389CA7C8617CABD863B203196B2E996A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455064   (1025901) от 17.03.2021
-
-Олег Дымшаков | Запуск на миллион (2020) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один запуск может изменить всё...
-И это не просто слова. Вот уже больше 2 лет я занимаюсь запусками онлайн-проектов.
-Сказать, что моя жизнь изменилась — не сказать ничего.
-Я получил деньги, признание, самореализацию и самое главное — невероятных людей вокруг меня. И всё это благодаря запускам.(   Читать дальше...   )Производство: Запуск на миллионЖанр: бизнесПродолжительность: 08:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE19CBA447554170B10415B4FECD11EFEA6CF5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

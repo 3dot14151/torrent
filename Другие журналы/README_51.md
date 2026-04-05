@@ -1,3 +1,63 @@
+###  Публикация: 552437   (448269) от 26.09.2012
+
+Подборка газет | Kuryer codzienny + Kurjer poranny + Ilustrowany kuryer codzienny [сентябрь 1939] [PDF] [POL]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стремительно менялась политическая обстановка в мире в конце лета - начале осени 1939 года.
+23 августа СССР и Германия подписали пакт о ненападении, и уже 31 августа Верховный Совет СССР его ратифицировал.
+1 сентября вторжением немецких войск в Польшу начинается 2-я мировая война.
+17 сентября в Польшу входят советские войска.
+27 сентября капитулирует Варшава.
+28 сентября Германия и СССР подписывают Договор о разделе Польши.
+
+В раздаче 3 польских газеты этого периода:
+1) Варшавская "Kuryer codzienny" № 258A за 18 сентября (в номере - поражение немцев во Львове. Президент Варшавы Стефан Старжинский обращается к правительствам Англии и Франции. На Западном фронте немцы бегут в панике. Поляки и французы бомбят Берлин. Ложь Адольфа Гитлера)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6765DB90FDF1FD9CCFC1DE79A022F1B61317206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827559   (447397) от 03.10.2014
+
+Журнал | Тайны ХХ века [Украина] №37 (октябрь 2014) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11807D7CB8C991480F5222C4F676ABB67A37982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943062   (447350) от 04.10.2015
 
 Газета | Загадки истории №39 (2015) [PDF]
@@ -6,7 +66,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447350.jpg" />
 </div>
 
 
@@ -32,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447349.jpg" />
 </div>
 
 
@@ -58,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447340.jpg" />
 </div>
 
 
@@ -84,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447339.jpg" />
 </div>
 
 
@@ -113,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447338.jpg" />
 </div>
 
 
@@ -140,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446776.jpg" />
 </div>
 
 
@@ -166,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446095.jpg" />
 </div>
 
 
@@ -192,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444886.jpg" />
 </div>
 
 
@@ -218,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444790.jpg" />
 </div>
 
 
@@ -245,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444673.jpg" />
 </div>
 
 
@@ -271,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444160.jpg" />
 </div>
 
 
@@ -297,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442772.jpg" />
 </div>
 
 
@@ -323,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442771.jpg" />
 </div>
 
 
@@ -350,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442665.jpg" />
 </div>
 
 
@@ -376,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441523.jpg" />
 </div>
 
 
@@ -402,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440513.jpg" />
 </div>
 
 
@@ -428,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440512.jpg" />
 </div>
 
 
@@ -454,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440369.jpg" />
 </div>
 
 
@@ -480,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439962.jpg" />
 </div>
 
 
@@ -506,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438313.jpg" />
 </div>
 
 
@@ -532,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438258.jpg" />
 </div>
 
 
@@ -558,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437392.jpg" />
 </div>
 
 
@@ -585,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437386.jpg" />
 </div>
 
 
@@ -612,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437279.jpg" />
 </div>
 
 
@@ -625,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B880A675441C6B186FDAD379125D6738E8331541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554663   (437098) от 01.10.2012
-
-Журнал | Афиша Мир №7(94) [октябрь 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-познавательный журнал, отражает стиль жизни активных и состоятельных людей, которые свободно путешествуют и не бояться открывать для себя уголки мира, не обозначенные в путеводителях.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358F6C6168161678D884946EFABE8B2C943ED359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554956   (436957) от 01.10.2012
-
-Журнал | Авиация и время №4 [июль-август 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробно и достоверно об авиации разных времен и стран. Основой каждого номера является большая статья, подробно рассказывающая о биографии какого-либо летательного аппарата, его конструкции и технических характеристиках. Статья готовится на базе сведений, полученных от фирм-разработчиков и лиц, участвовавших в эксплуатации ЛА. Она снабжается большим количеством фотографий, многие из которых публикуются впервые, точными чертежами и исторически достоверными окрасками конкретных машин.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582F2A055840E3F9E87260B9276102E37ED072DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 646727   (859681) от 21.04.2013
+
+Розовая пантера / The Pink Panther Classic Cartoon Collection (1964-1980) DVDRip (133 серии из 133)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Розовая Пантера, хитрая, самоуверенная, но иногда глупая, постоянно попадает в какие-нибудь истории. Главный противник Пантеры — Человек с большим носом (Big Nose Man), который, благодаря старанием Розового героя, то не может построить дом (в мультфильме «Pink Blueprint», 1966), то не может нормально поспать (лента «Rock-a-Bye Pinky», 1966), то у него не получается (   Читать дальше...   )Жанр: Рисованная анимация, Детский, КомедияРежиссер: Фриц Фреленг, Хоули Пратт, Арт Леонарди, Брэд КейсПерсонажи: Пантера и KoПеревод: Без слов / НемойПродолжительность: 133 х ~ 00:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A3F81CB28988E394ECD4F55004290A8913EAE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874713   (859251) от 05.03.2015
+
+Чаггингтон: Веселые паровозики / Chuggington (2011) DVDRip [Сезон 3: 14 серий из 14]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чаггингтон — настоящий мир поездов, в котором старательные паровозики-малыши Уилсон, Коко и Брюстер готовятся стать большими поездами. Пусть они и непоседы, и любят подурачиться, но никогда не сходят с рельсов, все задания исполняют на пятерку, а еще маленькие «чаггеры» всегда помогают друг другу и жителям города. Уилсон — этот паровозик очень рад, что оказался в (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Детский, Приключения, ОбучающийРежиссер: Сара Болл/Sarah BallПеревод: Полный дубляж, вкл. песниПродолжительность: 14 серий по ~00:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A14A52B845A6970FDD4F8DFDBF02AC1C5EEA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999830   (858743) от 25.03.2016
 
 Приключения Тайо / Tayo: The Little Bus (2010-2014) WEB-DLRip (сезон 1-2, серии 1-52 из 52)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858743.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857946.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857421.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857238.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854061.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ LEGO Marvel Супер Герои: Максимальная перегрузка
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853974.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853234.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851995.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851855.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850552.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850329.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848640.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843373.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842658.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842619.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842482.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842473.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841613.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841610.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839346.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839211.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837437.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837349.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835848.jpg" />
 </div>
 
 
@@ -617,61 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AFD1B4BBE2897922D2BDB2E76331E2BC521E790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193624   (835283) от 22.04.2010
-
-Том и Джерри (выпуск 10) / Tom & Jerry (vol 10) (1940-1967) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название серий:
-
-1. Том-культурист
-2. Очень грустная история(   Читать дальше...   )Жанр: Рисованая анимация, ДетскийРежиссер: Уильям Ханна /William Hanna/, Джозеф Барбера, /Joseph Barbera/Персонажи: Том и ДжерриПеревод: Одноголосый закадровыйПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380155   (834990) от 02.05.2020
-
-Гриффины / Family Guy (2009) WEB-DL [H.264/1080p-LQ] (сезон 8, серии 1-19, 21 из 21) 2x2, Filiza Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_834990.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: мультфильм, комедияРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Джон Винер, Дэнни Смит, Патрик Варбертон, Ральф Гармен, Алек СалкинПеревод: Многоголосый профессиональный (2x2, Filiza Studio)Субтитры: русские, английскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16A543BCCE283C193E60C4C139DEBA9B4942EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

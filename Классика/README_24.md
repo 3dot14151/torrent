@@ -1,3 +1,38 @@
+###  Публикация: 521904   (624670) от 12.07.2012
+
+VA - Guitar Moments : Cavatina And Other Classical Guitar Favourites (2004) [FLAC|Lossless]<Classical Guitare, Instrimental>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norbert Kraft - {Myers} Cavatina [03:31]
+02. Den Danske Guitarduo - {Peterson-Berger} Till Rosorna From Frosoblomster, Book 1, Op. 16 [03:01]
+03. Norbert Kraft - {Tarrega} Recuerdos De La Alhambra [04:14]
+04. Graham Anthony Devine - {Pernambuco} Sons De Carilhхes [02:26]
+05. Den Danske Guitarduo - {Sibelius} Berceuse, Op. 40, No. 5 [01:35]
+06. Norbert Kraft - {Barrios Mangore} Julia Florida [04:17]
+07. Wilma van Berkel & Robert Kubica - {Sor} – Allegretto From Souvenir De Russie, Op. 63 [02:56]
+08. Den Danske Guitarduo - {Grieg} Bеdnlеt, Op. 68, No. 5 [03:29]
+09. Den Danske Guitarduo - {Nielsen} Folketone From Fem Stykker, Op. 3 [02:18]
+10. Norbert Kraft with Northern Chamber Orchestra - {Rodrigo} Adagio From Concertio De Aranjuez [10:26](   Читать дальше...   )Жанр: Classical Guitare, InstrimentalФормат: CDПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522220   (622861) от 13.07.2012
 
 Johann Sebastian Bach - The 6 Motets: Nikolaus Harnoncourt (1989) [FLAC|Lossless]<Classical, Choral>
@@ -6,7 +41,7 @@ Johann Sebastian Bach - The 6 Motets: Nikolaus Harnoncourt (1989) [FLAC|Lossless
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622861.jpg" />
 </div>
 
 
@@ -37,7 +72,7 @@ Wolfgang Amadeus Mozart–Violin concertos 1-5 Bath Festival Chamber Orchestra Y
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622681.jpg" />
 </div>
 
 
@@ -70,7 +105,7 @@ Hughes De Courson - Mozart In Egypt 2 (2005) [FLAC|Lossless|image + .cue] <Class
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622440.jpg" />
 </div>
 
 
@@ -99,7 +134,7 @@ Steven Osborne - Beethoven: Bagatelles (2012) [FLAC|Lossless|image + .cue] <Clas
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620850.jpg" />
 </div>
 
 
@@ -128,7 +163,7 @@ Peter Szuts, Alfredo Bernardini, Paolo Grazzi, Concerto Armonico - Tomaso Albino
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618836.jpg" />
 </div>
 
 
@@ -157,7 +192,7 @@ Antonio Vivaldi - Shades of Red - Concertos & Sonatas for Recoder & Strings - Ma
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618536.jpg" />
 </div>
 
 
@@ -187,7 +222,7 @@ Johann Sebastian Bach - Cafe Zimmermann vol. I-VI, autentic, 6CD (2001-2011) [Wa
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617679.jpg" />
 </div>
 
 
@@ -216,7 +251,7 @@ Barry Wordsworth & Capella Istropolitana - Mozart: Overtures (1988) Naxos, 1989 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617063.jpg" />
 </div>
 
 
@@ -245,7 +280,7 @@ Hesperion XXI, Jordi Savall, Manfredo Kraemer, Rolf Lislevand, Michael Behringer
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616955.jpg" />
 </div>
 
 
@@ -274,7 +309,7 @@ Henry Purcell – Songs of Welcome and Farewell: Suzie Leblanc, Barbara Borden e
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616896.jpg" />
 </div>
 
 
@@ -309,7 +344,7 @@ Wolfgang Amadeus Mozart – Serenade K.375, Harmomienmusik from Zauberfloete: Na
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616889.jpg" />
 </div>
 
 
@@ -344,7 +379,7 @@ VA - Classical Chill: Piano (2019) [MP3|320 Kbps] <Classical, Piano>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616598.jpg" />
 </div>
 
 
@@ -373,7 +408,7 @@ VA - Classical Chill Guitar (2019) [MP3|320 Kbps] <Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616595.jpg" />
 </div>
 
 
@@ -402,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615658.jpg" />
 </div>
 
 
@@ -431,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615199.jpg" />
 </div>
 
 
@@ -460,7 +495,7 @@ Auser Musici - Boccherini. Flute Quintets Op 19 (2008) [FLAC|Lossless|WEB-DL|tra
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613423.jpg" />
 </div>
 
 
@@ -489,7 +524,7 @@ The Cleveland Orchestra, Christoph von Dohnanyi - Mozart - Eine Kleine Nachtmusi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613355.jpg" />
 </div>
 
 
@@ -518,7 +553,7 @@ Eleni Karaindrou - Concert In Athens (2013) [FLAC|Lossless|tracks] <Classical, S
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613352.jpg" />
 </div>
 
 
@@ -547,7 +582,7 @@ Wolfgang Amadeus Mozart – Gran Partita K.361, Wind Pieces K.484b, K.410, K.411
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613053.jpg" />
 </div>
 
 
@@ -582,7 +617,7 @@ Jon Lord - Durham Concerto (2007) [WavPack|Lossless]<Classical, Contemporary>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612930.jpg" />
 </div>
 
 
@@ -617,7 +652,7 @@ Tomazzo Albinoni - Музыка, неподвластная времени (2007
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612757.jpg" />
 </div>
 
 
@@ -643,7 +678,7 @@ Chequerboard - The Unfolding (2013) [FLAC|Lossless|tracks] <Folk, Modern Classic
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611905.jpg" />
 </div>
 
 
@@ -672,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608662.jpg" />
 </div>
 
 
@@ -701,7 +736,7 @@ Katherine Jenkins - One fine day (2011) [FLAC|Lossless|image + .cue] <Classical 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608372.jpg" />
 </div>
 
 
@@ -730,7 +765,7 @@ Elgar - Enigma Variations, Cello Concerto (2012) [FLAC|Lossless|image + .cue] <C
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608364.jpg" />
 </div>
 
 
@@ -744,35 +779,6 @@ Cello Concerto in E minor, Op.85
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6E53BFA67F5408CE26DAD5DBC8FA88909AB537A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913235   (607086) от 28.06.2015
-
-Shostakovich - Piano Concertos No.1, 2, Concertino (Alexander Toradze & Frankfurt Radio Symphony Orchestra) (2012) [FLAC|Lossless]<Classical, Orchestral, Symphonic, 20th Century Period, Mode ...
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No.1
-01. Allegro moderato (06:35)
-02. Lento (09:13)
-03. Moderato (01:51)(   Читать дальше...   )Жанр: Classical, Orchestral, Symphonic, 20th Century Period, Modern, ConcertoПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE40494F8537E9FDB07649AB11009DB03F4DDC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

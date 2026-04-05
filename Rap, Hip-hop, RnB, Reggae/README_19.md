@@ -1,32 +1,3 @@
-###  Публикация: 1238793   (544651) от 01.08.2018
-
-Rickey F - FLASHFORWARD (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashforward_Intro (Starfounder & XWinner prod.)
-02. Ветер (XWinner prod.)
-03. Fuck Cash (XWinner prod.)
-04. Молчи со мной (XWinner prod.)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F28629E50644495D2474CA765DBC1FBBD642F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817895   (544030) от 01.09.2014
 
 Рем Дигга - Людоед (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544030.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Da Gudda Jazz - Легенда (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543754.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542429.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Nicki Minaj - Queen (2018) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528536.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [MP3|320 Kbps] <Hip-Hop, 
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527130.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Machine Gun Kelly - Mainstream Sellout (2022) life in pink deluxe, Explicit [FLA
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524307.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Bob Marley & The Wailers - Exodus (1977) 2CD, 45th Anniversary, Deluxe Edition, 
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524204.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Shahmen - All In The Circle (2015) [MP3|320 кб/с]<Abstract Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519349.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Alai Oli - Снег и пепел, Volume 1: синглы и раритеты (2
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518776.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518731.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ UB40 featuring Ali Campbell & Astro - Unprecedented (2022) [FLAC 2.0|48/24|WEB-D
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516705.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513614.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Guf & Murovei - PART 2 (2022) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507055.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504236.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ UB40 feat. Ali Campbell & Astro - Unprecedented (2022) [FLAC|Lossless|image + .c
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502598.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493442.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [FLAC|Lossless|tracks + .
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491946.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ MiyaGi & Эндшпиль - HAJIME Part.2 (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491446.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489379.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489033.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485798.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ NANA - Greatest Hits (2005) [APE|image+.cue]<Rap/Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485710.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485566.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ Toni Braxton - Spell My Name (2020) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484895.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ Beastie Boys - Licensed to Ill (1986) 1999, Def Jam Recordings [FLAC|Lossless|tr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483877.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ Beastie Boys - Licensed to Ill (1986) 1999, Def Jam Recordings [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8078EDA39A4B12FEC0E5B0FDE78FA79A91429187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244228   (483755) от 31.08.2018
+
+Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ringer (05:37)
+02. Greatest (03:46)
+03. Lucky You (Feat. Joyner Lucas) (04:04)
+04. Paul (Skit) (With Paul Rosenberg) (00:35)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C11C202A30A054949A88FF60BC8E1649A23719
 ```
 
 https://mybot314.ru/tekegram_catalog/

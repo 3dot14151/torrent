@@ -1,3 +1,55 @@
+###  Публикация: 1367126   (41544) от 04.10.2024
+
+Запечатленное время (2012-2024) DVB [H.264] (серии 1-173 из ?) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальное кино стало одним из величайших творений человечества. Как говорил Андрей Тарковский, «с появлением документального кино человек получил в свои руки матрицу реального времени». В Красногорском архиве кинофотодокументов хранятся уникальные фильмы, снятые еще на заре кинематографа. На многих плёнках запечатлены порой невероятные факты, о которых подзабыли (   Читать дальше...   )Телекомпания: Россия / КультураЖанр: Документальный, История, ХроникаРежиссер: Алексей АртемьевСубтитры: русские, телетекст (888)Продолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7921670B46600274702F939BFC78270C946342D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742346   (41538) от 04.10.2024
+
+VLADiK BRUTAL (2024) [Ru/Multi] (1.0.3.7) Repack Decepticon
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41538.jpg" />
+</div>
+
+
+###  Подробнее
+
+В вымышленной стране восточно-европейского типа, уже долгие годы сидит у власти диктатор. Правитель был сущим параноиком и устраивал массовые зачистки и убийства тех, кто был против него. Для обеспечения тотального контроля над обычными гражданами, людям начали вживлять в шею чип для отслеживания их перемещения. Всем людям выдали одинаковую одежду с определённым (   Читать дальше...   )Тип издания: RepackРазработчик: Narko GamesЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9B518E37E5DE730A8289B497AFA6F17CD8BCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751981   (41434) от 05.10.2024
 
 Одинокие волки / Wolfs (2024) WEB-DLRip [H.264] [MVO]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41434.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41330.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41310.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Telegram приглашает к разработке аналога YouTube
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41238.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41133.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41132.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Great White - 32 Albums, 1 EP  (1984 - 2021) 41 CD [FLAC|Lossless|image + .cue|t
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40834.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40832.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40812.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (3.1.0.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40752.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Parallels Desktop 20 20.1.0 (55732) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40651.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40549.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Windows 11 PRO 24H2 26100.1742 Update 8 by Ghost Spectre [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40338.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40330.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40236.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Skype вернул себе позиции самого популярного �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40018.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Wavelet: Headphone specific equalization v24.10 (2173) Mod by Kirlif' [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39930.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39886.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Launcher for zapret 1.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39834.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ Launcher for zapret 1.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39718.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39716.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39636.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39537.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39447.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755353   (39329) от 25.10.2024
-
-Жыыызнь (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-19 из 19)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39329.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первобытном лесу на пасмурном берегу реки живет племя. Кровожадные хищники, постоянная нехватка еды и отсутствие какой-либо медицины вынуждают их изо дня в день бороться за жЫЫЫзнь. Вождь, которому катастрофически не хватает зрелости и опыта, хочет, чтобы все в племени в первую очередь считали его своим другом. Он всячески старается скрасить жизнь своих соплеменников (   Читать дальше...   )Производство: Россия / ТНТ, PREMIER, 1-2-3 ProductionЖанр: комедияРежиссер: Эмиль Никогосян, Александр БойковАктеры: Михаил Галустян, Светлана Ходченкова, Борис Дергачёв, Михаил Кремер, Пётр Скворцов, Андрей Федорцов, Филипп Ершов, Игорь Грабузов, Ксения Гусева, Игорь ЧеховПродолжительность: ~00:41:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5BCCD5DFEBF0CF027E5B955F72D9BE278F2604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558024   (39246) от 26.10.2024
-
-Старик / The Old Man (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) LostFilm, HDRezka
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Чейз (Джефф Бриджес) — вдовец из Вермонта, который живет с двумя ротвейлерами в тихом уединении и время от времени общается по телефону со своей дочерью. Когда в его доме появляется ватага киллеров, становится очевидно, что Дэн — больше, чем обычный пенсионер с регулярными визитами к врачу и нерегулярным сном. Оказывается, в 1980-х он был оперативником ЦРУ в (   Читать дальше...   )Производство: США / 20th Television, Fox 21 Television Studios, Fresh Bacon Media, Littlefield Company, The Littlefield Co.Жанр: боевик, триллер, драмаРежиссер: Джон Уоттс, Джет Уилкинсон, Зетна ФуэнтесАктеры: Джефф Бриджес, Педж Вахдат, Джон Литгоу, Нур Разуки, Э.Дж. Бонилья, Алиа Шокат, Гбенга Акиннагбе, Билл Хек, Фаран Таир, Этан РэйнсПеревод: Профессиональный многоголосый (LostFilm, HDRezka)Язык озвучки: Русский, английскийСубтитры: русские (forced, Full), английские (Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF5CDA6A9C21061E533366ACCBB8208E9E5C3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

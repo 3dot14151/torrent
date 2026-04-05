@@ -1,30 +1,3 @@
-###  Публикация: 1418762   (346275) от 25.10.2020
-
-[Udemy] Alex Wilder | Настройка и ускорение компьютера для чайников (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346275.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном курсе вы научитесь оптимизировать на максимальную производительность компьютеры с операционными системами от Microsoft (Windows 7, Windows 10), а также компьютеры фирмы Apple с операционной системой OSX.
-Мы рассмотрим вопросы очистки от нежелательных и вредоносных программ, оптимальной настройки сервисов, оптимизации памяти, безопасности данных, установки (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеПродолжительность: 01:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F924951F8094112B2A14B76DD9F87F61D3A39834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953426   (346089) от 05.11.2015
 
 Empo | Контекстная реклама Google AdWords (2015) PCRec [H.264]
@@ -33,7 +6,7 @@ Empo | Контекстная реклама Google AdWords (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346089.jpg" />
 </div>
 
 
@@ -62,7 +35,7 @@ Codeby | Paranoid - анонимность и безопасность в сет
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345997.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ Udemy, Parv Shah | Dark Web: Complete Introduction to the Deep/Dark Web 2022 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345368.jpg" />
 </div>
 
 
@@ -117,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344115.jpg" />
 </div>
 
 
@@ -143,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344097.jpg" />
 </div>
 
 
@@ -170,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343949.jpg" />
 </div>
 
 
@@ -196,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343947.jpg" />
 </div>
 
 
@@ -222,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341993.jpg" />
 </div>
 
 
@@ -250,7 +223,7 @@ IT Security Academy Hacking School | IT Безопасность Для Начи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341989.jpg" />
 </div>
 
 
@@ -276,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341975.jpg" />
 </div>
 
 
@@ -304,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341866.jpg" />
 </div>
 
 
@@ -330,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341757.jpg" />
 </div>
 
 
@@ -357,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341630.jpg" />
 </div>
 
 
@@ -383,7 +356,7 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340652.jpg" />
 </div>
 
 
@@ -412,7 +385,7 @@ Simulative | Симулятор «SQL для анализа данных» (2022
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340250.jpg" />
 </div>
 
 
@@ -441,7 +414,7 @@ Udemy, Denis Astahov | Основы работы с Git, GitHub и даже GitH
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340249.jpg" />
 </div>
 
 
@@ -470,7 +443,7 @@ Udemy, Антон Ларичев | Microservices - паттерны и прак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340248.jpg" />
 </div>
 
 
@@ -496,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339579.jpg" />
 </div>
 
 
@@ -523,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339574.jpg" />
 </div>
 
 
@@ -552,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339571.jpg" />
 </div>
 
 
@@ -580,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339449.jpg" />
 </div>
 
 
@@ -606,7 +579,7 @@ Udemy | WebSockets: Полное Руководство / A Complete Guide to We
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339447.jpg" />
 </div>
 
 
@@ -634,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339446.jpg" />
 </div>
 
 
@@ -660,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339336.jpg" />
 </div>
 
 
@@ -688,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339197.jpg" />
 </div>
 
 
@@ -702,6 +675,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7782D87D4B7E6E99827DBC5B5599B476A66F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579580   (335956) от 27.09.2022
+
+Innopolis University, Олег Игонин | Введение в разработку корпоративных приложений на Java (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335956.jpg" />
+</div>
+
+
+###  Подробнее
+
+На онлайн-курсе Java Junior освоите современный стек для работы (SQL, Maven, JUnit, JDB) и познакомитесь с фреймворком Spring. Получите новую цифровую профессию и работайте на «удаленке» всего через три месяца.
+Чему вы научитесь на курсе?
+Понимать объектно-ориентированное программирование
+Писать код на Java, разбираться в синтаксисе языка программирования(   Читать дальше...   )Производство: Innopolis UniversityЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 89:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6A4E95953D88D02155B4BB9DB11B6211F8AC8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

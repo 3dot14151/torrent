@@ -6,7 +6,7 @@ DVD приложение к специальному выпуску журнал
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87236.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DVD-приложение к журналу Upgrade Special №3-4 [март-ап
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85501.jpg" />
 </div>
 
 

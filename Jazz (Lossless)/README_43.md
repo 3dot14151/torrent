@@ -6,7 +6,7 @@ Sergio Mendes - Brasileiro (1992) [FLAC|Lossless|tracks + .cue] <Bossa Nova, Lat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893127.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ray Mahumane - 20_20 Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892414.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Oscar Peterson Trio - Canadiana Suite 1964 (2008) Limelight [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892127.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charlie Shavers - The Most Intimate (1955) Remaster, 2014, Solid Records[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891664.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Freddie Hubbard - Keystone Bop: Sunday Night (1981) 1994, Prestige[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891662.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Brother Jack McDuff - Tobacco Road (1966) Remaster, 2012, Warner[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891658.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Freddie Hubbard - Sweet Return (1983) 2001, Collectables[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891652.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nicki Parrott - Sentimental Journey (2015) [FLAC|Lossless|image + .cue] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891578.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nicki Parrott - Angel Eyes (2014) [FLAC|Lossless|image + .cue] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891571.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blurt - Live at Oto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz Rock, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891424.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Flora Purim - Stories To Tell (1974) 2003, Original Jazz Classics[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891421.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dag Arnesen Trio - Pentagon Tapes (2017) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891420.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sadao Watanabe - Birds of Passage (1987) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890958.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jack Jezzro - Best Of Green Hill Music The 50s Collection (2021) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890820.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jeff Golub - Temptation (2005) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890274.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Oscar Peterson Trio - I Got Rhythm 1945 - 1947 (1998) Giants Of Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890200.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Gil Scott-Heron, Makaya McCraven - We’re New Again (A Reimagining By Makaya Mc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890161.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Frank Foster - Basie Is Our Boss (1963) Remaster, 2013, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889889.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Freddie Hubbard - Blues For Duane (1991) 1999, High Definition Jazz[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889888.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Joe Venuti - Fiddlesticks (1931-1939) 1990, Conifer[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889882.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Harold Land & Carmell Jones Quintets - Complete Studio Recordings (1961-1963
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889879.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Rein De Graaff Trio with Ronnie Cuber and Nick Brignola - Baritone Explosion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889690.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889205.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Joe Bushkin Featuring Buck Clayton - Three Classic Albums Plus 1946 - 1951 (2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888714.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Various - A Twist of Jobim (1997) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888703.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Various - A Twist Of Marley (2001) [FLAC|Lossless|image + .cue] <Jazz, Reggae, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888691.jpg" />
 </div>
 
 

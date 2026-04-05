@@ -1,183 +1,3 @@
-###  Публикация: 1598012   (164057) от 17.12.2022
-
-Vanessa Mai - Für Immer Tour Live 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Augenblick Landebahn (4:28)
-02. Sommerwind (2:35)
-03. Meine Größte Schwäche (3:40)
-04. Melatonin (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7FE6DEDA355ACA1599A7DBC01385A84D48751A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465022   (164018) от 02.11.2023
-
-Клавдия Шульженко. «И в этом весь секрет…» Записи 1937-1976 гг. (2006) [FLAC|Lossless]<Ретро, эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164018.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Любимая песенка
-2. Песня о юге
-3. Андрюша
-4. Встречи
-5. Челита
-6. Девушка, прощай!
-7. О любви не говори
-8. Синий платочек
-9. Давай закурим
-10. Моя тень(   Читать дальше...   )2006Жанр: Ретро, эстрадаПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED024DC7575EB2D0A6DB4FB6B61BBBD22614246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384168   (163999) от 02.11.2023
-
-Клавдия Шульженко - Ты помнишь наши встречи (1995) [APE|Lossless]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня о юге (1936) (3:28)
-02. Мы оба молоды (1936) (2:31)
-03. Силуэт (1936) (2:39)
-04. Записка (1940) (3:16)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5D8B7C741FB3A2894D7C45FB8D4C97FA8BE014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584763   (163971) от 02.11.2023
-
-Владимир Макаров - Поёт Владимир Макаров (1996) [APE|Lossless]<Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163971.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Сон в дороге 2:51
-2 Дождь 3:44
-3 Буфер бьётся пятаком зелёным 2:36
-4 Мне б только знать 2:19(   Читать дальше...   )Жанр: RetroПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB85EBF6CA937DED6EAC1F134A01E5CBE8123FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400459   (163954) от 02.11.2023
-
-Тамара Гвердцители - 7 баллад (2011) [FLAC|Lossless]<Retro/Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longevity (3:32)
-02. Lyrical (4:50)
-03. Ballade of Tbilisi (4:47)
-04. My only one (5:43)(   Читать дальше...   )Жанр: Retro/PopПродолжительность: 00:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E173C6279867BB010CBD89CD4143BC4A0751A3AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598217   (163934) от 17.12.2022
-
-Patric Cowley - Malebox (2022) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Patrick Joseph Cowley (19.10.1950 – 12.11.1982) был американским композитором танцевальной музыки в стиле disco и hi-NRG. Наряду с Giorgio Moroder'ом его часто называют пионером электронной танцевальной музыки. Его ранняя смерть лишь подогрела интерес к его творчеству, которое полностью не раскрыто до сих пор. Но Patrick Cowley, наиболее известный своими диско-гимнами, (   Читать дальше...   )1. If You Feel It (4:40)
-2. Floating (6:34)
-3. Love & Passion (6:02)
-4. feat. Jeanie Tracy - Low Down Dirty Rhythm (7:56)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346486   (163932) от 19.12.2019
 
 Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Ballad>
@@ -186,7 +6,7 @@ Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163932.jpg" />
 </div>
 
 
@@ -215,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163923.jpg" />
 </div>
 
 
@@ -244,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163899.jpg" />
 </div>
 
 
@@ -273,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163881.jpg" />
 </div>
 
 
@@ -302,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163876.jpg" />
 </div>
 
 
@@ -331,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163868.jpg" />
 </div>
 
 
@@ -360,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163860.jpg" />
 </div>
 
 
@@ -386,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163847.jpg" />
 </div>
 
 
@@ -415,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163819.jpg" />
 </div>
 
 
@@ -444,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163815.jpg" />
 </div>
 
 
@@ -473,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163805.jpg" />
 </div>
 
 
@@ -502,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163799.jpg" />
 </div>
 
 
@@ -534,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163788.jpg" />
 </div>
 
 
@@ -563,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163781.jpg" />
 </div>
 
 
@@ -592,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163778.jpg" />
 </div>
 
 
@@ -621,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163760.jpg" />
 </div>
 
 
@@ -650,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163754.jpg" />
 </div>
 
 
@@ -679,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163752.jpg" />
 </div>
 
 
@@ -708,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163699.jpg" />
 </div>
 
 
@@ -737,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163695.jpg" />
 </div>
 
 
@@ -751,6 +571,178 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:199C34E63C98681E8A56E88E1722C41D85CDB9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 426712   (163678) от 02.11.2023
+
+Поющие Гитары - Лучшее (2011) [FLAC|Lossless]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Толстый Карлсон (2:46)
+02. Суббота (3:23)
+03. Синий иней (2:55)
+04. Воскресенье (3:16)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C87E7EE89C82AA329855EEB9391CDDB9C4D5BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346557   (163470) от 19.12.2019
+
+VA - Первый танцевальный, Vol. 19 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163470.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zivert - Credo
+2. MONATIK - Каждый раз
+3. Вандер Фил/Feduk - Сахарок
+4. Nola/2 Ляма - Чувства из дерева(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABCF85C7D99A0AEB58B42B68C0330DC182E488F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597772   (163258) от 18.12.2022
+
+Chester - Hold The Line (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold The Line (Extended Version)
+02. Hold The Line (Dub Version)Жанр: Electronic, Italo-DiscoПродолжительность: 00:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD8FD7FCD414E8C2D5A310763B51B8DE7A1D4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432620   (163030) от 18.12.2020
+
+Градусы - На твоей съёмной (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Об альбоме
+2. Меланхолия (Intro)
+3. Меланхолия
+4. Твои волосы (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E347A303DD0A30F63FFDF43797B5846D49F433EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653114   (162927) от 03.11.2023
+
+Ружена Сикора - Великие исполнители России XX века. Ружена Сикора (2004) 2CD [FLAC|Lossless|image + .cue]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Воспоминание (Исаак Дунаевский – Давид Самойлов) – 2:41
+2. Я тебе писать не стану (Кирилл Молчанов – Яков Халецкий) – 2:39
+3. С первым снегом (Валерий Зубков – Ашот Гарнакерьян) – 3:46
+4. Только не я (И. Вирнажский, обр. Владимира Горышника – Ольга Фадеева) – 2:17(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 02:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138FC620EA336470FD0552EFBAE236B6FC0D66B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432621   (162926) от 18.12.2020
+
+Soprano Турецкого - Новогодние хиты (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jingle Bells (Intro)
+2. We Wish You а Merry Christmas
+3. Рождество и Новый год
+4. Колядка(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DB0F868C91DA3359C9ADAB1A1FCBBA55C880A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

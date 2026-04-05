@@ -7,7 +7,7 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) [MP3|256 к�
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000380.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD2 [MP3|224
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997164.jpg" />
 </div>
 
 
@@ -74,7 +74,7 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD3 [MP3|224
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991798.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mozart - Piano Concertos nos. 9, 17-27 (Barenboim - ECO) [6 CDs] (2010) [MP3|V0]
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966111.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871339.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Sussk
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836423.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836417.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Staatskapelle Berlin - Brahms: Symphonies (2018) [MP3|320 Kbps] <Classical>
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678161.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ John Barry - John Barry - Somewhere In Time (1998) [MP3|320 Kbps] <Score>
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564899.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561794.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ The Beatles Symphonic Orchestra - 3 CD (1999) [MP3|320 кб/с]<Classical, Symph
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558486.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527293.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500824.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494765.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA -  Парад Оркестров (1973) [MP3|320 кб/с]<Instrumental,Orches
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484344.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362707.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Beethoven - Complete Symphonies, Ouvertures (Bohm - Wiener Philharmoniker) (1995
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362425.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311741.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309272.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309268.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309258.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302713.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Edvard Grieg - Peer Gynt Suite, Jean Sibelius - Valse Triste (1982-1984) [MP3|32
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221825.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151422.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151396.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10948.jpg" />
 </div>
 
 

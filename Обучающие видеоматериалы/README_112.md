@@ -1,3 +1,31 @@
+###  Публикация: 1529611   (732370) от 07.02.2022
+
+Udemy, JumpEng School | Грамматика Английского в деталях (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс "Грамматика Английского" - это первая часть программы "Английский без правил", в которой весь английский язык представлен в виде Грамматических шаблонов.
+Особенность нашей методики
+Грамматические шаблоны - это схема построения английских предложений - мы "прочитываем" и "проговариваем" фразы, используя Шаблоны и начинаем (   Читать дальше...   )Производство: Udemy, JumpEng SchoolЖанр: Английский языкЯзык озвучки: РусскийПродолжительность: 09:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE6FAD01D1C88A46752261C781284D7B02B54C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529607   (732366) от 07.02.2022
 
 Udemy, JumpEng School | Английский за 10 недель + БОНУСЫ (2021) WEB-DL [RU]
@@ -6,7 +34,7 @@ Udemy, JumpEng School | Английский за 10 недель + БОНУСЫ
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732366.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732308.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ City Business School | Директор по маркетингу (2016) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731502.jpg" />
 </div>
 
 
@@ -91,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731414.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731378.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ Udemy, Dzianis Matveyenka | SQL (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731371.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730878.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730732.jpg" />
 </div>
 
 
@@ -230,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730492.jpg" />
 </div>
 
 
@@ -256,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730333.jpg" />
 </div>
 
 
@@ -285,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730314.jpg" />
 </div>
 
 
@@ -314,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730254.jpg" />
 </div>
 
 
@@ -342,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729571.jpg" />
 </div>
 
 
@@ -368,7 +396,7 @@ Ean Golden | Принцип работы на DJ-контроллере Native I
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729318.jpg" />
 </div>
 
 
@@ -394,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729304.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729207.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ Udemy | Metasploit - программа для взлома в хакерско�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729168.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 5: Imaginary Subjects (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728693.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ Udemy, Nexttut | Introduction to Blender 3.0 (2022) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728565.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ Gumroad, Gianpietro "Ganjica" Fabre | Wastelander - Texture Breakdown in Substan
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728451.jpg" />
 </div>
 
 
@@ -561,7 +589,7 @@ CGMA, Tyler Edlin | Fundamentals of Design with Tyler Edlin (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728450.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728410.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ Skillbox, Борис Куприянов и др. | Как выбирать кн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728330.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ Austin Batchelor | Курс по креативному проектирован
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728300.jpg" />
 </div>
 
 
@@ -672,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728087.jpg" />
 </div>
 
 
@@ -686,33 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8C0148525A41DAE7D8C84E50214B1A44E75776A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530642   (727522) от 12.02.2022
-
-Udemy, Too Much Sugar Productions, Emilio Padulo | The Psychology of Color in Game Design & Development (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс охватывает не только основы теории цвета. Он также демонстрирует, как разные цвета могут влиять на игроков разными способами.
-Этот курс расскажет о том, что такое психология определенных цветов, как они влияют на нас, что они представляют и что означают различия оттенков цветов. Понимание этого имеет решающее значение при разработке уровней, персонажей, (   Читать дальше...   )Производство: Udemy, Too Much Sugar ProductionsЖанр: Создание окруженияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 02:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0D36241264ABDDF2E51850AF770A118266B0F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

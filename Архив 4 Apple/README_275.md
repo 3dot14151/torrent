@@ -6,7 +6,7 @@ SiteSucker 2.11.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697506.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Garden Planner 3.6.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697498.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ TG Pro (Temperature Gauge Pro) 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697414.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Colibri 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697382.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ PeakHour 3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697219.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Cisdem DuplicateFinder 3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697112.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ MAMP & MAMP PRO 5 v5.3(17956) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697073.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Bartender 3 v3.0.56b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697066.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DjVu Reader Pro 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697065.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ BBEdit 12.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697058.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Beyond Compare 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697001.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Postbox 5.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696940.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Flume Pro 2.8.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696796.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ BookMacster 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696648.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Synalyze It! Pro 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696538.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Capture One Pro 10 v10.1.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696496.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Microsoft Office Standard 2016 v16.12 (64-bit) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696342.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Texpad 1.9.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696182.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ GoodNotes 5 v5.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696178.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Darkroom: Photo & Video Editor 5.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696074.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Duplicate Finder and Remover 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696069.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Smart Converter Pro 3 v3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695993.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ File Cabinet Pro 8.4.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695991.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ PullTube 1.7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695990.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Duplicate Photos Fixer Pro 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695988.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Music Converter Pro 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695986.jpg" />
 </div>
 
 

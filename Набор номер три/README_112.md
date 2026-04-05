@@ -1,3 +1,159 @@
+###  Публикация: 991809   (902074) от 01.03.2016
+
+Астрономы сужают область поисков Планеты Х, гипотетической девятой планеты Солнечной системы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Около месяца назад, Константин Батыгин (Konstantin Batygin) и Майк Браун (Mike Brown), астрономы из Калифорнийского технологического института, представили доказательства возможности существования далеко за орбитой Нептуна Планеты Х, девятой планеты Солнечной системы, масса которой приблизительно в 10 раз превышает массу Земли и период обращения которой вокруг Солнца (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992098   (902071) от 01.03.2016
+
+Очередное достижение: 2000 релизов от vilator
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 2000 релизов от vilator!!!Уважаемые одноклубники , рад сообщить Вам о возможности поздравить нашего товарища с 2000 релизом!От всей души поздравляем vilator с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NNM-Club.me!Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992189   (901902) от 01.03.2016
+
+Роскомнадзор начал бороться с "зеркальными" торрентами
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскомнадзор проведет совещание с провайдерами и правообладателями по вопросу блокировки "зеркальных" торрентов и других ресурсов с противоправным контентом.Об этом сообщил начальник правового управления Роскомнадзора Борис Едидин на годовом собрании некоммерческого партнерства Поставщиков программных продуктов (НП ППП), сообщает агентство Интерфакс.По (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992035   (901838) от 01.03.2016
+
+Крыса / Ratter (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901838.jpg" />
+</div>
+
+
+###  Подробнее
+
+За Эммой, аспиранткой живущей одной в Нью-Йорке, начинает следить маньяк, который взламывает всю её окружающую технику - ноутбук, сотовый телефон и другие веб-устройства. Эта одержимость продолжает расти, после того как хакер записывает самые интимные моменты Эммы. Когда ощущений от просмотра не достаточно, ситуация обостряется до опасного и ужасающего уровня.Производство: США, Start Motion PicturesЖанр: Ужасы, триллер, драмаРежиссер: Бранден КрамерАктеры: Эшли Бенсон, Мэтт МакГорри, Кайли Вернофф, Ребекка Наоми Джонс, Алекс Кранмер, Майкл Уильям Фриман, Джон Андерсон, Карл Глусман, Джереми Фиорентино, Джон БассПеревод: Профессиональный многоголосый (iTunes)Язык субтитров: Русские, английскиеПродолжительность: 01:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D846F748667FDDDAA441F2B37F85CA44BFE93197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985671   (901837) от 01.03.2016
+
+Wurm Unlimited (2015) [En] (2016-03-01) SteamRip GameComa
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wurm Unlimited представляет собой достаточно хорошо продуманный фентези-мир игры Wurm Online, в которую могут играть множество игроков одновременно, так что если вам нравится охотится за драконами или завоевывать королевства — обязательно стоит сыграть. Девизом этой игры могла бы стать фраза «Исследуй, строй, выживай». Сюжет достаточно прост: выбираете то место, (   Читать дальше...   )Тип издания: SteamRipРазработчик: Code Club ABЖанр: RPG, 3D, 3rd Person, Online-only, Massively multiplayerЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE86C0C4F0590681F8E49C913837A0FD0FDE0E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991883   (901829) от 01.03.2016
+
+Крадущийся тигр, затаившийся дракон: Меч судьбы / Crouching Tiger, Hidden Dragon: Sword of Destiny (2016) WEBRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901829.jpg" />
+</div>
+
+
+###  Подробнее
+
+История потерянной любви, легендарного меча и последнего шанса на искупление.Производство: США, China Film Group, Pegasus Taihe Entertainment, The Weinstein Company, Yucaipa FilmsЖанр: Фэнтези, Боевик, Драма, ПриключенияРежиссер: Юэнь Воо-пинАктеры: Донни Ен, Мишель Йео, Гарри Шам мл., Джейсон Скотт Ли, Евгения Йуан, Жужу Чан, Крис Пэнг, Дэррил Квон, Роджер Йуан...Перевод: Любительский многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:40:50Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D553C254D96276265DCD7D9C987063198DC9A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492307   (901772) от 30.08.2021
 
 В сети Ethereum произошла критическая ошибка
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901772.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Detroit: Become Human (2019) [Ru/Multi] (1.0) EGS-Rip InsaneRamZes
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901733.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2071465/dlc) SteamRip =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901726.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901683.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ New Super Mario Bros.Wii [Wii] [PAL] [Русский (R.G. DShock)] (2009)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901678.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901261.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901165.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 эп.] WEBRip 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901145.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Murenase! Seton Gakuen / Seton Academy: Join the Pack! / Объединяйся!
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901137.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Gary Moore - 42 Albums (1973-2009) [MP3|320 kbps]<Rock, Blues>
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900937.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900793.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ Total Commander 9.0a Freemen 17.1 Repack by notn [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900761.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900715.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_900695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_900695.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ TechSmith Camtasia Studio 9.0.3 Build 1627 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900676.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900638.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900577.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ Resident Evil 4 (2014) [Ru] (1.0.6) Portable PortGamPC [Ultimate HD Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900266.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ Tuxera NTFS 2015.3 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900255.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ Windows 7 SP1 RUS-ENG x86-x64 -8in1- KMS-activation v2 (AIO)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900245.jpg" />
 </div>
 
 
@@ -517,165 +673,6 @@ Windows 7 SP1 RUS-ENG x86-x64 -8in1- KMS-activation v2 (AIO)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B9923322BCAD3BFBDA54A0638D1B10FB079F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863848   (900242) от 02.03.2016
-
-Dying Light: The Following (2015) [Ru/Multi] (1.11.0.0/dlc) SteamRip Let'sPlay [Enhanced Edition]
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dying Light - экшн-игра на выживание от первого лица. Действие игры разворачивается в огромном и опасном открытом мире. Днем вы бродите по городу, опустошенному загадочной эпидемией, пытаясь найти боеприпасы и изготавливая оружие, которое поможет вам в борьбе с полчищами безмозглых кровожадных врагов, порожденных чумой.Тип издания: SteamRipРазработчик: TechlandЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CC1885CA0BB85AAFA4DBF4DBDCF1BB07AA1398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182580   (900066) от 13.03.2010
-
-Мир реки / Riverworld [1-2] (2010) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный журналист Мэтт Эллман и его невеста Джесси погибают во время взрыва в кафе. Вскоре Мэтт оказывается в очень странном месте, на берегу бесконечной реки. Вдоль этой реки одновременно живут все, кто на Земле давно уже умерли. Вместе с женщиной-воином 13-го века и капитаном судна Марком Твеном, Мэтт отправляется на поиски Джесси…
-
-«А ты бы хотел прожить ещё одну (   Читать дальше...   )Производство: США, КанадаЖанр: ФантастикаРежиссер: Стюарт ГиллардАктеры: Тамо Пеникетт, Лаура Вандервурт, Mark Deklin, Питер Уингфилд, Джинэнн Гуссен, Matthew MacCaull, Matty Finochio, Ромина Д`Уго, Квеси Амеяу, Мэг РоуПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:25:33 + 01:25:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492681   (900061) от 31.08.2021
-
-В Китае детям запретили играть в онлайн-игры дольше трех часов в неделю
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Национальное управление печати и издательств Китая опубликовало новые правила для технологических компаний и несовершеннолетних пользователей, ограничивающие время нахождения детей и подростков в онлайн-играх, сообщает агентство «Синьхуа».Теперь лицам младше 18 лет можно будет проводить в онлайн-играх не больше одного часа в пятницу, субботу, воскресенье, а также (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419336   (900017) от 31.08.2021
-
-Ghostrunner (2020) [Ru/Multi] (0.40019.434/dlc) License GOG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghostrunner — эта жестокая игра-слэшер от первого лица с супердинамичным сюжетом, разворачивающимся в мрачном киберпанковом мире футуристической сверхконструкции. Взбирайтесь вверх по башне Дхарма, ставшей последним убежищем человечества после всемирной катастрофы. Пройдите путь снизу доверху, встретьтесь с тираном Кимастером и воздайте ему по заслугам.Тип издания: LicenseРазработчик: One More Level, 3D Realms, Slipgate IronworksЖанр: Action, SlasherЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C139D7A09D895B8C7BEAE670657DC36A28A1BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490272   (900016) от 31.08.2021
-
-Microsoft Windows 11 Insider Preview, Version 21H2 [10.0.22000.132] - Оригинальные образы от Microsoft [Ru]
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы - Windows 11 Version 21H2 Build 22000.132.
-Оригинальные образы EnterpriseVL и Client.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8467BF81F178165BC98C2E3B7DF37564553DC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369575   (899718) от 25.03.2020
-
-Цифровая слежка против эпидемии: как в разных странах мониторят больных коронавирусом
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899718.jpg" />
-</div>
-
-
-###  Подробнее
-
-За последнюю неделю правительства ряда стран усилили меры по цифровому надзору над гражданами, которые заразились коронавирусной инфекцией или могли находиться в контакте с заболевшими. Система, которая в той или иной манере позволяет следить за перемещениями людей через их смартфоны, уже внедрена в 11 странах. Об этом пишет Business Insider со ссылкой на данные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ V.A. - Bossanova & Jazz: Summer Bossanova & Jazz Vibes 2024 (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108493.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108480.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108475.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lee Ritenour - Rio & On the Line (1979, 1983) 2003, Wounded Bird Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108469.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jon Faddis - Legacy (1985) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108459.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mary Lou Williams - A Keyboard History (1955) 2011, Poll Winners Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108423.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lee Ritenour - Captain Fingers (1977) 1987, Epic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108416.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Youn Sun Nah - Elles (2024) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108406.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charlie Byrd - The Concord Jazz Heritage Series (1980 - 1997) 1998, Concord Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108401.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108399.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108396.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108394.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108393.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Slow Funk 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108390.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108389.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108382.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108381.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108376.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Scott Hamilton, Jake Hanna, Dave McKenna - Major League (1986) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108374.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Louis Armstrong - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Dix
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108341.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108327.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108325.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108323.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108262.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108259.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108255.jpg" />
 </div>
 
 

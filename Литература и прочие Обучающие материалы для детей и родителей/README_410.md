@@ -1,3 +1,58 @@
+###  Публикация: 854205   (141980) от 29.12.2014
+
+Подборка книг | Детская Фантастика [1000 книг] (1982-2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не секрет, что все без исключения дети любят сказки. А что такое сказка? Это фантазия, вымысел, необычная история. Если вдуматься, то любая фантастическая история – та же самая сказка, действие которой нередко происходит в бесконечных просторах космоса или в суперсекретных лабораториях. Так что фантастика пользуется у детей не меньшим (а в наше время даже большим) (   Читать дальше...   )Жанр: Фантастика, фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E582CE715EAF214686CEFE7D7F97B9ED74217EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520144   (141873) от 28.12.2021
+
+Мария Корнатт | Сон, отлучение от груди и горшок. Спасение очень уставших родителей (2021) [PDF, FB2, FB3, EPUB, MOBI, RTF, TXT]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга станет путеводителем для молодых родителей по самым актуальным вопросам раннего детства. Автор книги делится с вами практическими рекомендациями, которые помогут малышам обрести сон и счастливых, отдохнувших родителей.
+Из этой книги вы узнаете:
+• с чего начать приучение ребенка к самостоятельному сну в кроватке;
+• как определить оптимальное количество ночных (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Здоровье детейФормат: PDF, FB2, FB3, EPUB, MOBI, RTF, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5078146264B2BB85E67278D2742E8AD8AE783B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970510   (141868) от 30.12.2015
 
 Евгений Штейнберг| Славные мореходы Иван Крузенштерн и Юрий Лисянский (1954) [DJVU]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141868.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141805.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141777.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141758.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141648.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141637.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141573.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141423.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141242.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141206.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141185.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141139.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141047.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140961.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140869.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140849.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140837.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140765.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140713.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140710.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140578.jpg" />
 </div>
 
 
@@ -563,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140557.jpg" />
 </div>
 
 
@@ -591,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140490.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140487.jpg" />
 </div>
 
 
@@ -629,62 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AEFF503F57F378288B5B0F3FE306AC7E2838B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195831   (139985) от 30.12.2017
-
-Виктория Погосян, М. Кропачева Соболевская | Английский легко. Используем правильно предлоги (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знать предлоги очень важно, а учить их очень трудно. Чтобы изучение их было для вас легким и приятным, в нашей книге подобраны задания и упражнения, благодаря которым эта задача покажется вам интересной и увлекательной.
-
-В книге рассматриваются 12 наиболее часто употребляемых предлогов, а именно: up, down, in, out, away, on, off, over, around, through, along, back (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEA251C0D6077E970E779919391B8098E0E6546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436230   (139871) от 30.12.2020
-
-Елена Ульева | Как друзья елку наряжали (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается иллюстрированная книга для самых маленьких, в которой малыш найдет интересные новогодние стихи и очаровательные иллюстрации.
-
-Для чтения взрослыми детям.Жанр: Детская литература/СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D1F14F3696422964DA4E090A69B456684D0632
 ```
 
 https://mybot314.ru/tekegram_catalog/

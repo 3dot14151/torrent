@@ -1,3 +1,55 @@
+###  Публикация: 1409870   (437914) от 20.09.2020
+
+Китай запустит робота-майнера в космос
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_437914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китай начнет работу по добыче полезных ископаемых в космосе уже в этом году. Исследователи запустят «робота-майнера» до конца 2020 года, однако пока будут только тестировать устройство.Частная китайская компания Origin Space, которая занимается разработкой внеземных космических ресурсов, собирается запустить свой первый «космический робот-майнер» в ноябре 2020. Их (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239806   (437787) от 30.09.2012
+
+Алиса - 2 Альбома (2010-2012) [MP3|320 kbps]<Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиса — русская рок-группа, образованная в 1983 году в Ленинграде. Широкая популярность пришла к группе после их выступления в ленинградском рок-клубе, где были исполнены песни «Мы вместе» и «Моё поколение», написанные пришедшим в группу в 1984 году новым вокалистом Константином Кинчевым.Жанр: RockПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B45A035CBA14FDE81AC05FE98EC8E8CD8DF4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550474   (437764) от 30.09.2012
 
 Рекомендуемый торрент-клиент для Android. Сделаем ещё лучше всем клубом! [ОБСУЖДЕНИЕ, РАЗРАБОТКА]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437764.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Symantec Endpoint Protection 14.3 MP1 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437567.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Sword Art Online: Alicization 2 / Sword Art Online: Alicization - War of Underwo
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437543.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437538.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 21H2 RU by OVGorskiy 08.2022
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437476.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Nero 2016 Platinum 17.0.02300 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437125.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437116.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437105.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Windows 7 Ultimate SP1 Lite v.6.18 by naifle (x86-x64) (2018) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436826.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436385.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ TechSmith Camtasia Studio 9.0.0 Build 1306 RePack by KpoJIuK [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436294.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436285.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436284.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436263.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Driver Genius Professional 11.0.0.1136 DC23.09.2012 Portable by moRaLIst [Рус
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435700.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_435484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_435484.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ DogLinux Debian 11 Bullseye 2022.08.20 [x86, amd64] LiveUSB
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435332.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ Ubuntu 12.04.1 OEM (октябрь 2012) [i386 + amd64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_435125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_435125.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ Doom 3 BFG Edition (2012) [Ru] (1.14) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435080.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434932.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434931.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434922.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Video Copilot Element - Element 3D 2.2.2.2140 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434915.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434569.jpg" />
 </div>
 
 
@@ -628,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D630577DED8EC5E5104F57219AE02187AA38AEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805302   (434568) от 08.10.2014
-
-Штамм / The Strain (2014) WEB-DLRip (Сезон 1, серия 01-13 из 13) (BaibaKo)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434568.jpg" />
-</div>
-
-
-###  Подробнее
-
-В аэропорту Нью-Йорка совершает посадку трансатлантический лайнер с выключенным светом и закрытыми дверями. Эпидемиолог доктор Эфраим Гудвезер и его команда на борту находят около двухсот трупов и четырех выживших. Тела умерших начинают исчезать из моргов. Они оживают, только это уже не люди, а исчадия ада...
-
-Штамм - американский хоррор-сериал, созданный по одноименному (   Читать дальше...   )Производство: США, MiradaЖанр: Ужасы, фантастика, драмаРежиссер: Гильермо дель Торо, Дэвид Семел, Кит ГордонАктеры: Дэвид Брэдли, Энн Бетанкорт, Николай Вич, Педро Мигель Арсе, Дрю Нельсон, Джо Веркилло, Джим Уотсон, Алекс Пэкстон, Джонатан Поттс, Рихард ЗаммельПеревод: Профессиональный (многоголосый, закадровый) - BaibaKoФормат: aviПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB3D24D9046B95036A4FBF1B7486EBC58E698C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 393032   (434302) от 27.09.2011
-
-Windows XP Twilight Angel Edition 2011.09
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для "чистой" установки Windows XP SP3 Pro с загрузочного компакт-диска, а также для установки пакетов драйверов с возможностью выбора. Проходит проверку подлинности на официальном сайте Microsoft.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

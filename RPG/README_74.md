@@ -1,3 +1,55 @@
+###  Публикация: 1793654   (20293) от 25.04.2025
+
+The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete The Set Bundle]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под названием The Last Spell скрывается гибрид рогалика и тактической RPG с изометрическим видом. Действие разворачивается в мрачном фэнтезийном средневековье. В мире случился катаклизм из-за последней войны и участия в ней колдунов. Появился туман, превращающий людей в адских тварей.Тип издания: LicenseРазработчик: Ishtar GamesЖанр: Ролевая игра, Пошаговая, ФэнтeзиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF314FF18C1B6E6C1FA97E9DEF4CC85D7103EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793642   (20255) от 26.04.2025
+
+Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возглавьте Экспедицию 33 и уничтожьте Художницу, чтобы она никогда больше не смогла нарисовать смерть. Исследуйте мир чудес, созданный на основе Прекрасной эпохи Франции, и побеждайте уникальных врагов в пошаговой ролевой игре с механикой реального времени.Тип издания: RepackРазработчик: Sandfall InteractiveЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF710840FFB2BBB1183077EF961D513E2DFE080E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780112   (20251) от 26.04.2025
 
 The Stone of Madness (2025) [Multi] (1.0.3) License GOG
@@ -6,7 +58,7 @@ The Stone of Madness (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20251.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ CyberCorp (2024) [Ru/Multi] (1.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20234.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20178.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20139.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20031.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Hero's Hour (2022) [Ru/Multi] (2.8.1b/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20030.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20014.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.b314.r63560/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20009.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20005.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20002.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19984.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19907.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19889.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19827.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19812.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.7.1_15_e769f28c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19741.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6805605/dlc) Repack Let'sРlay [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19740.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.65p2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19721.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19719.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Dinkum (2022) [Ru/Multi] (1.0.0) Repack FitGirl [Official Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19675.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ The Elder Scrolls IV: Oblivion (2007) [Ru/En] (1.2.0416cs/dlc) Repack dixen18 [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19645.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19616.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19593.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19525.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE6B8B84FA9505ED65A35421B679BE0A45B85AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765313   (19486) от 03.05.2025
-
-Wartales (2021) [Ru/Multi] (1.0.41212/dlc) Repack FitGirl [The Mercenaries Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wartales - ролевое приключение в открытом мире, предлагающее возглавить свою команду наемников, чтобы отправиться на поиски сокровищ. События развиваются в средневековом фэнтезийном мире. Требуется путешествовать континентами, нанимать сопартийцев, исследовать древние гробницы и собирать награды. Сюжет начинается с падения великой Империи Эдоран. Королевство охватила (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Ролевая игра, ПошаговаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89971A17F701C5910B8A497883BFE7E03D9B3C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795158   (19476) от 03.05.2025
-
-Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в фэнтезийном мире, населенном людьми, антропоморфными животными и сказочными существами. Между империей Fou и восточными королевствами случается военный конфликт. Герой Рю путешествует с принцессой Ниной из государства Wyndia, чтобы помочь ей найти сестру Эллину. Тем временем просыпается самый первый император Фоу-Лу, основавший агрессивную страну.Тип издания: RepackРазработчик: CapcomЖанр: Ролевая игра, ПошаговаяЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4157152D35BA49B0C4A92E54EABDA509C4FDC40
 ```
 
 https://mybot314.ru/tekegram_catalog/

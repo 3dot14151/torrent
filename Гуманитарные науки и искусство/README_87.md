@@ -1,81 +1,3 @@
-###  Публикация: 1255685   (361029) от 19.10.2018
-
-Евгений Жаринов | От Шекспира до Агаты Кристи. Как читать и понимать классику (2018) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как чума повлияла на мировую литературу? Почему «Изгнание из рая» стало одним из основополагающих сюжетов в культуре возрождения? «Я знаю всё, но только не себя»,?– что означает эта фраза великого поэта-вора Франсуа Вийона? Почему «Дон Кихот» – это не просто пародия на рыцарский роман? Ответы на эти и другие вопросы вы узнаете в новой книге профессора Евгения Жаринова, (   Читать дальше...   )Жанр: Культурология, ЛитературоведениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A20D02C1F6AC5C73642C922F35E459F65835CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417145   (360547) от 19.10.2020
-
-М. Г. Бронский | Проблемы экономической политики СССР (1929) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателей книга состоит из двух статей, написанных мною для «Социалистического хозяйства» и появившихся в книге V—VI 1927 г. и в книге III 1928 г. Работы эти объединены общей темой: выяснения новых задач, стоящих перед Советским государством на грани второго десятилетия в области хозяйственного строительства, и борьбы как с идеологическими шатаниями (   Читать дальше...   )Жанр: История, политология, экономика, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43126EBFE421AC21F59809835DF2EE45634F7197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417155   (360523) от 19.10.2020
-
-Г. И. Крумин (ред.) | Экономическая политика СССР [учебник для марксистских кружков и партшкол] (1928) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Социализм есть организованное бесклассовое общественное хозяйство, в котором все средства производства принадлежат обществу и производство и распределение продуктов основаны на планомерной организации. Социалистическое общество не знает разделения на классы и классовой борьбы. Оно не знает также и рынка, который в капиталистическом обществе играет роль стихийного (   Читать дальше...   )Жанр: История, экономика, политология, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90321D2D5E0CE25856A2195A7B91B6AFF8789FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417150   (360409) от 19.10.2020
 
 А. Курский | Сталинский план великих работ (1946) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360409.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360356.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359989.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359618.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358833.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358821.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358709.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358697.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358662.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358649.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358281.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357010.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356915.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356913.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356715.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355897.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355890.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355737.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355236.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354783.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354439.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354115.jpg" />
 </div>
 
 
@@ -668,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354104.jpg" />
 </div>
 
 
@@ -679,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B55EB8636B4CB455C1E0A1638643D5DE98F3E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178840   (354080) от 29.10.2017
+
+А. Е. Пашерстник | Трудовое право стран народной демократии (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354080.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курс советского трудового права, преподаваемый студентам юридических высших учебных заведений СССР, включаются темы, посвященные трудовому праву стран народной демократии и правовому регулированию труда в капиталистических странах. Учебное пособие, предлагаемое вниманию читателя, посвящено трудовому праву стран народной демократии. Трудовое право является в руках (   Читать дальше...   )Жанр: История, политология, правоведение, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9614270784F5F5198F218FFDCD8D9E8F5ACFD3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178857   (353971) от 29.10.2017
+
+А. Е. Пашерстник | Правовое регулирование труда в капиталистических странах (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее учебное пособие, посвященное вопросам правового регулирования труда в капиталистических странах, составлено применительно к соответствующему разделу программы курса советского трудового права для юридических высших учебных заведений, утвержденной Министерством высшего образования СССР. Это пособие не претендует на полное освещение вопросов капиталистического (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067B35B3C61D706900B6C871EA650D290B2E95A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178853   (353968) от 29.10.2017
+
+А. Е. Пашерстник | Коллективный договор (1951) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллективные договоры в СССР по своей природе, содержанию и задачам коренным образом отличаются от коллективных договоров в капиталистических странах. Между советским коллективным договором и капиталистическим нет и не может быть ничего общего. Это только одноименные, но совершенно различные институты. Идея коллективного договора при капитализме возникла в ходе классовой (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D85525EDB74DFC56270B44A45664B642CF26CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

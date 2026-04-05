@@ -1,3 +1,119 @@
+###  Публикация: 1237664   (550618) от 25.07.2018
+
+VA - STAVRLS (2018) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient, Dubstep, Drum n Bass, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken. - Dear Friend (05:00)
+02. Azaleh - Moonlight (04:28)
+03. Twisted Psykie - Your Medicine (05:17)
+04. Dashevsky - Paper Boats (05:56)(   Читать дальше...   )Жанр: Future Garage, Ambient, Dubstep, Drum n Bass, DowntempoПродолжительность: 02:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7823C043BF1F8243F9A434C885A372CA517F7958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047446   (550373) от 29.08.2016
+
+VA - Amalfi Coast Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda - Hang Out Time (06:45)
+02. Enrico Donner - Prefabricated Dreams (06:47)
+03. Don Gorda Project - Feeling Free (05:44)
+04. Cane Garden Quartet - Ageless (05:53)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A099D1A73277C17C9B06D5B78B84C95E7D93D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047143   (550370) от 29.08.2016
+
+VA - Satin Lounge Vol.1 (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zuco 103 - Outro Lado
+02. Five Seasons - Guapo
+03. Frank Popp Ensemble - Just Say Goodbye
+04. Chin Chillaz - Trinity(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8CF773EB4F8A4E692F5F5298E7DB08C4ECB895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047170   (550369) от 29.08.2016
+
+VA - Ibiza Dreams, Vol. 1 (Finest Island Chill Out Mix) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods Blue Chest - Floating (Beach Mix) (6:04)
+02. Roberto Sol, Florito - Tomorrow (4:50)
+03. Naoki Kenji - Tsunami (6:24)
+04. Peter Pearson - Always In My Dream (5:41)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA121800D65C30B480EC1BBF7E2999E49995D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047189   (550367) от 29.08.2016
 
 VA - Play Emotions Vol.2 Sweet Company Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +122,7 @@ VA - Play Emotions Vol.2 Sweet Company Lounge (2016) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550367.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - The Sweet Lounge Vol.8 (Lounge in Capri) (2016) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550366.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Ibiza Musica Relajante (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550365.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Play Emotions Vol.1 Beyond the Imagination Chill Out (2016) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550362.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Play Emotions Vol.3 Lounge and Chill Sweet Moments (2016) [MP3|320 Kbps] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550360.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Chic Grooves: A Journey into Deep House Rhythms (2016) (2016) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550267.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Bikini Grooves (20 Pool Party Beats Vol 1) (2016) [MP3|320 Kbps] <House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550254.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ The Weathermonger - The Ephemeral City (2018) Twoism Records [FLAC|Lossless|WEB-
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549766.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Spin Artes - Elementis (2018) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549739.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549642.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549604.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Hot Chip - A Bath Full of Ecstasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549526.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Chilled Summer Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549398.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Drift Perfect Chillout Tracks (2016) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549395.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Oriental Summer (20 Beautiful Lounge Anthems) (2016) [MP3|320 Kbps] <Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549394.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Fashion Groove Rimini: Deep And Chill (2016) [MP3|320 Kbps] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549390.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - A State Of Lounge Ibiza (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549386.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - VERANO Chill Out Compiled By DJ Azibi (2016) [MP3|320 Kbps] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549341.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Ambient Entertainments: Chillout Lounge Music 2016 (2016) [MP3|320 Kbps] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549340.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - A State Of Lounge Summer (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549335.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - A State Of Lounge City Vibes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549333.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Samadhi Sounds Vol.1 (Quiet Relaxing & Meditation Sounds) (2016) [MP3|320 K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549330.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Samadhi Sounds Vol.1 (Quiet Relaxing & Meditation Sounds) (2016) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46958D71075A225B246150FF4EEFADC0935E868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047465   (549324) от 30.08.2016
-
-VA - Zen Experience, Vol. 1 (Finest Sound of Relaxation) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Sunset - Morninglite (5:35)
-02. Northbound - Driftwood (4:06)
-03. Buddha - Zen Awakening (2:05)
-04. Marga Sol - Free Your Mind (5:18)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5939F7F2FA08A3719F0D132FF5C3EE4E2CDA907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047653   (549323) от 30.08.2016
-
-LX Bliss - Ambient 01 (2003) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Soundscape, Tribal, Psybient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tol Eressea (05:48)
-02. Turnpoint (06:24)
-03. A Landscape (06:18)
-04. Tension/Relief (06:41)(   Читать дальше...   )Жанр: Ambient, Soundscape, Tribal, PsybientПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0642021545E9A91BF6D0BE2A5AF9C582C42E8AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310089   (548879) от 22.06.2019
-
-Skipsapiens - Discography 2 Releases (2001-2005) U-Cover, Mutek_Rec [FLAC|Lossless|tracks+.cue] <IDM>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstracciones En Reversa (04:03)
- 02. Rastafari Druids (04:54)
- 03. Dilatacion Neuronal (04:23)
- 04. Nacimiento De R2D2 (06:32)(   Читать дальше...   )Тип издания: CDЖанр: IDMПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1746B2EC96302EEAFA9FB697C1E9F99F87F64865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310159   (548878) от 22.06.2019
-
-CJ Burnett - Moonlit City (2017) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave, Outrun, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West Side Drive (3:19)
-02. Moonlit City (4:55)
-03. Race Through Time (4:45)
-04. Twilight Dreamer (4:04)(   Читать дальше...   )Жанр: Retrowave, Synthwave, Outrun, DreamwaveПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B122DF05744F3A30B9E73A2012F37CF129DF5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

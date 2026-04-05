@@ -1,3 +1,57 @@
+###  Публикация: 413263   (331334) от 20.11.2011
+
+Н.Эзрин, Р.Фокс | Приучение к горшку за 1 день (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы этой книги придумали невероятную методику, с помощью которой каждого ребенка можно приучить к горшку даже за 4 часа. И он сразу же сможет сам ходить в туалет без всякой помощи и напоминаний.
+Последуйте примеру миллионов родителей и оцените все преимущества этой замечательной методики.
+Пособие написано легко и доступно и снабжено подробными указаниями и иллюстрациями (   Читать дальше...   )Жанр: Воспитание ребенка, Для родителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C33EA7907E23B2F4E6BBA1A767773363AB0F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420921   (331286) от 02.11.2020
+
+Петр Волцит | Почемучкины опыты и эксперименты. Погода (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331286.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге П. Волцита «Погода» ты найдешь несколько любопытных рассказов об атмосферных явлениях: что такое ветер, откуда берутся гром и молния, град и снег, дождь, туман и роса, а также 9 интереснейших экспериментов с погодой: например, ты сможешь сделать сам настоящее облако и даже молнию! Все эксперименты разработаны с использованием предметов, которые легко найти (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317B185E73E7ACC0C2BAE5F691CE245108A6526F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420893   (331283) от 02.11.2020
 
 Светлана Шумеева | Самая первая энциклопедия. Техника (2015) [PDF]
@@ -6,7 +60,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331283.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331194.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330989.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330398.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330214.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330123.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329480.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329402.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329401.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329363.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329316.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329311.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329305.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329256.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329249.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329216.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328384.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328335.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328235.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328202.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327657.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327622.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327552.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327484.jpg" />
 </div>
 
 
@@ -628,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45186BC6D69077CD1DA53F291C3DEB8C3C739ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957470   (327326) от 17.11.2015
-
-Игорь Селютин | Учимся рисовать (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из этой книги юный читатель получит интересные сведения об изобразительном искусстве и узнает, что означают некоторые используемые художниками термины, познакомит с азами композиций и рисунка. Автор, профессиональный художник-график, даст полезные и нескучные рекомендации, как правильно нарисовать предметы и людей, с чего лучше начать обучение рисованию.Жанр: РисованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365BA2E35B0A1602F11708C4CEF6A8CD3820A609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581393   (327136) от 05.10.2022
-
-Ю. Борщевский (Общ. Ред.) | Сказки Исфахана (1967) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327136.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сказки Исфахана» собраны в окрестностях одного из старинных иранских городов, древней столицы Ирана г. Исфахана. Как и в других персидских сказках, причудливая фантазия, неистощимая выдумка сочетаются в них с юмором, придавая сказкам неповторимый национальный колорит.Жанр: СказкиПеревод: Э. Джалиашвили и Н. ФарасЯзык: РусскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8212F818D2C180B7F3D6F2EDEB8B037928C33B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

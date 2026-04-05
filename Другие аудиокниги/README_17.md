@@ -1,3 +1,55 @@
+###  Публикация: 1030224   (676537) от 29.06.2016
+
+Александр Боровский | История искусства для собак (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676537.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ах, вот где собака зарыта!" - воскликнула кошка Мона и не отдавала мне рукопись, пока не прочитала и не просидела ее досконально. А отдавая, вздохнула: "Ну почему этот ваш Боровский пишет только для собак и людей и никогда - для кошек…" Михаил Трофименков, "Ъ"В этой книжке Боровский предстает не только как критик, но и как писатель, (   Читать дальше...   )Жанр: Научно-популярное изданиеПродолжительность: 05:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441794F4AFC073F399D7BD7FB1A78B35EA6E08D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289804   (676462) от 21.03.2019
+
+Мишель Кондер | Мастер-класс от плейбоя (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Себастьяно Кастильоне – успешный бизнесмен. В его жизни есть все – деньги, власть, женщины. Единственное, чего ему не хватает, – должности генерального директора семейной фирмы. Его дед строго убежден, что Себастьяно еще не готов занять эту должность. Ведь у него до сих пор нет семьи. Себастьяно решается на отчаянную авантюру и предлагает Поппи, с которой познакомился (   Читать дальше...   )Жанр: Зарубежные любовные романыПродолжительность: 03:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C5C9036EA40F9E780384068343B7A2341301B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290422   (676206) от 21.03.2019
 
 Богдан Сушинский | Операция «Цитадель» (2017) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676206.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674796.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674749.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674417.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674413.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673066.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673006.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670776.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669291.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669219.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669147.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666654.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662208.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662109.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660105.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659108.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658139.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656917.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656585.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654265.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651661.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651639.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650320.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648613.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42026F56CD6DE50122F71BCDFEDB77A9134D24BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141623   (648491) от 11.06.2017
-
-Николай Рерих | Держава света. Священный дозор (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник представляет собой собрание сочинений выдающегося русского художника, ученого, философа, путешественника и общественного деятеля – Н.К. Рериха – на основе прижизненных сборников, составленных самим автором, с добавлением статей, до сих пор не публиковавшихся или печатавшихся лишь в периодических изданиях.Жанр: ЭзотерикаПродолжительность: 14:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCB823D53E707A9BB59883A45259DC436A24588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031757   (647634) от 06.07.2016
-
-Стивен Хантер | Сезон охоты на людей (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охота на крупную дичь неизбежно приводит к гибели более мелких существ, случайно оказавшихся на прицеле у охотника. Поединок снайперов, начатый много лет назад, наконец-то закончен. Защищая свою семью от безжалостного убийцы, Боб Ли Суэггер раскрывает преступление, корни которого уходят в далекое прошлое.Жанр: Боевик, триллерПродолжительность: 25:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1B584C5F397F9CDC9A512ECBD2CCC3A46260F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Pianos Become The Teeth - Keep You (2015) Deluxe Edition [MP3|320 кб/с]<Screa
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616176.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nirvana - Live At The Paramount 1991 (2019) [MP3|320 Kbps] <Rock, Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613305.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Being as an Ocean - Being as an Ocean (2015) [MP3|320 кб/с]<Melodic Hardcore,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612804.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Refused - Freedom (2015) [MP3|320 кб/с]<Hardcore Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612518.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612390.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bang Gang - The Wolves Are Whispering (2015) [MP3|320 кб/с]<Electronic, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610688.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Neuro Dubel (Нейро Дюбель) - На Марс! (2015) [MP3|320 кб/с]<
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608687.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Anberlin - Lowborn (2014) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608458.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Pierce The Veil - Collide With the Sky (2012) [MP3|320 кб/с]<Post-Hardcore / 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605661.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Falls - Omaha (2015) [MP3|320 Kbps] <Rock, Alternative Folk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604976.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Letters From The Fire - Letters From The Fire (2018) [MP3|320 Kbps] <Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604134.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Inlights - Cliffhanger (2022) [MP3|320 Kbps] <Post-Hardcore, Easycore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603476.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Dead Days - Tyrants (2022) [MP3|320 Kbps] <Post Hardcore, Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603475.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ A Hope For Home - 4 альбома (2007-2011) [MP3 266-320 Kbps  VBR|CBR]<Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602961.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Panic! At The Disco - Pray For The Wicked (2018) [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602721.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Heart Attack Man - Fake Blood (2019) [MP3|320 kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602662.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Losers - How To Ruin Other People's Futures (2016) [MP3|320 Kbps] <Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600295.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Poets Of The Fall - Ghostlight (2022) [MP3|320 Kbps] <Alt. Rock, Pop-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600021.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Sir Mashalot - Welcome To Mashville (2015) [MP3|320 кб/с]<Alternative Country
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596587.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Paul Cowderoy - Wet Hessian Bag (2015) [MP3|320 кб/с]<Alternative Country Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596578.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Spoon Fight - Spoon Fight (2015) [MP3|320 кб/с]<Alternative, Groove Rock, Blu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596573.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ The Fifty Dollar Band - One Hundred Years Of Grace (2015) [MP3|320 кб/с]<Alte
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596488.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Silverstein - Dead Reflection (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595218.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Aranda - Not the Same (2015) [OGG|474-530 кб/с]<Alternative, Modern Hard Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595132.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Simple Plan - Harder Than It Looks (2022) [MP3|320 Kbps] <Pop-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594867.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Three Days Grace - Explosions (2022) [MP3|320 Kbps] <Post-Grunge, Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594732.jpg" />
 </div>
 
 

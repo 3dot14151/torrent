@@ -1,3 +1,163 @@
+###  Публикация: 991010   (907494) от 27.02.2016
+
+Существование пятимерных черных дыр может развалить всю Общую теорию относительности Эйнштейна
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа исследователей из Кембриджского университета (University of Cambridge) и университета Королевы Мэри (Queen Mary University) в Лондоне показала, что факт существования черных дыр весьма экзотической формы может развалить Общую теорию относительности Эйнштейна, основу всей современной физики. К счастью для нас, такие черные дыры могут существовать только в среде не менее экзотической Вселенной, континуум которой имеет пять или еще большее количество измерений.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990013   (907313) от 27.02.2016
+
+Resident Evil 5 (2009) [Ru] (1.0.0.129r1/upd1/dlc) Portable PortGamPC [Gold Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из праха былых конфликтов возникает новый ужас. Корпорация Umbrella и созданный ей смертельный вирус были уничтожены, а останки заключены. Но вскоре появилась новая, еще более опасная угроза. Несколько лет после событий в Раккун-Сити спустя, Крис Редфилд ведет борьбу с бедствием биоорганического оружие по всему миру. Теперь член отряда B.S.A.A. (Bio-terrorism Security (   Читать дальше...   )Тип издания: PortableРазработчик: CapcomЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E210D573DE633DA8983E88080D3774CEDF3E9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991289   (907303) от 27.02.2016
+
+Экстрасенсы / Утешение / Solace (2015) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напарники, Джо и Кэтрин, детективы из ФБР расследуют череду загадочных убийств. Все преступления объединяет нечто сверхъестественное — серийный убийца всегда на шаг впереди лучших сыщиков. Тогда на помощь правосудию приходит отставной аналитик спецслужб доктор Джон Кленси. Его исключительная интуиция и интеллект могут помочь поймать убийцу, но вскоре Джон понимает (   Читать дальше...   )Производство: США / Eden Rock Media, FilmNation Entertainment, Flynn Picture CompanyЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Афонсо ПойартАктеры: Джеффри Дин Морган, Колин Фаррелл, Энтони Хопкинс, Эбби Корниш, Марли Шелтон, Джанин Тернер, Ксандер Беркли, Кенни Джонсон, Хосе Пабло Кантильо, Джошуа КлоузПеревод: Многоголосый закадровый, любительский (студия ProSound)Язык субтитров: АнглийскийПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B52C064AB994246586EB9BF62112C87A17442A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991017   (907294) от 27.02.2016
+
+The Elder Scrolls V: Skyrim Legendary Edition + Falskaar (2011) [Xbox360] [RegionFree] 12625 [FreeBoot] [Unofficial] [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907294.jpg" />
+</div>
+
+
+###  Подробнее
+
+События новой игры The Elder Scrolls V: Skyrim будут происходить спустя 200 лет после событий Oblivion, в тот момент, когда главного героя собираются казнить. После смерти короля в Скайриме разразилась гражданская война между сторонниками и противниками вхождения в состав Империи. Посох Хаоса, Нумидиум, Красная гора, врата Обливиона и, наконец, братоубийственная (   Читать дальше...   )Тип издания: UnofficialРазработчик: Bethesda Game StudiosЖанр: Action RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E0F1A082A5FC6C2377870C72C2424E3217B202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990375   (907292) от 27.02.2016
+
+Конкурс релизов в музыкальном разделе Классика
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Объявляется конкурс релизов в музыкальном разделе Классика
+Классика - навсегда!
+Уважаемые одноклубники, в разделе Классика проводится конкурс релизов. Оформляйте раздачи в любом подфоруме раздела и выигрывайте призы. Победит тот, кто зальёт больше всего релизов. Принять участие может любой желающий.
+Конкурс проводится с 1 по 31 марта включительно.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991052   (907288) от 27.02.2016
+
+Выпущен первый моноблок на российском процессоре
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый компьютер-моноблок на российском процессоре «Байкал-Т1» представила компания «Т-Платформы». Первые крупные поставки техники, по словам производителя, состоятся во II квартале 2016 года.Российский и с Linux
+Образец первого российского моноблока представили на выставке Embedded World. Устройство получило название «Таволга Терминал» и предназначено для создания (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989794   (907284) от 27.02.2016
 
 BELOFF 2016.02.23 [Ru]
@@ -6,7 +166,7 @@ BELOFF 2016.02.23 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907284.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907282.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907274.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906499.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ Samsung может удаленно отключить любой телевиз
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906439.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906365.jpg" />
 </div>
 
 
@@ -162,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906344.jpg" />
 </div>
 
 
@@ -188,7 +348,7 @@ Linux Mint Debian Edition  4 “Debbie” Cinnamon [32-bit, 64-bit] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906333.jpg" />
 </div>
 
 
@@ -214,7 +374,7 @@ DOOM Eternal (2020) [Ru/Multi] (1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906291.jpg" />
 </div>
 
 
@@ -240,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906284.jpg" />
 </div>
 
 
@@ -266,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906119.jpg" />
 </div>
 
 
@@ -292,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906094.jpg" />
 </div>
 
 
@@ -318,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906092.jpg" />
 </div>
 
 
@@ -344,7 +504,7 @@ ROSA Desktop Fresh R7 GNOME [i586, x86-64] 2x(DVD)+2x(uefiDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905520.jpg" />
 </div>
 
 
@@ -370,7 +530,7 @@ KB3135173 сбрасывает приложения по умолчанию в W
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905460.jpg" />
 </div>
 
 
@@ -396,7 +556,7 @@ Webroot SecureAnywhere AntiVirus 9.0.8.72 [Multi/Ru] (Онлайн-устано�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905446.jpg" />
 </div>
 
 
@@ -422,7 +582,7 @@ Bear Simulator (2016) [En] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905439.jpg" />
 </div>
 
 
@@ -448,7 +608,7 @@ Windows 10 / 81 / 7AIO pe StartSoft 6-2016 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905427.jpg" />
 </div>
 
 
@@ -474,7 +634,7 @@ Anno 2205 (2015) [Ru/Multi] (1.3.2441.47119) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905414.jpg" />
 </div>
 
 
@@ -500,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905401.jpg" />
 </div>
 
 
@@ -512,165 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F75CC8CCA6DAB4D24334E465B2ECBFBD6CD9AF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990699   (905394) от 28.02.2016
-
-Проекты - VideoHive - FX Particle Builder | Fire Dust Smoke Particular Presets - 14664200 [AEP]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905394.jpg" />
-</div>
-
-
-###  Подробнее
-
-FX Particle Builder | Fire Dust Smoke Particular Presets - это мощный инструмент для простого и быстрого создания эффекта пламени, искр, дыма, эффекта магии, эффекта частиц разбитого стекла.
-Можно применить к тексту, Вашим фотографиям, картинкам, или видео материалам.
-Информация по работе со скриптами находится под спойлером "Дополнительная информация". (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D0A2087758B7DB4DCCEF98E687889643556249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953401   (905387) от 28.02.2016
-
-Гримм / Grimm (2015) WEB-DL [H.264/1080p-LQ]  (сезон 5, серии 1-10 из 22) LostFilm (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905387.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования мрачной и фэнтезийной полицейской драмы от канала NBC - детектив Ник Буркхардт, который думал, что готов к суровой действительности, работая в отделе убийств. Но это было до того, как он начал видеть вещи, которые он не мог объяснить: привлекательная женщина на его глазах превращалась в ведьму, а заурядный Джо в опасного тролля. От единственного (   Читать дальше...   )Производство: США / GK Productions, Hazy Mills Productions, Universal TelevisionЖанр: драма, фэнтези, ужасыРежиссер: Норберто Барба, Терренс О’Хара, Эрик ЛанёвилльАктеры: Дэвид Джинтоли, Битси Таллок, Сайлас Уэйр Митчелл, Расселл Хорнсби, Саша Ройз, Регги Ли, Клэр Коффи, Бри Тёрнер, Роберт Бланш, Дэнни Бруно и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: английский, немецкийПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FAD76B61CB37BE29949D3EBFC70C12DC89D5CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946586   (905381) от 28.02.2016
-
-Ходячие мертвецы / The Walking Dead  (2015) WEB-DLRip [H.264/1080p-LQ]  (сезон 6, серии 1-10 из 16) LostFilm (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, драмаРежиссер: Грег Никотеро, Эрнест Р. Дикерсон, Гай ФерлендАктеры: Эндрю Линкольн, Стивен Ян, Чендлер Риггз, Норман Ридус, Мелисса Сюзанн МакБрайд, Лорен Кохэн, Данай Джекесай Гурира, Сонекуа Мартин-Грин, Эмили Кинни, Аланна Мастерсон и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:43:00 серия (01:04:00 первая серия)Реклама: присутствуют заставка и логотип LostFilm.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D684B7BF779EA936C69DFA4C4E2F680530C767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491870   (905011) от 28.08.2021
-
-Microsoft тихо удалила из Windows 11 привычные функции.
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905011.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой сборке Windows 11 исчезло сразу несколько функций панели задач, которые есть в Windows 10, и которым все давно привыкли. В частности, часы больше не умеют отображать время в секундах, а календарь лишился встроенного органайзера. Microsoft не стала скрывать, что убрала все эти функции специально, чем вызвала поток жалоб со стороны пользователей.Microsoft стремится (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491876   (904987) от 28.08.2021
-
-Adobe Photoshop 2021 22.5.0.384 (Win10) Portable by syneus [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2021 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FBA91DB8E069DE35C2C5FEB732D1F768431387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215206   (904930) от 28.08.2021
-
-Tamas Olejnik (Dublicator, MetaComplex, Antendex, Astral Travel Agency, Organit, Auto Reverse, etc.) - 2006-2021 [FLAC|Lossless] <Dub Techno, Ambient, Electro, Psybient, Synthwave, Psy-Trance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avulth - Lime & Space (07:52)
- 02. Organit - Curvature (07:12)Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Electro, Techno, Psybient, Synthwave, Psy-Trance •Продолжительность: 46:42:52 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CE68DABE45586F2D5DBB01F32B605060BF6A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

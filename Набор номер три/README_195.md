@@ -1,3 +1,160 @@
+###  Публикация: 1123023   (786440) от 07.04.2017
+
+NVIDIA GeForce Desktop 381.65 WHQL + For Notebooks [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786440.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14028A685DA00B5AEA79C4452D63DFCBA1C414B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123147   (786432) от 07.04.2017
+
+Защитники (2017) WEB-DLRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: Россия / Enjoy MoviesЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Кизиярова-Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила Максимова ...Перевод: Не требуется (язык русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4763C38469CFC2B69AD0A31D3F70CB6BD359BCBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122763   (786428) от 07.04.2017
+
+Детям до 14 лет хотят запретить соцсети
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786428.jpg" />
+</div>
+
+
+###  Подробнее
+
+А остальных собираются пускать только под настоящим именем по паспорту
+Заксобрание Ленинградской области разработало законопроект "О правовом регулировании деятельности социальных сетей", предполагающий строгий порядок допуска и идентификации пользователей, пишет газета "Известия" со ссылкой на имеющийся в ее распоряжении текст документа.При регистрации (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123107   (786426) от 07.04.2017
+
+Защитники (2017) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: Россия / Enjoy MoviesЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Кизиярова-Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила Максимова ...Перевод: Не требуется (язык русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDDEEF9749403CF2FA12EA356C399A2CB780933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123065   (786421) от 07.04.2017
+
+Microsoft раскрыла подробности о сборе данных в Windows 10
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft обнародовала подробности относительно диагностических данных, которые будут собираться в системе Windows 10 Creators Update, запланированной к выходу 11 апреля нынешнего года.«Впервые мы публикуем полный список диагностических данных, собираемых на основном уровне. Мы также приводим подробную сводку данных о пользователях, собираемых как на основном, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122766   (786243) от 08.04.2017
+
+Navitel / Навител Навигатор v9.8.2 Full для карт релиза Q1-2017 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: пираткаРелиз состоялся: 05.04.2017Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF65D3D11A894FC089ADBE1E9488F7A12214364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 627466   (786239) от 08.04.2017
 
 Метро (2012) Blu-Ray [1080p]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786239.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Far Cry 2: The Fortune’s Pack (2008) [En] (1.03/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786237.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786236.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786233.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786231.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786230.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ SuperАлиби / Alibi.com (2017) WEB-DL [H.264/1080p-LQ]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786229.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [16.03.2017] [RU]
 >>23
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786228.jpg" />
 </div>
 
 
@@ -217,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786227.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ Corel VideoStudio Ultimate X10 20.1.0.14 (x64) RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786001.jpg" />
 </div>
 
 
@@ -269,7 +426,7 @@ Navitel / Навител Навигатор v9.8.3 Full для карт рели
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785991.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ Kaspersky Endpoint Security 10.3.0.6294 SP2 RePack by alex zed (04.04.2017) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785990.jpg" />
 </div>
 
 
@@ -321,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785987.jpg" />
 </div>
 
 
@@ -347,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785887.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785852.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ Navitel / Навител Навигатор v9.8.3 RePack для карт рел
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785845.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785713.jpg" />
 </div>
 
 
@@ -452,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785692.jpg" />
 </div>
 
 
@@ -478,7 +635,7 @@ Acronis True Image 2017 New Generation 21.0.6206 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785691.jpg" />
 </div>
 
 
@@ -504,7 +661,7 @@ KMSAuto Net 2016 1.5.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785679.jpg" />
 </div>
 
 
@@ -515,162 +672,6 @@ KMSAuto Net — автоматический KMS-активатор для оп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE4E4ACC839A9CF485E990766330F84864EB2126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124887   (785498) от 12.04.2017
-
-MAGIX Vegas Pro 14.0 Build 252 RePack by KpoJIuK [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785498.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E04BF789F698327AC07D8036011B7E0BC97FE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124739   (785492) от 12.04.2017
-
-Демон внутри / The Autopsy of Jane Doe (2016) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой девушки без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: Великобритания, СШАЖанр: Ужасы, детективРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Паркер Сойерс, Джейн Перри, Ив О’ХараПеревод: Профессиональный многоголосый (AlexFilm)Субтитры: ОтсутствуютПродолжительность: 01:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA6DA2B87D2B0F333A0B1508E79E76B06A036C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124655   (785491) от 12.04.2017
-
-Bayonetta (2017) [Multi] (1.0) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный директор PlatinumGames Хидэки Камия, создавший знаменитые Resident Evil и Devil May Cry, а также компания SEGA запускают одну из самых прославленных action-игр всех времен на ПК. Байонетта. Единственная выжившая из старинного клана ведьм, сохранявшего равновесие между светом, тьмой и хаосом.Тип издания: LicenseРазработчик: PlatinumGamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29682209CF7E5AA5940E0525A5422DD14B005BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124713   (785489) от 12.04.2017
-
-Adobe Photoshop Lightroom CC 2015.10 (6.10) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD63C25328D1BFE22F5C348B8611BEB4996094E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918776   (785488) от 12.04.2017
-
-Assassin's Creed 3 (2012) [Ru/En] (1.06/dlc) Repack =nemos= [Ultimate Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полноценная третья часть серии Assassin's Creed. Нам предстоит сыграть роль полукровки – британца по отцовской линии и индейца-мохока по материнской – со странным для нашего уха именем Ratohnaké:ton. События Assassin’s Creed 3 будут развиваться во времена Войны за независимость США. Вы – ассасин Коннор, поклявшийся сохранить свободу и безопасность своего народа (   Читать дальше...   )Тип издания: RepackРазработчик: UbisoftЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4BC7E82F917F0AC9996D5EC5AC0FE437FE12CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124829   (785486) от 12.04.2017
-
-Телейос / Teleios (2017) HDRip [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее. Ученые создали технологию модификации молекул днк и спроектировали генетически совершенного человека. Экипаж из таких безупречных людей направляется к Титану, чтобы забрать критически важный для выживания человечества груз. Но прибыв к месту назначения, они сталкиваются с множеством тайн, оставшихся после гибели предыдущего экипажа. Что же на самом деле (   Читать дальше...   )Производство: СШАЖанр: ФантастикаРежиссер: Йен ТрюйтнерАктеры: Санни Мабри, Лэнс Бродвэй, Т.Дж. Хобан, Кристиан Питре, Майкл Шеннон Дженкинс, Урсула Миллс, Weetus Cren, Майкл Нури, Лейла Бирч, Бретт Роберт КулбертПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: отсутствуют.Продолжительность: 01:30:35Реклама: присутствуют аудио и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB58B0E8B2C1D21D4CDB8A8D7A1D50F3D2EB1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

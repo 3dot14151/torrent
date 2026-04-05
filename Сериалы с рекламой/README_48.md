@@ -1,3 +1,55 @@
+###  Публикация: 1792963   (67092) от 04.05.2025
+
+Отсутствующий голос / La voz ausente / The Absent Voice (2024) WEBRip (сезон 1, серии 1-7 из 7) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психоаналитик Пабло Рувиот сделал блестящую карьеру, но много лет назад отстранился от семьи. Теперь же он вынужден вернуться домой, получив новость о скоропостижной кончине брата. Очевидно, что Хосэ покончил жизнь самоубийством, но Пабло, как специалист и как брат понимает, что в этой версии что-то не складывается, и обращается за помощью к опальному офицеру полиции (   Читать дальше...   )Производство: Аргентина / Pampa FilmsЖанр: драмаРежиссер: Густаво ЭрнандесАктеры: Бенхамин Викунья, Химена Аккарди, Jonatan Jairo Nugnes, Сусу Пекораро, Джазмин Стюарт, Gastón FríasПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:30:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC9FE1EBB305DA33838E5B3C0D98E396FBD70B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795135   (67090) от 04.05.2025
+
+Энтревиас / Entrevias / Wrong Side of the Tracks (2024) WEBRip [H.264/1080p] (сезон 4, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тирсо Абантос — бывший военный, а ныне управляющий хозяйственным магазином. Однажды его неуправляемая внучка-подросток Ирен уговаривает своего парня Нельсона украсть героин у наркодилера Сандро. Они собираются продать наркотики и сбежать вместе. Но план проваливается, Сандро и его головорезы жестоко насилуют Ирен. Тирсо объединяется с коррумпированным офицером полиции (   Читать дальше...   )Производство: Испания / Alea Media, Mediaset EspañaЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Iñaki Mercero, Альберто Руис Рохо, Ориоль Феррер и др.Актеры: Хосе Коронадо, Нона Собо, Felipe Londoño, Лаура Рамос, Маноло Каро, Мануэль Тальяфе, Ицияр Атьенца, Мария де Нати, Луис Саэра, Мария Молинс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:15:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456D8D254B92E732FD821DDDFCF52D0A605EF9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798703   (66592) от 23.05.2025
 
 Энциклопедия Стамбула / Istanbul Ansiklopedisi (2025) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66592.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66305.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66287.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65797.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65792.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65246.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63835.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63279.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62674.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62645.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62571.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62532.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62376.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62373.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62349.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62225.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62178.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62176.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62085.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61314.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61265.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61184.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61119.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61116.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8590731BCECE65058EBCA2417527A57FC05DE95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205230   (60929) от 03.04.2024
-
-Грейс и Фрэнки / Grace and Frankie (2018) WEBRip [H.264/720p-LQ] (сезон 4, серии 1-13 из 13) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грэйс и Фрэнки — женщины солидного возраста, много лет враждовавшие между собой. Никто и никогда не мог представить их друзьями, но неожиданное известие изменило всё. Старые соперницы сблизились, когда узнали, что их мужья влюбились друг в друга и хотят как можно скорее официально зарегистрировать свои отношения.Производство: США / Skydance MediaЖанр: комедияРежиссер: Ребекка Эшер, Кен Уиттингэм, Марта КауффманАктеры: Джейн Фонда, Лили Томлин, Сэм Уотерстон, Мартин Шин, Бруклин Декер, Джун Рафаэль, Итэн Эмбри, Барон Вон, Эрни Хадсон, Тим Бэгли и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Язык озвучки: Русский, английскийСубтитры: английские (Full, SDH)Продолжительность: ~00:30:00 серияРеклама: Присутствует звуковая (два раза: в начале и конце по 12 сек)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC0CD64823082B52E863CC7F15B7B760E950B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701624   (60564) от 06.04.2024
-
-Сын Критча / Son of a Critch (2024) WEBRip [H.264/1080p] (сезон 3, серии 1-13 из 13) ViruseProject [AD] (Обновляемая)
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяжело быть школьником в канадской провинции 80-х годов. Особенно, если ты — заучка из небогатой семьи, мечтаешь стать стендап-комиком, делишь спальню с суровым дедом, а учишься в католической школе, под властью религиозных старух. Мальчику Марку со всем этим набором как раз и «повезло». И каждый новый день ставит перед ним всё новые, иногда совсем недетские проблемы. (   Читать дальше...   )Производство: Канада / Project 10, Take the Shot ProductionsЖанр: комедияРежиссер: Renuka Jeyapalan, Диан Фоли, Джон Ватчер и др.Актеры: Марк Критч, Бенджамин Эван Эйнсуорт, Клер Ранкин, Mark Ezekiel Rivera, Sophia Powers, Малкольм Макдауэлл, Колтон Гоббо, Петрина Бромли, Daisy Harris, Нора МакЛеллан и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:20:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C64882104B7BD894A64FFE173CCF50E9E9AF7F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

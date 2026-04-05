@@ -1,3 +1,56 @@
+###  Публикация: 951778   (344268) от 06.11.2015
+
+Дуэль на Миссисипи / Duel on the Mississippi (1955) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в 19-ом веке, в дельте реки Миссисипи штата Луизиана. Речные пираты под предводительством Хьюго Марата совершают набеги на плантации сахарного тростника и воруют урожай у местных плантаторов. Андре Тулейн, сын обанкротившегося по вине пиратов землевладельца, пытается объединить фермеров в борьбе против грабителей.Производство: США / Clover ProductionsЖанр: Приключения, Драма, МелодрамаРежиссер: Уильям КаслАктеры: Лекс Баркер, Патриция Медина, Уоррен Стивенс, Крэйг Стивенс, Джон Денер, Иэн Кит, Крис Алькайде, Джон Мэнсфилд, Селия Ловски, Луис МэриллПеревод: Одноголосый закадровый (Andi999)Язык субтитров: РусскийПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBF458D1F82CC188CB69EF4FF5E86824325A330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951537   (344057) от 06.11.2015
+
+Сыграй это снова, Сэм / Play It Again, Sam (1972) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344057.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сыграй ещё раз, Сэм»  — кинокомедия режиссёра Герберта Росса, снятая в 1972 году по мотивам одноимённого бродвейского спектакля Вуди Аллена.
+Незадачливого кинокритика Алана Феликса после двухлетнего брака бросает жена. Алан впадает в депрессию, на нервной почве его начинают посещать призраки Хамфри Богарта, исполнителя главной роли «Касабланки», и его бывшая жена (   Читать дальше...   )Производство: CША (Paramount Pictures, Rollins-Joffe Productions)Жанр: Комедия, МелодрамаРежиссер: Херберт РоссАктеры: Вуди Аллен, Дайэн Китон, Тони Робертс, Джерри Лэйси, Сьюзан Энспак, Дженнифер Солт, Джой Бэнг и др.Перевод: Двуголосый закадровыйПродолжительность: 01:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2A4E9431C7BD61BE65B63812A851B35204D38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 409638   (343854) от 14.11.2011
 
 Кто боится Вирджинии Вульф? / Who's Afraid of Virginia Woolf? (1966) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343854.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343477.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343473.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343081.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342431.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342032.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341801.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341684.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341640.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340634.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340632.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340363.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339480.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339470.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339445.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339333.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338361.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338300.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338292.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337750.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337618.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337400.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337248.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336917.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0425F9F5463E5D21751B14D1D14C5A5FBFBC7CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256351   (336167) от 30.10.2018
-
-Трип / The Trip (1967) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина открывается сценой, в которой режиссер телерекламы ссорится с женой, собирающейся с ним развестись. Расстроенный личными неурядицами, он едет с другом в причудливо раскрашенный дом хиппи, торгующего наркотиками, чтобы купить там ЛСД. Так начинается «поездка»…Производство: США / American International Pictures (AIP)Жанр: ДрамаРежиссер: Роджер КорманАктеры: Питер Фонда, Сьюзен Страсберг, Брюс Дерн, Деннис Хоппер, Салли Сачсе, Барбура Моррис, Джудит Лэнг, Луана Андерс, Бич Дикерсон, Дик МиллерПеревод: Многоголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D47AA5BA3DCF89B5D9C325788CB2293FEB0DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179547   (335368) от 06.11.2017
-
-Комедианты / The Comedians (1967) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация известного романа Грэма Грина о садистском диктаторском режиме на Гаити. Великолепные звезды американского кино тонко передают мрачную обстановку мира тонтон-макутов, слежки, убийств и террора.Производство: США, Франция / Maximillian Productions, Metro-Goldwyn-Mayer (MGM), Trianon FilmsЖанр: ДрамаРежиссер: Питер ГленвиллАктеры: Ричард Бёртон, Элизабет Тейлор, Алек Гиннесс, Питер Устинов, Пол Форд, Лиллиан Гиш, Джордж Стэнфорд Браун, Роско Ли Браун, Глория Фостер, Джеймс Эрл Джонс, Дута Сек, Закес Мокае, Рэймонд Сент-Жак, Сисели ТайсонПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A0CE99A0611C6CB5C8504E34AD00760246966C
 ```
 
 https://mybot314.ru/tekegram_catalog/

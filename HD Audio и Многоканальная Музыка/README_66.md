@@ -1,32 +1,3 @@
-###  Публикация: 1666989   (178391) от 06.10.2023
-
-Karfagen, Sunchild & Hoggwash - A Message of Peace Tour Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Friday Night (Live at Parkvilla Theater, Nl, 2022) [00:09:09]
-02. Shall We Run? (Live at Parkvilla Theater, Nl, 2022) [00:04:35]
-03. Rain Drops (Live at Parkvilla Theater, Nl, 2022) [00:06:40]
-04. The Reason Why (Live at Parkvilla Theater, Nl, 2022) [00:04:38](   Читать дальше...   )Жанр: progressive rockПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA4F5B0F485E4AEFA79D77036301BA4DE88571B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667065   (178389) от 06.10.2023
 
 Occams Laser - New Blood III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <UK Synthwave, Darksynth>
@@ -35,7 +6,7 @@ Occams Laser - New Blood III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <UK Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178389.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Iron Savior - Firestar (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178384.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Trevor Rabin - Rio (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178348.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Epica - Live At AFAS Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178341.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178333.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178297.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Roxy Music - Manifesto (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Art Rock,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178227.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178209.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Van Halen - The Collection II (2023) Remaster [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178126.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177947.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177838.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177798.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177613.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177080.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - The Absolute Sound (TAS) (2012) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, P
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177050.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177006.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176509.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176404.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176155.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176145.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176141.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176139.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176126.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176103.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176068.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926E72602D3692B7D225344840EEEE72F9843ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595112   (176042) от 04.12.2022
+
+Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <AOR/Hard Rock; Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Линн Тёрнер (англ. Joe Lynn Turner; настоящее имя Джозеф Артур Марк Линквито, англ. Joseph Arthur Mark Linquito; род. 2 августа 1951, Хакенсак, Нью-Джерси) — американский певец, а также автор песен, известный по выступлениям в группах Fandango, Rainbow, Deep Purple, Yngwie Malmsteen’s Rising Force, HTP, Mother's Army.1985 - Rescue You
+1995 - Nothing's Changed
+1997 - Under Cover
+1998 - Hurry Up And WaitЖанр: AOR/Hard Rock; Heavy MetalПродолжительность: 09:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BC13BAD60394CF97C74DB61C0E45A6083DCB12
 ```
 
 https://mybot314.ru/tekegram_catalog/

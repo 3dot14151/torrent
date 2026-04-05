@@ -7,7 +7,7 @@ Bungou Stray Dogs 5 | Великий из бродячих псов 5 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062669.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?): Next
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062508.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [ТВ-1] [2024, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062417.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Bungou Stray Dogs 4 | Великий из бродячих псов 4 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062313.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sekirei | Wagtail | Сэкирэй [2008, TV, 12 эп. + 1 OVA] BDRip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062312.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hibi wa Sugiredo Meshi Umashi | Food for the Soul | Дни проходят, а 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062058.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061755.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Steins;Gate | Врата Штейна [ТВ] [2011, TV, 24 эп.] BDRip 1080p 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061381.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060519.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты жив
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060518.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga | M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060093.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ ChaO | Чао [2025, Movie] WEBRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059343.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Chou Kaguya-hime! / Cosmic Princess Kaguya! / Суперпринцесса Ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058580.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058154.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Haikara-san ga Tooru | Smart-san | Современная девушка | Го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058005.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Shounan Bakusouzoku | Bomber Bikers of Shonan | Сёнанские байкер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057998.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Alma-chan wa Kazoku ni Naritai | Alma-chan Wants to Be a Family! | Альма х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057983.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Attack No.1 | Attack Number One | Mila Superstar | Лучшая подача [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057947.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Tensei Akujo no Kurorekishi | The Dark History of the Reincarnated Villainess | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055859.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Little Witch Academia | Академия ведьмочек (фильм перв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055200.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Momotarou: Umi no Shinpei | Momotaro Sacred Sailors | Momotaro's Divine Sea Warr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054050.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Kumo to Tulip | Spider and Tulip | Паук и тюльпан [1943, Movie] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053853.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Eiga Kobayashi-san Chi no Maidragon: Samishigariya no Ryuu | Miss Kobayashi's Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053387.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Undead Unluck: Winter Hen | Undead Unluck: Winter Arc | Нежить и Неуд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052533.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Tasokare Hotel | Отель Тасокарэ [2025, TV, 1 из 12] WEB-DL 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051310.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Nukitashi the Animation - Special | Нукитаси - Спэшл [2025, SP, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051052.jpg" />
 </div>
 
 

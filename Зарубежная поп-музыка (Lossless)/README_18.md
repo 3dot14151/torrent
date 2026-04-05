@@ -6,7 +6,7 @@ Billie Eilish - Dont Smile At Me (2018) EP, Japan Limited Edition [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880050.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - BBC Radio 1's Live Lounge (2013) Deluxe Version [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879623.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Yazz - Wanted (1988) [FLAC|Lossless|image + .cue] <Dance, Funk, Acid House>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879285.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bomb The Bass - Into The Dragon (1988) [APE|Lossless|image + .cue] <Dance, Acid 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879087.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Freiheit - Fantasy (1988) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877569.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Fun Fun - Greatest Fun - The Best Of (1994) [FLAC|Lossless|image + .cue] <Italo-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877323.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Aly & AJ - A Touch of the Beat Gets You Up on Your Feet Gets You Out and Then In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875964.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Two Of Us - Twice As Nice (1985) 1986, CBS/Sony (Japan) [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875729.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ EL Кравчук - На облаках (2012) [FLAC|Lossless|tracks + .cue]<Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875089.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Duran Duran - Notorious (1986) Unofficial Release [APE|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875048.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - BRAVO Hits 96 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874815.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Francisca Valenzuela - Tajo Abierto (2014) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874724.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dino Sauro-Rex - Walk The Dino Dance (1993) [FLAC|Lossless|image + .cue] <Pop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874723.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hound Dog & The Megamixers - The Greatest Ever Junior Party Megamix (1990) [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874717.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874650.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874581.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873894.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_873640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_873640.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873556.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Supermax - 25 Years Of Magic Dance Music 1977-2002 (2002) Limited Edition, 6CD B
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872877.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Radio 538: Hitzone 68 (2014) 2CD [FLAC|Lossless]<Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872671.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gwen Stefani - This Is What The Truth Feels Like (2016) International Deluxe Edi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871872.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Number 1's: The Ultimate Collection (2014) Box Set, 5CD [FLAC|Lossless|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871754.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Falco - Falco 60 (2017) Limited Premium Edition [FLAC|Lossless|tracks + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871065.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ The Weeknd ‎ - After Hours (2020) [FLAC|Lossless|tracks + .cue] <R'n'B, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870597.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ She Is We (ex. He Is We) - War (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870319.jpg" />
 </div>
 
 

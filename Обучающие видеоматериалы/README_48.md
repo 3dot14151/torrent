@@ -1,3 +1,29 @@
+###  Публикация: 1466592   (1018340) от 30.04.2021
+
+Дегтярёв Александр | Основы программирования на JavaScript. VueJS (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение курса по основам JavaScript для абсолютных новичков, где основной уклон сделан на библиотеку "VueJS". Уроки имеют минимум теории, и каждый урок строится на задании, которое обучающийся должен выполнить сам, просто посмотрев на текущий код с использованием логического мышления.Жанр: Обучающее видеоПродолжительность: 02:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57C14160CB96623F8728FB1E0DC27625952DC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466553   (1018319) от 30.04.2021
 
 Skillbox, Илья Николаев  и др. | Веб-аналитик с нуля до Junior (2020) PCRec
@@ -6,7 +32,7 @@ Skillbox, Илья Николаев  и др. | Веб-аналитик с ну�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018319.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018318.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018178.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ Udemy, Tib3rius | Повышение привилегий Linux для OSCP / Li
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018024.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ Udemy, Emilio Aguero | Learn Active Directory & Group Policies - Win Server 2019
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018010.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ Udemy, Muslim Helalee | JavaScript Developer Bootcamp in 2021 - Beginner to Expe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017998.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ Udemy, David Bombal | Cisco CCNA 200-301 Exam: Complete Course with practical la
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017981.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Udemy, Yuko Sakai и др. | Algorithms + Data Structures + Coding Interviews wi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017866.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ ZTM, Andrei Neagoie и др. | Complete Vue Developer in 2021 (w/ Vuex, Composit
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017858.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Udemy, ZTM, Andrei Neagoie и др. | Complete Ethical Hacking Bootcamp 2021: Ze
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017834.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Creative Shrimp | Создание стилизованного 3D арта в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017823.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ ZTM, Andrei Neagoie и др. | Complete Node.js Developer in 2021: Zero to Maste
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017820.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ CG Fast Track | Создание автомобиля в Blender 2.90 части
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017812.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ Udemy, Astrit Krasniqi | Netacad CCNAv7 (semester 1-2 of 3) (2020-2021) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017698.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ HolyJS 2021 Piter | Конференция для JavaScript-разработч�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017667.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ Udemy, Byte Garage | The Complete C Programming Bootcamp (2021) PCRec [En / En S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017633.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ Geeks For Geeks | C++ STL - Basic to Advanced (2020) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017510.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017475.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ Nizamov School, Илья Низамов | NuxtJS + 1C. Личный кабине
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017168.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Geeks For Geeks | Fundamentals of Java and Java Collections (2021) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017021.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Geeks For Geeks | Java App Development: Summer Training - Live (2020) WEB-DL [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016867.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ YanSculpts | Анатомия и форма в Blender 2.91 - Курс по ск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016820.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Alejandro Perez | Sand Tutorial Grains Solver (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016751.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Simon Verstraete | City Building With OSM Data (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016750.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016744.jpg" />
 </div>
 
 
@@ -671,32 +697,6 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02C7CE3F7C83F74CF2A3D9F8FD2A5362043CB64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469073   (1016735) от 10.05.2021
-
-Tyler Bay | Pyro I - Smoke & Steam (2019) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс поможет вам начать пользоваться Pyro в Houdini. Мы начнем с обзора общего принципа работы Pyro, а затем уже перейдем к конкретному примеру, а именно создание пара от кофе в чашке. Мы проанализируем референс, поговорим о том как лучше всего сделать такой эффект, поработаем с полями через микросолверы и потом все отрендерим. К концу курса у вас будет много (   Читать дальше...   )Производство: CG ForgeЖанр: Создание видеоПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECACDD978186250CD417DFC3D9E0817A8B1556ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

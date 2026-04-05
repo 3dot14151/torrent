@@ -1,3 +1,29 @@
+###  Публикация: 1692062   (123016) от 14.01.2024
+
+Онлайн школа RealManual, Василий Егоров | Kubernetes RKE2 (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123016.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы научитесь разворачивать k8s и его компоненты, собирать шаблоны Proxmox, пользоваться Cloud-init, балансировать трафик с помощью Traefik, хранить данные в NFS и различать RKE2 и RKE. Обучение будет проходить на реальных кейсах, без лишней теории, и вы узнаете множество других интересных твиков.Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691859   (123015) от 14.01.2024
 
 Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
@@ -6,7 +32,7 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123015.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123014.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Stepik, Глеб Учитель | Проектирование архитект�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123010.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123005.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Podlodka Crew | Podlodka QA Crew. Сезон 7. Оптимизируем про�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122992.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Softwaretesting, Арсений Батыров, Виталий Котов | Ав
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122984.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ tishbyme, Кристина Дмитриева | Mастер класс по ди
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122868.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122827.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122692.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ Liveclasses, Антон Мартынов | Adobe Firefly в Photoshop: быст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122670.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122669.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122597.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122582.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122431.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122399.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122299.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122296.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Net Ninja | TypeScript Masterclass (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122257.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122201.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ zbrush3d.com, Александр Галевский | Zbrush Проекты с �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122129.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122112.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ CG Boost, Louis du Mont | Robotic Planet (2023) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122111.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122083.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122082.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122064.jpg" />
 </div>
 
 
@@ -681,35 +707,6 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:196933611D20146BDC9109641C55A5EBF42AD440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693133   (122059) от 19.01.2024
-
-Color school, Анна Давидян | Фотография в интерьере (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - козырь, палочка-выручалочка и секретное оружие дизайнера и декоратора. Готовы поспорить, что вы и на 10 процентов не используете все её возможности! Всё узнаете на новом вебинаре "Фотография в интерьере" Анны Давидян - 26 сентября в 19.00 по Московскому времени.
-
-О чём вы узнаете на вебинаре?
-- Почему фотография? Её технические и стилистические (   Читать дальше...   )Производство: Color schoolЖанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 02:32:27Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA239D5DF9819DD904DBC681444BCBE8A28B527
 ```
 
 https://mybot314.ru/tekegram_catalog/

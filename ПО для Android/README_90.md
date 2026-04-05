@@ -1,3 +1,108 @@
+###  Публикация: 1593572   (180405) от 27.11.2022
+
+Sleep Timer v22.11 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма удобное и оригинальное решение для любителей засыпать под музыку. Прекрасно поддерживает возможность выключения музыки по таймеру.
+Таймер отключения позволяет засыпать под любимую музыку. Вы просто начать свою музыку, а затем установить таймер обратного отсчета. В конце обратного отсчета, Таймер сна тихо угасает свою музыку и останавливает его. Что позволяет (   Читать дальше...   )Тип издания: Paid / ModРелиз состоялся: 26.11.2022Разработчик: CARECON GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E4AB06DAEBC659F58FFED94FA532C1C276531C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593647   (180086) от 27.11.2022
+
+Microsoft Office 365 (Mobile) 16.0.15726.20196 Mod by StephenP [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office объединяет Word, Excel и PowerPoint в одном приложении. Воспользуйтесь всеми преимуществами легкой работы с инструментами Майкрософт на ходу в Приложении Office, простом решении для продуктивности. Сканируйте PDF-файлы, создавайте таблицы и документы в любое время и в любом месте с помощью интегрированных функций Office на мобильном устройстве. Завершите (   Читать дальше...   )Тип издания: ProРелиз состоялся: 24.11.2022Разработчик: Microsoft CorporationПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3EA0D76F7D5CC0579C975F1E1DC688ABD02137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666277   (179866) от 03.10.2023
+
+Яндекс Карты и Навигатор v16.5.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яндекс Карты — приложение к городу. К тому, который прямо сейчас вокруг вас. Тут есть много всего, чтобы город был комфортным и понятным. Например, можно в любое время узнать, когда нужный транспорт будет на остановке. Ведь автобусы, троллейбусы и трамваи едут прямо по карте. Есть поиск мест по адресу, названию или просто по категории. Есть тот самый Навигатор с (   Читать дальше...   )Тип издания: ModРелиз состоялся: 26.09.2023Разработчик: Intertech Services AGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34EA5D2A6610D6C0947E2875BBE048DED6AFDBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593870   (179683) от 28.11.2022
+
+WeatherPro: прогноз погоды 5.6.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179683.jpg" />
+</div>
+
+
+###  Подробнее
+
+WeatherPro — это надежные прогнозы погоды по всему миру и HD-карты с анимированным радаром на вашем Android-устройстве. Это решение идеально подходит для бега, рыбалки, кемпинга или езды на велосипеде или мотоцикле, WeatherPro создан для того, чтобы расширить возможности для активного отдыха.Тип издания: PremiumРелиз состоялся: 10.11.2022Разработчик: DTN Germany GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD95B7E06864C04F72BE43DF8CFABFABC1E43808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428674   (179030) от 03.12.2020
 
 Винтовки v8.5.4 [Ru/Multi] (обновляемая)
@@ -6,7 +111,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179030.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178956.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Calm - Sleep, Meditate, Relax 6.12.2 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178624.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Monefy Pro - Трекер бюджета 1.15.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178535.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Olauncher 3.5.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178492.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178432.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178405.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178398.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ Carly — OBD2 car scanner 48.47 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178343.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Poweramp Music Player 3 build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178324.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Poweramp v3-build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178319.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177953.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ ActionDirector - Видеоредактор v7.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177520.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ Photo Lab PRO v3.12.72 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177378.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177283.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177211.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177034.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ Relax Rain: sleeping sounds v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176683.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ ColorNote - Блокнот заметки v4.4.6 Free + Mod by СМАРТОС [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176582.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ RAR for Android v6.23 build 119 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176574.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ Lock Me Out v7.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176005.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175999.jpg" />
 </div>
 
 
@@ -569,110 +674,6 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:280A080A13B9F5D1AACE5141609EC42198DD2D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665219   (175052) от 10.10.2023
-
-Simple Gallery v6.28.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое приложение для просмотра изображений и видеозаписей. Отображаемые файлы могут быть отсортированы как по возрастанию, так и по убыванию даты, размера или имени. Фотографии можно масштабировать. В зависимости от размера экрана, медиафайлы располагаются в несколько столбцов, можно изменять число столбцов щипком двумя пальцами. Можно переименовывать, удалять, (   Читать дальше...   )Тип издания: Pro PaidРелиз состоялся: 09.10.2023Разработчик: Simple Mobile ToolsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8182F6DFDBEDC55CB649A2C17D2DE65EDF2759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668299   (174582) от 11.10.2023
-
-PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 24.09.2023Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1BAD2F69DF33E7DC30A1F7696C0C6BB99B330C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668305   (174482) от 11.10.2023
-
-ВК Видео Мастер v5.3 Mod by Alex.Strannik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое и удобное приложение для скачивания видео и фотографий с ВКонтакте с поддержкой загрузки мультимедиа высокого качества. В наличии встроенный браузер для удобства поиска материалов для скачивания. В наличии возможность загрузки видео посредством отправки ссылки в сие приложение.Тип издания: ProРелиз состоялся: 17/08/2023Разработчик: MobiAV.comПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D53F55273BEBF4DFFC7D16ED6352BD0EDB2B6A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668548   (173693) от 12.10.2023
-
-Билеты ПДД 2023 и экзамен ПДД v9.14 Mod by Alex.Strannik [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173693.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей ПДД24 при сотрудничестве с ГИБДД и автошколами России. Всегда самые последние изменения в билетах и правилах дорожного движения. Перед тем как купить автомобиль. Билеты ПДД 2023 от ГИБДД ABM/CD. С новыми правила сдачи ПДД экзамена в 2023 году(+5 доп. вопросов за ошибку). Экзаменационные билеты ПДД 2023/2024 России категории АВM/CD(СД) и подкатегорий (   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 28.09.2023Разработчик: ПДД РоссииПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8537BD1AE2E07A442CECC5BC09834859D30F0AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

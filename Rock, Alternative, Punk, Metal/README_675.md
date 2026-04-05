@@ -1,3 +1,32 @@
+###  Публикация: 1326985   (381089) от 22.09.2019
+
+Apocalypse Orchestra - The End Is Nigh (2017) [FLAC|Lossless|image + .cue] <Doom Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Garden Of Earthly Delights (8:40)
+02. Pyre (6:33)
+03. Flagellants' Song (8:23)
+04. Exhale (7:34)(   Читать дальше...   )Жанр: Doom Metal, Folk MetalПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A35C0E6CC09311571FDAE6E62316DE1C8F6F9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326847   (381086) от 22.09.2019
 
 IQ - The Road Of Bones (2014) 2CD, Special Japanese Edition [FLAC|Lossless|image + .cue] <Neo-progressive Rock>
@@ -6,7 +35,7 @@ IQ - The Road Of Bones (2014) 2CD, Special Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381086.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Metronomy - Metronomy Forever (2019) [FLAC|Lossless|tracks + .cue] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381084.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sum 41 ‎ - Order In Decline (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381056.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ INXS - The Remixes (2004) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, N
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380923.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Rings - The Rings (серия "Другие восьмидесятые") (19
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380921.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Transatlantic - 4 Albums, 1 Compilation, 5 Lives, 4 Demos (2000-2014) 33 CD [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380912.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Status Quo - Backbone (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Class
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380909.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Linkin Park - Hybrid Theory (2000) 20th Anniversary Edition, SUPER DELUXE, 2020,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380899.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Linkin Park - Hybrid Theory (2000) 20th Anniversary Edition, 2020, Warner Record
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380891.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ensemble of Christ the Saviour and Crude Mother Earth - Third World War: Police 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380888.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Peter Gabriel - Greatest Hits (2008) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380845.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Paul McCartney - Amoeba Gig (2019) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380776.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Linkin Park - Hybrid Theory (20th Anniversary Edition) (2020) 5CD, Box Set [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380757.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Devin Townsend - Unplugged (2011) EP [FLAC|Lossless|tracks + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380747.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Sirenia - Nine Destinies and a Downfall (2007) [FLAC|Lossless|tracks + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380736.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Devin Townsend - Iceland (2016) EP [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380730.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Old Man’s Child - 8 альбомов (1994 - 2009) Discography [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380596.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Iggy Pop - Nude & Rude: The Best of Iggy Pop (1996) [MP3|320 кб/с]<Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380569.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ The 69 Eyes - West End (2019) [FLAC|Lossless|image + .cue] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380329.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Rod Stewart - Another Country (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Hard Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379586.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Oda - Oda (1971) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379577.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Kreator - Coma Of Souls (1990) 2CD, Remastered, 2018, Noise [MP3|320 Kbps] <Thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379520.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Before I Die - Rasgando la Superficie (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379507.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Galleiria - Betrayal (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379506.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Garden Of Shadows - Oracle Moon (2000) [FLAC|Lossless|image + .cue] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379505.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Garden Of Shadows - Oracle Moon (2000) [FLAC|Lossless|image + .cue] <Atmospheric
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C9C117AFB55E17DB25E39646E98720B7994ED08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575085   (379504) от 08.09.2022
-
-Garden Of Shadows - Heart Of The Corona (1997) (EP) Reissue, 1998, X-Rated Records [FLAC|Lossless|tracks] <Atmospheric, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar Pulse (intro) (00:53)
-02. Heart of the Corona (05:51)
-03. Lovely Cold (07:32)
-04. Company in Solitude (07:56)(   Читать дальше...   )Жанр: Atmospheric, Melodic Death MetalПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746F82306B0C97AA2BF1D9B197C3CFFF2AEBD069
 ```
 
 https://mybot314.ru/tekegram_catalog/

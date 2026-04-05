@@ -1,3 +1,38 @@
+###  Публикация: 480256   (99031) от 08.04.2012
+
+Tyrant Of Death - Re Connect (2012) [MP3|320 кб/с]<Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Enigma Equation (1:11)
+02 - Transmogrification (3:07)
+03 - R3 C0NN3C7 (4:22)
+04 - LicK The FrEqUeNcY))) (6:00)
+05 - Poisoned Wine--____ (4:47)
+06 - Fibers Of Destruction (4:38)
+07 - Because Death Is Not Ready Yet (4:52)
+08 - Materialised Ignorance (3:51)
+09 - Narrowlength Reality (4:41)
+10 - Hell Is Here (Ektomorf Cover) (3:21)(   Читать дальше...   )2012Жанр: Industrial / Math Metal / DjentПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AFDA66A43A3654F579E8F1BE72D1BA31FDC5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480229   (99029) от 08.04.2012
 
 Job For A Cowboy - Demonocracy (2012) [MP3|320 кб/с]<Death Metal>
@@ -6,7 +41,7 @@ Job For A Cowboy - Demonocracy (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99029.jpg" />
 </div>
 
 
@@ -40,7 +75,7 @@ Ten Years After - Ten Years After (1967) [APE|Lossless]<Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99018.jpg" />
 </div>
 
 
@@ -74,7 +109,7 @@ Dark Moor - Best Ballads (2012) [MP3|320 кб/с]<Symphonic Power Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98961.jpg" />
 </div>
 
 
@@ -109,7 +144,7 @@ Ministry - Relapse (2012) [FLAC|Lossless]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98885.jpg" />
 </div>
 
 
@@ -144,7 +179,7 @@ Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98867.jpg" />
 </div>
 
 
@@ -179,7 +214,7 @@ Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98842.jpg" />
 </div>
 
 
@@ -214,7 +249,7 @@ Nothgard - Warhorns Of Midgard (2011) [FLAC|Lossless]<Viking Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98793.jpg" />
 </div>
 
 
@@ -249,7 +284,7 @@ Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98771.jpg" />
 </div>
 
 
@@ -276,7 +311,7 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98700.jpg" />
 </div>
 
 
@@ -304,7 +339,7 @@ Dimension Act - Manifestation Of Progress (2012) [MP3|320 кб/с]<Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98600.jpg" />
 </div>
 
 
@@ -338,7 +373,7 @@ Down Below - Zeichen (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98598.jpg" />
 </div>
 
 
@@ -373,7 +408,7 @@ Solitude - Tied To The Anchor (2012) [MP3|256 кб/с]<Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98596.jpg" />
 </div>
 
 
@@ -408,7 +443,7 @@ Hopelezz - Black Souls Arrive (2012) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98584.jpg" />
 </div>
 
 
@@ -443,7 +478,7 @@ Warhorse - Live At Woods (2025) 2xCD, Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98563.jpg" />
 </div>
 
 
@@ -475,7 +510,7 @@ New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98482.jpg" />
 </div>
 
 
@@ -510,7 +545,7 @@ Begging For Incest - Orgasmic Selfmutilation (2012) [MP3|320 кб/с]<Brutal Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98466.jpg" />
 </div>
 
 
@@ -543,7 +578,7 @@ Bejelit - Emerge (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98382.jpg" />
 </div>
 
 
@@ -578,7 +613,7 @@ Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98331.jpg" />
 </div>
 
 
@@ -612,7 +647,7 @@ The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World J
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98288.jpg" />
 </div>
 
 
@@ -647,7 +682,7 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98222.jpg" />
 </div>
 
 
@@ -682,7 +717,7 @@ Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_98151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98151.jpg" />
 </div>
 
 
@@ -717,7 +752,7 @@ Rizon - Masquerade (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_97963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97963.jpg" />
 </div>
 
 
@@ -752,7 +787,7 @@ Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_97911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97911.jpg" />
 </div>
 
 
@@ -782,7 +817,7 @@ The Real McKenzies - Westwinds (2012) [MP3|320 кб/с]<Folk-Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97893.jpg" />
 </div>
 
 
@@ -817,7 +852,7 @@ Nightside Glance - 2 альбома (2009 - 2011) [FLAC|Lossless]<Sympho Black M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_97877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97877.jpg" />
 </div>
 
 
@@ -829,41 +864,6 @@ Nightside Glance — белорусская sympho/modern/black metal групп
 04. Edge of Time (live) 07:35
 05. In Raven Claws (live) 06:18
 06. Masquerade of Piety (Vicious Crusade cover) 06:45Жанр: Sympho Black MetalПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474264   (97789) от 27.03.2012
-
-Redmist Destruction - Nobility In Death (2012) [FLAC|Lossless]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_97789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternity Deprived (4:37)
-02. The Coroner (3:00)
-03. Only Human (2:41)
-04. Strive To Belong (2:18)
-05. Terrorist? (2:56)
-06. Hell Capitan (2:59)
-07. The Noble Dead (2:09)
-08. Gefangnisstadt (5:01)
-09. He Who Suffers (2:41)
-10. Herbert West - Reanimator (3:03)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:32:41
 
 ## Скачать торент
 ```bash

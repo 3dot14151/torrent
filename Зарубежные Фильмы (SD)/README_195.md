@@ -1,55 +1,3 @@
-###  Публикация: 1386394   (795085) от 28.05.2020
-
-Настоящие боссы / Гламурные боссы / Like a Boss (2020) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи лучшими подругами ещё с колледжа, Миа и Мел управляют небольшой косметической компанией, которую создали с нуля. Девушки всё делают вместе и даже живут в одном доме. Их бизнес находится на грани разорения, когда подруги получают предложение, от которого невозможно отказаться — титан отрасли Клэр Луна предлагает оплатить их долги в обмен на долю в компании. (   Читать дальше...   )Производство: США / Artists First, Paramount PicturesЖанр: КомедияРежиссер: Мигель АртетаАктеры: Роуз Бирн, Тиффани Хэддиш, Сальма Хайек, Билли Портер, Дженнифер Кулидж, Эри Грейнор, Каран Сони, Райан Хансен, Джессика Ст. Клер, Джейкоб ЛатиморПеревод: Дублированный (iTunes)Субтитры: Русские, английские (отдельно)Продолжительность: 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AB2B5F57A51303132E469640B5D96F0BD9F678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507580   (794846) от 12.11.2021
-
-Песня соловьев / Воробьиная песня / Avaze gonjeshk-ha / The Song of Sparrows (2008) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карим работает на страусиной ферме близ Тегерана. Он ведёт довольно простую жизнь со своей семьёй в небольшом доме, пока однажды один из страусов не убегает. Карима обвиняют в потере и увольняют с фермы. Вскоре после этого он едет в город, чтобы починить слуховой аппарат своей старшей дочери, где его по ошибке принимают за таксиста. Так начинается его новая профессия: (   Читать дальше...   )Производство: Иран / Majid Majidi Film Production (I) (II)Жанр: Драма, семейный, неореализмРежиссер: Маджид МаджидиАктеры: Мухаммад Амир Наджи, Мэриам Акбари, Камран Деган, Hossein Aghazi, Schabnam Akhlaghi, Нешат Назари, Hassan Rezaee, Ponya SalehiПеревод: Одноголосый любительский (viktor_2838)Субтитры: русские, английскиеПродолжительность: 01:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08DFCBE25574F6F96B1E3B7C4BEB5505FC139E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200603   (794840) от 22.01.2018
 
 Мун из Алабамы / Alabama Moon (2009) DVDRip [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794840.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794820.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794766.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794707.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794704.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794703.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794668.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794623.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794618.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794600.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794593.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794585.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794544.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794517.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794503.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794416.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794380.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794379.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794372.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794371.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794368.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794356.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794322.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794319.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB072189B0650E38402425B04323FDCE5AAD061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122339   (794314) от 05.04.2017
+
+Новая попытка Кейт МакКолл / The Trials of Cate McCall (2013) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший опытный адвокат должна вновь вернуться к старой работе и доказать невиновность женщины, обвиненной в убийстве, чтобы вернуть опекунство над дочерью и свою работу.Производство: СШАЖанр: ДрамаРежиссер: Карен МонкриффАктеры: Кейт Бекинсейл, Дэвид Лайонс, Клэнси Браун, Марк Пеллегрино, Тэй Диггз, Ник Нолти, Джеймс Кромуэлл, Дейл Дикки, Исайя Вашингтон, Брендан Секстон III ...Перевод: Профессиональный двуголосыйСубтитры: Русские, английскиеПродолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F8963BC21976D3BD91D1A3EB6C834C1D150947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122546   (794313) от 05.04.2017
+
+Последняя война / To End All Wars (2001) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Второй мировой войны шотландский Аргайлский полк почти в полном составе, включая подполковника Маклина, майора Кэмпбелла, капитана Гордона и прикомандированного лейтенанта американской армии Риардона, оказался в японском плену и был отправлен в концлагерь, расположенный посреди непроходимых джунглей.
+Японцы, считающие военнопленных недостойными жизни трусами, (   Читать дальше...   )Производство: СШАЖанр: Военный, драма, боевик, экранизацияРежиссер: Дэвид Л. КаннингэмАктеры: Роберт Карлайл, Кифер Сазерленд, Киран МакМенамин, Джеймс Космо, Масаюки Йуи, Джон Грегг, Шу Накаджима, Грег Эллис, Пип Торренс, Брендан Коуэлл ...Перевод: Профессиональный многоголосыйСубтитры: РусскиеПродолжительность: 01:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83C3C6AA906A2BDE8883212355D88693FD393AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

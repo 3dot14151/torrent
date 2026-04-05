@@ -1,3 +1,159 @@
+###  Публикация: 1440011   (1022831) от 03.04.2021
+
+Маг-целитель: Новый старт | Kaifuku Jutsushi no Yarinaoshi | Redo of Healer [TV-1] [2021, TV, 12 из 12] [HEVC] HDTV 1080p rus
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022831.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Фэнтези о мести» расскажет историю Кэяруги (Кэяру) — мага-целителя, которого тупо используют его «друзья»-авантюристы для достижения своих целей. Ведь целители не могут сражаться. Однако Кэяруги удаётся преодолеть пределы возможностей, доступных обычному целителю, но уже поздно, его лишили всего. Поняв, что целитель на самом деле сильнейший класс, Кэяруги применяет (   Читать дальше...   )Производство: Япония, студия TNKЖанр: приключения, этти, фэнтезиРежиссер: Асаока ТакуяЯзык озвучки: Русский закадровый (AniDub)Субтитры: Русские надписи, Русский, EnglishПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA7F01ED99DBCA9DF716305FB1591159A70B39B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025428   (1022830) от 03.04.2021
+
+Grim Dawn (2016) [Ru/Multi] (1.1.9.1/dlc) Repack Other s [Definitive Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grim Dawn — духовный наследник Titan Quest, который создается усилиями молодой студии Crate Entertainment основанной выходцами из Iron Lore Entertainment. Игра представляет из себя экшен/RPG выполненной в фэнтезийной стилистике. Действие сюжета Grim Dawn разворачивается в империи Каирн, ставшей полем битвы двух потусторонних сил. Одна собирается использовать людей (   Читать дальше...   )Тип издания: RepackРазработчик: Crate EntertainmentЖанр: RPG, Rogue, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CE7BFDDE7C9914333289FD66160CF70EFB97AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459270   (1022829) от 03.04.2021
+
+Конёк-Горбунок / Upon the Magic Roads (2021) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван - не царевич, не богатырь, не красавец, а старшие братья и вовсе его дураком считают. Но всё меняется, когда у Ивана появляется друг и верный помощник - Конёк-Горбунок. Пусть он ростом невелик, зато умный и смелый. С таким другом никакой враг не страшен. Ну, почти никакой. С таким помощником и ничего невозможного нет. Ну, почти, нет. Ивану с Коньком предстоит (   Читать дальше...   )Производство: Кинокомпания СТВЖанр: приключения, фэнтези, комедияРежиссер: Олег ПогодинАктеры: Антон Шагин, Павел Деревянко, Михаил Ефремов, Паулина Андреева, Ян Цапник, Олег Тактаров, Владимир Дикун, Виталий Копнин, Екатерина Байгозина, Алина НедобиткоСубтитры: ОтсутствуютПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC5E48EA74BDA4A76AC0B165C10D9ABE47E54E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460066   (1022674) от 04.04.2021
+
+Предустановленные российские приложения заподозрили в сливе данных за рубеж
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все российские приложения, по закону обязательные с 1 апреля к предустановке на смартфоны и планшеты, могут передавать данные пользователей за рубеж. К такому выводу пришли в АНО «Информационная культура», пишет «Коммерсантъ».Эксперты выяснили, что все обязательные коммерческие приложения содержат скрытые программы, которые собирают сведения о пользователях. Эта (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459955   (1022654) от 04.04.2021
+
+Годзилла против Конга / Godzilla vs. Kong (2021) WEBRip [H.264/1080p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конг и группа ученых отправляются в опасное путешествие в поисках родного дома гиганта. Среди них девочка Джия, единственная, кто умеет общаться с Конгом. Неожиданно они сталкиваются с разъяренным Годзиллой, разрушающим все на своем пути. Битва двух титанов, спровоцированная неведомыми силами — лишь малая часть тайны, спрятанной в недрах Земли.Производство: США, Австралия / Legendary Entertainment, Warner Bros.Жанр: Боевик, фантастикаРежиссер: Адам ВингардАктеры: Александр Скарсгард, Милли Бобби Браун, Ребекка Холл, Брайан Тайри Генри, Сюн Огури, Эйса Гонсалес, Джулиан Деннисон, Лэнс Реддик, Кайл Чандлер, Демиан БиширПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Русские (Forced, Full), Украинскиe (Forced), английскиеПродолжительность: 01:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B6ADFDF391413BC80473F3BB38B3912FBB3397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 419677   (1022653) от 04.04.2021
+
+Ералаш (1974-2010) DVD9, DVD5 (18 дисков. Выпуски 1-233 + Бонус)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022653.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мальчишки и девчонки, а также их родители! Веселые истории увидеть не хотите ли?" – эти слова понятны нескольким поколениям людей без перевода. Команда детского юмористического журнала "Ералаш" вот уже свыше четверти века добавляет хорошего настроения не только своим маленьким зрителям и их родителям, но и бабушкам, дедушкам, тётушкам и дядюшкам. (   Читать дальше...   )Жанр: ДетскийРежиссер: Борис ГрачевскийАктеры: Мария Виноградова, Георгий Вицин, Владислав Галкин, Максим Галкин, Юрий Гальцев, Юрий Никулин, Клара Новикова, Александр Носик, Владимир Носик, Павел Бессонов, Александр Головин, Наташа Ионова , Леонид Чуховский, Александр Шабашов, Ольга Шалыгина, Николай Фоменко, Анна Фроловцева, Геннадий Хазанов, Дмитрий Харатьян, Светлана Харитонова и др.Субтитры: ОтсутствуютПродолжительность: ~ 35:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD79DE52B9ECDC2F2CEE7A97B1D7789B5082B7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 36642   (1022649) от 04.04.2021
 
 Ганс Христиан Андерсен. Сказки / The Fairytaler: The Modern Classics of Hans Christian Andersen / H.C. Andersens eventyrlige verden (2003) 8xDVD-5
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022649.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022500.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ Help4d, Андрей Доронин | Базовый курс по Cinema 4D: В
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022489.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022338.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022332.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ Mirror's Edge (2009) [Ru/En] (1.01 JPfix/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022317.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022316.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022315.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022208.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022160.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022149.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022138.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022033.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ SpaceX запустила партию спутников Starlink  и снов�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021991.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021988.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>98
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021979.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.7.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021975.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ DiRT Rally 2.0 (2019) [Multi] (1.18.0/dlc) SteamRip =nemos=  [Super Deluxe Editi
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021826.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ Borderlands 3 (2019) [Ru/Multi] (1.0) License CODEX [Director's Cut]
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021825.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ The Sims 3 (2009) [Ru/Multi] (1.67.2.024002/dlc+Store) Repack S.Balykov [Collect
 >>35
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021824.jpg" />
 </div>
 
 
@@ -515,162 +671,6 @@ The Sims 3 (2009) [Ru/Multi] (1.67.2.024002/dlc+Store) Repack S.Balykov [Collect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A57CB066B0DE3A610A3BFC2D0F0E773AD9D77811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461068   (1021689) от 10.04.2021
-
-Несколько сортов яблок, которые вы вряд ли пробовали
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яблоко яваЭкзотический сорт диких азиатских яблок, которые совсем не хранятся. По вкусу недозрелые плоды ближе к овощу, чем к фрукту. Едят их с солью и вообще используют как замену огурцу – добавляют в салаты, соусы, тушат с другими овощами. А вот вызревшие, красные, они становятся сладкими и похожими на фрукт, потому их едят в качестве десертов, варят варенья, компоты (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461533   (1021686) от 10.04.2021
-
-Поехали! «Ю.А. Гагарин» стартовал к МКС
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя 60 лет после Юрия Алексеевича Гагарина знаменитое «Поехали!» произнес командир транспортного пилотируемого корабля «Ю.А. Гагарин» (Союз МС-18), космонавт Роскосмоса Олег Новицкий, когда ракета оторвалась от стартового стола. В пятницу, 9 апреля 2021 года, в 10:42:41 по московскому времени со стартовой площадки № 31 космодрома Байконур выполнен пуск ракеты-носителя (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461555   (1021647) от 10.04.2021
-
-Родные (2021) WEBRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды утром отец семейства решает исполнить мечту всей жизни: отправиться с родными на Грушинский фестиваль и выступить там со своей песней. Семья вынуждена смириться с желанием отца-самодура и пуститься в автопутешествие через всю Россию. В пути их ждут приключения, различные испытания, проверка отношений на прочность и важная встреча, которую отец ждал двадцать (   Читать дальше...   )Производство: Россия, Hype FilmЖанр: Комедия, ДрамаРежиссер: Илья АксеновАктеры: Сергей Бурунов, Ирина Пегова, Семен Трескунов, Монеточка, Катерина Беккер, Анна Уколова, Никита Павленко, Сергей Шакуров, Павел Ворожцов, Дмитрий РусаковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A7212C508904796B39ED8059B9441F8F4608D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276033   (1021644) от 10.04.2021
-
-Оранжевая корова (2018-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1-2, серии 1-52 из 52) [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые и поучительные истории из жизни одной дружной семьи коров, где подрастают маленькие брат и сестра Бо и Зо. Каждый день малыши узнают что-нибудь новое и приучаются к добрым делам. Красочный музыкальный сериал для дошкольников «Оранжевая корова» рассказывает о ценности дружбы, семьи и чуткого отношения к окружающим людям. Брат и сестра Боря и Зоя, более известные (   Читать дальше...   )Производство: Россия / СоюзмультфильмЖанр: Развивающий мультсериал для детейРежиссер: Елена ЧерноваАктеры: Лариса Брохман, Владимир Антоник, Анна Мосолова, Алиса ЛандерПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:06:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828E0B5633FDC6BB9BF7026D3DA3B1948BDA9388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461671   (1021485) от 11.04.2021
-
-Neuralink представила обезьяну, играющую "силой мысли" в видеоигры
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская компания Neuralink, к созданию которой приложил руку миллиардер Илон Маск, показала как научила играть чипированную макаку в ментальный пинг-понг.Участником эксперимента стала 9-летняя обезьяна Пэйджер. Ей установили имплант Neuralink примерно за шесть недель до записи видеоролика. Сначала её научили играть в игры при помощи джойстика, за что наградили (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417623   (1021470) от 11.04.2021
-
-Amnesia: Rebirth (2020) [Ru/Multi] (1.31) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021470.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Amnesia: Rebirth от создателей культовой серии вас ждет новое погружение во тьму. Преодолевая отчаяние и безысходность, вам предстоит проверить на прочность человеческую способность выносить страдания. В Amnesia: Rebirth вы играете за Таси Трианон, которая приходит в себя в недрах алжирской пустыни. Прошло уже много дней. Где вы были? Что делали? Где все остальные? (   Читать дальше...   )Тип издания: RepackРазработчик: Frictional GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76D338355B3EB7EEC6AAE7C43484610D430C836
 ```
 
 https://mybot314.ru/tekegram_catalog/

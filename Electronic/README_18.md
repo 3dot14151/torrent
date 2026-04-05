@@ -1,3 +1,61 @@
+###  Публикация: 1439448   (1039948) от 13.01.2021
+
+VA - Best Of FSOE Clandestine (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Denton - The Trip (Extended Mix)
+02. Stoneface & Terminal - Berlin '96 (Take Me Back) (Club Mix)
+03. David Forbes & Paul Denton - Out Of Order (Extended Mix)
+04. Stoneface & Terminal - Sequence B (BTR Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED51D41A830E92D2CFD62DCF137D8B5993DBA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439568   (1039926) от 13.01.2021
+
+Shingo Nakamura - Silk Music Pres. Shingo Nakamura 02 (2017) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shingo Nakamura - Always (4:00)
+ 02. Shingo Nakamura - Tribute, Chapter II (5:58)
+ 03. LOOPer & Andy Wooding - All We Are (Shingo Nakamura Remix) (5:43)
+ 04. Shingo Nakamura - Sapporo (8:04)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC9E9F59F55564691FC574039A510EB6E6C8A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612136   (1039923) от 17.02.2023
 
 VA - Infrasonic Winter Selection (2023) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Infrasonic Winter Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039923.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Sound Of 2023 Mix 3: Tokyo (2023) [MP3|320 Kbps] <Trance, Progressive, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039917.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Global Trance Masters Vol. 6 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039916.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Genix Presents: 20 Years Of Anjunabeats (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039867.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Spa Lounge Relax Sensation (2021) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039865.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Swingers Club Party Music 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy l
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039864.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Movie Booth - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039846.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Skrillex - Quest For Fire (2023) [MP3|320 Kbps] <Dubstep, Trap, Dance, UK Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039806.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Skrillex - Quest For Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Trap, D
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039791.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Jean Michel Jarre - Welcome To The Other Side (2021) Concert From Virtual Notre-
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039745.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Sound of 2023 Mix 3: Tokyo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039652.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039609.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Orbital - Optical Delusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039577.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039564.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ V.A. - Cafe Del Mar Ibiza Chillout Mix I (DJ Mix) (2023) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039349.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Abora Progressive: Best Of 2019-2020 (Mixed by Tycoos) (2021) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039340.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039286.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Thomas Lemmer - Ambient Nights (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electron
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039280.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Ellie Lawson - Becoming (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039174.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039087.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Defected Presents House Masters - Mr. V (2022)[FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038867.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - The Sound of 2023 Mix 1: Hong Kong (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038862.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Uplifting Only Top 15: February 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038856.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038848.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B3F558C1339F12A6B77E740380A39F9FC62408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614301   (1038835) от 21.02.2023
-
-VA - Xolodno Compilation [22.12] (Mixed and Compiled by Alexey Viper) (2021) [MP3|320 Kbps] <Progressive House, Melodic Progressive, Dark Progressive>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Kalkbrenner - Graf Zahl |05:25|
-02. Westbam, Richard Butler - You Need The Drugs (& ME Remix) |07:14|
-03. Bell Towers - Want You (Need You) (Adam Port Remix) |07:13|
-04. Tunnelvisions - Acid Neverland |05:09|(   Читать дальше...   )Жанр: Progressive House, Melodic Progressive, Dark ProgressiveПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BD00E6056E3CFE3D67245DF2976AA79AB9F14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614136   (1038829) от 21.02.2023
-
-VA - Trance 2023, Vol. 2 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila & Emma Hewitt - You & I (Ciaran McAuley Remix) (4:33)
-02. BiXX & Katty Heath - Let The Love Shine Through (3:47)
-03. Myde & Ellie Lawson - Feeling It All (Drival Remix) (3:48)
-04. Sam Laxton - Memory (Original Mix) (3:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF4672AA326CA203D3010FF4F9800A510D533B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

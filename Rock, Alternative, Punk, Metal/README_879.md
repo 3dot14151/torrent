@@ -1,3 +1,32 @@
+###  Публикация: 1642009   (235168) от 25.06.2023
+
+Her own world - Tales From Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-Rock, Gothic, Industrial-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessie [00:03:45]
+02. Guarding Angel [00:03:32]
+03. My Darkling [00:03:25]
+04. Mistrust [00:04:12](   Читать дальше...   )Жанр: Synth-Rock, Gothic, Industrial-RockПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60842317C7E07D7A3363531D5113EC7D7DF92EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620067   (235167) от 19.03.2023
 
 Seelenkraft - Zeilen der Zeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial Metal, NDH, NRH>
@@ -6,7 +35,7 @@ Seelenkraft - Zeilen der Zeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235167.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Downfall Of Gaia - Silhouettes of Disgust (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235160.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Nekkar - Nekkar (2013) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235153.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Enslaved - Heimdal (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black, Viki
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235148.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Luis Maldonalle - Furia (2023) [FLAC|Lossless|WEB-DL|tracks] <Shred, Neoclassica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235136.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Walk With Titans - Olympian Dystopia (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235130.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Convoy - Some Gave All for Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235129.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Darknet - trashworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235121.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Underking - At Hell's Gate (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235114.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Aftermath - No Time To Waste (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235113.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Void Vator - Great Fear Rising (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235105.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Powerskull - Powerstone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235102.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Hibria - Me7amorphosis (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235091.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Negative Vortex - Tomb Absolute (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235088.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Wolves at the Gate - Eulogies (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <PostHardC
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235083.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ancient Mastery - The Chosen One (2021) EP [FLAC|Lossless|image + .cue] <Epic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235075.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Lords Of Altamont - To Hell With Tomorrow The Lords Are Now (2023) [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235073.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Seven Spires - Live at Progpower USA XXI (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235062.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Domkraft - 6 Albums (2016-2021) [MP3|320 Kbps] <Psychedelic Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235049.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Stargazer - Life Will Never Be the Same (2023) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235046.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Kickhunter - Now Or Never (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235043.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Alice Cooper - Three Temptations From Alice (2021) 2xCD [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235042.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Rapine - Cries for Reprise (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235041.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Memoriam - War Rages On - Artefacts (2023) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235022.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Welcome to Holyland - Ominous (2023) [MP3|320 Kbps] <Doom Sludge, Stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235018.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Welcome to Holyland - Ominous (2023) [MP3|320 Kbps] <Doom Sludge, Stoner>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8645F774BCBC4214308BDA1C7AE7B2A7A7945C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632889   (235017) от 12.05.2023
-
-The Dark Side Of The Moon - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legends Never Die
-02. The Gates Of Time
-03. Misty Mountains (ft. Tom S. Englund)
-04. Double Trouble/Lumos! (Hedwig's Theme) (ft. Rusanda Panfili)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00917DB139A09A7A5D3A48A8F29F6E3780C4613C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1451552   (1028185) от 03.03.2021
+
+Steve Lukather - I Found The Sun Again (2021) [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Along For The Ride
+02. Serpent Soul
+03. The Low Spark Of High Heeled Boys
+04. Journey Through(   Читать дальше...   )Жанр: Rock, Classic Rock, Blues RockПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68C63588E042C59ABC4BCD202B474E8AE339D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451812   (1028101) от 04.03.2021
+
+Arc Angel - Arc Angel (1983) Reissue 1990, Portrait [FLAC|Lossless|image + .cue] <AOR, Melodic Rock, Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars (05:04)
+02. Tragedy (03:34)
+03. Wanted: Dead or Alive (03:29)
+04. Used to Think I'd Never Fall in Love (03:52)(   Читать дальше...   )Жанр: AOR, Melodic Rock, ProgПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB75E386698FBE980C213E5948E6C2CE40C17643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451746   (1028095) от 04.03.2021
+
+Kerrs Pink - Presence of Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resurrection [00:09:13]
+02. Private Affairs [00:05:43]
+03. The Book of Dreams [00:09:28]
+04. Away from Shadows [00:07:53](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB5161012E1F6C70BCF98A02E1F304C776930BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451318   (1027946) от 05.03.2021
+
+Clout - Six Of The Best (1979) Reissue, 2006, 2000 FruitGum Corp [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jowatanite (4:04)
+02. Under Fire (3:29)
+03. Love Talk (5:37)
+04. Oh How I Long To Be With You Again (3:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA429DF2C6AF6FF245277C935F1D9996C47F69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452144   (1027778) от 06.03.2021
 
 Texel - Metropolitan (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock, Instrumental>
@@ -6,7 +122,7 @@ Texel - Metropolitan (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Sym
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027778.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Gino Vannelli - Crazy Life (1973) Limited Edition, Reissue, 2020, Japan Edition,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027760.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Wishbone Ash - Coat Of Arms (2020) [FLAC|Lossless|image + .cue] <Classic Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027743.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ David Coverdale - Whitesnake (1976) Reissue, Remastered, 2011, Victor Entertainm
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027741.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Rod Stewart - 9 Albums (1977 - 2013) 10 CD [FLAC|Lossless|tracks + .cue]<Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027664.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027561.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ East Temple Avenue - Both Sides Of Midnight (2020) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027416.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Arc - Maquette (1980) Reissue, Remastered, 2020, Paisley Press [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027415.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Kim Mitchell - Itch (1994) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027414.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Jive Bunny And The Mastermixers - Rock'n'Roll Great Hits (2021) [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027387.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Acoustic Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027368.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Rough Boys - Hard Rock Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027234.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Gordon Lightfoot - - Summer Side Of Life (1971) 1990, Reprise [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027057.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Discover Classic Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026936.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Gary Hughes - Waterside (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026784.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Issa - Queen Of Broken Hearts (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026760.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Medea - А Fаtе Sуmрhоnу (2020) А Rосk Ореrа bу Неnrу Mееuws 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026445.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Radio Sun - Beautiful Strange (2018) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026443.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Radio Sun - Outside Looking In (2016) Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026424.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Screaming Lord Sutch - Alive and Well (1980) [FLAC|Lossless|WEB-DL|tracks] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026245.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Bram Stoker & Pete Ballam - 5 albums, 6 CD (1972-2019) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026139.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Manchester Orchestra - 4 альбома (2005-2017) [FLAC|Lossless|tracks+.cue, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026117.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Manchester Orchestra - 4 альбома (2005-2017) [FLAC|Lossless|tracks+.cue, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9748AD9EF3C2A177A9BE803D9FEEA6EF2B159A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454856   (1026098) от 16.03.2021
-
-King Kong - King Kong (1981) LP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Blues Rock, Krautrock, New Wave, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flyin' Through The Motions (2:52)
-02. School Is Out (2:43)
-03. King Kong's Bodyguard (9:25)
-04. Let Met Be At Home (3:54)(   Читать дальше...   )Жанр: Electronic, Blues Rock, Krautrock, New Wave, DiscoПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6CD6D31D73EC9DCA68D729B442D33C8E61FB4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454918   (1026013) от 17.03.2021
-
-Ellesmere - Wyrd (2020) [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Challenge (7:26)
-02. The Eary Manor (6:24)
-03. Endeavour (8:24)
-04. Ajar (8:05)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D1F881FC8419BD5C9FD6C290EED00934A7F3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455355   (1025668) от 19.03.2021
-
-Blind Golem - A Dream of Fantasy (2021) [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil In A Dream
-02. Sunbreaker
-03. Screaming To The Stars
-04. Scarlet Eyes(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E479836E803D8EA2FCCE532B3002F009948425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455401   (1025643) от 19.03.2021
-
-Ken Hensley - My Book Of Answers (2021) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost (My Guardian)
-02. Right Here, Right Now
-03. Cold Sacrifice
-04. The Silent Scream(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086EFB67118EE326D426A5DE28364A09917CABB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

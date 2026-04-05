@@ -1,3 +1,107 @@
+###  Публикация: 1848866   (1053032) от 20.01.2026
+
+Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 из 12 эп.] BDRip 1080p 10-bit raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ничто не нарушало мирных будней Ёсикадзу Мияно: он учился, помогал с работой в ученическом комитете, украдкой от одноклассников наслаждался чтением манги, посвященной любви между мужчинами, временами беспокоился из-за того, что у него девичье лицо, — в общем вёл обычную жизнь обычного старшеклассника, пока судьба не свела его с учащимся на год старше Сюмэем Сасаки. (   Читать дальше...   )Производство: Studio DeenЖанр: сёнэн-aй, повседневнoсть, ромaнтикаРежиссер: Исихира СиндзиЯзык озвучки: Японский, Английский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B7FF514693DC86596763E9D0D2D3CBF5495FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848914   (1053007) от 19.01.2026
+
+Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Сасаки и Мияно: Выпускной [2023, Movie] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053007.jpg" />
+</div>
+
+
+###  Подробнее
+
+В преддверии вступительных экзаменов в университет и выпускного, старшекласснику Сюмэй Сасаки приходится серьёзнее относиться к своему будущему. Однако учёбе становится всё труднее; все его мысли заняты его парнем и младшим товарищем, Ёсикадзу Мияно. Они только недавно официально объявили о своих отношениях, и Сасаки не может не мечтать о том, чтобы обнять своего (   Читать дальше...   )Производство: Studio DeenЖанр: сёнэн-aй, повседневнoсть, ромaнтикаРежиссер: Исихира СиндзиЯзык озвучки: Японский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60F13C5821D784BC2261001B350A80514030A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848586   (1052970) от 17.01.2026
+
+Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потеряв Меч Света, Лина и Гаури теперь ищут замену великому оружию. Герои прибывают в королевство Рубингард, где встречают старых друзей Амелию и Зелгадиса. Друзья решили отпраздновать счастливое воссоединение в таверне, но тут появился инспектор королевства Рубингард, некий Вайзер. Он без объяснения причин задерживает Лину Инверс. А это уже не в какие ворота не (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ТакасиЯзык озвучки: Русский закадровый (Anything Group - Dajana & Lisek), (Get Smart Group - Persona99 & MaxDamage), (Amazing Dubbing - KUBISVAN & Alya)Субтитры: ASS (Русский, Rover)Продолжительность: ТВ, 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B5B9B06F672C8A279A6BE2D3831CC72CFE05CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848710   (1052909) от 18.01.2026
+
+Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano: A Tiny Episode from Before He Realized His Feelings | Сасаки и Мияно: Маленькая история, прежде чем я нашёл любовь [ ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ноябрь. В школьный совет за помощью обращается ученик, потерявший брелок от ключей. Осенённый внезапным озарением, Масато Хандзава предлагает организовать детективное агентство по поиску потерянных вещей, члены которого дружно отправляются на розыски!Производство: Studio DeenЖанр: сёнэн-aй, повседневнoсть, ромaнтикаРежиссер: Исихира СиндзиЯзык озвучки: Японский и РусскийПродолжительность: 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE82DBDE77E442AA1B83D331683FD8D9D2F61874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847892   (1052435) от 15.01.2026
 
 Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слушайтесь папу! [2012, TV, 12 эп. + спэшл] BDRip 1080p 10-bit raw+rus
@@ -6,7 +110,7 @@ Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слуш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052435.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052320.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052288.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052065.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051854.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ Outbreak Company | Операция - Вторжение | Мятежная ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051793.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051519.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050430.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Watashi wo (o) Tabetai, Hitodenashi | This Monster Wants to Eat Me | Монст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050132.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049697.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049324.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048344.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047837.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047835.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047827.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047641.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел д�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047280.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 из 12] WEBRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046294.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Пётр Гриль и время �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046291.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046177.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045613.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045453.jpg" />
 </div>
 
 
@@ -573,115 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D58E2037D6ED3D6F6DA7165ECF5F62F1ED66E17E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606456   (1044399) от 22.01.2023
-
-Date a Bullet | Рандеву с пулей [2020, Movie, 2 из 2] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куруми Токисаки, безумная владелица ангела времени, попала в соседний мир, где ей предстоит принять участие в королевской битве чтобы выжить и получить главную награду турнира — исполнение одного желания, которое предоставит победителю некая Белая Королева. Задача, казалось бы, простая для довольно сильного духа, но у Белой Королевы есть свои планы на этот счет. (   Читать дальше...   )Производство: студия Geek ToysЖанр: приключенияРежиссер: Накагава АцусиЯзык озвучки: Японский, русский (AniLibria, Wakanim)Субтитры: Русские (AniLibria, Alvakarp)Продолжительность: 2 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A1587E1F2A2FB846783354D58E0FE9735EDBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606457   (1044390) от 22.01.2023
-
-Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый сезон Date a Live. Описание к первому сезону ниже.
-
-Земле грозит опасность – пришельцы из иного измерения самим фактом появления в нашем мире вызывают страшные бедствия. Зачастили они, как положено, в Страну восходящего солнца, и люди быстро привыкли, что кроме цунами и подземных толчков надо бояться еще и «возмущений пространства». Да, методом страуса (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Накагава АцусиЯзык озвучки: Японский, русский (AniLibria, StudioBand)Субтитры: Русские (Crunchyroll, Alvakarp)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A15EE95A9E5FD59EE530E4AF500A4225D7A4BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607304   (1044010) от 26.01.2023
-
-Песнь тетивы [ТВ-1] | Клуб стрельбы из лука | Tsurune: Kazemai Koukou Kyuudou Bu [2020, TV, 13 из 13 + SP] BDRip 1080p HEVC 10bit Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал поведает нам историю Минато Нарумии. Будучи ребёнком, Минато увидел выступление своей матери на соревнованиях по кюдо — японскому искусству стрельбы из лука. Он так вдохновился её примером, что решил последовать за ней по пути кюдо, и в средней школе активно тренировался. Однако, потерпев сокрушительное поражение в соревнованиях, он разочаровался в себе и (   Читать дальше...   )Производство: Япония / Студия Kyoto AnimationЖанр: Спорт, драмаРежиссер: Ямамура ТакуяЯзык озвучки: Русский многоголосый закадровый, Японский
-- Derenn, Anzen, Kanade EU (AniLibria.TV)Субтитры: Русские (софтсаб полные/надписи)
-- (SovetRomantica) (надписи) (в контейнере) Переводчик: Yamada, Редактура: Hakiri
-- (Crunchyroll) (полные) (внешним файлом)Продолжительность: 14 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44BF788861C646E9A256CCF25B3DB4ED232B8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608060   (1043838) от 28.01.2023
-
-Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2022) | Власть книжного червя [ТВ-3] [2022, TV, 10 из 10] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исекай в мире магии - продолжение истории Майн в роли послушницы и владелицы мастерской Майн.Часть третья подводит историю к логическому, неожиданному концу...Производство: студия Ajia-dou / 亜細亜堂Жанр: комедия, повседневностьРежиссер: Хонго МицуруЯзык озвучки: Японский, русский (AniLibria, DreamCast, Force Media)Субтитры: Русские (Crunchyroll)Продолжительность: 10 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3447068392FEB2299F7B6F2D2AE01ABEF5EFC012
 ```
 
 https://mybot314.ru/tekegram_catalog/

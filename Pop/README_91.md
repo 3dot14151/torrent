@@ -1,177 +1,3 @@
-###  Публикация: 1389166   (784560) от 10.06.2020
-
-Виктория Черенцова - Второй (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Первый день без тебя (3:46)
-02. Не остыло сердце (3:34)
-03. Однажды (3:44)
-04. Всё уже решено (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC3EB7FE547371DEFA1D2BF5A54A34F103012CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389176   (784511) от 10.06.2020
-
-VA - NOW 90's Generation Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784511.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. New Radicals - You Get What You Give (5:05)
-2. No Doubt - Don't Speak (4:28)
-3. Shania Twain - That Don't Impress Me Much (4:03)
-4. Sheryl Crow - All I Wanna Do (4:37)(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2541E7F69807FBCF365938BBBA89F8DED1E2A00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389179   (784504) от 10.06.2020
-
-VA - NOW 80's Generation Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784504.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ABC - The Look Of Love (Pt. 1) (3:32)
-2. Soft Cell - Tainted Love (2:40)
-3 .Blondie - The Tide Is High (4:45)
-4. The Police - Every Breath You Take (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 1:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9AD739251CC761FB556A4978BA7A4593A0A6B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205169   (784106) от 08.02.2018
-
-The Saturdays - On Your Radar (2011) Fascination, Polydor [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784106.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. All Fired Up 3:13
-02. Notorious 3:12
-03. Faster 3:55
-04. My Heart Takes Over 4:07(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CFE8871AB86A51BBC18799E16A2E7FA4497577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205185   (784104) от 08.02.2018
-
-The Saturdays Feat. Flo Rida - Higher (2010) Polydor, EP [MP3|320 Kbps] <Electronic, Pop, Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784104.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. Higher 3:19
-02. Higher (7th Heaven Remix Radio Edit) 3:49
-03. Higher (StoneBridge Remix Radio Edit) 3:24
-04. Higher (Fascination Remix Radio Edit) 3:37Жанр: Electronic, Pop, Dance PopПродолжительность: 00:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1022FE0F3EF30F5DA817B78DE63A7795E04FBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205179   (784103) от 08.02.2018
-
-The Saturdays - Living For The Weekend (2013) Polydor [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784103.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. What About Us (Feat. Sean Paul) 3:41
-02. Disco Love 3:14
-03. Gentleman 3:40
-04. Leave A Light On 3:37(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB43EA0C346137BDBEB60D29D266C16F1EA4F9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204799   (784086) от 08.02.2018
 
 Catherine Clarnette - Wildcard (2017) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Synthpop>
@@ -180,7 +6,7 @@ Catherine Clarnette - Wildcard (2017) [MP3|320 Kbps] <Alternative Pop, Dark Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784086.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Veronica Unlimited - Veronica Sound Shower (1981) LP [MP3|320 Kbps] <Electronic,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784081.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ VA - Radio Italia Love (2018) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784076.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Smash Hits Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784075.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ VA - Stay In The 80s (2018) 2CD [MP3|320 Kbps] <EuroPop, EuroDisco, Italo Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784062.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Systems In Blue - Out Of The Blue (2008) [FLAC|Lossless|image + .cue] <Disco, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784057.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784044.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Pharao - Best Of Pharao 1994-1998 (2018) [MP3|320 Kbps] <Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784015.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Orlando Weeks - A Quickening (2020) [MP3|320 Kbps] <Indie Rock, Indie Pop, Singe
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783947.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ The Replacements - Let It Be (Deluxe Edition) (1984) [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783937.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Montana - I Love Music (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783933.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ Mariah Carey - Music Box (1993) Columbia CCK 53205 [FLAC|Lossless|image + .cue]<
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783930.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ Frankie Goes To Hollywood - Welcome To The Pleasuredome (1984) [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783921.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ Jehnny Beth - To Love is to Live (2020) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783914.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783745.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ Dexter Wansel - 4 Albums (1976-1979) LP [MP3|320 Kbps] <Jazz-Funk, Soul, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783631.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ The Saturdays - Finest Selection: The Greatest Hits (2014) Polydor, Compilation 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783538.jpg" />
 </div>
 
 
@@ -673,7 +499,7 @@ Doctor's Cat - Gee Wiz (1984) LP, 7'' [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783506.jpg" />
 </div>
 
 
@@ -702,7 +528,7 @@ VA - Sanremo (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783486.jpg" />
 </div>
 
 
@@ -731,7 +557,7 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1988) A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783484.jpg" />
 </div>
 
 
@@ -745,6 +571,180 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1988) A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:867CF3E55BBFF072C860CB3BB96FB3B8BA6606A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205425   (783472) от 10.02.2018
+
+Lipps, Inc. - Mouth To Mouth (1979) Remastered, 2012 [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funkytown (07:50)
+02. All Night Dancing (08:21)
+03. Rock It (05:42)
+04. Power (08:19)Жанр: DiscoПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F532ABAA995CE4A3FDB70D63A7C3314A160C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205289   (783458) от 10.02.2018
+
+Сударушка-style - Формула любви (2017) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Потеряла голову
+02. Осина и клён
+03. Формула любви
+04. Разлука(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA579631C9769A09F3F0D942F8EED6ED1038BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390201   (783400) от 14.06.2020
+
+Sine - Happy Is The Only Way (1977) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Is The Only Way (7:38)
+02. Chimi (6:13)
+03. Just Let Me Do My Thing (6:50)
+04. Keep It Coming (11:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA93A55D4F82E6F8F4E695D1321F7A208E21A1CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389984   (783392) от 14.06.2020
+
+VA - NOW Pop Icons (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady GaGa - The Edge Of Glory (Radio Edit)
+02. Ellie Goulding - On My Mind
+03. Niall Horan - Slow Hands
+04. Demi Lovato - Cool for the Summer(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA01181EC3CA5871C4599C404B5CE7947CBED97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390040   (783346) от 14.06.2020
+
+VA - 100 Greatest Summer Party Songs 2020 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783346.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dua Lipa - Don't Start Now 3:03
+002. Ofenbach - Rock It 2:26
+003. Lizzo - Juice 3:15
+004. Rita Ora - How To Be Lonely (Bomba Estéreo Remix) 2:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCED67EE3F0872D600714EA9DFF84D4409F0FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390030   (783332) от 14.06.2020
+
+VA - 100 Greatest 60s: Golden Oldies From The Sixtie (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aretha Franklin - Respect (02:27)
+02. Ben E. King - Stand by Me (02:54)
+03. Sam & Dave - Soul Man (02:36)
+04. The Monkees - I'm a Believer (02:45)(   Читать дальше...   )Жанр: PopПродолжительность: 04:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9C698A853AE59792799C7B0F482D0CF63EE7BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

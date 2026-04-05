@@ -6,7 +6,7 @@ DECA (2018) [En] (0.1) License HOODLUM
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790887.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paranormal Files 3: Enjoy the Shopping (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787589.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hidden Expedition 18: Neptunes Gift (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784978.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ World of Diving (2014) [En] (0.16.2) Repack CoD - MW2
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783412.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Wild Eight (2017) [Ru/En] (0.8.52) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780034.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bus Driver Simulator 2018 (2018) [Ru/Multi] (1.3) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780009.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Signs of Life (2014) [En] (0.11.1) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779894.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Lobotomy Corporation (2016) [Ru/Multi] (0.3.1.1b) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779876.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Stationeers (2017) [Ru/Multi] (0.1.1176.5874) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779875.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Abandon Ship (2018) [En] (0.5.8009) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779722.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Universim (2016) [En] (Alpha 23) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779705.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Fragmented (2016) [En] (Build 16.4.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777451.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ms. Holmes: The Monster of the Baskervilles (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767617.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Need For Drink (2017) [Ru/Multi] (0.017) Repack R.G. Механики
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766761.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DillyBall (2017) [En] (0.10) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766092.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Chimeras 9: Wailing Waters (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766042.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ On The Road - Truck Simulation (2017) [En/De] (0.52) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765943.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Distance (2014) [En] (1.0.6009) Repack Mizantrop1337
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764783.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ RimWorld (2016) [Ru/Multi] (0.18.1722) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762736.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Praey for the Gods (2019) [Ru/Multi] (0.5.006) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758176.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Raptors: Be A Dinosaur (2014) [En] (Beta) Repack John2s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744509.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Fatal Evidence: Cursed Island (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740208.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Empyrion - Galactic Survival (2015) [Ru/En] (1.6.1.0433) Repack Sudora
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730216.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Earthfall (2017) [En] (12644) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719981.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ FARHOME (2018) [Ru/Multi] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717019.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Phantom Trigger (2017) [En] (Alpha) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715875.jpg" />
 </div>
 
 

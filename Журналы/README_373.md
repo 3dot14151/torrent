@@ -1,3 +1,133 @@
+###  Публикация: 948523   (411489) от 20.10.2015
+
+Журнал | Лиза. Приятного аппетита! №11 (2015) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411489.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лиза. Приятного аппетита!» — журнал для тех, кто любит готовить, печь и радовать близких кулинарными сюрпризами. Издание предлагает яркий аппетитный мир всем, для кого готовить — радость, а есть — удовольствие. Это журнал, целиком посвященный только одной теме — домашней кулинарии. На страницах издания — лучшие рецепты русской кухни и самое вкусное со всего света, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294DC8CDBBF9CE0A1D1D78FFDA1783B3FE40B422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948601   (411480) от 20.10.2015
+
+Журнал | Приготовь. Спецвыпуск №11. Из круп и бобовых (ноябрь 2015) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крупы и бобовые - незаменимые продукты на осеннем столе. Они очень полезны, так как содержат большое количество растительного белка. В выпуске представлены 72 рецепта сытных блюд, которые помогут разнообразить ваш рацион осенью.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D42BDF77D434983D07C1D22AF4DEF9DAF2B80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559107   (411416) от 11.10.2012
+
+Журнал | Cosmopolitan [Россия] №11 двойной (ноябрь 2012) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь и добивается (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39273EFAC2D88C8D1A7D3789F6055E19562D04F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948436   (411409) от 20.10.2015
+
+Журнал | МАСТЕРРУЖЬЁ №10 (октябрь 2015) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «МАСТЕРРУЖЬЁ» – ежемесячное полноцветное иллюстрированное издание, одно из старейших на рынке СМИ в области оружейной тематики. За своё более чем десятилетнее существование журнал стал профессиональным помощником как знатокам, так и любителям оружия и  охоты. На его страницах можно познакомиться с последними новинками в мире стрелкового и холодного оружия, (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC74105D3F0D15EB1E21AAC2095EA1BF94271A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252188   (411303) от 04.10.2018
+
+Журнал | Elle Decoration [UK] №11 (ноябрь 2018) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86DCE4CE09AAA2ABC0919F942C58358E38EE3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252189   (411171) от 04.10.2018
 
 Журнал | Elle Decor [USA] №11 (ноябрь 2018) [PDF] [En]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411171.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411155.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411153.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410980.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410965.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_410730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_410730.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410600.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410568.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410566.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410563.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410506.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410500.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410454.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410440.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410369.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410354.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410352.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410148.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409929.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409876.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409732.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D0FB8436FC177681044D78E8DF1BAB06031A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948760   (409637) от 21.10.2015
-
-Газета | Сад, огород – кормилец и лекарь №19 (255) (Октябрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сад, огород – кормилец и лекарь — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D7CF5781752C640ED432071AA7D946D252C128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066793   (409627) от 27.10.2016
-
-Журнал | Делаем сами №20 (октябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Делаем сами» - полезные советы домашним мастерам и мастерицам - тем, кто шьет и вяжет, строит и ремонтирует, придумывает и творит. Для тех, кто любит делать красивые и полезные вещи своими руками, создает уют в доме. Схемы, чертежи и описания самоделок, другая полезная информация.Жанр: домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE25E86512DC436233AFE881A32BCCF6CC82CBCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948874   (409556) от 21.10.2015
-
-Журнал | Добрые советы. Люблю готовить! №10 (октябрь 2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409556.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Добрые советы. Люблю готовить!» — издание о вкусной еде, не похожее на другие. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах издания — более 100 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CCE65BE5F8A7D68BF7561FE7F5FD28C36DCFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948948   (409555) от 21.10.2015
-
-Газета | Дачница №20 (540) (октябрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё про сад и огород: фруктовые и декоративные растения, огородные культуры, в том числе и экзотические новинки, а также всевозможные дачные приспособления. Читательская аудитория - владельцы приусадебных и дачных участков, фермеры, многие из которых являются и авторами публикуемых в «Дачнице» статей. Концептуальная направленность издания - экологическое земледелие. (   Читать дальше...   )Жанр: Домоводство, садоводство, огородничествоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E954E337197DFAF3A069BC7D05C4FED9690C8A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948607   (409551) от 21.10.2015
-
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №19 (115) (Октябрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F44646A21B4E68CDF7A1A820AC2264AF9F32D97
 ```
 
 https://mybot314.ru/tekegram_catalog/

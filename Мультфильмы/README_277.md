@@ -1,3 +1,134 @@
+###  Публикация: 499291   (256067) от 20.05.2012
+
+Ящерица! / Calango! (2007) [H.264/720p-LQ] WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голодная ящерица решает, что кузнечик будет ее следующая еда ... но все не так просто, как она думает.Жанр: короткометражный анимационный фильмПерсонажи: Ящерица и кузнечикПеревод: Без слов / НемойПродолжительность: 00:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D578D320B8EEA50EA77491E5D94A441BFA884C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527394   (255946) от 13.11.2025
+
+Доставка / Посылка / Delivery (2005)   [720p] [H.264]WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее… Развитие промышленности достигло своего пика, вместе с гигантскими облаками дыма, извергаемыми из тысяч труб многочисленных заводов и фабрик. Дышать всё труднее и труднее, но люди приспособились и к такому образу жизни. На окраине такой фабрики живёт человек, который ещё помнит, как выглядят цветы… Более того, он даже пытается растить цветок у себя на балконе. (   Читать дальше...   )Жанр: КороткометражкаРежиссер: Тилл Новак / Till NowakПеревод: Не требуетсяПродолжительность: 00:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A93A1386A845318655DA4E1C1B0E00A90F38EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837041   (255891) от 14.11.2025
+
+Морси (2018-2021) WEB-DLRip [H.264/720p-LQ] (серии 1-6 из 6)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Решительная, отважная и деятельная морская свинка Морси попадает в мягкую и интеллигентную семью. Личным примером она меняет взгляды, привычки и жизненную позицию окружающих, а также учится и меняется сама, проникаясь духом гуманности, сочувствия и сострадания.Производство: Россия / студия М.И.Р.Жанр: мультфильм, детский, приключенияРежиссер: Илья Березницкас, Борис КоршуновАктеры: Ирина Пегова, Диомид Виноградов, Константин Раскатов, Эдуард Радзюкевич, Ольга ШороховаПродолжительность: ~ 00:13:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997AFCC47917C90420AF2B36ECC476925E3E8BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498853   (255713) от 19.05.2012
+
+Остров / A Ilha (2009) [H.264/720p-LQ] WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255713.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Остров" - это история о мальчике  который не успел перейти дорогу и попал на "остров безопасности" в большом мегаполисеЖанр: короткометражный анимационный фильмПерсонажи: мальчикПеревод: Без слов / НемойПродолжительность: 00:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435D0ADEF13174E0404B090CDF6BE14B98790545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733456   (255689) от 12.11.2025
+
+Как кошечка и собачка мыли пол / Jak pejsek s kocickou myli podlahu (1950) VHSRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255689.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке Йозефa Чапека.
+Однажды песик и кошка устроили генеральную уборку, надо помыть полы, а щетка вся вытерлась. И решили они мыть пол собачкой, а вытереть кошкой.Жанр: Детский, Рисованная анимация, КомедияРежиссер: Эдуард ХофманПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B887B114F68698A06421E637B2497A4FC4C2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 127623   (255684) от 12.11.2025
 
 Алчность / Greed (2008) HDRip [H.264/720p]
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255684.jpg" />
 </div>
 
 
@@ -35,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255683.jpg" />
 </div>
 
 
@@ -61,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255613.jpg" />
 </div>
 
 
@@ -87,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255612.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255564.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255539.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255515.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255315.jpg" />
 </div>
 
 
@@ -217,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255078.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254993.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254650.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254604.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254527.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254116.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253872.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253849.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253787.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253564.jpg" />
 </div>
 
 
@@ -478,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253534.jpg" />
 </div>
 
 
@@ -504,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253461.jpg" />
 </div>
 
 
@@ -530,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253271.jpg" />
 </div>
 
 
@@ -541,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B4EC25509FBDD97FE8536C6914BDAA3FBFB142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496930   (253212) от 15.05.2012
-
-Луна / Luna (2011) [H.264/720p-LQ] WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253212.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Луна" изображает кокетливый танец между очаровательной и жизнерадостной гусеницей (Шелкопрядом) и потрясающей и изящной бабочкой (Мотыльком). Является ли их история  из ряда о неразделенной любви с первого взгляда?Жанр: короткометражный анимационный фильмРежиссер: Донна БрокоппПерсонажи: Гусеница и мотылекПеревод: Без слов / НемойПродолжительность: 00:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0027EB73C018127D952AF18EA2A31DAD55DEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836473   (253065) от 11.11.2025
-
-Как Петя Пяточкин слоников считал. Сборник мульфильмов (1970-1990) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рисованных мультипликационных фильмов для детей. В него вошли: Как Петя Пяточкин слоников считал, Капитошка, Возвращайся, Капитошка, Горшок - веселун, Солнечный каравай, Как котенок и песик пол мыли, Как еж шубу менял, Почему у елочки колючие иголочки, Сказка о белой снежинке.Производство: СССР / КиевнаучфильмЖанр: мультфильм, короткометражка, комедия, семейныйРежиссер: Борис Храневич, Алла Грачёва, Леонид Зарубин, Александр Викен, Нина Василенко, Евгений СивоконьАктеры: Наталья Рожкова, Богдан Бенюк, Елена Слободяник, Людмила Игнатенко, юдмила Томашевская, Богдан Янивский, Евгений ПаперныйСубтитры: отсутствуютПродолжительность: 01:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06526A3A994CB8CB4B5BD51A34E05C36E01717E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496078   (252881) от 14.05.2012
-
-Краса ненаглядная (1958) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252881.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам русских народных сказок. Жили-были царь, царица и сын их Иван-царевич. И вот как-то раз захотел царевич жениться, и обязательно на Золотой косе - Ненаглядной красе, которую видит он во сне. Иван просит батюшку отпустить его по свету искать царевну. Царь конечно против женитьбы на какой-то там красе, жениться нужно на боярыне.. Он запирает сына, но своевольный (   Читать дальше...   )Жанр: КукольныйРежиссер: Владимир ДегтяревПерсонажи: Иван-царевич, Булат-молодец, Баба-яга, красавица Настасья, Кощей бессмертныйПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2856C2DB0C4E6494526BCDDA2B577AA0E80A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836200   (252594) от 09.11.2025
-
-Вересковый мед. Сборник мультфильмов (1967-1981) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник отечественных кукольных и рисованных мультипликационных фильмов для детей. В него вошли: Вересковый мед, Как жены мужей продавали, Крылатый мастер, Как мужья жен проучили, Легенда о пламенном сердце, Зеленая пилюля, Как казак счастье искал.Производство: СССР / КиевнаучфильмЖанр: мультфильм, короткометражкаРежиссер: Ирина Гурвич, Валентина Костылева, Юрий Скирда, Владимир ДахноАктеры: Леонид Бакштаев, Нина Трофимова, Владимир КоршунСубтитры: отсутствуютПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580985D3B4EF4091A45A91FB6321DA2769FC62E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836407   (252535) от 10.11.2025
-
-Как Петя Пяточкин слоников считал (1984) DVB [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рыжий, шаловливый мальчик Петя Пяточкин ходил в детский сад, куда его не без приключений отводили мама и папа. Там он много играл, был очень шумен и энергичен, и хрупкая воспитательница никак не могла с ним справиться. После обеда детям полагается спать. Но Петя не спал. Воспитательница посоветовала ему закрыть глаза и сосчитать слоников. Петя заснул, и ему приснилось, (   Читать дальше...   )Производство: СССР / КиевнаучфильмЖанр: мультфильм, короткометражка, комедия, семейныйРежиссер: Александр ВикенАктеры: Наталья РожковаСубтитры: отсутствуютПродолжительность: 00:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274DE263C3E43C4FB7D7C1B47271FBB0DF62E780
 ```
 
 https://mybot314.ru/tekegram_catalog/

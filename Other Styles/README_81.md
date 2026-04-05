@@ -1,3 +1,61 @@
+###  Публикация: 1294889   (623596) от 10.04.2019
+
+А.И.Жихарев - Поющая бронза (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Композиция 01 (5:12)
+02. Композиция 02 (3:53)
+03. Композиция 03 (4:00)
+04. Композиция 04 (5:36)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F1A0736C6A8E43605B3FFF8E53746F7BE640F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542817   (623568) от 14.04.2022
+
+James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age, Tribal, World Beat>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gatekeeping
+02. Salute to Cuba
+03. Drum Dialogue
+04. Until the Ice Cracks(   Читать дальше...   )Жанр: New Age, Tribal, World BeatПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28AAEE5C545C4A029A5C9EB54E574C1B8DC35193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522140   (623012) от 13.07.2012
 
 Большой Барабан - The Big Drum (Live) (2009) [MP3|64-160 кб/с]<Instrumental, World Music,>
@@ -6,7 +64,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_623012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623012.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622863.jpg" />
 </div>
 
 
@@ -76,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622856.jpg" />
 </div>
 
 
@@ -111,7 +169,7 @@ Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622811.jpg" />
 </div>
 
 
@@ -140,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622801.jpg" />
 </div>
 
 
@@ -175,7 +233,7 @@ VA - Spice (2016) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622744.jpg" />
 </div>
 
 
@@ -204,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622704.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ California Guitar Trio - Masterworks (2012) [MP3|213~253 Kbps (V0)] <Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622654.jpg" />
 </div>
 
 
@@ -262,7 +320,7 @@ Our Native Daughters - Songs of Our Native Daughters (2019) [FLAC|Lossless|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622496.jpg" />
 </div>
 
 
@@ -291,7 +349,7 @@ VA - Country Forever (2019) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622376.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_621686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621686.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Na
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621548.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Blu
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621078.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621019.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ VA Hit Country - Hit Country (2014) [MP3|320 Kbps] <Country, Alt Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621005.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ The Guggenheim Grotto - 3 альбома [MP3|128-320 кб/с]<Folk-pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620973.jpg" />
 </div>
 
 
@@ -506,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620962.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620889.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ David Arkenstone - Pure Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620621.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ VA - Zen Tracks Deep Inner Peace (2017) [MP3|320 Kbps] <Chillout, Ambient, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619829.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619827.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619710.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Vangelis - Light And Shadow: The Best Of Vangelis (2013) [MP3|320 Kbps] <Electro
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619656.jpg" />
 </div>
 
 
@@ -709,7 +767,7 @@ VA - Celtic Collection 1 (2016) [MP3|320 Kbps] <New Age, World, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619137.jpg" />
 </div>
 
 
@@ -723,64 +781,6 @@ VA - Celtic Collection 1 (2016) [MP3|320 Kbps] <New Age, World, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41B959054252280DA631B11BC9C66AC18D25114A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230108   (619070) от 10.06.2018
-
-Paul Sills - Aniem (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Forever (6:45)
-02. Sea of Mountains (8:10)
-03. Aniem (8:25)
-04. Forever Together (6:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F661F0F326440AD8A83B0718A253AFE53EEBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230092   (619064) от 10.06.2018
-
-Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Emptiness
-02 – The First Heartbeat
-03 – Twin Worlds
-04 – Endless(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08406FDA36671600D17A0E1117A887882752166
 ```
 
 https://mybot314.ru/tekegram_catalog/

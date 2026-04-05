@@ -1,3 +1,59 @@
+###  Публикация: 1195831   (139985) от 30.12.2017
+
+Виктория Погосян, М. Кропачева Соболевская | Английский легко. Используем правильно предлоги (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знать предлоги очень важно, а учить их очень трудно. Чтобы изучение их было для вас легким и приятным, в нашей книге подобраны задания и упражнения, благодаря которым эта задача покажется вам интересной и увлекательной.
+
+В книге рассматриваются 12 наиболее часто употребляемых предлогов, а именно: up, down, in, out, away, on, off, over, around, through, along, back (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEA251C0D6077E970E779919391B8098E0E6546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436230   (139871) от 30.12.2020
+
+Елена Ульева | Как друзья елку наряжали (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается иллюстрированная книга для самых маленьких, в которой малыш найдет интересные новогодние стихи и очаровательные иллюстрации.
+
+Для чтения взрослыми детям.Жанр: Детская литература/СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D1F14F3696422964DA4E090A69B456684D0632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436235   (139790) от 30.12.2020
 
 Дина Снежинкина | Всё о Деде Морозе. Всё о Снегурочке (2020) [PDF]
@@ -6,7 +62,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139790.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139702.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139688.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139680.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139656.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139628.jpg" />
 </div>
 
 
@@ -163,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139609.jpg" />
 </div>
 
 
@@ -189,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139595.jpg" />
 </div>
 
 
@@ -216,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139563.jpg" />
 </div>
 
 
@@ -243,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139540.jpg" />
 </div>
 
 
@@ -269,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139536.jpg" />
 </div>
 
 
@@ -295,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139527.jpg" />
 </div>
 
 
@@ -322,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139493.jpg" />
 </div>
 
 
@@ -349,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139472.jpg" />
 </div>
 
 
@@ -375,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139456.jpg" />
 </div>
 
 
@@ -402,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139440.jpg" />
 </div>
 
 
@@ -428,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139404.jpg" />
 </div>
 
 
@@ -454,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139403.jpg" />
 </div>
 
 
@@ -480,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139330.jpg" />
 </div>
 
 
@@ -506,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139224.jpg" />
 </div>
 
 
@@ -532,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139178.jpg" />
 </div>
 
 
@@ -567,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139144.jpg" />
 </div>
 
 
@@ -595,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139129.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139107.jpg" />
 </div>
 
 
@@ -632,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23B35B2FECEA88E0FE8B1B650A52EB5DAF4541B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520967   (139105) от 30.12.2021
-
-А.Н. Толстой, К.Д. Ушинский и др. | Подарок под ёлочку. Новогодние русские народные сказки (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139105.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник «Новогодние русские народные сказки» серии «Новогодний подарок под ёлочку» вошли «зимние» русские народные сказки в пересказе А. Н. Толстого, Г. М. Науменко, Л. Н. Елисеевой. Среди них «Снегурочка», «Два Мороза», «Лиса и волк», «Проказы старухи зимы», а также несколько сказок про Морозко, одного из самых известных мифологических персонажей: «Морозко», «Как (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AF43D35169D4BE5D513B1A6FD354357B7C4751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415625   (138995) от 30.12.2020
-
-Марвин Маршалл | Воспитание без стресса. Как вырастить ответственных детей и жить своей жизнью (2020) [PDF, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы бы хотели растить детей в радости, доверии, без постоянного стресса и чувства вины? Не понимаете, каким путем вам идти в воспитании: быть родителем, который все контролирует, или пустить все на самотек, ни в чем не ограничивать? Вам не нужно выбирать ни то, ни другое. Дело в том, что традиционные подходы к воспитанию, подавляющие волю ребенка или лишающие его (   Читать дальше...   )Жанр: Педагогика/Воспитание детейФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4285C6F63DD72704E8EA1086959E580F7ADE182
 ```
 
 https://mybot314.ru/tekegram_catalog/

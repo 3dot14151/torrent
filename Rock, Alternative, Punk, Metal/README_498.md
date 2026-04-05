@@ -1,3 +1,148 @@
+###  Публикация: 1551813   (584822) от 23.05.2022
+
+Static Dress - Rouge Carpet Disaster (2022) [FLAC|Lossless|tracks] <Post-Hardcore, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584822.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. fleahouse
+2. sweet.
+3. Push rope
+4. Attempt 8(   Читать дальше...   )Жанр: Post-Hardcore, EmoПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEC406529423E9C811E0D3069427E28E1A178B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551815   (584820) от 23.05.2022
+
+Earth Eater - Infinite Ruin (2022) [FLAC|Lossless|tracks] <Technical Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584820.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Betrayal of the Human Order
+2. Legion (feat. Taylor Barber)
+3. Penance
+4. Sacrificial Slaughter(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE9176A8D089B7D4AC9B85F58BB5FF0A55939E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552547   (584818) от 23.05.2022
+
+Gospel - The Loser (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progressive Rock, Screamo, Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bravo (4:37)
+02. Deer Ghost (3:25)
+03. Hhyper (6:05)
+04. S.R.O. (6:01)(   Читать дальше...   )Жанр: Post-Hardcore, Progressive Rock, Screamo, Math RockПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00172C88DE7BD54DCAF8CCFEE1256BF4BA8C0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552814   (584817) от 23.05.2022
+
+Oculto - Caos, Cosmos & Cataclismos (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Barbatros (00:06:34)
+02 - Transmutacion (00:06:02)
+03 - Coven (00:07:58)
+04 - El Nahual (00:07:37)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2E0C49689F339EA94D21536D9410CE73DE92DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552962   (584816) от 23.05.2022
+
+Wucan - Reap The Storm (2017) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rock, Vintage Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wie die Welt sich dreht (00:09:59)
+02 - Ebb and Flute - The Eternal Groove (00:06:04)
+03 - Out of Sight, out of Mind (00:03:23)
+04 - I'm Gonna Leave You (00:04:59)(   Читать дальше...   )Жанр: Hard Rock, Vintage Rock, Doom MetalПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B84A35258A6CEC925082A2EC128CC1A8CAAFBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918438   (584771) от 17.07.2015
 
 Marilyn Manson - The Remix Collection (2014) 2CD [MP3|320 кб/с]<Alternative Rock, Heavy Metal, Industrial>
@@ -6,7 +151,7 @@ Marilyn Manson - The Remix Collection (2014) 2CD [MP3|320 кб/с]<Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584771.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Bodom After Midnight - Paint The Sky With Blood (2021) EP, Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584768.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584767.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Delta Spirit - One is One (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584763.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Starlight Brigade - Beyond The Future (2022) [FLAC|Lossless|WEB-DL|tracks] <Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584756.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Powerwolf - Blessed and Possessed (2015) Deluxe Edition [MP3|320 кб/с]<Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584721.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Kambrium - The Elders' Realm (2016) [MP3|320 Kbps] <Symphonic Power, Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584516.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Uncle Dog - Old Hat (1972) Remastered, 2005, Air Mail Archive [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584474.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Akrotheism - Behold the Son of Plagues (2014) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584351.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Beatrik - Requiem of December (2005) [APE|Lossless|image + .cue] <Black Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584350.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Psycroptic - As the Kingdom Drowns (2018) [WavPack|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584348.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Julie Laughs Nomore - From The Mist Of The Ruins (2001) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584347.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Northlane - Discoveries (2011) [FLAC|Lossless|image + .cue] <Metalcore, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584345.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Astronoid - Astronoid (2019) [FLAC|Lossless|image + .cue] <Melodic Progressive P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584344.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584324.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Tyrant's Reign - Tyrant's Reign (2004) [APE|Lossless|image + .cue] <Speed Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584172.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Sacred Reign - Looking For Love (1993) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584167.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Gomez - 10 albums (1999-2011) [MP3|320 kbps]<Rock, Britpop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584127.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Subway To Sally - Mitgift AZ MMXV (2015) EP [MP3|320 кб/с]<Folk Metal, Indust
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584116.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ Daniel Tidwell - Versus Video Games 3 (2015) [MP3|320 кб/с]<Instrumental/Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584107.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Metalwings - Fallen Angel in the Hell (2016) EP [MP3|320 Kbps] <Symphonic Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584084.jpg" />
 </div>
 
 
@@ -597,161 +742,6 @@ Metalwings - Fallen Angel in the Hell (2016) EP [MP3|320 Kbps] <Symphonic Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E832F52963D4307733F9CB0FD43BD340C0EC21AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358402   (584040) от 04.07.2011
-
-Born of Osiris - The Discovery (2011) [WavPack|Lossless]<Deathcore, Progressive Metal, Technical Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584040.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Follow The Signs 3:50
-2. Singularity 3:33
-3. Ascension 2:27
-4. Devastate 4:35
-5. Recreate 4:00
-6. Two Worlds Of Design 3:13
-7. A Solution 2:07
-8. Shaping The Masterpiece 4:39
-9. Dissimulation 2:47
-10. Automatic Motion 2:42(   Читать дальше...)Жанр: Deathcore, Progressive Metal, Technical DeathПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919293   (584027) от 18.07.2015
-
-VA - Heart Rock - Rock Fur's Herz vol. 6 (1994) 2CD [FLAC|tracks + .cue]<Rock, Soul, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Crash Test Dummies - In The Days Of The Caveman [3:42]
-02.Tina Turner - Let's Stay Together [5:18]
-03.Roxette - Fading Like A Flower [3:51]
-04.Haddaway - I Miss You [3:40](   Читать дальше...   )Жанр: Rock, Soul, PopПродолжительность: 02:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653435FD8A2AF9FDC879B09151E1568BD0645BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624734   (584001) от 12.05.2019
-
-Tony MacAlpine - 30 albums (1986 - 2011) Full Discography [MP3|128 кб/с - 350 кб/с]<Heavy/Instrumental/Neoclassical metal/Jazz>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584001.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moonbabies (5:39)
-2. The Noble Savage (6:14)
-3. Ataraxia (6:17)
-4. 70 VIR (4:02)(   Читать дальше...   )Жанр: Heavy/Instrumental/Neoclassical metal/JazzПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EE21567CF2782CD045719016CCDA1A11ABFDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919165   (583956) от 18.07.2015
-
-Bring Me the Horizon - Live at Wembley (2015) 2CD [MP3|320 кб/с]<Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Smile
-02. Pray for Plague
-03. Blessed with a Curse
-04. Antivist(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583E31B39612FCD84F19940D4B7D8CE84CC15419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357609   (583934) от 04.07.2011
-
-Be'Lakor - 2 альбома (2007/2009) [APE/FLAC|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venator
-02. From Scythe to Sceptre
-03. Outlive the Hand
-04. Sun's Delusion
-05. Held in Hollows
-06. Husks
-07. Aspect
-08. Countless SkiesЖанр: Dark Metal, Melodic DeathПродолжительность: 0059:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

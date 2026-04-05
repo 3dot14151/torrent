@@ -1,3 +1,65 @@
+###  Публикация: 336027   (680223) от 13.05.2011
+
+Corel Painter 12 (0.0.502) [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corel® Painter™ 12 — это идеальная цифровая художественная студия для тех, кто готов выйти за рамки привычного в творчестве. Теперь, с новейшими средствами цифровой живописи и реалистичными инструментами Natural Media, вы сможете реализовать самые смелые замыслы.
+
+Основные возможности Corel Painter
+- смешивание цветов для получения уникальных красок и оттенков;
+- настройка формы кисти с помощью интерактивного инструмента Brush Creator.
+- Используя Corel Painter 12 вы можете видоизменить готовую кисть с помощью функции Randomizer, объединить две кисти с помощью функции Transposer или же детально настроить параметры кисти средствами Stroke Designer.
+- создание несложных набросков и зарисовок, применяя эффект Sketch к цифровым фотографиям;
+- рисование акварелью с помощью эффекта Digital Watercolor;
+- Corel Painter 12 содержит более 400 новых кистей, имитирующих более 30 реальных инструментов художника, включая акриловые краски, аэрографы, кисти для смешивания красок, каллиграфические перья, мелки, уголь, цветные (   Читать дальше...   )Название программы: Corel Painter XIIРелиз состоялся: 2011Тип издания: Mac OS X softwareЯзык интерфейса: английский (only)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290071   (680212) от 19.03.2019
+
+BetterZip 4.2.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой-архиватором, например, утилитой BetterZip.
+
+Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2019Разработчик: MacItBetterПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE54723ADE51C4D98904980DA9EA33E28F1050BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135821   (679144) от 20.05.2017
 
 JustBroadcaster YTEd 1.7.4 [En]
@@ -6,7 +68,7 @@ JustBroadcaster YTEd 1.7.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679144.jpg" />
 </div>
 
 
@@ -35,7 +97,7 @@ Deliveries 3.0.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679142.jpg" />
 </div>
 
 
@@ -64,7 +126,7 @@ Aiseesoft PDF Converter 3.3.29 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678976.jpg" />
 </div>
 
 
@@ -93,7 +155,7 @@ Kigo Video Converter Ultimate 6.1.5 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678959.jpg" />
 </div>
 
 
@@ -121,7 +183,7 @@ FTP Server 1.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678593.jpg" />
 </div>
 
 
@@ -150,7 +212,7 @@ Fluid Browser 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678348.jpg" />
 </div>
 
 
@@ -179,7 +241,7 @@ Duplicate Photos Detective 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677151.jpg" />
 </div>
 
 
@@ -206,7 +268,7 @@ Command-Tab Plus 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677150.jpg" />
 </div>
 
 
@@ -234,7 +296,7 @@ Miya Translate 1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677144.jpg" />
 </div>
 
 
@@ -260,7 +322,7 @@ Dropzone 3 v3.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677001.jpg" />
 </div>
 
 
@@ -287,7 +349,7 @@ Adobe Prelude CC 2017.1.1 (6.1.1) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676834.jpg" />
 </div>
 
 
@@ -315,7 +377,7 @@ Hide My IP 6.2.40 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676341.jpg" />
 </div>
 
 
@@ -341,7 +403,7 @@ CCleaner Pro 1.13.442 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676102.jpg" />
 </div>
 
 
@@ -368,7 +430,7 @@ Microsoft Office Standard 2016 VL v15.23 (individual installers) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675631.jpg" />
 </div>
 
 
@@ -395,7 +457,7 @@ Capture One 22 Enterprise v15.2.0.69 Beta [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675014.jpg" />
 </div>
 
 
@@ -422,7 +484,7 @@ Shimo 5 v5.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674773.jpg" />
 </div>
 
 
@@ -450,7 +512,7 @@ Dragon Responsive Email Designer 2.70 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674758.jpg" />
 </div>
 
 
@@ -476,7 +538,7 @@ iGallery Pro — Best Instagram Uploader 1.6.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674753.jpg" />
 </div>
 
 
@@ -505,7 +567,7 @@ SPlayerX 1.2.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674146.jpg" />
 </div>
 
 
@@ -533,7 +595,7 @@ Motion 5.4.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673935.jpg" />
 </div>
 
 
@@ -559,7 +621,7 @@ MP4tools 3.6.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673007.jpg" />
 </div>
 
 
@@ -588,7 +650,7 @@ ReSample 1.1.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673000.jpg" />
 </div>
 
 
@@ -614,7 +676,7 @@ XCap 1.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672897.jpg" />
 </div>
 
 
@@ -640,7 +702,7 @@ HDR projects 5 professional v5.52 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672862.jpg" />
 </div>
 
 
@@ -652,63 +714,6 @@ HDR projects 5 professional v5.52 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:821AB3F032A90A9B0B704F3C2834E0B94F38DD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136685   (672649) от 23.05.2017
-
-Syncios Data Transfer 1.2.3 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672649.jpg" />
-</div>
-
-
-###  Подробнее
-
-SynciOS Data Transfer - простая в использовании, но мощная программа для передачи данных с телефона. Программа поддерживает передачу файлов, включая контакты, фотографии, музыку, видео и тд. между iPhone и Android без какой-либо потери данных и в любых направлениях.
-
-Возможность создать резервную копию телефона на компьютере в один клик. Вы даже можете управлять (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2017Разработчик: SynciosПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985FC0EF5D31B868FBD2727DB24652DB23F42852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030729   (672162) от 01.07.2016
-
-Command Center 1.0.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Command Center (бывший Control Center)
-Центр управления для Mac  - эта утилита для пользователей Mac OS X.
-Функции монитора включают расширенные графики и статистические данные по большей части информации , относящиеся к системе , например, процессора, оперативной памяти , сети , батареи и потребление энергии .
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июля 2016Разработчик: Cindori ABПоддерживаемая ОС: OS X 10.11  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664A59391FEC02D235AB11A931E53B8BA0F1E81E
 ```
 
 https://mybot314.ru/tekegram_catalog/

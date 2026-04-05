@@ -1,3 +1,119 @@
+###  Публикация: 1184331   (301507) от 17.11.2017
+
+VA - Chillout Cocktail  Vol.01 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My 7Sky - Peep Of Day (Original Mix)  4:58
+02.  R.I.B. - Bossalove (Original Mix)  4:52
+03.  CJ RcM - Amazing Life (Original Mix)  4:43
+04.  DJ Boombasa - Feel The Sun (Original Mix)  3:49(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B54AD0BF4EE909BDFC415D501F7BFBF7BFDF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184460   (301506) от 17.11.2017
+
+VA - Trance The Annual 2018 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svenson & Gielen - We Know What You Did... (Alex M.O.R.P.H. remix)
+02. Marcel Woods - Tomorrow (M.I.K.E. Push remix - radio edit)
+03. Marco V - Switchim
+04. Jochen Miller - Head On(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0E920F06948240FD84613CD8D2E6A982928B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184312   (301505) от 17.11.2017
+
+VA - Pure Chill & Ambient Vol.03 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alastair Pursloe - Autumn Skies At Dusk (Original Mix)  7:14
+02.  Victima - Awaking (Original Mix)  4:43
+03.  Soteira - Last Kiss Of Vitalia (Original Mix)  4:22
+04.  Alexander Muratovsky - External World (Original Mix)  3:53(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5AABB1C4E71436E4ACDB5F5E23C88390CACE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184388   (301503) от 17.11.2017
+
+VA - Vocal House (2017) [MP3|320 Kbps] <House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Forbes & Michael Mandal - Really Love (Extended Mix)  6:54
+02.  Lenny Fontana - Chocolate Sensation (Bimbo Jones Good Times Remix)  9:46
+03.  Alex Mills & Anil Aras - Every Day (I Need U) (Original Mix)  6:26
+04.  AM2PM & Dantiez Saunderson - Do It (Original Mix)  6:31(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 03:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F5AC157B9BF3CE8AF8E2BE579688ED718028BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184402   (301502) от 17.11.2017
 
 VA - Markus Schulz - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA - Markus Schulz - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301502.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Trance 2018 (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301501.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - 20 Best Trance Hits 2017 - 2018 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301495.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Robert Nickson - Tellurian (2019) [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301438.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Men On The Noom - Labelcompilation #3 (2001) [FLAC|Lossless|tracks] <Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301378.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - A State Of Trance Top 20: November (Selected By Armin Van Buuren) (2017) [M
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301373.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Drizzly Music presents: Magic Island Of Lounge Series (Life Is A Journey) -
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301348.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Blank & Jones - The Singles (The Hitmix by Oliver Momm) (2019) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301346.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Kineta Lounge (2015) [MP3|CBR|320 кб/с] <Chill Out, Downtempo, Ambient, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301336.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The Future Sound of London - Life in Moments (2015) [FLAC|Lossless|WEB-DL|tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301330.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Recoverworld Radio 003 (Mixed by Rich Smith) (2015) [FLAC|Lossless|WEB-DL]<
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301328.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Noomwalk The 5th Noom Compilation (1999) [FLAC|Lossless|tracks] <Hard House
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301297.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301292.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ VA - Blank & Jones Presents Chilltronica No.6 (2017) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301283.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Paolo Lucchi - The Dawn Sessions (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301279.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Gabriel & Dresden - Live @ Output (Brooklyn, New York, United States) (2018) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301262.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Starforce 1 - Starforce 1 (1981) LP [MP3|320 Kbps] <Electronic, Experimental, Am
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301254.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ London Elektricity - Building Better Worlds (2019) [FLAC|Lossless|WEB|tracks] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301253.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ VA - Finest NY House 2018 (2018) [MP3|320 Kbps] <House, Nu Disco, Minimal>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301197.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Simon Heath (aka Atrium Carceri, Krusseldorf, Sabled Sun, Za Frumi) - Discograph
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301150.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Silicon Dream - Time Machine (1988) [FLAC|tracks+.cue]<Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301121.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Yuri Sosnin - Space Travel (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301090.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Yuri Sosnin - Space Travel (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0942956DCBEF2C3A4B6FB4854CF114AF4A6EC24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261382   (301083) от 12.11.2018
-
-Koan - Insidious (2018) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (Koan Remix) (9:20)
-02. She Doesn't Know to Be Asleep (8:21)
-03. When She Will Recognize Him (7:46)
-04. Memaloose Island (8:27)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888FBB363CF67A6F80C9F50620FDC05870EAD910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960961   (300926) от 01.12.2015
-
-C.C. Catch - Super 20 (1989) [FLAC|tracks+.cue]<Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Kisses (3:51)
-02. Soul Survivor (3:25)
-03. Cause You Are Young (3:30)
-04. Heaven And Hell (3:43)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:66:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8350A9E78320C331D998607F091FBD5AA3E779A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078445   (300868) от 01.12.2016
-
-VA - Chill The Stress Away Vol. 2 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre Kornev - Relaxia (09:11)
-02. Airy Fizz - Sunny Brook (04:03)
-03. Red Richards - Wishing Well (06:49)
-04. Davstr3k - In the Afternoon (08:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB229816DAA241E9D936E52B5D69D2348303ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078696   (300861) от 01.12.2016
-
-VA - Lime and Chill: Cocktail Bar Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maremare - That Beach Is Mine 6:09
-02. Don Gorda Project - Dedicado 5:21
-03. Enrico Donner - Sexy State of Mind 5:37
-04. Dr. Diver - Selfishness 5:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84BE282D8F002988D3F1F56EF1DAD3BCCF14471
 ```
 
 https://mybot314.ru/tekegram_catalog/

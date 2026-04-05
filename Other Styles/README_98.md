@@ -1,3 +1,61 @@
+###  Публикация: 1312325   (530727) от 05.07.2019
+
+Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вдали от дома (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From Home Suite Home (08:28)
+02. It's Perfect (00:31)
+03. World's Worst Water Feature (07:31)
+04. Multiple Realities (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734B26B06E69E985AB9DFBAAF440BD02E04B3755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312712   (530719) от 05.07.2019
+
+Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Of Change (3:14)
+02. Careless Whisper (3:09)
+03. Honesty (3:46)
+04. Michelle (3:30)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312212   (530711) от 05.07.2019
 
 Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
@@ -6,7 +64,7 @@ Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные д�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530711.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530708.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530694.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530614.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529929.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529754.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529491.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529249.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529208.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529132.jpg" />
 </div>
 
 
@@ -300,7 +358,7 @@ Stefan Grossman - Those Pleasant Days (2004) 2 CD, Compilation [FLAC|Lossless|im
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528814.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ William Ogmundson - Simple Gifts (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528679.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528641.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenc
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528636.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528075.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527912.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ Hard Working Americans - We're All In This Together (2017) [MP3|320 Kbps] <Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527653.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ Oliver Scheffner - Mystic Healing Harmony (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527646.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ VA - Sirtaki Dance (2003) [MP3|192-320 kbps] <Instrumental, Dance>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527429.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527004.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526692.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526403.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ David Hollandsworth - Discovery (2015) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526079.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526077.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954553CF6FF7A11247668C604B5D445B2AD92F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053009   (525966) от 17.09.2016
-
-Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight From The City (06:31)
-02. A Song For Europa (02:34)
-03. The Drowned World (02:21)
-04. A Deal With Chaos (02:06)(   Читать дальше...   )Жанр: New Age, Modern ClassicalПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C97E5FBD8B811E74C8BC32310BAE53F6E05E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157258   (525820) от 10.08.2017
-
-Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbps] <Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525820.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadow of the Moon
-2. Spirit of the Sea
-3. Renaissance Faire
-4. Play Minstrel Play(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9CFEB082C5E613C3791FD9B5C521EFC49D1CCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

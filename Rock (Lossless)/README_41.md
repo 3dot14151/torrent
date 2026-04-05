@@ -1,3 +1,119 @@
+###  Публикация: 1010591   (802335) от 25.04.2016
+
+Eric Johnson - Seven Worlds (1998) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zap
+02. Emerald Eyes
+03. Showdown
+04. Missing Key(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28D8E2021A8A94D0996BCBA2F14E1E40FC2290B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010434   (802163) от 25.04.2016
+
+Primitive Instinct - One Man's Refuge (2012) [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Call    00:21
+02. Alter Ego    05:16
+03. Falling Down    05:53
+04. Breathing    07:18(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD795EA3198FDAFA0C2AC8FA2DB63B49C7AA6E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010594   (802119) от 25.04.2016
+
+Jimmy Page, John Paul Jones, John Bonham - Rock And Roll Highway (2007) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything I Do Is Wrong
+02. Think It Over
+03. Dixie Fried
+04. Fabulous(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC247DC07A0762032DCAD4D0CB9129DAA551D060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120383   (801921) от 31.03.2017
+
+Starset - Vessels (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Symphonic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starset - американская рок группа, из Колумбуса, штата Огайо, играющая в стилях альтернативного, электронного и симфонического рока. Группа была образованна в 2013 году вокалистом группы Downplay. В этом же году они выпустили 2 сингла Carnivore и My Demons. Трек пользовался большой популярностью, песня забралась на 5 строчку в "Mainstream Rock" чарте, и (   Читать дальше...   )01. The Order (1:08)
+02. Satellite (3:59)
+03. Frequency (4:41)
+04. Die For You (5:17)(   Читать дальше...   )Жанр: Alternative Rock, Symphonic Rock, Hard RockПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD50BC73E42A74D498B58EC9E6124AC13A7644A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506040   (801808) от 29.10.2021
 
 Little Hag - Leash (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -6,7 +122,7 @@ Little Hag - Leash (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801808.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Anubis - Different Stories (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801752.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dymond Bright - Rebirth Of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801746.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ John E Vistic - Under The Volcano (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801740.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ This Winter Machine - Kites (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801735.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ringo Starr - Zoom In (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801649.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Compact Disc Club - The Rock Party [4CD Box Set] (1996) [FLAC|Lossless]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801547.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Elektradrive - Elektradrive (1995) [APE|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801283.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Four Horsemen - Nobody Said It Was Easy (1991) [APE|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801266.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Grand Funk - All The Girls In The World Beware!!! (1974) remaster, 2017, Hybrid 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801227.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Bob Dylan - Triplicate (2017) 3CD Digipack [FLAC|Lossless|tracks + .cue] <Folk-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801217.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Grand Funk - Shinin' On (1974) remaster, 2017, Hybrid SACD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801215.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Fleetwood Mac - Tango In The Night (2017) 3CD, Deluxe Edition [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801210.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ James LaBrie's Mullmuzzler - Mullmuzzler 2 (2001) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801111.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ The Doobie Brothers - Extended Versions (2006) [FLAC|Lossless|image + .cue] <Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801099.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ The Age of Truth - Threshold (2017) [FLAC|Lossless|tracks + .cue] <Stoner Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801086.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Legacy Pilots - The Penrose Triangle (2021) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800978.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ The Lucid Furs - Damn! That Was Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800893.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Enhanced, Remastered,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800870.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ PSI - Horizonte (1977) 2016, Poland, GAD Records/Chickadisc [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800599.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Pavlov's Dog - At The Sound Of The Bell (1976) [FLAC|Lossless|image + .cue]<Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800333.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800283.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97E237E256018DC3EABB2ECB6AD40B46F0700351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506503   (800110) от 31.10.2021
-
-The Johnny Van Zant Band - No More Dirty Deals (1980) Reissue, 2006, Rock Candy Records [FLAC|Lossless|image + .cue] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом группы, образованной в 1977 г. и изначально называвшейся The Austin Nickels Band. Команда просуществовала до 1985 года. С 1987 года Johnny Van Zant фронтмен группы Lynyrd Skynyrd.01. No More Dirty Deals
-02. Coming Home
-03. 634-5789
-04. Put My Trust In You(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAD48E12D3A73EB4099B8AE7CFE53A8A1448163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506488   (800094) от 31.10.2021
-
-BrainStorm - Год без календаря (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800094.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Это любовь
-2. Бумажные самолеты
-3. Год без календаря
-4. Feels(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1506ACB62DE20A53DAF422401FFA34D36DA8F087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506466   (799992) от 31.10.2021
-
-The Immediate Family - The Immediate Family (2021) [FLAC|Lossless|image + .cue] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Stop Progress (04:28)
-02. Slippin' And Slidin' (03:55)
-03. Everything That's Broken (03:21)
-04. Damage (03:26)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3034FFC38B4A51AB21E66E6F24B51CDFBE7736E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273624   (799893) от 02.01.2019
-
-Phenomena - Innervision (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock House (4:19)
-02. Banzi (4:39)
-03. What About Love (5:05)
-04. Into The Fire (4:26)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB8704031CCBFF95800B612DFA8AED8007E0E9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

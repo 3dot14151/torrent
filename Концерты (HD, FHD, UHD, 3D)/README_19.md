@@ -6,7 +6,7 @@ Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616471.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615135.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614048.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Garbage - Live at Festival Beauregard (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611151.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Aerosmith / Rock for the Rising Sun (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611009.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607777.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ AC/DC: Let There Be Rock (1980/2011) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607217.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Queen - Rock Montreal & Live Aid (1981) Blu-ray [H.264/1080p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605996.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605943.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604054.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Norah Jones - The BBC One Sessions (2007) HDTV [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_599057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_599057.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598756.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Guns N' Roses - Appetite for Democracy Live at Hard Rock Las Vegas (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598665.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598063.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597896.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596850.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Nier Music Concert: Ningyou Tachi no Kioku / NieR Music Concert: The Memory of P
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596148.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592205.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590543.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-L
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589580.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589019.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Megadeth - Countdown To Extinction - Live  (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588621.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Status Quo - Pictures - Live At Montreux (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588607.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The Prodigy - World's on Fire (2011) [1080i] BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587790.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Linkin Park - Rock in Rio (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_586673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586673.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586050.jpg" />
 </div>
 
 

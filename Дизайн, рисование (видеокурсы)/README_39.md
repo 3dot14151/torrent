@@ -1,3 +1,55 @@
+###  Публикация: 1552444   (586582) от 21.05.2022
+
+Pluralsight, Delano Athias | Rigging Tank Treads in Maya (2013) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586582.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы увидите, как выполнить риггинг гусениц. Мы начнем сетап с исходного звена гусеницы, разобравшись, как избежать переворотов звеньев и как заставить гусеницы непрерывно двигаться в правильном направлении вместе с движением транспортного средства. После этого мы разберем скрипт, с помощью которого звенья будут равномерно распределены вдоль траектории, (   Читать дальше...   )Производство: PluralsightЖанр: РиггингЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B026D1756E72ABA924A7FA169F36DF7A638BB974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516139   (584498) от 23.05.2022
+
+Udemy, Nabil Kechiche | Unreal Engine Game Environment design MasterClass Part 1-3 (2020) PCRec [EN, RU]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584498.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы создадим профессиональную игровое окружение нового поколения, используя современные инструменты и ресурсы.Производство: UdemyЖанр: 3D-моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 45:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85653643320EE0BAC4331992A98F03AB8189F0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919273   (583538) от 18.07.2015
 
 Digital Tutors | Введение в ZBrush 4R5/ Introduction to ZBrush 4R5 (2013) PCRec [H.264/720p]
@@ -6,7 +58,7 @@ Digital Tutors | Введение в ZBrush 4R5/ Introduction to ZBrush 4R5 (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583538.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Lynda | 3ds Max 2015 Базовый тренинг/ 3ds Max 2015 Essential Train
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583533.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Profileschool | Adobe Photoshop. Допечатная подготовка из�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583225.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ CGcircuit, Andy Van Straten | Skinning with nCloth Part II (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582809.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ CG Elves, Camille Kleinman | Hoods & Hats Workshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581812.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ XYZ School, Дмитрий Клюшкин | Concept art with Dmitry Klyushkin (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581708.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ CG Cookie, Tim Von Rueden | Piero - Animated Character Concept (Concept Art Cour
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580867.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Profileschool | Photoshop - Curves. Работа с кривыми (2013) [PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580235.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ World Of Level Design | UE4 How To Create Custom Decals (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578796.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Figma.center, Владимир Чернышов | Дизайн генерато�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578701.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Marco Bucci | 3D Techniques with Digital Painting (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577256.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577096.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Corey Barker | Planet Photoshop by Corey Barker [2008-2011] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576585.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Unreal Sensei | The Unreal Masterclass (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575364.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ Fxphd, Nick Nimble | Houdini Ocean Effects (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573770.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571872.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569910.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Gumroad.com | Sci-Fi Weapon Process (2017) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566852.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562715.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ MDA | Обучение веб-дизайну от профессионалов �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559081.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ Udemy, Christina Wu/Dubell | How to Draw and Paint People Made Simple (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557884.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Patreon, FlyCat | Semi realistic potrait modelling in Blender 3.1 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557882.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556866.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ XYZ School, Тамара Бахлычева | Hand-Paint (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556852.jpg" />
 </div>
 
 
@@ -639,59 +691,6 @@ Hand-paint — это почти всегда стилизация. А стил�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A44ACACFD636810EDAFCB771C416A5ADD70AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047211   (547155) от 01.09.2016
-
-Digital Tutors | Introduction to Materials in Houdini (2015) PCRec [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс Houdini разработан, как вводный, охватывающий основные принципы и методы работы с материалами и  с базовым пониманием общей терминологии Houdini, пользовательский интерфейс и элементы управления.Производство: Digital TutorsЖанр: ВидеоурокПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5499383861563C72F679F727D64BDB43AACB3B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925441   (538506) от 07.08.2015
-
-Scott Deardorff | Креативные техники художественной обработки портрета/Creative Portrait-Painting Techniques for Photoshop (2011) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scott Deardorff рад представить вторую часть курса по цифровой живописи в Photoshop.
-Scott Deardorff портретный художник, который применяет современные средства для создания классических портретов людей и животных. Все творческие работы мастера выполнены в традиционном художественном стиле. Он создает шедевр пользуясь цифровой краской на цифровом холсте. Основными (   Читать дальше...   )Жанр: 2D-графикаПродолжительность: 08:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCAF5CDF4B1A63AD6357B053558CFAABDC9043D
 ```
 
 https://mybot314.ru/tekegram_catalog/

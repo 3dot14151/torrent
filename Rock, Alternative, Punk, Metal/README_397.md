@@ -1,3 +1,150 @@
+###  Публикация: 1028579   (688571) от 23.06.2016
+
+Guns N' Roses - In The Empire Of The Sun (2016) Live [MP3|320 кб/с] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'Re Crazy
+02. It'S So Easy
+03. Move To The City
+04. Mr. Brownstone(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483BBA678EC9409CF8FE96EC29B7F27CDD8A1600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403601   (688562) от 21.08.2020
+
+(hed) Planet Earth - Class of 2020 (2020) [MP3|320 Kbps] <Nu Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Blood (2:20)
+02. Watch It Burn (2:56)
+03. No Days Off (2:29)
+04. Death Awaits (2:26)(   Читать дальше...   )Жанр: Nu-Metal, Rapcore, Alternative Metal
+deezer
+discogsПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AAFADE74DAB22847B233CF1F5005535F00834E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403723   (688561) от 21.08.2020
+
+The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someday's Gone
+02. Beekeeper's Daughter
+03. Fast And Slow
+04. Heartbeat Slowing Down(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403621   (688554) от 21.08.2020
+
+KMFDM - In Dub (2020) [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Light
+02. Superhero Dub
+03. Dub Uranus
+04. Bumaye Dub(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E799BA499079A9BDF3CA0729F365A9985C19B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028745   (688524) от 23.06.2016
+
+In Extremo - Quid Pro Quo (2016) [MP3|320 кб/с] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Störtebeker
+02. Roter Stern
+03. Quid Pro Quo
+04. Pikse Palve(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D22DC507D9525DE721069F5E224AC52C014F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403642   (688449) от 21.08.2020
 
 The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
@@ -6,7 +153,7 @@ The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688449.jpg" />
 </div>
 
 
@@ -35,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688282.jpg" />
 </div>
 
 
@@ -62,7 +209,7 @@ Fallujah - 4 Альбома + 1 EP (2011-2019) [MP3|320 кб/с]<Technical Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688268.jpg" />
 </div>
 
 
@@ -91,7 +238,7 @@ Dream Theater - Distance Over Time (2019) 2CD, Japanese Edition [FLAC|Lossless] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688266.jpg" />
 </div>
 
 
@@ -120,7 +267,7 @@ Misery Index - 6 Альбомов + 2 EP (2003-2019) [MP3|~245-320 кб/с]<Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688263.jpg" />
 </div>
 
 
@@ -149,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688248.jpg" />
 </div>
 
 
@@ -184,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688175.jpg" />
 </div>
 
 
@@ -213,7 +360,7 @@ Any Given Day - 3 Альбома + 1 Сингл (2014-2019) [MP3|320 кб/с]<Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687987.jpg" />
 </div>
 
 
@@ -242,7 +389,7 @@ dArtagnan - In jener Nacht (2019) [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687727.jpg" />
 </div>
 
 
@@ -271,7 +418,7 @@ Delain - We Are The Others (2012) Deluxe Edition [MP3|320 кб/с]<Symphonic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687699.jpg" />
 </div>
 
 
@@ -306,7 +453,7 @@ Riot V - Armor Of Light (2018) 2CD Digipak Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687479.jpg" />
 </div>
 
 
@@ -335,7 +482,7 @@ Blackfoot Gypsies - To The Top (2017) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687453.jpg" />
 </div>
 
 
@@ -364,7 +511,7 @@ Jack White - Blunderbuss (2012) Japanese Edition [FLAC|Lossless]<Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687403.jpg" />
 </div>
 
 
@@ -390,7 +537,7 @@ Orbit Culture - Redfog (2018) EP [MP3|320 Kbps] <Groove Metal, Melodic Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687357.jpg" />
 </div>
 
 
@@ -419,7 +566,7 @@ Old Future Crash - Outside Time (2017) [FLAC|Lossless|WEB-DL|tracks] <Art Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687351.jpg" />
 </div>
 
 
@@ -448,7 +595,7 @@ Eric Clapton - Forever Man (2015) 3CD [FLAC|Lossless]<Rock, Blues, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687327.jpg" />
 </div>
 
 
@@ -477,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687223.jpg" />
 </div>
 
 
@@ -506,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687219.jpg" />
 </div>
 
 
@@ -535,7 +682,7 @@ Rod Stewart - Handbags & Gladrags: The Essential Rod Stewart (2018) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686994.jpg" />
 </div>
 
 
@@ -564,7 +711,7 @@ VA - Capital Gold Rock 'n' Roll Legends (2003) Box Set, 2CD [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686977.jpg" />
 </div>
 
 
@@ -593,7 +740,7 @@ Highlord - Hic Sunt Leones (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686908.jpg" />
 </div>
 
 
@@ -607,151 +754,6 @@ Highlord - Hic Sunt Leones (2016) [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F04D4B4C806F9D2C9C0DDCC6CAD117BEA1948584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535239   (686838) от 06.03.2022
-
-Caliberty - Caliberty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:47)
-02. Growling Town (04:14)
-03. Back'n'Forth (03:32)
-04. Mr. Goodtime (05:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71284863038694204859DCE0047BBE0548CFCDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547016   (686794) от 16.05.2017
-
-ДДТ (DDT) - Эй! Ленинград, Петербург, Петроградище!!! (Концерт в "Олимпийском") (2003) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Единочество (02:29)
-02. Ветер (04:27)
-03. Пропавший без вести (04:14)
-04. Актриса весна (07:59)(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF355DFF0F74385A129145E12A000D7610D5399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289482   (686757) от 16.03.2019
-
-Asthma Castle - Mount Crushmore (2019) [FLAC|Lossless|tracks + .cue] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686757.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Incline of Western Civilization  06:23
-2. Mount Crushmore  05:07
-3. Here Come the Black Ship  06:26
-4. Methlehem  06:49(   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A119AA750AC4A793997188D0BE9F6954B5452BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289284   (686756) от 16.03.2019
-
-Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Jazz-Rock, Indie-Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corner Painter
-02. Counterfeit
-03. Hard To Be Alone
-04. Haunted Love(   Читать дальше...   )Жанр: Alternative, Jazz-Rock, Indie-PopПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F8F683639336E8058C50D7CA1DCBCB756B18F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289423   (686754) от 16.03.2019
-
-Dust Bolt - Trapped in Chaos (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fourth Strike
-02. Dead Inside
-03. The Bad Ad
-04. Bloody Rain(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76814284C36A4040D819979ADF6AE4F56190149C
 ```
 
 https://mybot314.ru/tekegram_catalog/

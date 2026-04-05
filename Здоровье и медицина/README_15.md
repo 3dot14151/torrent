@@ -1,29 +1,3 @@
-###  Публикация: 1293065   (640779) от 01.04.2019
-
-Фолькер Витткамп | Мужское здоровье. Как у вас с ним? (2019) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы избежать неловкого разговора с врачом, лучше заранее изучить ту или иную проблему, связанную с мужским здоровьем, а заодно и физиологию. С помощью этой книги каждый читатель узнает о многочисленных процессах, происходящих в мужской половой системе, ознакомится с симптомами и последствиями заболеваний, а также с интересными случаями из врачебной практики автора. (   Читать дальше...   )Жанр: Здоровье,  Популярная медицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F6409994E80167B3E92BFA0706E878023DCAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228163   (639009) от 30.05.2018
 
 Сергей Бубновский | Скорая помощь при острых болях. На все случаи жизни (2018) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639009.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638928.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637821.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637138.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636969.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631685.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631553.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629638.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628190.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628057.jpg" />
 </div>
 
 
@@ -303,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623848.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622196.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621668.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620343.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619845.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618835.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616055.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614917.jpg" />
 </div>
 
 
@@ -512,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613951.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611650.jpg" />
 </div>
 
 
@@ -567,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611446.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610055.jpg" />
 </div>
 
 
@@ -622,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604108.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604107.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603325.jpg" />
 </div>
 
 
@@ -685,6 +659,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EE1C7A397B73774A42BB555B17958BF3A7A9E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232023   (603137) от 21.06.2018
+
+Мосараф Али | Держите спину прямо. Как забота о позвоночнике может изменить вашу жизнь (2017) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мосараф Али – настоящий знаток человеческого тела, всемирно известный пионер интеграционной медицины, получивший всестороннее медицинское образование в Индии, России и Китае. Сегодня он руководит медицинским центром в Лондоне, где собрались ведущие специалисты альтернативной медицины.
+
+Его метод – единственный в своем роде, сочетающий в себе процедуры как официальной, (   Читать дальше...   )Жанр: Медицинская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94246084DE5C60E11EC74EFA06ADE4032D8B08A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1308172   (554111) от 13.06.2019
+
+В.А. Далингер | Математика. Логарифмические уравнения и неравенства (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554111.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основные типы логарифмических уравнений, неравенств и их систем. Приведены теоретические положения, лежащие в основе решения указанных типов уравнений, неравенств и их систем, и на большом числе разнообразных примеров иллюстрируются методы их решения.
+Соответствует актуальным требованиям Федерального государственного образовательного (   Читать дальше...   )Жанр: Учебное пособие, МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144B2448A61B8174E7D0B77AA542E3A4F3CBDD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236771   (553783) от 20.07.2018
+
+Антон Рихванов | Физика (курс для начинающих) (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, друзья. Перед Вами учебник по физике для начинающих. Если Вам надоели скучные и сухие учебники по физике, в которых невозможно разобрать ни слова, если Вы хотите научиться видеть законы физики вокруг себя и использовать их в своей практической жизни, то этот учебник для Вас.
+
+Курс объясняется простым и понятным языком, поэтому даже представители гуманитарных (   Читать дальше...   )Жанр: УчебникиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A33BC497A72792C6E171EDAB715F66BAF1574BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308986   (552776) от 17.06.2019
 
 О.Я. Шевалдина | Математика в экономике (2019) [PDF]
@@ -6,7 +61,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552776.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552758.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550920.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550911.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550908.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550016.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549355.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547892.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547021.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546976.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545308.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543473.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542530.jpg" />
 </div>
 
 
@@ -349,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542445.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541111.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540987.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539955.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539724.jpg" />
 </div>
 
 
@@ -481,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539060.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538703.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538702.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536643.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535362.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533422.jpg" />
 </div>
 
 
@@ -623,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A22D8EB50C6D04E45399B24CC5C389BB809FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926187   (533412) от 10.08.2015
-
-А.Н. Шихов, Д.А. Шихов | Архитектурная и строительная физика (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533412.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены теоретические основы архитектурного проектирования зданий различного функционального назначения с учетом климатических условий места строительства с целью создания в них комфортных условий проживания и трудовой деятельности. Рассмотрены вопросы климатологии и влияния климатических факторов на архитектурно-планировочное, конструктивное и (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC86332097C91C47D27BCECD10B121D24B203498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926580   (533203) от 10.08.2015
-
-Виктор Барановский | Слесарь-сантехник. Учебное пособие (2000) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессия, которой посвящена эта книга, была и остается сегодня одной из самых востребованных в народном хозяйстве. Достоинством данной книги, бесспорно, является то, что она написана в полном соответствии с Госстандартом Минобразования РФ и охватывает все основные виды деятельности сантехники: санитарно-технические работы, монтаж и ремонт систем отопления, водоснабжения, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8629694A291B0CEC7B238725CB619437ABD5F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

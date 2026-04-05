@@ -6,7 +6,7 @@ One More Island (2022) [Multi] (1.8.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194539.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cantata (2023) [En] (1.01/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193857.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ InfraSpace (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186156.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186148.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Anno 1701 (2007) [Ru] (1.0) License Новый Диск
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173725.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173124.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173093.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172903.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171802.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Airport CEO (2021) [Ru/Multi] (1.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169783.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168955.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ This Is the President (2021) [Ru/En] (1.0c) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168855.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Citizens: On Mars (2023) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167519.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Oxygen (2023) [Ru/Multi] (1.027) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163645.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162247.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160719.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Moviehouse - The Film Studio Tycoon (2023) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160712.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Frozen Cortex (2015) [En] (2.0.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159758.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156198.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Transport giant / Транспортный олигарх + Новый конт�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155599.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Coral Island (2023) [Multi] (1.0/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151770.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148024.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144997.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141816.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141277.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138277.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 527290   (595394) от 25.07.2012
-
-Д.Колисниченко | Профессиональное программирование на PHP [2007] [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595394.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приводятся сведения об отладке, анализе и оптимизации кода. Большая часть книги посвящена практическим моментам PHP-разработки: модификации популярных систем управления контентом и форумов, написанию сценариев-кирпичиков, из которых можно "выстроить" собственный сайт или портал, работа с RSS, почтой, SOAP и многое другое. Рассматриваются возможности объектно-ориентированного программирования на РНР. Целый раздел уделен безопасному программированию.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D4790CB8097BC2BE8B0658482C648DDBDFC3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150322   (595067) от 14.07.2017
-
-А.В. Благодаров и др. | Алгоритмы категорирования персональных данных для систем автоматизированного проектирования баз данных информационных систем (2013) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены вопросы автоматизированного проектирования баз данных информационных систем с учетом требований защиты персональных данных. Обобщены основные научные результаты, полученные в рамках решения поставленной научно-технической проблемы разработки эффективных алгоритмов категорирования персональных данных с применением искусственных нейронных сетей и нечетких (   Читать дальше...   )Жанр: Базы данныхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27EBB9A839390994D8A74173CB344E478440F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150305   (594947) от 14.07.2017
-
-Дэвид Вольф | OpenGL 4. Язык шейдеров. Книга рецептов (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594947.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассматривается весь спектр приемов программирования на GLSL, начиная с базовых видов шейдеров – вершинных и фрагментных, – и заканчивая геометрическими, вычислительными и шейдерами тесселяции. Здесь приводится множество практических примеров – от наложения текстур, воспроизведения теней и обработки изображений до применения искажений и манипуляций системами (   Читать дальше...   )Жанр: Графика 3DФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89B08DDCB2C7EE7C410AE283BAA8C1D7296D7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914536   (594186) от 04.07.2015
 
 Марк Лутц | Изучаем Python 5-е издание (2013) [PDF, EPUB] [En]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594186.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593455.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ Swizec Teller | Senior Engineer Mindset (2022) [PDF, EPUB, MOBI] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593263.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593030.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592873.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592332.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ Andrew Ferlitsch | Deep Learning Patterns and Practices (2021) [PDF] [Книга
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590160.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ Samer Buna | GraphQL in Action (2021) [PDF] [Книга + Видеокрус] [E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590121.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ Craig Walls | Spring in Action, Sixth Edition (2022) [PDF] [Книга + Вид�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590120.jpg" />
 </div>
 
 
@@ -329,7 +251,7 @@ Alexey Grigorev | Machine Learning Bookcamp (2021) [PDF] [Книга + Виде�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590118.jpg" />
 </div>
 
 
@@ -358,7 +280,7 @@ Leonard Apeltsin | Data Science Bookcamp (2021) [PDF] [Книга + Видеок
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590113.jpg" />
 </div>
 
 
@@ -387,7 +309,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590112.jpg" />
 </div>
 
 
@@ -413,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589703.jpg" />
 </div>
 
 
@@ -439,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587598.jpg" />
 </div>
 
 
@@ -465,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587293.jpg" />
 </div>
 
 
@@ -494,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586890.jpg" />
 </div>
 
 
@@ -522,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585637.jpg" />
 </div>
 
 
@@ -550,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582907.jpg" />
 </div>
 
 
@@ -576,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579705.jpg" />
 </div>
 
 
@@ -602,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577311.jpg" />
 </div>
 
 
@@ -628,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577179.jpg" />
 </div>
 
 
@@ -654,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576098.jpg" />
 </div>
 
 
@@ -680,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573958.jpg" />
 </div>
 
 
@@ -691,6 +613,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2EA7ED4E83117862A6A58FD96F4DEF55E6D8B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528384   (572188) от 28.07.2012
+
+Майкл Монкур | Освой самостоятельно JavaScript за 24 часа [2001] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга состоит из 24 учебных занятий, каждое из которых охватывает отдельную тему. Последовательное описание возможностей JavaScript делает длинные сценарии простыми, а сложные понятия - доступными. В конце книги приведен словарь используемых терминов, краткий справочник по операторам JavaScript и множество полезных ссылок. Каждое занятие оканчивается тестовыми вопросами и упражнениями, выполнив которые, вы закрепите пройденный материал и расширите свои познания. Многочисленные советы, замечания и предостережения обращают внимание читателя на важные тонкости создания сценариев и возможные ошибки. Примеры программных кодов и иллюстрации упрощают усвоение нового материала и делают книгу доступной для начинающих пользователей любого уровня.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E600324FE3E5EB34CF3C4B92D034609FEC42373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303541   (571997) от 21.05.2019
+
+Денис Юричев | Введение в reverse engineering для начинающих (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заметки о reverse engineering на русском языке для начинающих, для тех кто хочет научиться понимать создаваемый Си/Си++ компиляторами код для архитектур x86/x64, ARM/ARM64, MIPS, Java/JVM.
+У термина «reverse engineering» несколько популярных значений: 1) исследование скомпилированных программ; 2) сканирование трехмерной модели для последующего копирования; 3) восстановление (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F05D2AE9EE539393FC396FBB01E1D4A34531F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528734   (570744) от 29.07.2012
+
+Джеймс Фостер, Винсент Лю | Разработка средств безопасности и эксплойтов [2007] [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - подробное руководство по разработке средств безопасности для веб-приложений. В ней подробно рассматриваются проблемы безопасности программного обеспечения. На многочисленных примерах изучается принцип использования различных типов уязвимостей компьютерных систем, выполняется детальный анализ техник взлома. Отдельно изучается программирование расширений для таких известных средств обеспечения и проверки безопасности, как Ethereal, Nessus и Metasploit Framework (включая Meterpreter).Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95F85039849F246138148A9F43DBEFC029C1E32
 ```
 
 https://mybot314.ru/tekegram_catalog/

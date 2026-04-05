@@ -1,3 +1,29 @@
+###  Публикация: 206592   (721009) от 06.06.2010
+
+Джанни Родари | Приключения Чиполлино (1962) [MP3, Эраст Гарин и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_721009.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чиполло» по-итальянски значит «лук», а где лук – там и слёзы. Но когда у Чиполлино ни за что ни про что приговаривают к пожизненному заключению отца, мальчик-луковка решает бороться и свергнуть власть правителя сказочной страны, принца Лимона. После того, как Чиполлино заставил плакать кавалера Помидора и спрятал домик кума Тыквы в лесу, ловко обманув сторожевого (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 371168   (720934) от 04.08.2020
 
 Валентин Постников | Карандаш и Самоделкин на необитаемом острове (2008) [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720934.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720638.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719413.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719407.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719404.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719403.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719256.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ VA - 333 Лучшие Детские Песни (2004) 12 CD BoxSet [FLAC|Lossle
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718917.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718851.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718658.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718639.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718547.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717412.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717218.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717104.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715293.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715285.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715279.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715199.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714836.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713505.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713242.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712874.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712861.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712719.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCF8FFF190CE228B5A536659AB859383A4EFB86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401255   (711342) от 09.08.2020
-
-Владислав Крапивин | Такая была планета (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это удивительный, наполненный солнцем, запахами, вкусами и ощущениями лета рассказ. Рассказ, после которого тепло на душе и улыбка еще долго не уходит в памяти на второй план.
-Короткими штрихами он рисует потрясающе правдивые образы. Он возвращает в памяти детство.Жанр: Детская литератураПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87322339A32933590A1EDE81CA5A169CB8208FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

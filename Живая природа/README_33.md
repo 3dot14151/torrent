@@ -1,3 +1,29 @@
+###  Публикация: 1626741   (243724) от 15.04.2023
+
+Животные-символы Рождества / Wild Christmas (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243724.jpg" />
+</div>
+
+
+###  Подробнее
+
+В истории, традициях и символике рождественских праздников присутствует немало представителей царства животных. Ни одно Рождество не обходится без оленей, везущих сани Санта-Клауса, или без красногрудых малиновок и снегирей.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, исследованияПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78746728AFCC6F1F5A36EA9FFA6A31EF24F6034E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539798   (243278) от 27.03.2022
 
 Край семи тысяч озёр (2018) DVB [H.264]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243278.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243198.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243180.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Куницеобразные. Дерзкие и бесстрашные / We
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242834.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242774.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242762.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242506.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242444.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242151.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242119.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242103.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242068.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241980.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241927.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241338.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Viasat Nature: Самые ядовитые животные мира / World's M
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241222.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240921.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240831.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240400.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240260.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240117.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240096.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240069.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240054.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240041.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED1DE472D20BAF63D57DCBB39275A164996F1D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621275   (240038) от 24.03.2023
-
-Библейские животные / Animals of the Bible (2022) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Библии присутствует множество разных животных. Наверняка вы уже вспомнили змея или ослика Девы Марии. А вы знали, что в Библии упоминаются газели, львы, киты, скорпионы и прочие "твари земные"? Некоторые животные действительно обитали в Святой земле, другие же удостоились упоминания благодаря своим качествам, которым можно придать символическое значение.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Фил КоулзПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE651E6152641B91902E389CE1D59CA6B238EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

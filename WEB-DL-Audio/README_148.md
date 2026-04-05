@@ -6,7 +6,7 @@ Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1790.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1782.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1781.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1780.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1778.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1774.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1598.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Robin Ross - Robin Ross & The Bluesberry Jam (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1585.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Damiano David - FUNNY little FEARS (DREAMS) (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1584.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mike Tramp - Songs Of White Lion, Vol. III (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1583.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Few Miles On - Mother Lode (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1581.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sleepwell Citizen - This Is Only A Test (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1578.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Daisychain - All In A Name (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1576.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Band Of Friends - Ballroom Of Dreams - Band Of Friends - Ballroom Of Dreams (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1574.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sakura - Матрос на стройке (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1573.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Brandon Isaak - Walkin' With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1572.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1571.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1566.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1565.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Juri Amicabile - Geared Up (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1562.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rusty Ends & Hillbilly Hoodoo - Roadhouses, Juke Joints and Honky-Tonks (2025) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1561.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ded - Resent (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1560.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Alice Armstrong - Fury & Euphoria (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1558.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Doug MacLeod - Between Somewhere and Goodbye (2025) [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1556.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Surrender The Crown - Travails (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1432.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Castle Rat - The Bestiary (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1430.jpg" />
 </div>
 
 

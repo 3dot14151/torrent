@@ -1,31 +1,3 @@
-###  Публикация: 1041356   (582167) от 09.08.2016
-
-Нетология | Работа со сложными клиентами (2016) WEB-DL
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рост продаж и развитие бизнеса во многом зависят от клиентов. Но далеко не все из них легко идут на контакт, соглашаются с предложенными решениями и аргументированно высказывают критику. «Может ли сложный клиент стать лояльным к компании?» — вопрос, которым задаются многие менеджеры.
-
-Этот курс о работе со сложными клиентами ориентирован на аккаунт-менеджеров и руководителей (   Читать дальше...   )Жанр: Бизнес, продажи, менеджментПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE2FC268D69D1AD04CC5A6A623E2F91B90F6D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041344   (582135) от 09.08.2016
 
 Федор Васильев | Прибыльный интернет магазин на Joomla + Joomlakassa (2016) PCRec
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582135.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581179.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ Udemy.com | Infinite Skills | Написание безопасного PHP-ко
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580759.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ Geekbrains | YII2 framework. Профессиональная разработк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580684.jpg" />
 </div>
 
 
@@ -142,7 +114,7 @@ ProfiT | JavaScript с самого начала (2016) WEBRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580148.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580138.jpg" />
 </div>
 
 
@@ -194,7 +166,7 @@ Oleg Lav | Создание образа системы — Acronis True Image (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579797.jpg" />
 </div>
 
 
@@ -220,7 +192,7 @@ Udemy.com | Hacking School & IT Security Academy | Практический вз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579694.jpg" />
 </div>
 
 
@@ -247,7 +219,7 @@ Oleg Lav | Создание UEFI флешки на основе WINPE с Acronis
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578622.jpg" />
 </div>
 
 
@@ -273,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578265.jpg" />
 </div>
 
 
@@ -299,7 +271,7 @@ Thinknetica | Ruby on Rails c нуля (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577687.jpg" />
 </div>
 
 
@@ -328,7 +300,7 @@ Oleg Lav | Восстановление системы при загрузке �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576985.jpg" />
 </div>
 
 
@@ -354,7 +326,7 @@ Oleg Lav | RollBack Rx — Машина Времени для вашего ко�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576902.jpg" />
 </div>
 
 
@@ -380,7 +352,7 @@ JavaBegin | iOS и Swift (2017-2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575638.jpg" />
 </div>
 
 
@@ -406,7 +378,7 @@ Geekbrains | Профессия SMM менеджер (2018) PCRec [H.264/720p-LQ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575620.jpg" />
 </div>
 
 
@@ -434,7 +406,7 @@ wpa.at.ua | Проверь свою WI-FI сеть на устойчивость
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574101.jpg" />
 </div>
 
 
@@ -463,7 +435,7 @@ JavaBegin | Android (2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574075.jpg" />
 </div>
 
 
@@ -489,7 +461,7 @@ prog.kiev.ua | Java профессионал (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573973.jpg" />
 </div>
 
 
@@ -518,7 +490,7 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573864.jpg" />
 </div>
 
 
@@ -544,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573263.jpg" />
 </div>
 
 
@@ -570,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573235.jpg" />
 </div>
 
 
@@ -597,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571889.jpg" />
 </div>
 
 
@@ -626,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571884.jpg" />
 </div>
 
 
@@ -655,7 +627,7 @@ Udemy, YouRa Allakhverdov | Python разработка - с нуля до пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571706.jpg" />
 </div>
 
 
@@ -683,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570014.jpg" />
 </div>
 
 
@@ -695,6 +667,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A0294CF9FDFF4CF4BC842C45C964FC37ABF3E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151031   (570012) от 20.07.2017
+
+Foxford | Язык C++ (2016-2017) PCRec [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования C был разработан в начале 1970-х годов как язык системного программирования для операционной системы Unix. В 1990-х годах на его основе был создан язык программирования С++, поддерживающий концепции объектно-ориентированного и обобщённого программирования. В начале курса мы будем изучать темы, общие для языков С и C++ — синтаксис языка, стандартные (   Читать дальше...   )Производство: Россия / ФоксфордЖанр: Программирование, C++Продолжительность: ~02:00:00 урок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518462645333D0D04E53E0FB3F885493E1A583B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

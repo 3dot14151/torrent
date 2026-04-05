@@ -1,3 +1,55 @@
+###  Публикация: 672927   (14687) от 14.06.2025
+
+Под куполом / Under the Dome (2013) WEB-DL [H.264/1080p] (Сезон 1, серии 1-13 из 13) BaibaKo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычным погожим осенним днём город Честерс Милл, штат Мэн, оказывается внезапно отрезанным от остального мира невидимым барьером. В купол врезается самолёт. Загадочное силовое поле не щадит ни постройки, ни автомобили, ни животных, ни людей. Выехавшие в соседний город по делам не могут вернуться к своим близким. Никто не понимает, что это за барьер, откуда он взялся (   Читать дальше...   )Производство: США, Amblin Television, Baer Bones, CBS Television StudiosЖанр: фантастика, триллер, драма, детективРежиссер: Джек Бендер, Питер Лето, Дэвид БарретАктеры: Майк Фогель, Колин Форд, Аиша Хиндс, Александр Кох, Рашель Лефевр, Натали Мартинез, Дин Норрис, Джолин Парди, Бриттани Робертсон, Николас Стронг и др.Перевод: Профессиональный многоголосый - BaibaKoОзвучка: Юлия Котурбаш, Светлана Доманова, Артемий Мирон и Алексей КузнецовЯзык озвучки: Русский, английскийПродолжительность: ~ 00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8253BB4019F2D085351B0B94CFC6D20E7C94C4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552518   (14585) от 15.06.2025
+
+The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой The Planet Crafter был отправлен на враждебную планету, чтобы сделать её пригодной для жизни человека. В одиночку ему предстоит добывать ресурсы, пользоваться имеющимися технологиями, основать небольшое поселение и развить технологии. В дальнейшем он сможет нагреть планету и создать атмосферу с нормальным количеством кислорода. Это поможет перенаправить (   Читать дальше...   )Тип издания: LicenseРазработчик: Miju GamesЖанр: Приключение, Строительство, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802120   (14538) от 15.06.2025
 
 Новое достижение: 2000 релизов от Beijing65!!!
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14538.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14270.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14168.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14072.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14060.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14041.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13970.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13857.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13852.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Superjet совершил первый длительный полет на ро
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13814.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13810.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13745.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13631.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13421.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13337.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13224.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13223.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13123.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13031.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12933.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12920.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12815.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12795.jpg" />
 </div>
 
 
@@ -609,65 +661,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12670.jpg" />
 </div>
 
 
 ###  Подробнее
 
 В столице запущено  серийное производство специализированных солнечных панелей для космических аппаратов, которые войдут в состав российской системы спутникового интернета.Производственная линия работает по полному циклу — от создания фоточувствительного слоя до сборки конструкций и управляющих систем. За год предприятие сможет выпускать панели суммарной мощностью (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535060   (12604) от 04.07.2025
-
-Medieval Dynasty (2020) [Ru/Multi] (2.4.0.4/dlc) License GOG [Digital Supporter Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12604.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Medieval Dynasty вам предстоит примерить на себя роль юноши, который сбежал от войны и хочет взять жизнь в свои руки. Изначально вы одиноки, неопытны и бедны, однако вам предстоит многому научиться, возглавить других и основать процветающую династию, которая будет процветать многие века. Раннее Средневековье в Европе. Миром правят дворяне и церковь. Разные (   Читать дальше...   )Тип издания: LicenseРазработчик: Render CubeЖанр: Приключение, Ролевая игра, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9744DF235034D7223FC8DA8006239B75949E14F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804935   (12572) от 04.07.2025
-
-Первое достижение: 1000 релизов от almikl
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12572.jpg" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от almikl Дорогие друзья и гости клуба...В очередной раз перебирая списки релизёров было замечено, что один товарищ пытался "проскочить" незамеченным. Но у нас в клубе не принято быть непоздравленным!Поэтому прошу знакомиться с самым незаметным работником тыла, но несмотря на это прилагающим немало сил для поддержания дружеской (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

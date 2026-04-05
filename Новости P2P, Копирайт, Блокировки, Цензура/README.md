@@ -1,4 +1,31 @@
 https://t.me/izofen
+###  Публикация: 1862274   (1063432) от 
+
+Apple удалила Happ и популярные VPN-клиенты из российского App Store
+
+>>След.
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Речь идёт о приложениях Streisand, V2Box и v2RayTun. Они более не доступны в App Store с российских аккаунтов, тогда как с зарубежных их всё ещё можно скачать. Уже установленные приложения работать продолжат, но обновления получать перестанут, если не перекачать программы с использованием другого аккаунта.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861646   (1062674) от 
 
 В России впервые за два года оштрафовали провайдера за обход блокировки YouTube
@@ -7,7 +34,7 @@ https://t.me/izofen
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062674.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060165.jpg" />
 </div>
 
 
@@ -59,39 +86,13 @@ Microsoft заблокировала возможность загрузки о�
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057300.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Портал Neowin сообщает, что Microsoft целенаправленно заблокировала возможность скачивать ISO-образы Windows 11 и Windows 10 через сторонние инструменты.Ограничения затронули популярную утилиту Rufus и скрипт Fido. При попытке воспользоваться этими инструментами для загрузки Windows серверы Microsoft отклоняют запросы с кодом ошибки 715-123130. При этом на экран (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853025   (1056389) от 12.02.2026
-
-Discord по паспорту
-
->>След.
->>Новости P2P, Копирайт, Блокировки, Цензура
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Discord объявили о введении глобальной системы проверки возраста пользователей. Новые правила начнут действовать с марта 2026 года и затронут все аккаунты сервиса, сообщает The Verge.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -111,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054121.jpg" />
 </div>
 
 
@@ -137,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052117.jpg" />
 </div>
 
 
@@ -163,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049272.jpg" />
 </div>
 
 
@@ -189,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049177.jpg" />
 </div>
 
 
@@ -215,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047608.jpg" />
 </div>
 
 
@@ -242,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047370.jpg" />
 </div>
 
 
@@ -268,7 +269,7 @@ Beatles на службе у полиции или Как полицейские
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029446.jpg" />
 </div>
 
 
@@ -294,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993796.jpg" />
 </div>
 
 
@@ -321,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992009.jpg" />
 </div>
 
 
@@ -348,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_981531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_981531.jpg" />
 </div>
 
 
@@ -375,7 +376,7 @@ BREIN закрыла 393 торрент-ресурсов, а никто и не 
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979850.jpg" />
 </div>
 
 
@@ -401,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977109.jpg" />
 </div>
 
 
@@ -429,7 +430,7 @@ Netflix объявил войну VPN-провайдерам, но те не и�
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959443.jpg" />
 </div>
 
 
@@ -455,7 +456,7 @@ Microsoft обвинили в нарушении авторских прав
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919921.jpg" />
 </div>
 
 
@@ -483,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880459.jpg" />
 </div>
 
 
@@ -509,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833839.jpg" />
 </div>
 
 
@@ -536,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821811.jpg" />
 </div>
 
 
@@ -563,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_705769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_705769.jpg" />
 </div>
 
 
@@ -590,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703544.jpg" />
 </div>
 
 
@@ -617,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_700966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700966.jpg" />
 </div>
 
 
@@ -644,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_691918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691918.jpg" />
 </div>
 
 
@@ -671,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657778.jpg" />
 </div>
 
 

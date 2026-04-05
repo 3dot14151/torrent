@@ -1,32 +1,3 @@
-###  Публикация: 1795109   (67110) от 03.05.2025
-
-Circle Of Chaos - Studio Albums (4 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circle Of Chaos - метал-группа из Стокгольма, Швеция, основана в 2008 году.2010 - Black Oblivion
-2012 - Twoheaded Serpent (EP)
-2014 - Crossing the Line
-2022 - Forlorn ReignЖанр: Melodic Death MetalПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FA22AFDCBA7604BBF09A7274585E5B3178449F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795280   (67091) от 04.05.2025
 
 Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash Metal>
@@ -35,7 +6,7 @@ Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67091.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67089.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67080.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Christopher Cross - Christopher Cross (1979) Expanded Edition, 2025, Warner Reco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67077.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Tom Wax - The Future Is Now (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Tec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67060.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67049.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67048.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Hate - Bellum Regiis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67045.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Froglord - Metamorphosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, d
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67044.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Chontaraz - Phantom Of Reality (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67043.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Paradise Slaves - With Hell In His Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67041.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67039.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Gypsy Pistoleros - Welcome To The Church Of The Pistoleros (2025) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67035.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67032.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67019.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67018.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Bowers Foreman - The Boy Who Learned To Fly (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67011.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Eric Elias Trio - HOME MADE (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fus
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67010.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Haken - Liveforms: An Evening With Haken (Live in London 2024) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67009.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Big Mike Hart - Modern Classic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smoot
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67008.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Lily of the Sea - Slow Violence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67007.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Christian Madden & The Enemy Chorus - Shinbone's Revenge (2025) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67006.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Jonas Wall - Umbaji (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67005.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Aetherwind - The Bonding Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67000.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Kevin Moan & The Howling - Big Milk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66998.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Kevin Moan & The Howling - Big Milk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06DB436916806AD0A7DAC8EC72C6871D5590F509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796122   (66997) от 08.05.2025
+
+Fuel for the Dogz - Puppy Massacre (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Psycho Man (4:15)
+02.  Shadows of the Past (5:43)
+03.  Liar (3:39)
+04.  Doomsday Sirens (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8729F381D7FB0D4BB291A044DBCB2A72FE7F8A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

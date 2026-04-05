@@ -1,3 +1,56 @@
+###  Публикация: 907946   (635962) от 13.06.2015
+
+М. М. Манаева, Ю. В. Николенко | Каменные и армокаменные конструкции (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие составлено в соответствии с программой дисциплины «Железобетонные и каменные конструкции» - избранные главы - «Каменные и армокаменные конструкции» и отражает вопросы проектирования и возведения конструкций зданий, выполненных из каменной кладки.
+В пособии рассматриваются механические свойства материалов, применяемых для каменных и армокаменных конструкций; (   Читать дальше...   )Жанр: Учебники и учебные пособия для ВУЗов, СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71A4CC00E7691D81F2B18287F72753490B9969D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907498   (635727) от 13.06.2015
+
+Н.Н. Никифоров | Учебник сержанта артиллерии. Книга первая (1947) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен в первую очередь для подготовки сержантов артиллерии. Он может быть применён также при подготовке учащихся артиллерийских подготовительных училищ и для первоначальной подготовки курсантов артиллерийских училищ, которые не прошли курса подготовительного училища.Жанр: учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB661CC0B9962F5E120283F3C6DA7A3CB5CCC542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228256   (635682) от 01.06.2018
 
 Ю.А. Бычков и др. | Основы теоретической электротехники (2008) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635682.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635554.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635432.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634080.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633785.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633776.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633146.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633025.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632421.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632151.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631823.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631661.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631657.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631632.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631067.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630198.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629223.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628462.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628180.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628059.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627596.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627580.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627498.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627367.jpg" />
 </div>
 
 
@@ -621,61 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:844B8D2F6864B134F5F7BB7382B8853DA741A626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543825   (627354) от 12.04.2022
-
-А.Н. Фомичев | Исследование систем управления (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике комплексно изложены основные проблемные вопросы теории, методологии и практики исследования систем управления, предложены возможные варианты их решения, обозначены перспективы развития данного направления менеджмента в современных социально-экономических условиях.
-Для студентов высших учебных заведений, обучающихся по программам бакалавриата, а также для (   Читать дальше...   )Жанр: МенеджментФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D18148DEC8D5ACE0DF4C0A6C7E149882F1282BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144540   (627226) от 22.06.2017
-
-Ю.С. Соколова, С.Ю. Жулева | Разработка приложений в среде Delphi. Части 1, 2
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга отличается доступностью изложения с содержит большое количество примеров, предназначенных для быстрого освоения основных методов создания приложений различного уровня сложности. Предполагается, что читатель знаком со средой программирования языка Object Pascal Delphi и имеет опыт разработки проектов.
-
-Для студентов вузов, обучающихся по специальности 230105 (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F6408EDB055535CB7B67C982FD4B3BAA22EEEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

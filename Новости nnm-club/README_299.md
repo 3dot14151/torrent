@@ -1,3 +1,55 @@
+###  Публикация: 1798774   (17038) от 25.05.2025
+
+Качество домашнего Wi-Fi может упасть в ближайшие пять лет — ресурс диапазона 6 ГГц почти исчерпан
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17038.jpg" />
+</div>
+
+
+###  Подробнее
+
+С быстрым ростом числа сетей Wi-Fi пропускная способность диапазона 6 ГГц вскоре может исчерпаться, подсчитали эксперты некоммерческой организации CableLabs под эгидой операторов кабельного телевидения. Это грозит потерями до 2 % пакетов и задержками в 10 мс.Такой результат в CableLabs получили, проведя моделирование распределения сигнала Wi-Fi в двенадцатиэтажном (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120059   (16923) от 26.05.2025
+
+Rain World (2017) [Ru/Multi] (1.10.4/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы слизнекот. Вокруг вас мир, полный опасностей, и вам предстоит справляться с ними в одиночку. Вы потеряли семью во время разрушительного наводнения и теперь вынуждены охотиться, чтобы не умереть с голоду, и искать убежища в перерывах между бушующими ливнями, которые грозят утопить все живое. Пробирайтесь по руинам древней цивилизации, не попадайтесь в пасть злобным (   Читать дальше...   )Тип издания: LicenseРазработчик: VideocultЖанр: Экшны, Приключeние, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F91FE33132486F011BA18B0714EAA857365D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799355   (16790) от 27.05.2025
 
 Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Decepticon
@@ -6,7 +58,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16790.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.2.12721522) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16789.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kaspersky Free 21.21.7.384 Repack by LcHNextGen (29.05.2025) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16491.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack FitGirl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16490.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16484.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16483.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16190.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16176.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16155.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Windows 11 Enterprise LTSC x64 24Н2 (build 26100.4061) by ivandubskoj 24.05.202
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16038.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16032.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15903.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15806.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Valve назвала самые популярные видеокарты Steam 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15615.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15435.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15404.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15217.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15104.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14811.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (1.511.102.0/dlc
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14793.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 06.2025 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14792.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14699.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14698.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14693.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5214CEF4AEE7F537A5831EABF1BDD987B209309D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672927   (14687) от 14.06.2025
-
-Под куполом / Under the Dome (2013) WEB-DL [H.264/1080p] (Сезон 1, серии 1-13 из 13) BaibaKo
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычным погожим осенним днём город Честерс Милл, штат Мэн, оказывается внезапно отрезанным от остального мира невидимым барьером. В купол врезается самолёт. Загадочное силовое поле не щадит ни постройки, ни автомобили, ни животных, ни людей. Выехавшие в соседний город по делам не могут вернуться к своим близким. Никто не понимает, что это за барьер, откуда он взялся (   Читать дальше...   )Производство: США, Amblin Television, Baer Bones, CBS Television StudiosЖанр: фантастика, триллер, драма, детективРежиссер: Джек Бендер, Питер Лето, Дэвид БарретАктеры: Майк Фогель, Колин Форд, Аиша Хиндс, Александр Кох, Рашель Лефевр, Натали Мартинез, Дин Норрис, Джолин Парди, Бриттани Робертсон, Николас Стронг и др.Перевод: Профессиональный многоголосый - BaibaKoОзвучка: Юлия Котурбаш, Светлана Доманова, Артемий Мирон и Алексей КузнецовЯзык озвучки: Русский, английскийПродолжительность: ~ 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8253BB4019F2D085351B0B94CFC6D20E7C94C4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552518   (14585) от 15.06.2025
-
-The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой The Planet Crafter был отправлен на враждебную планету, чтобы сделать её пригодной для жизни человека. В одиночку ему предстоит добывать ресурсы, пользоваться имеющимися технологиями, основать небольшое поселение и развить технологии. В дальнейшем он сможет нагреть планету и создать атмосферу с нормальным количеством кислорода. Это поможет перенаправить (   Читать дальше...   )Тип издания: LicenseРазработчик: Miju GamesЖанр: Приключение, Строительство, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
 ```
 
 https://mybot314.ru/tekegram_catalog/

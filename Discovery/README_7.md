@@ -6,7 +6,7 @@ Discovery. Взрывая историю / Blowing up History (2019) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704886.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Легендарные места / Legendary Locations (2019) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703134.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Поездка налегке / Free Ride (2016) HDTV [H.264/1080p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700080.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700069.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Смертельный улов / Deadliest Catch (2017) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698405.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Discovery: Смертельное собеседование / Deadliest Job Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698117.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Discovery. Техногеника. Центр подготовки космон�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696530.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Discovery. Техногеника. Реактор ВВЭР - 1200. Самый м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696278.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696095.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Discovery. Техногеника. Самосвал БЕЛАЗ 75710 Больш�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694299.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690666.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690657.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Discovery. World's TOP 5. Super Trains / Пятёрка лучших. Супер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690547.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Discovery. World's TOP 5. Super Planes / Пятёрка лучших. Супер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688500.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Discovery: Встреча с инопланетянами / Alien Encounters (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688217.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Discovery. Тело человека: Грани возможного / Human Bo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686895.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Discovery: Техногеника. БТА. Телескоп-гигант (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682815.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Discovery: Техногеника. Рекордные локомотивы (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682809.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Discovery: Техногеника. Луноходы и марсоходы (2017)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682808.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681799.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680247.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680140.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680077.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Discovery: Спортивные арены Чемпионата Европы 201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679627.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Discovery: Золотой путь Паркера Шнабеля / Gold rush Par
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674221.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Discovery: Смертельный улов / Deadliest Catch (2010) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667249.jpg" />
 </div>
 
 

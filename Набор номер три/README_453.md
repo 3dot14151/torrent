@@ -1,3 +1,216 @@
+###  Публикация: 1327232   (376051) от 24.09.2019
+
+The Surge 2 (2019) [Ru/Multi] (1.0) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попав в загадочную бурю, ваш самолёт терпит крушение на окраине Джерико. Несколько недель спустя вы приходите в себя в заброшенной городской тюрьме. Закованные в броню солдаты следят за соблюдением военного положения, роботы вышли из-под контроля, а над городом зреет страшная нанитовая буря… Сражайтесь с многочисленными врагами в жестоких и бескомпромиссных боях, (   Читать дальше...   )Тип издания: LicenseРазработчик: Deck13Жанр: Action, RPG, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C6F24DEC81498E9F2948118DC437045875F1EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272548   (376048) от 24.09.2019
+
+Launcher for GoodbyeDPI v.2.0
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
+Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
+
+Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63759DADC7CAFA2EC07E236008093C1EB95FE840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327102   (376047) от 24.09.2019
+
+Анна / Anna (2019) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва, конец 1980-х. Скаут французского модельного агентства находит на Измайловском рынке подходящую ему по всем параметрам девушку Анну. Его не смущает, что потенциальная модель знает несколько языков, но торгует при этом матрёшками, и вот уже Анна летит в Париж и приступает к работе. Но её настоящая работа заключается не в позировании перед фотокамерами — хрупкая (   Читать дальше...   )Производство: Франция, США / EuropaCorp, TF1 Films Production, OCSЖанр: боевик, триллерРежиссер: Люк БессонАктеры: Саша Лусс, Хелен Миррен, Люк Эванс, Киллиан Мёрфи, Лера Абова, Александр Петров, Никита Павленко, Анна Криппа, Алексей Маслодудов, Эрик ГодонПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCA3B0410ADB0DC2EFBE7A938AA54387D9FF27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175532   (375848) от 19.10.2017
+
+Люди скоро смогут забыть, что такое электрические розетки
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспроводные технологии передачи электроэнергии в скором времени позволят людям забыть, что такое электрические розетки, заявил глава Минэнерго Александр Новак, выступая на XIX Всемирном фестивале молодежи и студентов.По словам министра, наука сейчас работает в том числе над задачей передачи энергии на большие расстояния. Уже появились соответствующие технологии, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175623   (375718) от 19.10.2017
+
+Искусственный интеллект превзошел человека в создании искусственного интеллекта
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусственный интеллект от Google научился создавать программное обеспечение машинного обучения, которое по своей эффективности превышает системы, созданные людьми. Об этом пишет Wired.Проект AutoML («автоматизированное машинное обучение»), в ходе которого нейросети разрабатываются искусственным интеллектом, был запущен в мае 2017 года. К настоящему моменту его рекорд (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175364   (375702) от 19.10.2017
+
+"Большое" осеннее обновление Windows начало устанавливаться на компьютеры
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Microsoft объявила, что с сегодняшнего дня на компьютеры пользователей, у которых активированы автоматические обновления системы Windows 10, начнет устанавливаться очередной крупный апдейт под названием Fall Creators Update.В обновлении, о котором впервые объявили на конференции Build в марте, содержит большой набор нововведений, которые, обещают в компании, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175842   (375700) от 19.10.2017
+
+Ubuntu 17.10 Artful Aardvark [i386, amd64] DVD, CD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпущен релиз дистрибутива Ubuntu 17.10 "Artful Aardvark", который ознаменовал возвращение к рабочему столу GNOME. Установочные образы созданы для Ubuntu Desktop, Ubuntu Server, Ubuntu Cloud, Lubuntu, Lubuntu Next, Kubuntu, Ubuntu Mate, Ubuntu Budgie, Ubuntu Studio, Xubuntu и UbuntuKylin (редакция для Китая).
+
+Основные новшества: Переход по умолчанию с (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72F46A7F70A8AD253D7BF22D5C66F7B0696A877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174795   (375699) от 19.10.2017
+
+PES 2018 / Pro Evolution Soccer 2018 (2017) [Ru/En] (1.0.1.02/dlc) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Evolution Soccer 2018 – триумфальное возвращение знаменитой серии, которая с каждым годом становится все лучше и лучше. Ключевая идея PES 2018 – «Контроль над реальностью». В этих словах заключена сама суть новой игры, краеугольным камнем которой стало стремление достичь максимального реализма как в управлении, так и в визуальном аспекте.Тип издания: RepackРазработчик: Konami Digital EntertainmentЖанр: Sport (Soccer), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B11B9FBE005A8D5CCC14E7E7BF7688D6A99DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414593   (375628) от 12.10.2020
 
 В часах сидит человек и рисует стрелки?
@@ -6,7 +219,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_375628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375628.jpg" />
 </div>
 
 
@@ -33,7 +246,7 @@ Grand Theft Auto: San Andreas / Multiplayer [Ru/En] (RePack/Mod) 2005/2010 | Elm
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375284.jpg" />
 </div>
 
 
@@ -59,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375073.jpg" />
 </div>
 
 
@@ -85,7 +298,7 @@ Adobe Photoshop CC 2017.0.0 2016.10.12.r.53 (Unofficial version) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375019.jpg" />
 </div>
 
 
@@ -111,7 +324,7 @@ Adobe Premiere Pro CC 2017 11.0.0.154 (Unofficial version) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375007.jpg" />
 </div>
 
 
@@ -137,7 +350,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374993.jpg" />
 </div>
 
 
@@ -164,7 +377,7 @@ Adobe Photoshop CC 2017.0.0 (2016.10.12.r.53) RePack by D!akov [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374991.jpg" />
 </div>
 
 
@@ -190,7 +403,7 @@ ESET NOD32 Smart Security Premium 10.0.369.1 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374990.jpg" />
 </div>
 
 
@@ -216,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374777.jpg" />
 </div>
 
 
@@ -242,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374765.jpg" />
 </div>
 
 
@@ -268,7 +481,7 @@ Connectify Pro 3.7.1.25486 [Английский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_374762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_374762.jpg" />
 </div>
 
 
@@ -296,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374678.jpg" />
 </div>
 
 
@@ -322,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374677.jpg" />
 </div>
 
 
@@ -348,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_374610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_374610.jpg" />
 </div>
 
 
@@ -374,7 +587,7 @@ Microsoft предоставила Linux-сообществу открытый �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_374607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_374607.jpg" />
 </div>
 
 
@@ -400,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_374524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_374524.jpg" />
 </div>
 
 
@@ -426,7 +639,7 @@ Call of Duty: Modern Warfare - Remastered (2016) [Ru/En] (1.13) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374473.jpg" />
 </div>
 
 
@@ -452,7 +665,7 @@ Windows 10 8in1 (x86/x64) + LTSC (LTSB) +/- Office 2019 by SmokieBlahBlah 12.10.
 >>36
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374472.jpg" />
 </div>
 
 
@@ -466,216 +679,6 @@ Windows 10 8in1 (x86/x64) + LTSC (LTSB) +/- Office 2019 by SmokieBlahBlah 12.10.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:673EBAB13820CB1D7EDF2603F97812752533FCCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949820   (374250) от 24.10.2015
-
-Битва экстрасенсов. Сезон №16. Выпуск №6 (2015) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374250.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 сентября на ТНТ стартует 16-й сезон «Битвы экстрасенсов». В этом году среди желающих попасть на 16-й сезон «Битвы экстрасенсов» необычных людей было больше, чем когда-либо. Уже сейчас понятно: 16-я «Битва» будет ну очень запоминающейся! Их создатели пока держат в строжайшем секрете. Съемки уже идут, и экстрасенсы не должны узнать заранее, что для них готовят. (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D922868121FE770B12A61C3A958C6637CA92A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949195   (374132) от 24.10.2015
-
-Dr.Web Security Space 11.0.0.10191 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dr.Web Security Space предлагает комплексное противодействие интернет-угрозам. Включает антивирус, антишпион, антируткит, превентивную защиту, антиспам, облачный веб-антивирус и родительский контроль в сочетании с дополнительной защитой от сетевых атак, благодаря встроенному фаерволу Dr.Web Firewall.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50397F8CE2BAEE198BFE0FBD59CD6E474834F35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949644   (374108) от 24.10.2015
-
-Just Dance 2016 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En] [MOVE]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just Dance 2016 – продолжение популярной серии танцевальных игр, демонстрирующее совершенно новый подход к игровому процессу.
-
-Окунитесь в ритм песни Uptown Funk Марка Ронсона и Бруно Марса или оторвитесь по полной под звуки All About That Bass Меган Трейнор! Just Dance 2016 предлагает шикарную подборку музыки и как никогда захватывающий видеоряд. Более 100 миллионов (   Читать дальше...   )Тип издания: UnofficialРазработчик: UbisoftЖанр: DanceЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7C2EB959A47B53FC9478074D5327661023059B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949769   (374102) от 24.10.2015
-
-Microsoft Office 2013-2016 C2R Install 4.8 by Ratiborus [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Установщик Office 2016 позволяющий выбрать необходимые приложения и выполнить активацию.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A2970F2AC2076DB4D5F1BD16FF7CEE2157CE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949593   (374094) от 24.10.2015
-
-EasyBCD 2.3.0.207 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374094.jpg" />
-</div>
-
-
-###  Подробнее
-
-EasyBCD - менеджер загрузки операционных систем для Windows, позволяющий быстро настроить загрузку ОС и использовать несколько операционных систем на одном компьютере (поддерживаются все версии Windows, Linux, Mac OS X и BSD). С помощью EasyBCD можно установить и сконфигурировать загрузочные записи ОС, что позволит загружать любую из поддерживаемых операционных систем (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8486EF019FC50AD4434E0880CF0FDFE05CF507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881130   (374092) от 24.10.2015
-
-Torque Pro (OBD2 / Сar ) 1.8.62 - программа для диагностики автомобилей с интефейсом OBD-II [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для получения и отображения диагностической информации о работе двигателя через интерфейс OBD-II. Собственно программа умеет получать всю информацию по интерфейсу OBD2. Имеется 15 настраиваемых экранов. Можно выводить информацию в виде графиков, цифровых значений, циферблата. Есть несколько предопределённых виджетов, можно создавать свои. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 1 октября 2015 г.Разработчик: Ian HawkinsПоддерживаемая ОС: Android 2.0+Жанр: Автомобили и ПутешествияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DAE75FB6603A5D966B27B8220A37C4118241D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949671   (374090) от 24.10.2015
-
-Microsoft Office 2016 Applications 16.0.4266.1001 RePack by -{A.L.E.X.}- [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия, не важно, Office 2016 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0256EC279B747509809748600A9CB77605E973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327347   (373973) от 25.09.2019
-
-Acronis True Image 2020 Build 21400 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4721EE30E4E3BD1293EAD4F95744494B9A41920F
 ```
 
 https://mybot314.ru/tekegram_catalog/

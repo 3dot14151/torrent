@@ -1,3 +1,32 @@
+###  Публикация: 1420097   (333952) от 31.10.2020
+
+Jester's Tears - Perception (2020) [MP3|320 Kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmony (07:33)
+ 02. The Only Way (05:37)
+ 03. I Can't Deny (06:44)
+ 04. Dreams Aside (05:32)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE221593619B6914E2CFB338BC83D232DAF023A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420270   (333947) от 31.10.2020
 
 The Experimentalists - An Experimental Salute To Led Zeppelin IV (2009) [MP3|320 Kbps] <Rock, Electro>
@@ -6,7 +35,7 @@ The Experimentalists - An Experimental Salute To Led Zeppelin IV (2009) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333947.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Greg Lake - The Anthology: A Musical Journey (2020) 2xCD [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333944.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lamb Of God - Lamb Of God (2020) [FLAC|Lossless|image + .cue] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333941.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ NightFear - Drums Of War (2015) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333902.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Aillion - Война миров (2015) [MP3|320 кб/с]<Melodic Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333791.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Dawai Rock'n'Roll - Давай Рок'н'Ролл (1989) [MP3|320 кб/с]<
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333780.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Queen - A Night At The Odeon (2015) Live, UK Edition [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333704.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Def Leppard - Def Leppard (2015) Limited Edition Fanpack [FLAC|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333699.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333610.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ World Trade - Unify (2017) [FLAC|Lossless|image + .cue] <AOR, Progressive rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333504.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Tankard - Pavlov's Dawgs (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Thrash Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333498.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333475.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ The Rolling Stones - Honk (Deluxe Edition) (2019) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333392.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Stratovarius - Survive (2022) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333358.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Skindred - Дискография (2000-2015) [MP3|192-320 kbps]<Ragga, Punk, Me
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333339.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ The Hu - Rumble Of Thunder (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333211.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Excommunicated - Skeleton Key (2011) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333160.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Ascension - Under Ether (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333159.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Frее Frоm Sin - II (2018) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333155.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Behemoth - Xiadz/Blow Your Trumpets Gabriel (2014) Limited Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333151.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332981.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Slipknot - Greatest Hits (2010) [MP3|320 kbps]<Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332839.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Urto - Upside Down (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332643.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Vanden Plas - Chronicles of the Immortals: Netherworld II (2015) [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332628.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Harlis - Harlis (1976) Reissue, 2009, Sireena Records [MP3|320 кб/с]<Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332624.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Harlis - Harlis (1976) Reissue, 2009, Sireena Records [MP3|320 кб/с]<Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A139D81F41E189D6253AFA7433AE8689E402EBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420359   (332608) от 01.11.2020
-
-VA - Volume 4 (Redux) (2020) [MP3|320 Kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thou - Wheels of Confusion - The Straightener
-02. The Obsessed - Tomorrow's Dream
-03. High Reeper - Changes
-04. Matt Pike - FX(   Читать дальше...   )Жанр: MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A8F180AE2A0B891E9504C5430BF0672721508D
 ```
 
 https://mybot314.ru/tekegram_catalog/

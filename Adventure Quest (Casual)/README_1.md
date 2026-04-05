@@ -6,7 +6,7 @@ Strange Investigations: Becoming / Удивительные расследова
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029280.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mystery Tales 14: Master of Puppets (2021) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029017.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Twin Mind. Murserous Jealousy / Близнецы-детективы. Убийс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028029.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Detectives United 4: Phantoms of the Past / Лига детективов 4: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027879.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nevertales 10: Faryon (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027701.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dark Romance 14: Sleepy Hollow (2021) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026726.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fairly Twisted Tales. The Price of A Rose / Весьма запутанная с
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025060.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Grim Tales 20: Trace in Time (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024185.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Fear for Sale 9: The Dusk Wanderer / Страх на продажу 9: Блуж�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022568.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mystery Tales 14: Master of Puppets / Загадочные истории 14: М
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022413.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Nevertales 10: Faryon / Несказки 10: Фарион (2021) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021907.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mystery Trackers 19. Forgotten Voices (2021) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021890.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Vacation Adventures. Park Ranger 11 (2021) [En] (1.0.0.1) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021559.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021243.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Secret City 6: Sacred Fire (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020810.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Arcana: Sands of Destiny / Аркана: Пески Судьбы (2020) [Ru/Mult
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020776.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sea of Lies 4: Tide of Treachery / Море лжи 4: Волны предате�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020622.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Christmas Stories 6: A Little Prince Collector's Edition / Рождествен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020621.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Twin Mind. Murderous Jealousy / Двуединое сознание. Убийс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020256.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bridge to Another World 8: Endless Game (2021) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019777.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Keeper of Antiques 3: The Last Will / Антиквар 3: Завещание
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019447.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Fatal Evidence 4: In A Lamb's Skin (2021) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018381.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Secret City 6: Sacred Fire / Тайный город 6: Священный ог�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018033.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Chimeras 12: Inhuman Nature / Химеры 12: Нечеловеческая су
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017542.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Whispered Secrets 12: Ripple of the Heart (2021) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017407.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Whispered Secrets 12: Ripple of the Heart / Нашептанные секрет�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016704.jpg" />
 </div>
 
 

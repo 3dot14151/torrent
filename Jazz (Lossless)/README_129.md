@@ -6,7 +6,7 @@ Keith Jarrett - Standards, Vol. 2 (1983) Remaster, 1985, ECM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619993.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tommy Flanagan - Let's: play the Music of Thad Jones (1993) /2005, Enja/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619975.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Diana Krall - Turn Up the Quiet (2017) Japan, SHM-CD [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619678.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Warren Bernhardt Trio - Ain't Life Grand (1990) Digital Music Products[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619335.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619146.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619076.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Club Des Belugas - Ragbag (2018) [FLAC|Lossless|image + .cue] <Swing-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618973.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Carlos Martins - Passagem (1996) Enja Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618858.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charlie Byrd - Bossa Nova Pelos Passaros (1962-1963) /2002, Riverside/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618495.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Duke Ellington - Live in Zurich, Switzerland 2.5.1950 (2007) [FLAC|tracks]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618489.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Albert Sanz Trio - O Que Sera (2012) Nuba Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618353.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Joe Newman Septet - The Midgets (1956) 1998, BMG Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618242.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Gi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618229.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618225.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wynton Marsalis - Black Codes (From The Underground) (1985) [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617977.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Harold Ashby - On The Sunny Side Of The Street (1992) Remaster, 2015, Solid Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617457.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sadao Watanabe - Swiss Air (1975) Remaster, 2014, Sony Music[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617456.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jimmy Smith - Respect & Livin' It Up (1967, 1968) 2010, Verve[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617279.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ B.T. Express - Do It ('Til You're Satisfied) (1990) [FLAC|Lossless]<Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_617203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_617203.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ellis Marsalis - Duke In Blue (1999) Columbia [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617093.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Patricia Barber - Higher (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616917.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Budapest Ragtime Band - Caravan (1994) BRB Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616698.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Illinois Jacquet - The Blues; That's Me! (1969) /2000, Original Jazz Classics/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616570.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Gilberto Gil - Sao Joao Vivo  (2001) 2002, Warner Music Brasil [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616500.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Ornette Coleman - Skies Of America (1972) /2014, Columbia/[FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616442.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Eartha Kitt - The Real... Eartha Kitt (The Ultimate Collection) (2015) 3CD [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616351.jpg" />
 </div>
 
 

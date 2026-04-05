@@ -6,7 +6,7 @@ VA - Relax-Café (2008) [MP3|320 kbps]<ChillOut, Ambient, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780747.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ VA - Enigma Alive Vol.3 (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780487.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ VA - Balearic Special Relax Party (2018) [MP3|320 Kbps] <Chillout, Downtempo, Re
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779366.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ VA - Hold on and Chill Out (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778350.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Superior Lounge Vol.2: 25 Premium Lounge Tunes (2016) [MP3|320 кб/с] <Do
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778340.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Instrumental Piano: Neo Classical Collection (2018) [MP3|320 Kbps] <Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776005.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Sleep Very Relaxing piano Music (2016) [MP3|320 кб/с] <Downtempo, Chillo
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775761.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Acoustic Roots Great Britain (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772833.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - The Best Lounge Vol.53 (Compiled by Sergio) (2018) [MP3|320 Kbps] <Downtemp
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771761.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - The Best Lounge Vol.1(Compiled by Sergio) (2016) [MP3|239-320 кб/с] <Lou
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769633.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Relax Piano Music Vol.02 (2019) [MP3|320 Kbps] <Downtempo, Chillout, Instru
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767561.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Music For Meditation Vol.14 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Med
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767038.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765151.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Pacifique: New Age Music (2018) [MP3|256-320 Kbps] <New Age, Instrumental, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764857.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Chillout Instrumentals Chill Out and Lounge Instrumental Track (2016) [MP3|
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763135.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Magic Piano Sounds (2018) [MP3|320 Kbps] <Piano, Classic, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762990.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_761666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_761666.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Acoustic Roots: Latin America (2016) [MP3|320 кб/с] <Downtempo, Chillout
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761216.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Mysterious Dream Sound (2016) [MP3|320 кб/с] <Ambient, Chill Lounge, Rel
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760984.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Chill Acoustic Jazz Playlist (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759186.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Bitter Sweet Symphony (2018) [MP3|320 Kbps] <Neo Classical>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757852.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Guitar World: Instrumental Collection (2018) [MP3|320 Kbps] <Instrumental, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757788.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Blessing New Age Music (2018) [MP3|256-320 Kbps] <New Age, Relax, Meditativ
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756214.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Piano and Chill: Piano for Chillout (2016) [MP3|320 кб/с] <Downtempo, Ch
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755683.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Dancing Fantasy - Compilation (2020) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755060.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ VA - Acoustic Cafe: Relaxing and Easy Listening (2016) [MP3|320 кб/с] <Downte
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753955.jpg" />
 </div>
 
 

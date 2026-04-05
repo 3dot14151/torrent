@@ -1,3 +1,83 @@
+###  Публикация: 1056945   (477222) от 27.09.2016
+
+Р. Декарт | Геометрия (1938) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роль Декарта как философа общепризнанна. Как математик, Декарт в своей книге "Геометрия" усовершенствовал алгебраические обозначения и создал аналитическую геометрию. Также он произвел революцию в математике, создал нечто несравненно большее, чем аналитическая геометрия (понимаемая как теория кривых на плоскости), а именно: новый подход к описанию явлений (   Читать дальше...   )Жанр: История, науковедение, естествознание, геометрия, математикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2088CA2649044F685752C9244058127A19E65288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056944   (477090) от 27.09.2016
+
+Ч. Дарвин | Изменение животных и растений в домашнем состоянии (1941) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий труд "Изменение животных и растений в домашнем состоянии" появился в начале 1868 года как дополнительный к "Происхождению видов". В этом трактате находятся как все собственные наблюдения Дарвина, так и громадное количество фактов, почерпнутых из самых разнообразных источников.Жанр: История, науковедение, естествознание, биологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC0D51A0F2FD9ABED17213435E39837A7DF78FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160560   (471660) от 26.08.2017
+
+Л.С. Фрейман | Что такое высшая математика (1965) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — не учебник. Она не научит читателя высшей математике. Правила, которые он здесь усвоит, не носят обобщающего характера, поэтому их нельзя применять к решению любого примера или задачи, в том числе и практических. Не адресована книга и студенту. Она имеет другую цель: ответить на вопросы, поставленные в заглавии.
+
+И читатель ее совсем другой. Есть учащиеся (   Читать дальше...   )Жанр: История, науковедение, математикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71ED7E3955AED39D0FF8ACDF20504BE701D33EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057995   (470948) от 30.09.2016
 
 Д. Д. Иванов,  Н. А. Фигуровский (отв. ред.) | История естествознания. Библиографический указатель [1917-1947] (1949) [DJVU]
@@ -6,7 +86,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470948.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470408.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470296.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469117.jpg" />
 </div>
 
 
@@ -116,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469084.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468969.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468899.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468763.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468760.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468566.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466076.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465868.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465365.jpg" />
 </div>
 
 
@@ -354,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463807.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463201.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449936.jpg" />
 </div>
 
 
@@ -433,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447813.jpg" />
 </div>
 
 
@@ -460,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446239.jpg" />
 </div>
 
 
@@ -487,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446144.jpg" />
 </div>
 
 
@@ -513,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446132.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441829.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439438.jpg" />
 </div>
 
 
@@ -594,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439329.jpg" />
 </div>
 
 
@@ -607,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4DFA2C2CE110AB46B54BDA27E4E14067D0DD4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944888   (435991) от 09.10.2015
-
-Сергей Вавилов | Глаз и Солнце (2015) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Глаз и Солнце», созданная выдающимся ученым, академиком С. И. Вавиловым (1891–1951), стала классикой научно-популярной литературы. В ней представлена история изучения света, рассказано об устройстве человеческого глаза и свойствах излучения Солнца. Дополняют книгу тексты знаменитого физика Г. Г. Слюсарева, а также суждения мыслителей прошлого – Р. Декарта, (   Читать дальше...   )Жанр: ФизикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D86464CE67D58E6E4860A6C1D7544D162F780E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945730   (431732) от 11.10.2015
-
-Луи де Бройль | По тропам науки (1962) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431732.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «По тропам науки» Луи де Бройль рассматривает сложные и актуальные проблемы современной науки, представляющие большой интерес для всех, кто интересуется развитием современных физических представлений о строении материи, об ее свойствах, об «элементарных частицах» и т. д.Жанр: История, физика, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8C931559A5D4B942CE0B0010357A8A60973429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410858   (431634) от 23.09.2020
-
-Р.Е. Пайерлс | Законы природы (1962) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Р. Е. Пайерлса «Законы природы» представляется нам в своем роде уникальной. Если по отдельным частным проблемам современной физики и существуют популярные книги, хоть и в небольшом количестве, то такой книги, которая давала бы в популярной форме представление о всей современной физике, до сих пор не было. Настоящая книга, написанная известным английским физиком-теоретиком (   Читать дальше...   )Жанр: История, науковедение, физикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88190E8C93972FBFF8A5CCC35A1713E5831E7D53
 ```
 
 https://mybot314.ru/tekegram_catalog/

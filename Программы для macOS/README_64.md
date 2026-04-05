@@ -1,3 +1,59 @@
+###  Публикация: 1532116   (716632) от 18.02.2022
+
+Teorex DupHunter 3.0.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716632.jpg" />
+</div>
+
+
+###  Подробнее
+
+DupHunter - поиск и удаление дубликатов фотографий
+DupHunter - небольшая программа от разработчиков TeoreX, которая способна найти дубликаты изображений на ваших дисках или в папках. Программа быстро проведёт поиск фотографий на компьютере и найдёт все дубликаты, при этом оставит только лучшие изображения.
+DupHunter автоматически найдет серии снимков, созданных при (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 15.12.2021Разработчик: © 20011-2021 Maxim GapchenkoПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12180505D7114C8779F5D8C309B7B73C477A269F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130358   (716531) от 01.05.2017
+
+Membrane Pro - Cover image maker 1.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Membrane Pro представляет собой приложение, которое легко позволяет создавать обложки для альбомов, Facebook обложки, обложки для канала YouTube, и многое другое.
+
+Выберите шаблон, редактируйте текст и графику. Membrane Pro имеет все необходимое для потрясающих макетов. Красивые шаблоны, бесплатные фотографии высокого разрешения, большие шрифты и многое другое. Простой, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2017Разработчик: Hoyun ChuПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C6AA955553B26923EB765356DC6D24EBAADFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130310   (716420) от 01.05.2017
 
 Any DVD Ripper Pro 3.7.87 [En]
@@ -6,7 +62,7 @@ Any DVD Ripper Pro 3.7.87 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716420.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Soda Player 1.4.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716361.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ MoviePal 2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716309.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ TripMode 2.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716263.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ Adobe Prelude CC 2017.1 (6.1) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716253.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ QR Factory 2.9.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716251.jpg" />
 </div>
 
 
@@ -171,7 +227,7 @@ Adobe Media Encoder CC 2017.1 (11.1) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715864.jpg" />
 </div>
 
 
@@ -200,7 +256,7 @@ BookReader 5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715706.jpg" />
 </div>
 
 
@@ -229,7 +285,7 @@ SoundMate for SoundCloud 3.3.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714815.jpg" />
 </div>
 
 
@@ -257,7 +313,7 @@ VMware Fusion Pro 11 v11.5.6 (build 16696540) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714667.jpg" />
 </div>
 
 
@@ -284,7 +340,7 @@ Roxio Toast Titanium 17 v17.4.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714362.jpg" />
 </div>
 
 
@@ -310,7 +366,7 @@ Pixa 1.1.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714336.jpg" />
 </div>
 
 
@@ -337,7 +393,7 @@ Gridsutra 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714231.jpg" />
 </div>
 
 
@@ -363,7 +419,7 @@ Mail Detective 1.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714082.jpg" />
 </div>
 
 
@@ -392,7 +448,7 @@ Timing - The Best Automatic Time Tracking 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713986.jpg" />
 </div>
 
 
@@ -419,7 +475,7 @@ Contacts Cleaner 1.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713807.jpg" />
 </div>
 
 
@@ -447,7 +503,7 @@ Inklet 2.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713673.jpg" />
 </div>
 
 
@@ -476,7 +532,7 @@ Smart Scroll 4.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712607.jpg" />
 </div>
 
 
@@ -504,7 +560,7 @@ BookmarkApp 1.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712362.jpg" />
 </div>
 
 
@@ -530,7 +586,7 @@ Myriad 4.0.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712357.jpg" />
 </div>
 
 
@@ -556,7 +612,7 @@ Aerodrums 1.0.22 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712352.jpg" />
 </div>
 
 
@@ -582,7 +638,7 @@ HTML Egg Pro 7.76.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712280.jpg" />
 </div>
 
 
@@ -610,7 +666,7 @@ Movavi Split Movie 2 v2.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712184.jpg" />
 </div>
 
 
@@ -638,7 +694,7 @@ UltData (iPhone Data Recovery) 7.4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712174.jpg" />
 </div>
 
 
@@ -652,64 +708,6 @@ Tenorshare UltData (iPhone Data Recovery) для Mac с лёгкостью во�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6AD6088591613EDBF1C7B4C98B29D3D9DFC093F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401240   (711497) от 09.08.2020
-
-Copied 4.0.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Copied - полнофункциональный менеджер буфера обмена.
-Сохраните текст, ссылки и изображения, которые вы скопировали в буфер обмена из любого приложения. Быстрый доступ к сохраненным вырезкам из строки меню и копирование их обратно в буфер обмена в оригинальном формате или в различных форматах с использованием шаблонов.
-
-Создавайте списки и организуйте вырезки. Используйте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.08.2020Разработчик: Kevin ChangПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE116C8ABA35CBA5BCCAAF2CC5F17F77DAEB2C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401419   (711491) от 09.08.2020
-
-Lux 1.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задумывались, сколько времени осталось до восхода или заката? Lux может предложить это и многое другое.
-Особенности:
-● Убедитесь, что у вас есть подключение к сети «Интернет» по Wi-Fi.
-● На этом этапе приложение определит ваше географическое положение.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2020Разработчик: LionsApp.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2B2D15E51E4DA3118E7CB3B49A780A41A6A334
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026866.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Power Tale - Огненный Бог Марранов (2021) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026556.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026461.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026404.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dua Lipa - We're Good (2021) WEB-DL [1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025596.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025420.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025302.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Within Temptation - Videos and Live - Essentials (Compilation) (2021) Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024853.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023956.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Alice Cooper - The Detroit Stories (2021) DVDRip [H.264/360p] <Hard Rock>
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023645.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023582.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The Beatles: Мне следовало быть осторожнее / I Should 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023106.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022912.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022894.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022722.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022401.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022365.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022195.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021579.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021282.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Beatles: Не приставай / Don’t Bother Me (A Hard Day's Night) (1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020800.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020483.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019615.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019266.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018532.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018346.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1321466   (458947) от 24.08.2019
+
+Россия - царство тигров, медведей и вулканов / Russland - Im Reich der Tiger, Bären und Vulkane (2011) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм "Россия. В царстве тигров, медведей и вулканов" - это окно в Россию, неизвестную для западного человека и даже для многих россиян. "Россия – самая большая страна мира. Во многих своих частях она остается неизведанным миром, полным чудес. Пусть сохранится этот мир и для поколений, которые придут после нас".
+...С этих слов начинается (   Читать дальше...   )Производство: Россия, Германия, NDR Naturfilm, Studio Hamburg Doclights Produktion, Norddeutscher Rundfunk (NDR), Westdeutscher Rundfunk (WDR), National Geographic International, Animal Planet US, Parthenon Entertainment, Sianel 4 Cymru (S4C), Channel One Russia, PolybandЖанр: Документальный, природа, флора, фаунаРежиссер: Уве Андерс, Кристиан Баумейстер, Оливер ГоетцлПеревод: Одноголосый закадровый, профессиональный (В.Курдов)Субтитры: Русские, Немецкие, АнглийскиеПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED3B0D39AD6AD945DC65F9BEEE745BF1FDE31DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321516   (458806) от 24.08.2019
 
 NG: Дикая природа России / Россия от края до края / Wild Russia (2009) BDRemux [H.264/1080p] [hand made 50fps] (серии 1-6 из 6) [VO]
@@ -6,7 +33,7 @@ NG: Дикая природа России / Россия от края до к�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458806.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457764.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454420.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ BBC. Восхождение животных. Триумф позвоночны�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441669.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ BBC. Зачарованное Королевство / Enchanted Kingdom (2013) 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441504.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438346.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438329.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438039.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437915.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Viasat Nature: С водой и без воды / Life in the Great Wetlands [с
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431436.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429656.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427558.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427440.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426418.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424549.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423510.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423508.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423385.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418975.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418799.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ Nat Geo Wild: Тайны дикой природы / Secrets Of The Wild (2013) 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418588.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418574.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417450.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414487.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413861.jpg" />
 </div>
 
 
@@ -650,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A822057358EEF572D4E162716735B8EB7AB1DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164527   (410241) от 23.09.2017
-
-Дэвид Аттенборо: Дикий город / David Attenboroughs: Wild City (2015) HDTVRip [H.264/720p-LQ] (серии 1-2 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410241.jpg" />
-</div>
-
-
-###  Подробнее
-
-На один градус севернее экватора находится маленький остров, процветающий тропический рай. А буквально из джунглей вырос один из самых динамично развивающихся городов мира - Сингапур, одна из самых густонаселенных стран на планете. Там, где когда-то были тропические джунгли, сейчас расположены 665 квадратных километров асфальта и небоскребов. Но даже при населении (   Читать дальше...   )Производство: Сингапур, Beach House Pictures Pte LtdЖанр: Документальный, научно - познавательный, фауна, флораРежиссер: Клэр КлементсПеревод: Одноголосый закадровый, профессиональный (Видеофильм - ТВ)Субтитры: отсутствуютПродолжительность: 2x~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952815C0B1A09A23DCF92E5E1B8E603BDCD0166F
 ```
 
 https://mybot314.ru/tekegram_catalog/

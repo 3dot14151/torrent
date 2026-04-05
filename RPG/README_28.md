@@ -1,3 +1,55 @@
+###  Публикация: 1407610   (461602) от 09.09.2020
+
+Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (cs:6544/dlc) Repack Other s
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте Kingdoms of Amalur: Re-Reckoning! Возвращение ролевой игры от писателя Р. Э. Сальваторе, сценариста Тодда Макфарлейна («Спаун») и дизайнера Кена Ролстона (Elder Scrolls IV: Oblivion). Вас ждут обновленная графика, улучшенный игровой процесс и огромный мир! Узнайте тайны Амалура: исследуйте оживленный Ратир, бескрайние просторы Далентарта и мрачные подземелья (   Читать дальше...   )Тип издания: RepackРазработчик: KAIKO, Big Huge GamesЖанр: Action, RPG (Open World), Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BFB8D9535798F7B3C94E07265C257AF41103EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053001   (461260) от 04.10.2016
+
+Space Rogue (2016) [Ru] (1.1.7917) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Space Rogue — игра про капитана космического корабля и его экипаж. Исследуйте космос, сражайтесь, помогайте другим или сами выступите в роли пирата. Найдите свою уникальную боевую тактику, соберите и прокачайте команду, модернизируйте свой корабль. Space Rogue объединяет элементы космического приключения и тактического боевого симулятораТип издания: LicenseРазработчик: Red BeatЖанр: Strategy, RPG, SandboxЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018DAF9AAFC87766DDC9DA372AEE9416FD8015EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162186   (460777) от 31.08.2017
 
 Legend of Grimrock 2 (2014) [En] (2.2.4) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460777.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460501.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Wizards and Warriors (2000) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458741.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458644.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Torchlight (2009) [Ru/En] (1.15(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456406.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Regalia: Of Men and Monarchs (2017) [En/Ge/Pl] (1.0.7.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456243.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454214.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License PROPHET [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450127.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447437.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445897.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Steam-Rip CHRONOS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444807.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444489.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Avernum: Escape From the Pit (2012) [Ru/En] (1.0.1S) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443468.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-100601) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441300.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437555.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Arcania: Gothic 4 / Готика 4: Аркания [Multi5-] (L) 2010 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434109.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Hades (2020) [Ru/En] (1.36032) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431248.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430372.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Realms of Arkania: Blade of Destiny (2013) [En/Ge] (1.36/dlc) License PROPHET [C
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429684.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429210.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Desktop Dungeons (2013) [En] (1.56/dlc) Repack R.G. Механики [Enhanced E
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428626.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427171.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Wasteland 2 (2014) [Ru/En] (1.0 u6/dlc) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426493.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425816.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Albion (1995) [Ru/En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E717A72C93AA988B0CE6D7DD42F1C467D319DD75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558762   (425107) от 25.08.2022
-
-Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек из малообеспеченной семьи уезжает от овдовевшего отца и летней любви, чтобы поступить в колледж в Burgmeister & Royce. Когда его бросят в жизнь первокурсника и уговорят присоединиться к многообещающему братству Delta Iota Kappa, он откроется в новом мире, наполненном конфликтами, алкоголем, наркотиками и сексом.Тип издания: LicenseРазработчик: Dr PinkCakeЖанр: Ролевая игра, Визуальные новеллы, ДрамаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1584A0883C3A1B4006914E275188D56801D8A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324427   (424982) от 09.09.2019
-
-OCTOPATH TRAVELER (2019) [Multi] (1.0) License CPY
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получившая немало наград ролевая игра OCTOPATH TRAVELER™ теперь и на ПК! Восемь странников. Восемь искателей приключений. Восемь обличий. Отправляйтесь в приключение по прекрасному бескрайнему миру Орстерры и узнайте о необычных судьбах каждого из восьми героев.Тип издания: LicenseРазработчик: Square Enix, ACQUIRE Corp.Жанр: RPG, Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B397521FC06BFC4C145335BBDEC5022BF5F5FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1846517   (1051442) от 08.01.2026
+
+Vayper - Песни на стихи Николая Рубцова (Volume 1) (2026) [MP3|~190 Kbps (V2)] <Shanson, Pop, Word>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Букет (Николай Рубцов) [00:02:56]
+02. В Горнице в звездную ночь (Николай Рубцов) [00:03:32]
+03. Я буду скакать по холмам (Николай Рубцов) [00:05:24]
+04. Хозяйка (Николай Рубцов) [00:03:49](   Читать дальше...   )Жанр: Shanson, Pop, WordПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C7474950D7184C0AB6E3B128D2C4628A18B645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845380   (1050838) от 
 
 Vayper - Песни на стихи Н. Гумилева (2025) [MP3|~190 Kbps (V2)] <Chanson, Pop>
@@ -6,7 +35,7 @@ Vayper - Песни на стихи Н. Гумилева (2025) [MP3|~190 Kbps (
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050838.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048179.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046335.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045836.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045668.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044599.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044454.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Шоферской 12 (2002) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043922.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042165.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042163.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042159.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042158.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041649.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041642.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041079.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040134.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Дискотека русского шансона (2020) [MP3|320 Kbps] <�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037634.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - На волне любимого радио шансон (2005) 2 CD [MP3|3
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036694.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Пацанам городских окраин (2004) [MP3|320 Kbps] <Ша�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034125.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032975.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Хорошо сидим! 20 Праздничных хитов (2004) [MP3|3
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032314.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031322.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027884.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027876.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022538.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA530A60105B455A4BC11D2EAFC423ACD2743350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467458   (1017546) от 05.05.2021
-
-Владимир Курский - Родина (2021) [MP3|320 Kbps] <Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Родина [00:03:48]
-02 - Я русский [00:03:38]
-03 - СССР [00:03:19]
-04 - ФСБ [00:03:17](   Читать дальше...   )Жанр: ШансонПродолжительность: 01:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1D786465278A3C5A124660E74D1311D808CAB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

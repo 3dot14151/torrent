@@ -1,3 +1,81 @@
+###  Публикация: 240229   (1041224) от 11.02.2023
+
+Человек за солнцем (Люди позади солнца) / Hei tai yang 731 (Squadron 731 / Men Behind the Sun) (1988) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041224.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 40-х годах японское командование в оккупированной Манчжурии создало концентрационный «Лагерь 731». Узники, чаще китайцы, были материалом для испытаний переносимости экстремальных условий, например, холод, высота, а также для испытаний бактериологического оружия. Среди японцев кто сразу, а кто постепенно привыкает к мысли, что узники не люди, а рассходный материал. (   Читать дальше...   )Производство: Гонконг, Китай / Sil-Metropole OrganisationЖанр: Военный, Драма, УжасыРежиссер: Тун Фей МоуАктеры: Цзяньсинь Чен, Хсю Гоу, Зе Кван, Ганг Ванг, Ти Лонг Джин, Pengyu Liu, Xuhui Liu, Чжаохуа МэйПеревод: Одноголосый закадровыйПродолжительность: 01:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CA25EF99F48C2E908DA0BD12D9E489CBBD68BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 11735   (1041213) от 11.02.2023
+
+Человек за солнцем (Люди позади солнца) / Hei tai yang 731 (Squadron 731 / Men Behind the Sun) (1988) TVRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041213.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 40-х годах японское командование в оккупированной Манчжурии создало концентрационный «Лагерь 731». Узники, чаще китайцы, были материалом для испытаний переносимости экстремальных условий, например, холод, высота, а также для испытаний бактериологического оружия. Среди японцев кто сразу, а кто постепенно привыкает к мысли, что узники не люди, а рассходный материал. (   Читать дальше...   )Производство: Китай, Гонконг / Sil-Metropole OrganisationЖанр: ужасы, драма, военный, историяРежиссер: Тун Фей МоуАктеры: Цзяньсинь Чен, Хсю Гоу, Зе Кван, Ганг Ванг, Ти Лонг Джин, Pengyu Liu, Xuhui Liu, Чжаохуа МэйПеревод: Одноголосый закадровыйПродолжительность: 01:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E0CF80CCCFC2ECDF209B3F62E3D8E23382BF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438336   (1041010) от 08.01.2021
+
+Юная девушка / Shojo / An Adolescent (2001) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томокава - скучающий полицейский, который проводит большую часть своего времени, посещая одиноких домохозяек и заботясь о больном подростке Сукэмадзэ. Однажды в баре к Томокаве подошла девушка, предлагая секс в обмен на наличные деньги. Хотя он отказывается, но их пути позже снова пересекутся. Оказалось, что девушка является сестрой Сукэмадзы. Томокава скоро берет (   Читать дальше...   )Производство: Япония, Zero Pictures Co., Progressive PicturesЖанр: ДрамаРежиссер: Эидзи ОкудаАктеры: Эидзи Окуда, Маю Одзава, Акира Сёдзи, Мари Нацуки, Хидэо Мурота, Казу Андо, Норико Хамада, Кацухико Хибино, Хидэо Хигасикокубару, Кадзухико КанаямаПеревод: Авторский (Сергей Кузнецов)Субтитры: Английские - отдельным файломПродолжительность: 02:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA21C24AED2D50AC317D359341FEB70F8875056C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611781   (1040835) от 13.02.2023
 
 Солнечный спуск / Дорога, освещенная солнцем / Hi no ataru sakamichi / A Slope in the Sun (1958) WEB-DLRip [H.264] [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040835.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040484.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040483.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040339.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039826.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039287.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039073.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038741.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038476.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038191.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038075.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037980.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037111.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036492.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035966.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035703.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035589.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035512.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035151.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035064.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034896.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034752.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034603.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCC77E70C4E6A4CF713036704256190358A059A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444555   (1034372) от 02.02.2021
-
-Наперегонки со временем / Chu Bao / Caught in Time (2020) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Чжун Чэн руководит оперативной группой по поимке «Орла» - преступной группировки, возглавляемой Чжан Сунем. Раз за разом членам банды удается ускользнуть после ограблений. Десять лет спустя, когда необходимость обезвредить «Орла» становится еще более актуальной, Чжун Чэн узнает, что его время почти на исходе.Производство: Гонконг, Китай, Emperor Movie Group, Lian Ray PicturesЖанр: Криминал, драма, боевикРежиссер: Лау Хо-ЛюнАктеры: Ван Цяньюань, Дэниэл Ву, Чунь Ся, Мишель Вай, Да Ли, Юй Сяо, Ху Цзычэн, Ли Сяочуань, Цзюньцзя Хун, Рок Цзи, Данте Пан, Да ЮвэйПеревод: Двуголосый любительский (Творческое объединение «Храм тысячи струн»)Субтитры: Английские, китайские - hardsub (неотключаемые)Продолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB53DD6F25A48C9826E34EABFB573AB3ED1A661A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445284   (1033692) от 05.02.2021
-
-Избави нас от лукавого / Daman akeseo guhasoseo (Deliver Us from Evil) (2020) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший секретный оперативник южнокорейских спецслужб Ин-нам уже 9 лет работает наёмным убийцей. После выполнения последнего задания - убийства главы клана якудза - он собирается навсегда уехать в Панаму, но внезапно узнаёт, что его бывшую девушку убили. Также выясняется, что у той была маленькая дочь, которую незадолго до этого похитила собственная няня. Задействовав (   Читать дальше...   )Производство: Южная Корея, CJ Entertainment, Hive MediaЖанр: Боевик, триллер, криминалРежиссер: Хон Вон-чханАктеры: Хван Джон-мин, Ли Джон-джэ, Пак Чон-мин, Пак Со-и, Чхве Хи-со, Пак Мён-хун, О Дэ-хван, Сон Ён-чхан, Ли Со-хван, Щим Ён-ынПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC73F1F7CA5F133B1C85C3363506B0289BCFF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445283   (1033668) от 05.02.2021
-
-Избави нас от лукавого / Daman akeseo guhasoseo (Deliver Us from Evil) (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший секретный оперативник южнокорейских спецслужб Ин-нам уже 9 лет работает наёмным убийцей. После выполнения последнего задания - убийства главы клана якудза - он собирается навсегда уехать в Панаму, но внезапно узнаёт, что его бывшую девушку убили. Также выясняется, что у той была маленькая дочь, которую незадолго до этого похитила собственная няня. Задействовав (   Читать дальше...   )Производство: Южная Корея, CJ Entertainment, Hive MediaЖанр: Боевик, триллер, криминалРежиссер: Хон Вон-чханАктеры: Хван Джон-мин, Ли Джон-джэ, Пак Чон-мин, Пак Со-и, Чхве Хи-со, Пак Мён-хун, О Дэ-хван, Сон Ён-чхан, Ли Со-хван, Щим Ён-ынПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B207148395965BAB3596C31F688A3CE4CF2BC6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

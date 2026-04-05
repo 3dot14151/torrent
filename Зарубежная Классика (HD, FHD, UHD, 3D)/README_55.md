@@ -1,3 +1,107 @@
+###  Публикация: 1249878   (415075) от 02.10.2018
+
+Джеймс Бонд 007: Голдфингер / James Bond 007: Goldfinger (1964) WEBRip [H.265/2160p-LQ] [4K, SDR, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415075.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Джеймс Бонд борется со злом в лице международного преступника Голдфингера. Негодяй планирует уничтожить золотой запас США, и таким образом ввергнуть в пучину хаоса все капиталистическое общество.Помешать этим дерзким планам может только один человек. При помощи нескольких прекрасных женщин и множества хитроумных приспособлений агент 007 обезвреживает (   Читать дальше...   )Производство: Великобритания, Eon Productions Ltd.Жанр: Боевик, Триллер, ПриключенияРежиссер: Гай ХэмилтонАктеры: Шон Коннери, Онор Блэкман, Герт Фрёбе, Ширли Итон, Таня Маллет, Гарольд Саката, Бернард Ли, Цец Линдер, Лоис Максвелл, Десмонд ЛлевелинПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A22B07772AA3AB460593C284065411E7CF9FC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570212   (414419) от 30.08.2022
+
+Деревенская девушка / The Country Girl (1954) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённой пьесы Клиффорда Одетса. Уставшему от жизни актёру и певцу Фрэнку Элджину предоставляется неплохой шанс вернуться на сцену, когда режиссёр Берни Додд предлагает ему главную роль в своем новом мюзикле. Однако Фрэнк, пристрастившийся к алкоголю, избегает всякой маломальской ответственности. Он предпочитает, чтобы за него всё решала его жена Джорджи, (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: драма, музыкаРежиссер: Джордж СитонАктеры: Бинг Кросби, Грэйс Келли, Уильям Холден, Энтони Росс, Джин Рейнольдс, Жаклин Фонтен, Эдди Райдер, Роберт Кент, Джон В. Рейнольдс, Боб ЭлденПеревод: профессиональный многоголосый (т/к Домашний), профессиональный двухголосый (СВ-Дубль; Светла / Петр Гланц и Инна Королёва)Субтитры: русские (Herbst), английские SDHПродолжительность: 01:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBD45D19AA2FC41D06C58EA4CCA854F5041F4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557832   (414060) от 10.10.2012
+
+Полярная станция Зебра /  Ice Station Zebra (1968) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ядерная подводная лодка США отправляется в Арктику с секретным заданием. Находящийся на борту бесстрашный агент ЦРУ Джеймс Фарадей сталкивается с противодействием агентов КГБ на земле, под водой, и даже на самом Полюсе…Жанр: БоевикРежиссер: Джон СтерджесВ ролях: Рок Хадсон, Эрнест Боргнайн, Патрик МакГуэн, Джим Браун, Тони Билл, Ллойд Нолан, Альф Челлин, Джералд С. О’Лофлин, Тед Хартли, Мюррэй РоузПеревод: Многоголосый закадровыйПродолжительность: 02:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3908B447C08F148584E95F514055BBC4C80B6F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059387   (413693) от 25.10.2016
+
+Принесите мне голову Альфредо Гарсиа / Bring Me the Head of Alfredo Garcia (1974) Blu-ray [H.264 /1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американец Бенни, заброшенный богом и судьбой в занюханный мексиканский городок, работает тапером. Все его проблемы могут решить деньги, которых нет. Но однажды ему предлагают приличную сумму — 10 тысяч долларов. Для этого он должен всего-навсего доставить крупному мексиканскому землевладельцу голову некоего Альфредо Гарсиа — человека, от которого беременна его дочь.Производство: США, Мексика, Estudios Churubusco Azteca S.A., Optimus FilmsЖанр: Боевик, триллер, драма, криминал, вестернРежиссер: Сэм ПекинпаАктеры: Уоррен Оутс, Исела Вега, Роберт Уэббер, Гиг Янг, Хельмут Дантин, Эмилио Фернандес, Крис Кристофферсон, Чано Уруэта, Донни Фриттс, Хорхе Руссек, Чало Гонсалес, Дон ЛевиПеревод: Профессиональный (многоголосый, закадровый),  Профессиональный (двухголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF93AA9026E3D7C12DC6AC848750CDDF4EA05F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 558044   (413665) от 10.10.2012
 
 Телохранитель / Yojimbo (1961) BDRemux [H.264/1080p] [The Criterion Collection]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413665.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413489.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413084.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413057.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413013.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412331.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412298.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411959.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410690.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410238.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410165.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410017.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409962.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409901.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409782.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409041.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408985.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408453.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408335.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408286.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408284.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408280.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C7C27019487BF219E47F09171F4FB1460043953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061488   (407958) от 28.10.2016
-
-Татуированный / Le tatoue / The Tattoo (1968) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шустрый и нечистоплотный торговец антиквариатом Фелисьен Мезере случайно видит на широкой спине позирующего художнику пожилого человека необычную татуировку. Опытный глаз пройдохи сразу определяет руку мастера - и действительно, этот рисунок когда-то сделал майору Леграну великий Модильяни. Фелисьен незамедлительно предлагает Леграну продать кожу со спины за любые (   Читать дальше...   )Производство: Франция, Италия / Ascot, Cineraid, Les Films Copernic, Les Films CoronaЖанр: КомедияРежиссер: Дени де Ля ПателльерАктеры: Луи де Фюнес, Жан Габен, Поль Мерси, Ив Барсак, Пьер Торнад, Жан-Пьер Даррас, Джо Уорфилд, Мишель Барбе, Лин Шардонне, Ибрахим Сек, Патрик ПрежанПеревод: Профессиональный (многоголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D61A4DD8DFBD18338D24F282487A9E7F63123E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061529   (407878) от 28.10.2016
-
-Чокнутый профессор / The Nutty Professor (1963) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозный успех в 1996 году эксцентричной фантастической комедии «Чокнутый профессор» с Эдди Мерфи в главной роли заставил многих вспомнить об уже полузабытом актере и режиссере Джерри Льюисе, который не только позволил сделать римейк своей картины 1963 года, но и сам выступил в качестве одного из исполнительных продюсеров. Справедливости ради надо отметить, что (   Читать дальше...   )Производство: США / Paramount Pictures, Jerry Lewis EnterprisesЖанр: Комедия, ФантастикаРежиссер: Джерри ЛьюисАктеры: Джерри Льюис, Стелла Стивенс, Дель Мур, Кэтлин Фримен, Мед Флори, Норман Элден, Ховард Моррис, Элвия Оллман, Милтон Фром, Бадди ЛестерПеревод: Двухголосый закадровый, профессиональныйЯзык субтитров: АнглийскийПродолжительность: 01:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DBA7F2005A313584F1F529DEF8309B9341502B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061224   (407874) от 28.10.2016
-
-Маленький купальщик / Le petit baigneur (1968) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крупный судостроительный магнат Луис-Филипп Форшом опрометчиво выгоняет своего ведущего конструктора Кастанье после того, как один из его кораблей тонет прямо во время церемонии спуска. Однако скоро Форшом узнает, что яхта, спроектированная Кастанье, выиграла престижную регату в Сан-Ремо. Форшом бросается на поиски своего бывшего служащего, заваленного теперь предложениями (   Читать дальше...   )Производство: Франция, Италия / Fono Roma, Les Films Copernic, Les Films Corona, Selenia CinematograficaЖанр: КомедияРежиссер: Робер ДериАктеры: Луи де Фюнес, Андреа Паризи, Франко Фабрици, Мишель Александр, Николь Вервиль, Робер Роллис, Жорж Аде, Филипп Дюма, Жерар Кальви, Мишель ГалабрюПеревод: ДублированныйЯзык субтитров: Английский, НемецкийПродолжительность: 01:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A178BB1C27B01D69B304A4AAD77965CC2D27FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251129   (407678) от 06.10.2018
-
-Знак Зорро / The Mark of Zorro (1940) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой щёголь Диего Вега возвращается из Испании в родную Калифорнию, где его отец был алькальдом (мэром) Лос-Анджелеса. Однако те времена давно прошли: сейчас в этой местности заправляет новый алькальд Луис Кинтеро, поддерживаемый войсками капитана Эстебана Паскуале. Они беззастенчиво повышают налоги, ввергая и без того не богатых крестьян в настоящую нищету, а (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Боевик, Мелодрама, Приключения, ВестернРежиссер: Рубен МамулянАктеры: Тайрон Пауэр, Линда Дарнелл, Бэзил Рэтбоун, Гэйл Сондергаард, Юджин Пэллет, Дж. Эдвард Бромберг, Монтегю Лав, Джанет Бичер, Джордж Регас, Крис-Пин МартинПеревод: Многоголосый закадровый (20th Century Fox)Субтитры: Русские, английские(Full, SDH)Продолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B55A11EEDC2BF1F6A645E19DA06E47C9BD0A7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

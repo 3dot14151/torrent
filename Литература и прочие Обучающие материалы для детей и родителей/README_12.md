@@ -1,3 +1,29 @@
+###  Публикация: 350270   (1037658) от 21.01.2021
+
+И.А. Лыкова | Лепка из пластилина. Кто гуляет во дворе? (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект включает технологические карты с "пошаговым" показом техники создания игрушек из пластилина. На одной стороне карты нагладно показана изобразительная техника - способ создания образа по методу "шаг за шагом", на другой стороне представлены варианты образов или сюжетные композиции.Жанр: Детские поделкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4770BA5497AA235A9ED4D99ADF5B5CE2E1EF383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454741   (1037654) от 21.01.2021
 
 А. Диброва | Поделки из соленого теста (2011) [PDF]
@@ -6,7 +32,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037654.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037651.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037642.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037608.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037409.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037406.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037381.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037360.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037359.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037357.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037342.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037335.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037333.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037244.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037216.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037164.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037135.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037103.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037097.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037092.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037077.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037073.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037056.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036945.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036865.jpg" />
 </div>
 
 
@@ -657,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1348A17883CD6BE59AC062BA81F826A33502580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442306   (1036859) от 24.01.2021
-
-Сергей Матвеев | Английский язык. Тренажёр по чтению (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036859.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном пособии представлены основные правила чтения английских букв и буквосочетаний, а также даны задания для тренировки. В процессе обучения школьники не только научатся правильно читать английские слова, но и освоят знаки современной международной транскрипции и расширят словарный запас.
-
-Книга предназначена для начинающих изучать английский язык, подходит для (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456052743B270619526EABCCEAE414ABB4B1F556
 ```
 
 https://mybot314.ru/tekegram_catalog/

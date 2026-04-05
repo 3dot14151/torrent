@@ -1,81 +1,3 @@
-###  Публикация: 1460883   (1022167) от 07.04.2021
-
-Джон Хофман | Освоение Arduino: Проектный подход к электронике, схемам и программированию [+code] (2018) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь представлен перевод книги "Mastering Arduino". "Освоение Arduino" - это комплексное руководство по максимально эффективному использованию Arduino. Это практическое и серьезное руководство научит вас всем навыкам в области программирования, которые необходимы вам для создания сложных проектов Arduino. Эта книга наполнена реальными проектами, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9384E3AE2EE4C68ECFEB8079BBB96E5E33777693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461074   (1022035) от 08.04.2021
-
-Саша Юрич | Elixir в действии (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022035.jpg" />
-</div>
-
-
-###  Подробнее
-
-При разработке программного обеспечения для решения критически важных задач огромную роль играет отказоустойчивость. Язык программирования Elixir позволяет создавать быстрые и надежные приложения, будь то крупная распределенная система, набор сервисов для бекенда или простенькое веб-приложение. Элегантный синтаксис Elixir и функциональный образ мышления позволяют (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B12C7D88C815B9B326FAB927467360B7E31410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462158   (1021255) от 13.04.2021
-
-Майа Пош | Программирование встроенных систем на С++17 (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021255.jpg" />
-</div>
-
-
-###  Подробнее
-
-C++ — превосходный выбор для разработки встроенных систем, особенно с учетом того, что этот язык не добавляет каких-либо излишеств, улучшает удобство сопровождения и предлагает множество преимуществ над прочими языками программирования. Из книги вы узнаете, как можно применять C++ для создания надежных, конкурентоспособных систем, рационально использующих все доступные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6B7C6D160A4972597EB0D7BC7E2F0178C9F760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462461   (1021076) от 14.04.2021
 
 Райан Митчелл | Cовременный скрапинг веб-сайтов с помощью Python, 2-е международное издание (2021) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021076.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019916.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ Eric Sarrion | Vue.js Advanced Concepts (2021) [EPUB, PDF, AZW3] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019749.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ Maksim Ivanov, Alex Bespoyasov | Learn React with TypeScript (2021) [ebook + cod
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019727.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019702.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ Wei-Meng Lee | Go Programming Language For Dummies 1st Edition (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019610.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Prog
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019609.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ Matt Zandstra | PHP 8 Objects, Patterns, and Practice (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019576.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018866.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018851.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018369.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018013.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017986.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016954.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016343.jpg" />
 </div>
 
 
@@ -483,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014612.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014603.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012080.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011036.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008685.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ Joe Mayo | C# Cookbook (Early Release) (2021) [EPUB]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008548.jpg" />
 </div>
 
 
@@ -643,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008369.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007697.jpg" />
 </div>
 
 
@@ -683,6 +605,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2944EE53B95FAB238C61419D611A2D256F3B0B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482454   (1007521) от 08.07.2021
+
+Йо Ван Гуй | Программирование на ассемблере х64. От начального уровня до профессионального использования AVX (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение программирования на ассемблере может оказаться обескураживаю­щим, но совсем не потому, что это язык, не прощающий ошибок, ведь компьютер будет «одобрять» ваши действия при каждом удобном случае. А если это не так, то, возможно, где-то в программе скрывается необнаруженная ошибка, которая «укусит» вас во время выполнения программы. Сверх всего прочего кривая (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D95D1EC5103886B70C031D4322F73ADE8AC59E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482686   (1007364) от 09.07.2021
+
+Скотт Оукс | Эффективный Java. Тюнинг кода на Java 8, 11 и дальше, 2-е издание (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программирование и тестирование обычно относят к разным профессиональным сферам. Скотт Оукс - признанный эксперт по языку Java - уверен, что если вы хотите работать с этим языком, то должны понимать, каким образом выполняется код в виртуальной машине Java, и знать, какие настройки влияют на производительность. Вы сможете разобраться в производительности приложений (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0638A10B5DC6F1B6FBB222A171D021B6644D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482788   (1007220) от 10.07.2021
+
+Иэн Гриффитс | Программируем на C# 8.0. Разработка приложений (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007220.jpg" />
+</div>
+
+
+###  Подробнее
+
+C# — универсальный язык, который может практич16ески всё! Иэн Гриффитс рассказывает о его возможностях с точки зрения разработчика, перед которым стоит задача быстро и эффективно создавать приложения любой сложности.
+Множество примеров кода научат работать с шаблонами, LINQ и асинхронными возможностями языка. Вы разберетесь с асинхронными потоками, ссылочными типами, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490652A7AE61CFE3AFDEB32A044915389D814F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

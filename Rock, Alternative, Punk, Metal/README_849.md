@@ -1,3 +1,32 @@
+###  Публикация: 1622643   (239080) от 30.03.2023
+
+Itinerum - Dream and Fly (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative metal, gothic metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. intro [00:00:49]
+02. eternal night [00:03:29]
+03. a new world [00:05:02]
+04. storm [00:03:43](   Читать дальше...   )Жанр: alternative metal, gothic metalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3426B301867567A5E0082D41A0A9F7C5901C30B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476861   (239073) от 13.06.2021
 
 Ocean Dark - Hope & Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -6,7 +35,7 @@ Ocean Dark - Hope & Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239073.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Throne Of Heresy - Decameron (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239067.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ For Giants - There, There (2021) [MP3|320 Kbps] <Progressive Metal, Djent, Instr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239061.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Weight of Atlas - The Art of Letting Go Pt:I (2021) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239053.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Pressure Points - Remorses To Remember (2010) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239050.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Fange - Privation (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Sludge, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_239049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_239049.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Mercy Shot - Brace For Impact! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239047.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239035.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Pressure Points - The Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239033.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Catherine Wheel - Happy Days (1995) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239030.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Daniel Blumberg - GUT (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239022.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Twilight Road - Trapped (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239011.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Sithu Aye - Senpai III (2021) [MP3|320 Kbps] <Progressive Metal, Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239010.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Fault Lines - Quiet Sickness (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239008.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Dark Moor - Origins (2018) [2CD] Japanese Ed. (Reissued 2019) [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239007.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Van der Graaf Generator - The Bath Forum Concert (2023) 2xCD, Live [WavPack|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239000.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Goot - God's Doubt (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238998.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238993.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Aletsch - 2 Albums (2019, 2021) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238988.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Policromia - Sintagma (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, He
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238980.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Marc Bolan & T. Rex - Star King (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238975.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238973.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Campfire Sigh - Different Peninsulas (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238971.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Alice Cooper - School's Out (1972) 2CD, Expanded and Remastered, 2023, Rhino - W
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238967.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Viral Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238958.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Viral Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F782F851C1B376EF7C52B0A8D20D9A7E76547C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477107   (238957) от 13.06.2021
-
-Yat-Kha (Ят-Ха) - We Will Never Die (2021) [MP3|320 Kbps] <Ethno Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238957.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kongurgai
-2. Kazhanda-daa Olbes-le Bis
-3. Shartylaam
-4. Umyvalsya Nochyu Na Dvore...(   Читать дальше...   )Жанр: Ethno Rock, FolkПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35BFF254CFEC9262EE280C26AFD1637D864576B
 ```
 
 https://mybot314.ru/tekegram_catalog/

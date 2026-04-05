@@ -1,3 +1,111 @@
+###  Публикация: 1814038   (6358) от 23.08.2025
+
+TwinMe - конфиденциальный мессенджер 30.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twinme - это бесплатный безопасный мессенджер для мгновенного обмена сообщениями и голосовых/видеовызовов высокого качества, обеспечивающий вам конфиденциальность. Пиринговый чат, голосовые/видеовызовы со сквозным шифрованием без регистрации. Единственный мессенджер, не использующий ваш номер телефона (e-mail или социальные сети) и не считывающий контакты для извлечения (   Читать дальше...   )Тип издания: FreeРазработчик: TwinlifeПоддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE63487F2240CA2E9685F6C6D2E0293FEBAD40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813694   (6343) от 23.08.2025
+
+Справочник электрика v3.3.5 (300) Mod by vadj  [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для всех тех, чья деятельность связана с электричеством. Для профессионалов и любителей. Данное приложения является своеобразным трамплином для дальнейшего изучения электротехники.
+В приложении присутствуют 4 категории:
+1. Теория
+2. Схемы(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 20.08.2025Разработчик: SergeiVПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1D64454879908AAF3C0ABFF354A79FC5E40F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814184   (6341) от 23.08.2025
+
+DNS Changer - IPv4 & IPv6 v2.8.2 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое DNS Changer для Android? DNS Changer — это самый простой способ изменить ваш DNS-сервер и найти самый быстрый DNS-сервер с помощью теста скорости DNS-сервера. Он работает как для мобильных данных, так и для Wi-Fi-подключения без root и поддерживает DNS-серверы IPv4 и IPv6. Вы можете просто выбрать из списка предварительно настроенных общедоступных DNS-серверов (   Читать дальше...   )Тип издания: ProРелиз состоялся: 23.08.2025Разработчик: AppPlanexПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCADD310F85E171414DDD1B8BC4FD2F2B90AD9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814145   (6323) от 23.08.2025
+
+DjVu Reader & Viewer (читалка) v1.0.137 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое и небольшое приложение для просмотра документов в формате djvu. В наличии тёмная тема и настройка отображения найденных на устройстве документов оного формата. При просмотре доступно создание закладок, копирование выделенного текста и доступ к содержанию (если оно предоставлено).
+DjVu Reader & Viewer (читалка дежавю на русском языке) – это самая быстрая (   Читать дальше...   )Тип издания: ProРелиз состоялся: 13.08.2025Разработчик: Android Tools (ru)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65034A886B2C67CF7AE3ED0AE69BCB3D4D9E85B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814406   (6175) от 24.08.2025
 
 Антирадар HUD Speed v72.3 Mod by Slavatv5 [Ru]
@@ -6,7 +114,7 @@
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6175.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ GPS АнтиРадар v50.3 Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6165.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ DNS Changer Pro v1.4.1 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6162.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ GPS Compass Navigator v2.20.35 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6160.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.6 Mod by Balatan  [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6157.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ GPS Locker Prime v2.5.0 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6154.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6150.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ PicWish: AI Photo Editor v2.1.9 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6131.jpg" />
 </div>
 
 
@@ -219,7 +327,7 @@ Listen Audiobook Player v5.3.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6127.jpg" />
 </div>
 
 
@@ -245,7 +353,7 @@ Background Eraser (InShot Inc.) v2.285.87 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6121.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ CPU-Z v1.52 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5994.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5952.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5870.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ MobiPDF: Редактор и сканер PDF  v11.8.267277 Mod by Balatan [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5865.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5816.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ Proton VPN 5.12.80.0 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5744.jpg" />
 </div>
 
 
@@ -428,7 +536,7 @@ Lighting calculations / Расчеты освещения v6.1.7 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5702.jpg" />
 </div>
 
 
@@ -454,7 +562,7 @@ TuneIn Radio Pro v39.8.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5692.jpg" />
 </div>
 
 
@@ -480,7 +588,7 @@ Photo Lab PRO v3.13.70 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5691.jpg" />
 </div>
 
 
@@ -506,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5582.jpg" />
 </div>
 
 
@@ -532,7 +640,7 @@ Cat Scanner / Сканер породы кошек v22.2.15-G Mod by PieMods [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5540.jpg" />
 </div>
 
 
@@ -558,7 +666,7 @@ Dog Scanner: Породы собак v22.2.15-G Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5524.jpg" />
 </div>
 
 
@@ -569,114 +677,6 @@ Dog Scanner: Породы собак v22.2.15-G Mod by PieMods [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9DCF2227E76D5E786B3A199389F212F71A79F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815170   (5261) от 30.08.2025
-
-Patephone / Патефон v14.8.2 Mod by OsitKP [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5261.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашем приложении для ценителей литературы вы найдете тысячи аудиокниг и радиоспектаклей зарубежных и отечественных авторов. У нас есть аудиокниги любых жанров — это фантастика и триллеры, мистика и приключения, детективы и классика. Нами собрана великолепная коллекция аудиоспектаклей и сказок для детей, книги для детей на ночь, аудиосказки и веселые истории — приглашение (   Читать дальше...   )Тип издания: Mod LiteРелиз состоялся: 28.08.2025Разработчик: AnyreadsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB71746087A31948252A177389DE8F31E2CB6913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815422   (5242) от 30.08.2025
-
-Revo Uninstaller Mobile v3.4.330G Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revo Uninstaller Mobile всегда старается предоставить своим поклонникам наилучший пользовательский опыт и функциональность. В этой новой версии приложения вы можете работать между несколькими вариантами управления уже установленными приложениями.
-Выбрав Pro-версию, вы теперь можете легко избавиться от всей рекламы во время использования приложения.Тип издания: ProРелиз состоялся: 28.08.2025Разработчик: VS Revo Group Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FF1240B133A178A23421457744A93FA0E82E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815420   (5200) от 30.08.2025
-
-Аналоги лекарств, справочник v3.0.6 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник лекарств с возможностью поиска дешевых аналогов к дорогим лекарствам. Подбор дженериков с аналогичным действующим веществом, и с указанием актуальной цены. Теперь у пользователя есть выбор, какое лекарство ему приобрести и сколько при этом потратить. Сэкономьте на дорогих препаратах используя дешевые аналоги. Для работы требуется интернет.Тип издания: AdfreeРелиз состоялся: 29.08.2025Разработчик: Involta.RuПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1660EC5692D6DEDC91BB4583FFB8F023C3C337D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815417   (5195) от 30.08.2025
-
-Karing 1.2.3.857 (Pre-release) [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Karing - Утилита прокси с простым и мощным интерфейсом.
-
-►Совместим с Clash, V2ray/V2fly, Sing-box, Shadowsocks, Sub, подписками на GitHub.
-►Полная поддержка конфигурации clash, частичная поддержка конфигурации clash.meta.(   Читать дальше...   )Тип издания: FreeПоддерживаемая ОС: Android 10.0 и выше (только arm64)Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E96C2860F1BEC592547B381D866D191935F1495
 ```
 
 https://mybot314.ru/tekegram_catalog/

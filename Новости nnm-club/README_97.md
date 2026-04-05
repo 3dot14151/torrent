@@ -1,3 +1,29 @@
+###  Публикация: 1398969   (734155) от 29.07.2020
+
+Библиотеки должны убрать из общего доступа книги «18+»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это и глупо и вредно для воспитания молодёжи; впрочем, молодёжь сможет найти нужные книги в интернете, считают в Ассоциации интернет-издателей.Библиотеки при формировании фондов должны будут соблюдать требование о классификации и маркировке книг в соответствии с возрастной категорией читателей. Соответствующий приказ подготовило Министерство культуры. Теперь библиотеки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528650   (733891) от 03.02.2022
 
 BELOFF 2022 (Авторская раздача)
@@ -6,7 +32,7 @@ BELOFF 2022 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733891.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Windows XP SP3 WIM Edition by SmokieBlahBlah 18.05.14 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733592.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733588.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ ABBYY FineReader PDF 15.0.113.3886 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733248.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ ABBYY FineReader PDF 15.0.113.3886 Corporate Full/Lite RePack by KpoJIuK [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733247.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Wolfenstein: The New Order [PS3] [EUR] [Ru] [4.55] [Cobra ODE / E3 ODE PRO ISO] 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733100.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ HITMAN 3 (2021) [Ru/Multi] (3.100/upd13/dlc) Repack Other s [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732994.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732581.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Winstep Nexus Ultimate 16.5 Repack by Nemo [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732377.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732296.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732290.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731495.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731467.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Advanced Archive Password Recovery Enterprise Edition 4.54.110 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731455.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Discovery: Крутой тюнинг (52 серии) / OverHaulin (2007-2008) SA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731454.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731367.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731364.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731361.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731348.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731342.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4366.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731265.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731257.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Bakemonogatari / Bake monogatari / Истории чудовищ [2009, 15 из 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731196.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731171.jpg" />
 </div>
 
 
@@ -638,39 +664,13 @@ NVIDIA отказалась от покупки Arm — разработчик �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730459.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сделка по покупке британского разработчика чипов Arm компаний NVIDIA за $66 млрд окончательно сорвалась. В официальном пресс-релизе NVIDIA сообщила, что приняла решение отказаться от попыток преодолеть сопротивление регулирующих органов США, Великобритании и ЕС, которые считают, что покупка Arm нанесёт непоправимый ущерб развитию полупроводниковой промышленности.Крупнейшая (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021927   (730428) от 31.05.2016
-
-Ученым удалось "размножить" кошку Шредингера
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кошка Шредингера - это мысленный эксперимент, который демонстрирует парадокс состояния квантовой суперпозиции на примере понятных нам объектов, с которыми мы сталкиваемся в повседневной жизни. Идея этого эксперимента заключается в том, что живую кошку заключают в коробку, внутри которой находится устройство, содержащее радиоактивный элемент и яд. Если атом радиоактивного (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

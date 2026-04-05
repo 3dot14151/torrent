@@ -1,3 +1,189 @@
+###  Публикация: 797803   (674847) от 19.06.2014
+
+Adobe Acrobat XI Pro (11.0.07) [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe® Acrobat® XI Pro — это не просто популярный конвертер PDF. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности для взаимодействия. Легко, быстро, профессионально.
+С усовершенствованной версией Acrobat Вы получаете новые возможности, которые сделают офисную работу намного проще! С Adobe® Acrobat® XI Вы сможете работать (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 08 июня 2014Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637691857C35F259677CBCE411A61AD4A6CC562F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899192   (674671) от 18.05.2015
+
+NVIDIA GeForce Desktop 352.86 WHQL + For Notebooks [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674671.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBECB05F2DC79D348198DACB1E464090D517E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899084   (674546) от 18.05.2015
+
+Adobe Photoshop CC 2014.2.2 (20141204.r.310) Registered & Unattended RePack by alexagf [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2014 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9A09E8550E90013D0114EF4C0B213C48FE53CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894607   (674539) от 18.05.2015
+
+Ирина Шипилова | Английский язык (2013-2015) CamRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучение английского языка с нуля с очень курьёзным и талантливым преподавателем. Уроки лаконичные, продолжительность в районе 5-25 минут. Процесс обучения идёт быстро, легко и весело.Жанр: Лингвистика, английский языкПродолжительность: 40:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4350704B416B6DC672246551ED3B8148E79D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136315   (674226) от 22.05.2017
+
+Начаты первые испытания нового рельсотронного орудия, способного делать 10 выстрелов в минуту
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674226.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время специалисты Научно-исследовательского управления ВМФ США, при участии специалистов некоторых оборонных компаний, BAE Systems, в частности, параллельно на двух полигонах ведут монтажные работы и первые испытания двух новых рельсотронных орудий, энергия выстрела каждого из которых составляет по 32 Мегаджоуля. Но это будут орудия не просто с рекордной (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047644   (674206) от 22.05.2017
+
+Обои - Обои с экрана блокировки Windows 10 [JPG]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674206.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самой свежей версии операционной системы от компании Microsoft появилась новая функция под названием Windows Spotlight. Она служит для периодической смены фоновых изображений на экране блокировки Windows 10. В этой раздаче вы сможете скачать все эти замечательные картинки на свой компьютер.
+Количество обоев: 376 шт.
+
+(Обновляемая раздача)(   Читать дальше...   )Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D9B52FB0F11C118F0D7EAEF39A41938661F64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136210   (674203) от 22.05.2017
+
+Если б я была мужчиной / Si j'etais un homme (2017) WEB-DLRip [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанне настолько не везет с мужчинами, что она сгоряча клянется не иметь с ними больше никаких дел. Каково же ее изумление, когда однажды она просыпается с мужским достоинством между ног! Отныне ее жизнь превращается в нескончаемую череду невероятных происшествий.Производство: Франция | CinГ©mage 11, Curiosa FilmsЖанр: КомедияРежиссер: Одри ДанаАктеры: Одри Дана, Кристиан Клавье, Эрик Элмоснино, Алис Белаиди, Антуан Гуи, Жозефин Дрэй, Виктуар Брюнелль-Реми, Эрик Да Коста, Джонатан ЛуисПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуютПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C068822F94054DC8E9F5E1C302E13100ACDF28BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 154019   (674202) от 22.05.2017
 
 Сборник NNM-club - Любимый Рок, Vol.1
@@ -6,7 +192,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_674202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674202.jpg" />
 </div>
 
 
@@ -35,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_674053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674053.jpg" />
 </div>
 
 
@@ -61,7 +247,7 @@ YouTube начал блокировку каналов российских ме
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_674042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674042.jpg" />
 </div>
 
 
@@ -87,7 +273,7 @@ Need for Speed: Most Wanted (2005) [Ru] (1.3) Repack/Mod Финиган [Eternal
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674038.jpg" />
 </div>
 
 
@@ -113,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674037.jpg" />
 </div>
 
 
@@ -139,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673798.jpg" />
 </div>
 
 
@@ -167,7 +353,7 @@ Max Payne 3 + 7 DLC + bonus (Repack/1.0.0.22) [Ru/En/Multi6] 2012 l Samodel
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673737.jpg" />
 </div>
 
 
@@ -193,7 +379,7 @@ KasTrial 1.6.3 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673731.jpg" />
 </div>
 
 
@@ -219,7 +405,7 @@ Google представила «убийцу» современных игров
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673719.jpg" />
 </div>
 
 
@@ -245,7 +431,7 @@ Intel показала новые процессоры и дискретную �
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673718.jpg" />
 </div>
 
 
@@ -271,7 +457,7 @@ Final Cut Pro X 10.4.6 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673709.jpg" />
 </div>
 
 
@@ -299,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673705.jpg" />
 </div>
 
 
@@ -325,7 +511,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.02) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673698.jpg" />
 </div>
 
 
@@ -351,7 +537,7 @@ CorelDRAW Graphics Suite 2019 v21.0.0.593 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673696.jpg" />
 </div>
 
 
@@ -377,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673694.jpg" />
 </div>
 
 
@@ -403,7 +589,7 @@ Windows 10 Enterprise LTSC x64 by Zosma (22.03.2019)
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673692.jpg" />
 </div>
 
 
@@ -432,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673690.jpg" />
 </div>
 
 
@@ -458,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673603.jpg" />
 </div>
 
 
@@ -484,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673601.jpg" />
 </div>
 
 
@@ -495,189 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5078F6A04236B3BEFCE8A921F6A95074E08C93D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030394   (673596) от 30.06.2016
-
-Разработан новый метод атаки компьютеров, который позволяет красть информацию при помощи звука вентиляторов системного блока
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673596.jpg" />
-</div>
-
-
-###  Подробнее
-
-На страницах нашего сайта мы уже не один раз знакомили наших читателей с результатами деятельности специалистов Исследовательского центра кибербезопасности (Cyber Security Research Center) университета Бен-Гуриона (Ben-Gurion University), Израиль. Этими специалистами уже были разработаны три вида атак, позволяющих извлечь данные из компьютеров, защищенных так называемым (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030354   (673587) от 30.06.2016
-
-Во сколько нам обойдётся закон о слежке, подсчитает #Яркулятор
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какими бы пугающими ни были законы, сотканные противоречивым подсознанием наших депутатов и чиновников, шутить над ними нам пока ещё никто не запрещал.
-Пользователь сайта nag.ru Дмитрий Крылосов создал  #Яркулятор — калькулятор Яровой. Как пишет сам автор:«Пакет поправок к «закону о противодействии терроризму», более известный, благодаря СМИ, как «закон Яровой», одной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030247   (673533) от 30.06.2016
-
-Чуда не произошло — Совет Федерации одобрил закон о тотальной слежке
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совет Федерации на заседании в среду, 29 июня, одобрил пакет антитеррористических законов, которые были разработаны председателем думского комитета по безопасности и противодействию коррупции Ириной Яровой и главой комитета Совета Федерации по обороне и безопасности Виктором Озеровым. Перед одобрением поправок состоялось их обсуждение.Соавтор поправок Виктор Озеров (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030557   (673522) от 30.06.2016
-
-Adobe After Effects CC 2015.3 13.8.0.144 RePack by D!akov [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673522.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EA6D35BB84810A8DE8B717B21B915DDC532C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023995   (673519) от 30.06.2016
-
-Hearts of Iron IV (2016) [Ru/Multi] (1.1.0.5d33/dlc) Repack =nemos= [Field Marshal Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hearts of Iron IV позволяет игрокам встать во главе Второй мировой войны, управляя любой из участвующих в конфликте страной. Можно выбрать супердержаву и постараться повести ее к тотальному завоеванию мира, или сыграть за небольшое государство, пытающееся выжить в смутные времена. Глубина стратегии Hearts of Iron IV в том, что для достижения победы нужно не только (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF4F005B981CF219DCEF9DF268906DE699AC4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030329   (673517) от 30.06.2016
-
-SpeedFan 4.52 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673517.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpeedFan - утилита для контроля материнской платы - температура, напряжения, скорости вентиляторов, а также за температурой жестких дисков (если они поддерживают эту функцию). Крайне положительная черта SpeedFan, выделяющая эту программу среди аналогичных - умение изменять скорость вращения вентиляторов, в том числе в зависимости от температуры внутри системного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89ADAA7C26F78C0DB3423C43778FFC27F9C60E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018219   (673516) от 30.06.2016
-
-Игра престолов / Game of Thrones (2016) HDTVRip (сезон 6, серии 1-10 из 10) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестой сезон популярного американского фэнтези-телесериала, созданного по мотивам цикла романов Джорджа Мартина.Производство: США /  Home Box Office (HBO), Television 360, Grok! StudioЖанр: фэнтези, драма, приключенияРежиссер: Алан Тейлор, Дэвид Наттер, Алекс ГрейвзАктеры: Питер Динклэйдж, Лина Хиди, Эмилия Кларк, Кит Харингтон, Николай Костер-Вальдау, Мэйси Уильямс, Софи Тернер, Айзек Хемпстед-Райт, Шон Бин, Чарльз Дэнс и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют заставка и логотип LostFilm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E35C9B8BB1117D745EE5CB2EE62DDAEE93315F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

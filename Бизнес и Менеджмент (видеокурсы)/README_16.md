@@ -6,7 +6,7 @@ ProFinansy, Наталья Котовская | Как инвестору сле
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253070.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ProFinansy, Юлия Ченцова | Ошибки инвестора. Как и
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253069.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ProFinansy, Наталья Котовская | Облигации: как бе�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252518.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ProFinansy, Наталья Котовская, Юлия Ромашевская |
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252501.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252125.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Targetorium, Павел Антонов, Наталья Якимчук | Спец
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252078.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250574.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ ProFinansy, Наталья Котовская, Иван Пунга | Банкр�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247898.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234689.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Freelance Mastery, Brad Traversy, Kyle Prinsloo | Freelance Mastery For Develope
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233579.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233170.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232617.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ XYZ School, Кирилл Золовкин | Продюсирование игр 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229275.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228629.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Skillbox, Константин Юрченко | Основы экономиче�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226342.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Skillbox, В. Устименко и др. | Профессия Финансов�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223006.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ GeekBrains | Интернет-маркетолог (2019) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219504.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Geekbrains | Контекстная реклама. Привлечение кл�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217291.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215264.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215122.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213934.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Skillbox | Как открыть и развивать веб-студию (2018
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213917.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213913.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Rocket Sales, Георгий Кичев | Цифровой отдел прода
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213015.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Vesperfin, Арина Веспер | Личные финансы (2022) WEB-DL [
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212933.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Altblog, Кирилл Рамирас | Курс «Ракурс» — взгля�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212797.jpg" />
 </div>
 
 

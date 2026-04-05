@@ -1,3 +1,119 @@
+###  Публикация: 1823717   (125899) от 12.10.2025
+
+VA - Autumn Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fly - Little Time (2:49)
+02. Andrew Ross - Move WIth Me (3:33)
+03. DeepTurco - Memory (3:33)
+04. Sharapov - Keep On Rising (3:19)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC63AB179BBC1734D8C1BBD6E9758B2A41A4FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823577   (125831) от 12.10.2025
+
+VA - Progressive Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Alexander Popov & Feel - Moonlight Sonata (FEEL Extended Remix) [5:06]
+02. AMINTO - Leave Me Now (Extended Mix) [5:32]
+03. Rospy - Love At First Sight (Extended Mix) [7:05]
+04. Max Denoise & Rinkarna & Louise Browne - Our Hands (Extended Mix) [6:33](   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340CCA8AAA3B95A4005682930F9911275A767A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687045   (125732) от 25.12.2023
+
+VA - Forest Retreat: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Spirit Muse - Waves of Shambala 432Hz (Original Mix) (5:12)
+02. Matt Sour - Bells of Glasgow (3:23)
+03. Eskadet - Garden of the Senses (4:16)
+04. Sole Spirit - World in Your Eyes (Ambient Mix) (3:27)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB05C869F5934314A90B0899566DC7D7A093A892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687449   (125600) от 26.12.2023
+
+VA - Silent Place, Vol. 1-3 (2023) 3 x CD [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125600.jpg" />
+</div>
+
+
+###  Подробнее
+
+2023 - Silent Place, Vol. 1:
+• 01. Mahit - My Sunshine (4:27)
+• 02. Akemi Kano - Atlantic (6:07)
+• 03. Mitsuko Tanaka - Hikari (3:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 06:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58E53A498514AFFF918B65289592B85027EE7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687109   (125584) от 26.12.2023
 
 Alexey Teplykh - The City at Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
@@ -6,7 +122,7 @@ Alexey Teplykh - The City at Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125584.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Zincboy - Bizarre Book (2023) [MP3|320 Kbps] <Neo-Psychedelia, Breakbeat, Trip-H
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125576.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Sunset Emotions, Vol. 8 (Compiled by Marco Celloni) (2023) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125575.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - ARMADA - Trance Year Mix 2023 (2023-12-25) [MP3|320 Kbps] <Trance, Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125422.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dara - Berezhno (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Breaks, Ambie
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125347.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Monster Tunes Year Mix 2023 (Mixed by Madwave) (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125327.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Armin Van Buuren - A State Of Trance 1153 (Yearmix 2023) (2023) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125162.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Christmas in Paris: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125057.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Dance 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125055.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Eguana - Echo (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125049.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Extend The 80s Electro (2018) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125027.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Eguana - Connect (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124907.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Eguana, Qeight - Call Of The Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124906.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Blank & Jones - Chilltronica EP 8 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124884.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124807.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Left
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124776.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124774.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Tiesto - New Year's Eve Best of 2023 Mix (Countdown to 2024) (2023-12-31) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124695.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ draag me - lord of the shithouse (2023) [FLAC|Lossless|WEB-DL|tracks] <alternati
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124651.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ VA - Ablazing Winter Sessions 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124537.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ VA - Keep It Trance Vol. 18 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124536.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ VA - Interplay Highlights 2023 - Extended Versions (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124527.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ VA - Interplay Highlights 2023 - Extended Versions (2024) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53347701E33DFE690CAA9A6800D693485AC62567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689577   (124512) от 03.01.2024
-
-Eric Prydz - Live @ Forever Stage Forever Midnight, Los Angeles Convention Center, United States (2023-12-31) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pryda - Creamfields 2017 Intro ID (Working Title) w/Eric Prydz - Every Day (Acappella) w/Pryda - The Hoax
-02. Layer J - ID
-03. Cirez D - HOLO Mexico 2023 ID (Working Title)
-04. Cirez D - Voided(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD4E417FA47E7B0AA2ED15A15470FF33A26F0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683420   (124391) от 04.01.2024
-
-Laibach - 3 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1986 - Nova Akropola (Expanded Edition 2023)
-1994 - Final Countdown (Mix 2023)
-1995 - In The Army Now _ War (Mix 2023)(   Читать дальше...   )Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 6 CD, 03:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854AAE2C9C25C67BA83470CCD25F85D7A5A04368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683591   (124362) от 04.01.2024
-
-Laibach - 3 Releases (2023) [MP3|320 Kbps] <Industrial, Neo-Classical, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1986 - Nova Akropola (Expanded Edition 2023)
-1994 - Final Countdown (Mix 2023)
-1995 - In The Army Now _ War (Mix 2023)(   Читать дальше...   )Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 6 CD, 03:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826E7DB09DA54F61CCE93276C70F92347B9B78DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689842   (124343) от 04.01.2024
-
-Andrew Rayel - Find Your Harmony Radioshow (Yearmix 2023) (2024-01-03) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andrew Rayel - The Source Of Harmony (FYH 350 Anthem)
-02.  Leo Reyes & Mofasa - IOU
-03.  Mofasa - Dreamer
-04.  LÜRUM ft. That Girl - Fall Or Fly(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077C1A6C56120EE5038A8163986954C80A1099B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

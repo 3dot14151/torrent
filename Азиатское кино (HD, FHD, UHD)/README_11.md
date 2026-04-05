@@ -1,3 +1,185 @@
+###  Публикация: 1355219   (984395) от 25.01.2020
+
+Невинность на продажу / Tung baan tung hok / Lazy Hazy Crazy (2015) BDRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три 18-летние подруги. Три школьницы. Ничто так не радует их как мысль о скорой взрослой и свободной от правил жизни. Однако их понятие «взрослой» жизни абсолютно отличается от реальности. Они веселятся, развлекаются, флиртуют с мужчинами. И как-то незаметно для них самих этот флирт с мужчинами перерастает в физические отношения. Поняв, что вот она эта «взрослая» (   Читать дальше...   )Производство: Гонконг, Making Film, One Cool Film Production, Sun Entertainment CultureЖанр: ДрамаРежиссер: Джоди ЛукАктеры: Ашина Квок, Фиш Лью, Койи Мак, Грегори Вон, Sara Aoki, Джеки Цай, Дада Чан, Tarah Chan, Ят Нин Чан, Джун ЛамПеревод: Двуголосый любительский (GREEN TEA)Субтитры: АнглийскиеПродолжительность: 01:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A42FB6AA62CE68A2493CF60874E10A983ABB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355392   (983373) от 26.01.2020
+
+Храбрые телохранители / Tian xia di yi biao ju / The Bravest Escort Group (2018) WEB-DL [H.264/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потерпев поражение от армии Цин, министр и генерал династии Мин решают переправить в безопасное место принцессу и карту к богатствам. Они проводят испытание среди эскортов и выбирают самый лучший. Храбрым воинам предстоит проделать опасный путь. И лишь немногие из них вернутся домой живыми...Производство: Китай, Beijing Sheng Shi Hua Ying Culture Communication Co., LtdЖанр: Боевик, историческийРежиссер: Тао МэнсиАктеры: Луис Фань, Чэ Юнли, Син Юй, Рэй Луй, Люн Ка-Янь, Кен Ло, Ши Нань, Чэнь Чжихуэй, Си Хун-БоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Английские, китайские (hardsub (неотключаемые), русские (softsub (SRT)Продолжительность: 01:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29003EEDD742A20EB072A5E7E1C5A0FDBEDCA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355310   (983240) от 26.01.2020
+
+Невинность на продажу / Tung baan tung hok / Lazy Hazy Crazy (2015) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три 18-летние подруги. Три школьницы. Ничто так не радует их как мысль о скорой взрослой и свободной от правил жизни. Однако их понятие «взрослой» жизни абсолютно отличается от реальности. Они веселятся, развлекаются, флиртуют с мужчинами. И как-то незаметно для них самих этот флирт с мужчинами перерастает в физические отношения. Поняв, что вот она эта «взрослая» (   Читать дальше...   )Производство: Гонконг / Making Film, One Cool Film Production, Sun Entertainment CultureЖанр: ДрамаРежиссер: Джоди ЛукАктеры: Ашина Квок, Фиш Лью, Койи Мак, Грегори Вон, Sara Aoki, Джеки Цай, Дада Чан, Tarah Chan, Ят Нин Чан, Джун ЛамПеревод: Двухголосый любительский (GREEN TEA)Субтитры: АнглийскиеПродолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA0E0C79578DE45F3F4A0C4FCC86568EC2A6A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972527   (981466) от 06.01.2016
+
+7500 / 7500 (2014) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действующие лица фильма — группа пассажиров рейса Vista Pacific 7500, совершающего перелет через Тихий океан. Мерное и тоскливое течение времени во время полета внезапно нарушается, и герои сталкиваются с некой сверхъестественной силой, вносящей не самое приятное разнообразие в замкнутом пространстве.Производство: Япония, США / CBS Films, Ozla Pictures, Ozla Productions, Vertigo EntertainmentЖанр: Ужасы, фантастика, триллер, мистикаРежиссер: Такаси СимидзуАктеры: Райан Квантен, Эми Смарт, Лесли Бибб, Джейми Чунг, Скаут Тейлор-Комптон, Никки Уилан, Джерри Феррара, Кристиан Серратос, Алекс Фрост, Рик КеллиПеревод: Профессиональный многоголосыйЯзык субтитров: Русский, английскийПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87A5D29CD84FD29ABD1D6DFF7E48B92084DB593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613580   (980951) от 05.02.2013
+
+Миф / San wa (The Myth) (2005) BDRip 720p
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — археолог, ведущий раскопки в местах древних городов и захоронений. Снимая слой за слоем, пробираясь через толщу веков, пытливый исследователь погружается в древность и мистическим образом перевоплощается в воина, от которого много веков назад зависела судьба целого народа. Миф становится реальностью…Жанр: Фэнтези, Боевик, ДрамаРежиссер: Стэнли ТонгАктеры: Джеки Чан Хи-сун Ким Тони Люн Ка Фай Малика Шерават Кен Ло Ю Рон Гуан Рэм Гопал Баджадж,Чхве Мин Су Джейсон Чонг Кумман ГопакумарПеревод: Многоголосый закадровыйПродолжительность: 02:00:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244572   (980742) от 28.01.2020
+
+Сердце из стали (Кровоточащая сталь) / Ji qi zhi xue / Bleeding Steel (2017) BDRip [H.264/720p-LQ]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент Линь, защищая гениального ученого, разрабатывавшего биологическое оружие, от внезапного нападения вооруженной группы элитных наёмников, возглавляемых беглым биороидом, получает тяжелые ранения и чудом остаётся жив, благодаря своевременной медицинской помощи и передовым технологиям. И теперь, работая под прикрытием, наш герой должен стать незримым (   Читать дальше...   )Производство: Китай, Гонконг / Heyi Pictures, Sparkle Roll Media, ...Жанр: Боевик, Фантастика, ТриллерРежиссер: Чжан ЛицзяАктеры: Джеки Чан, Шоу Ло, Нана Оу-ян, Эрика Сяхоу, Каллэн Мулвей, Тесс Хобрич, Ким Джинджелл, Дэмиен Гарви, Боуи Лам, ElenaПеревод: Дублированный (iTunes)Субтитры: РусскийПродолжительность: 01:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438A81A9D5B0F9D28666F2181F5EBCA2E11BCD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435457   (978403) от 16.01.2012
+
+Затойчи: Последний / Zatoichi: The Last (2010) [720p] HDRip
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слепой мастер меча, пытающийся жить спокойной жизнью со своей женой, вовлекается в сражения.Производство: Япония, ФранцияЖанр: Боевик, Драма, ИсторическийРежиссер: Дзюндзи СакамотоАктеры: Шинго Катори, Такаси Соримати, Сатоми Ишихара, Арата, Тиэко Байсё, Мике Хан, Йошио Харада, Коуичи Иваки, Сэйсиро Като, Йоуки КудоПеревод: Любительский (одноголосый)Субтитры: ОтсутствуютПродолжительность: 02:12:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742876   (975138) от 08.01.2014
 
 Вирус (Грипп) / Gamgi / Flu (2013) BDRip [H.264/720p] [DVO]
@@ -6,7 +188,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975138.jpg" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974272.jpg" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973922.jpg" />
 </div>
 
 
@@ -84,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971903.jpg" />
 </div>
 
 
@@ -110,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971702.jpg" />
 </div>
 
 
@@ -136,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971421.jpg" />
 </div>
 
 
@@ -162,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970636.jpg" />
 </div>
 
 
@@ -188,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968619.jpg" />
 </div>
 
 
@@ -214,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966877.jpg" />
 </div>
 
 
@@ -241,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965838.jpg" />
 </div>
 
 
@@ -267,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964382.jpg" />
 </div>
 
 
@@ -293,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961911.jpg" />
 </div>
 
 
@@ -319,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961859.jpg" />
 </div>
 
 
@@ -345,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960633.jpg" />
 </div>
 
 
@@ -371,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960627.jpg" />
 </div>
 
 
@@ -397,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960569.jpg" />
 </div>
 
 
@@ -423,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960566.jpg" />
 </div>
 
 
@@ -449,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959076.jpg" />
 </div>
 
 
@@ -475,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957855.jpg" />
 </div>
 
 
@@ -487,188 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FD63667DC9E8BC8BC8A13AECF951B372114CD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361040   (957771) от 17.02.2020
-
-Паразиты / Gisaengchung (2019) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычное корейское семейство Кимов жизнь не балует. Приходится жить в сыром грязном полуподвале, воровать интернет у соседей и перебиваться случайными подработками. Однажды друг сына семейства, уезжая на стажировку за границу, предлагает тому заменить его и поработать репетитором у старшеклассницы в богатой семье Пак. Подделав диплом о высшем образовании, парень отправляется (   Читать дальше...   )Производство: Корея Южная / Barunson E&A, CJ E&M Film Financing & Investment Entertainment & Comics, CJ EntertainmentЖанр: триллер, драма, комедияРежиссер: Пон Джун-хоАктеры: Кан Хо Сон, Сон Гён Ли, Ё Чжон Чо, У Шик Чхве, Со Дам Пак, Хе Джин Чан, Джи Со Чон, Хён Джун Чон, Джон Ын Ли, Со Чжун ПакПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20AF82347051977315114F228402052BFE194BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360773   (957762) от 17.02.2020
-
-Первая любовь / Hatsukoi / First Love (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рео и Моника — боксер со смертельным диагнозом и проститутка-наркоманка, влипшая в долги… Любовь, первая любовь настигает их внезапно. Но их чувство и жизнь под угрозой: за парочкой гонятся якудза, продажный коп, киллерша, посланная китайской триадой, и даже призрак в белой простыне… Безумная ночь в безумном Токио.Производство: Япония, Великобритания / Oriental Light and Magic (OLM)Жанр: Криминал, боевик, мелодрамаРежиссер: Такаси МиикеАктеры: Масатака Кубота, Сакурако Кониси, Нао Омори, Сёта Сомэтани, Сэиё Утино, Беки, Дзюн Мураками, Сансэй Сиоми, Такахиро Миура, Янь ЦзинкоПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8970F3596D4C0CDCF7F5314256E769DECE133339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361250   (956984) от 18.02.2020
-
-Особенная / Mi-ok / Miok / A Special Lady (2017) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшая проститутка, а теперь номер два в преступной организации Хён-джон уже по горло сыта подобной жизнью. Она хочет бросить всё и пожить спокойно, но киллер банды Сан-хун не понимает её рвения к тихой жизни, хоть и готов ради Хён-джон на всё. Тем временем коррумпированный прокурор, вынужденный участвовать в незаконном бизнесе, жаждет мести, поэтому с выходом на (   Читать дальше...   )Производство: Южная Корея / Kidari EntertainmentЖанр: боевик, криминал, фильм-нуарРежиссер: Ли Ан-гюАктеры: Ким Хе-су, Ли Сон-гюн, Ли Хи-джун, Чхве Му-сон, Ким Мин-сок, О Ха-ни, Хан Со-ён, Квон Юль, Лим Хак-сун, Ким Тхэ-гёмПеревод: Двуголосый любительский (Ворон и Kesu)Субтитры: Английские (Full, хардсаб), английские (SDH)Продолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC1A5041BF118093E74A7BA1101F2BE671CDF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361407   (955511) от 19.02.2020
-
-Мистическое сокровище / The Mystical Treasure (2018) WEB-DL [H.264/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Баэрсы, старший ученик учителя Вэйяна, находит мистический медальон, который дает безграничную власть и бессмертие. С помощью медальона можно управлять людьми и Баэрсы вознамерился стать богом и править миром. Двенадцать теневых стражей, сменяя друг друга, охраняют покой царства Чечи и когда начинаются убийства, один из них бросает вызов Баэрсы и погибает. И теперь (   Читать дальше...   )Производство: Китай, Well Go USA EntertainmentЖанр: Боевик, фэнтази, историяРежиссер: Чжан ЧжэлиньАктеры: Райан Юань, Гэ Чжэнь, Ся Ян, Вэнь Дунцзюнь, Цэн Ни, Чжэн Яфэй, Лю Синьюй, Лю Дун, Вэй, Ли Хуафэй, Сунь Боян, Шао Сяоцзян, Лю Цзиньчжэ, Чжан ИданьПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100469E7DE7FC5C8CB9FFA1C0788557FCF697B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361867   (952158) от 21.02.2020
-
-Реинкарнация Короля Обезьян (Непревзойденный герой) / Monkey King Reincarnation (2018) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952158.jpg" />
-</div>
-
-
-###  Подробнее
-
-События в фильме происходят за 500 лет до знаменитого Путешествия на Запад. В целях перевоспитания, для того чтобы прочувствовал человеческие страдания, сердце короля обезьян попадает в мир смертных, в тело фехтовальщика Гун Сюньсюня, любимая женщина которого недавно покончила с собой. По слухам, где-то на востоке, есть вино забвения, выпив которое, можно забыть (   Читать дальше...   )Производство: Китай, Beijing Culture Media Co.Жанр: БоевикРежиссер: Лю ХунчжиАктеры: Хэ Ланьдоу, Бернард Сэнь, Рэйн Лау, Се Нин, Тан Сыцзин, Чан Хайбо, Яо Вэйпин, Чжан Юнхуа, Ли Ао, Чэнь Шэнвэй, Чэнь Сяньминь, Юй ХунцзэПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC06CFD1862369648A6759618293DF695591B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361821   (951985) от 21.02.2020
-
-Озеро диких гусей / Nan Fang Che Zhan De Ju Hui / The Wild Goose Lake (2019) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чжоу Цзэнун — лидер небольшой банды, которая занимается кражей мотоциклов. Во время одной из разборок он случайно убивает полицейского и становится целью номер один для полиции и властей. В бегах Чжоу встретит проститутку Лю Айай — оба загнаны в тупик и ищут выход.Производство: Китай, Франция / Arte France Cinéma, Green Ray Films, He Li Chen Guang International Culture Media Co.Жанр: Драма, криминалРежиссер: Дяо ИнаньАктеры: Ху Гэ, Квай Луньмэй, Ляо Фань, Реджина Вань, Ци Дао, Хуан Цзюэ, Цзэн МэйхуэйцзыПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD13EEA3A8C327F4871B58B80E97B4D37BB42BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361664   (951913) от 21.02.2020
-
-Ип Ман 4 / Yip Man 4 (2019) WEBRip [H.264/1080p-LQ] [AVO]
-
->>След.
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка, 1960-е годы. Ип Ман прибывает в Сиэтл, где один из его учеников решил открыть школу вин-чун.Производство: Гонконг, Китай / Bullet Films, Mandarin Motion Pictures, Shanghai Bona Cultural MediaЖанр: боевик, биографияРежиссер: Уилсон ИпАктеры: Донни Йен, Скотт Эдкинс, Дэнни Чань, У Юэ, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Авторский закадровый (Д. Есарев), Профессиональный многоголосый (HDRezka Studio)Субтитры: Английские, корейские (hardsub)Продолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5864963B8EB0FB193F2375A53B4DDD939D9919A
 ```
 
 https://mybot314.ru/tekegram_catalog/

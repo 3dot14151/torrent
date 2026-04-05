@@ -6,7 +6,7 @@ Within Temptation: Black Symphony (2008) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835158.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833052.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AC/DC: No Bull (1996) BDRip [H.264/720p-LQ] [Directors Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832698.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ AC/DC - No Bull (1996) BDRemux [VC-1/1080i] [Directors Cut]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830962.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Yello - Live in Berlin (2017) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830866.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Talking Heads: Stop Making Sense (1984) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830698.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828968.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828888.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826951.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826899.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Yanni Live! The Concert Event (2006) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826732.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Metallica - Freeze 'Em All (2013) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825380.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825214.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823474.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823394.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823382.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822920.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Blue Man Group - How to Be a Megastar 2.0! (2008) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821492.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818820.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817256.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Kylie Minogue - Kiss Me Once (Live at the Sse Hydro) (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816775.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Shania Twain - Still The One: Live From Vegas (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816624.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816596.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815392.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815132.jpg" />
 </div>
 
 

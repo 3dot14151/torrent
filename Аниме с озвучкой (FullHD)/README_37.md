@@ -1,3 +1,111 @@
+###  Публикация: 1735625   (50594) от 09.07.2024
+
+Башня Бога [ТВ-1] | Kami no Tou | Tower of God [2024, TV, 13 из 13] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Башня Бога рассказывает о пареньке по имени Двадцать Пятый Баам, что провёл большую часть своей жизни запертым в подземелье под огромной и мистической Башней, в компании с одним единственным другом — Рахиль.
+Когда Рахиль проникла в Башню, Баам сумел открыть дверь и проскользнуть следом, и теперь он поднимается вверх, этаж за этажом, в поисках своего единственного (   Читать дальше...   )Производство: Япония / Студия Telecom Animation FilmЖанр: Драма, приключения, фэнтези, экшенРежиссер: Сано ТакасиЯзык озвучки: Русский (Crunchyroll), (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб)
+- (надписи+полные) Crunchyroll
+- (полные) SovetRomantica
+- (полные) YakuSub StudioПродолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242F3D9BA84E66B605DA2CFF7B5F911E366F63B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717642   (50163) от 13.07.2024
+
+Jiisan Baasan Wakagaeru | Дедушка и бабушка вновь стали молодыми | Grandpa and Grandma Turn Young Again [2024, TV, 11 из 11] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сёдзо и Инэ Сайто — пожилая пара с яблочной фермы в префектуре Аомори. Они много лет были вместе, у них есть и дети, и внуки. Это история о дедушке и бабушке, которые вернулись к молодости. Сёдзо и Инэ просто в один день проснулись снова молодыми. Как же они этим воспользуются?Производство: Япония, студия GekkouЖанр: комедия, романтикаРежиссер: Нисида МасаёсиЯзык озвучки: Русский закадровый (Dream Cast), (AniBaza), (AniLibria.TV), (КОМНАТА ДИДИ)Субтитры: Русские надписи, русские (софтсаб), Multi-10Продолжительность: 11 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7492BDFA83C9CA71D847DAE52DA7F80F00D57E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725089   (49331) от 21.07.2024
+
+NieR:Automata Ver1.1a | Ниер: Автомата [ТВ-1] [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49331.jpg" />
+</div>
+
+
+###  Подробнее
+
+За тысячелетия своего существования человечество всегда выживало, даже в самых ужасных катастрофах. Но везение когда-нибудь заканчивается. Однажды на Землю пришли машины и обрушили на людей всю свою мощь. Перед лицом, казалось, несокрушимой угрозы человеческая раса была вынуждена покинуть Землю и укрыться на Луне. В изгнании люди создали армию боевых андроидов, дабы (   Читать дальше...   )Производство: A-1 PicturesЖанр: приключения, фантастика, драмаРежиссер: Масуяма РёдзиЯзык озвучки: Японский, русский (AniLibria, Amber Studio, AniPlague, Flarrow Films)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C280495040676AA4F76C23B9B8FD1FC3F352283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739924   (48381) от 30.07.2024
+
+Vampire in the Garden | Вампир в саду [2022, Web, 5 из 5] WEB-DL 1080p raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда люди и вампиры мирно сосуществовали, пока их не разделила война. Обычная человеческая девушка, чья мечта — играть на скрипке, и королева вампиров, желающая увидеть мир, объединяют силы и отправляются в путешествие, чтобы преодолеть судьбу и изменить мир.Производство: Wit StudioЖанр: приключения, фэнтези, драма, вампирыРежиссер: Макихара РётароЯзык озвучки: Японский, Английский (Netflix) и Русский (Jaskier)Субтитры: Русские, Английские, Японские - NetflixПродолжительность: 5 серии по 26 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3C04173DBA0B5AA1FA8CD184648E052EE8423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699127   (47910) от 04.08.2024
 
 Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в последний путь Фрирен [2023, TV, 28 из 28] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +114,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47910.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В др
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47375.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Jaku Chara Tomozaki-kun | Bottom-tier Character Tomozaki | Низкоуровн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46790.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46599.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ Okashi na Tensei | Sweet Reincarnation | Сладкая Реинкарнация
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46590.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ Isekai Suicide Squad | Отряд самоубийц: Исекай [2024, TV, 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46406.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ Vampire Dormitory | Общежитие вампиров [2024, TV, 12 эп.] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46194.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ Lycoris Recoil | LycoReco | Ликорис Рикойл [2022, TV, 13 из 13] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45691.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ Zhandou Wang: Jufeng Zhan Hun 6 | Infinity Nado 6 | Инфинити Надо 6 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45456.jpg" />
 </div>
 
 
@@ -241,7 +349,7 @@ Terminator Zero | Терминатор Зеро [2024, Web, 08 из 08] WEBRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45009.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44970.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44220.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ Maou Gun Saikyou no Majutsushi wa Ningen Datta | Сильнейшим магом
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43845.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43747.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Беззабот
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43707.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43536.jpg" />
 </div>
 
 
@@ -428,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43436.jpg" />
 </div>
 
 
@@ -455,7 +563,7 @@ Date A Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 из 12] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43337.jpg" />
 </div>
 
 
@@ -481,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42911.jpg" />
 </div>
 
 
@@ -508,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42780.jpg" />
 </div>
 
 
@@ -535,7 +643,7 @@ Isekai Yururi Kikou: Kosodate Shinagara Boukensha Shimasu | Iseyuru | Прикл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42776.jpg" />
 </div>
 
 
@@ -561,7 +669,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42698.jpg" />
 </div>
 
 
@@ -572,113 +680,6 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E342A357A709E0E3F5EB082AAAF341AA4C76ED98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735323   (42674) от 23.09.2024
-
-Madougushi Dahlia wa Utsumukanai | Dahlia in Bloom | Maгичecкaя peмecлeнницa Дaлия нe yнывaeт! [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дaлия — дoчь мaгичecкoгo peмecлeнникa — xoчeт пoйти пo cтoпaм oтцa и coздaвaть мaгичecкиe ycтpoйcтвa, oблeгчaющиe жизнь людeй. Пoдoбнo вeщaм, coздaнным бeз мaгии, кoтopыe Дaлия видeлa в Япoнии. Oнa былa coтpyдницeй oднoй кoмпaнии, yмepлa нa paбoтe oт пepeyтoмлeния и пepepoдилacь в дpyгoм миpe. Taм oнa мoжeт coздaвaть вeщи, пoльзyяcь знaниями из cвoeй пpoшлoй жизни.Производство: Япония, студия Typhoon GraphicsЖанр: комедия, романтика, фэнтезиРежиссер: Кубо ЁсукэЯзык озвучки: Русский закадровый (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-10Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F61B5A6CBA02F6BBC7A46E6502AF831BF4F03D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736814   (42672) от 23.09.2024
-
-Рамэнная рыжего кота | Ramen Aka Neko | Red Cat Ramen [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте изумление главной героини, когда она, придя устраиваться на работу в кафешку, узнала, что там всем заведуют милые котики!
-Это её настолько ошарашило, что на вопрос управляющего, нравятся ли ей кошки, она честно ответила, что больше предпочитает собак... за что её тут же приняли на работу!
-Чем обычно занимается работник кафе? Сервирует блюда, подаёт напитки, (   Читать дальше...   )Производство: Япония / Студия E&H ProductionЖанр: Комедия, повседневностьРежиссер: Симидзу ХисатосиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02D898ABA065ED1960F885439D3BAC62021DA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751247   (42551) от 24.09.2024
-
-Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие аниме разворачивается в фантастическом мире, похожем на компьютерную игру, где живут различные монстры. Местные жители, пытаясь заработать себе на жизнь, вступают в ряды авантюристов, чтобы получить доступ к заданиям различной сложности, за которые полагается вознаграждение.
-В центре сюжета оказывается пятнадцатилетняя девушка, выбравшая профессию жрицы, (   Читать дальше...   )Производство: Liden FilmsЖанр: приключения, фэнтезиРежиссер: Одзаки ТакахаруЯзык озвучки: Японский, русский (AniLibria, Jam Club)Субтитры: Русские (Crunchyroll), английские (Chihiro)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751478   (42425) от 25.09.2024
-
-Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnation Season 2 | Реинкарнация безработного [ТВ-2, часть 2] [2024, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш герой — страшный затворник и отаку, все дни прожигающий дома. Вернее, так было раньше. Теперь он великий маг Рудэус Грэйрат, и рассказы о нём ходят по всему континенту! И неудивительно: мало кому удаётся без единого слова подчинять себе безумное количество маны и болтать с самим королём демонов как с приятелем! Но не все втайны разгаданы: причины появления катаклизма (   Читать дальше...   )Производство: Studio BindЖанр: приключения, фэнтезиРежиссер: Сибуя РёсукэЯзык озвучки: Японский, русский (Studio Band, AniLibria, Jam Club)Субтитры: Русские (Crunchyroll, Alvakarp, YakuSub Studio)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F65C28949240C42E543B8ADE69E4307FA8F4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

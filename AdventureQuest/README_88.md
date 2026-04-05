@@ -1,3 +1,81 @@
+###  Публикация: 1753806   (41218) от 07.10.2024
+
+Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучайте новые здания и локации – в некоторые из них нельзя было попасть в оригинальной игре, а некоторые впервые появились в ремейке. Насладитесь знаменитым сюжетом, взглянув при этом на Сайлент Хилл по-новому благодаря расширенной карте.Тип издания: SceneРазработчик: Bloober Team SAЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CC44969B745F3A32CB880C67D9FD433452A08C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753861   (41208) от 07.10.2024
+
+Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучайте новые здания и локации – в некоторые из них нельзя было попасть в оригинальной игре, а некоторые впервые появились в ремейке. Насладитесь знаменитым сюжетом, взглянув при этом на Сайлент Хилл по-новому благодаря расширенной карте.Тип издания: RepackРазработчик: Bloober Team SAЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754225   (40877) от 09.10.2024
+
+Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте Арктику со своей командой на собачьих упряжках, каяком и парашютом! Постройте и настройте свой базовый лагерь, соберите ресурсы, позаботьтесь о своих экспериментах на этом мирном острове. Arctico - атмосферный симулятор выживания с видом от первого и от третьего лица. Главное средство для выживания в игре - упряжка из четырех собак. На ней можно передвигаться, (   Читать дальше...   )Тип издания: RepackРазработчик: Claudio Norori, Antonio VargasЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Русский, Английский, Испанский и другиеЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AFCD3E5053246F7E579222DF1327ED89F739FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754633   (40736) от 11.10.2024
 
 Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +84,7 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40736.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40730.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40723.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40693.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Europa (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40633.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40540.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40525.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40519.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40134.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40106.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39921.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39904.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39896.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39881.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39879.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39878.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39845.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39826.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Talos Principle II (2) (2023) [Ru/Multi] (2.2.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39732.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39729.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.2.12) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39724.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (1.2.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39626.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39606.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FD5B682135C48BD6E855D1A58168A63CC5B5456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735224   (39450) от 24.10.2024
-
-Harold Halibut (2024) [Ru/Multi] (1.1.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Harold Halibut - созданная вручную нарративная игра о дружбе и о жизни на космическом корабле на дне инопланетного океана. Уже 250 лет прошло с тех пор, как ваш дом - космический ковчег - улетел с Земли на грани холодной войны, чтобы найти пригодную для жизни планету и спасти человечество. Вас зовут Гарольд, вы молодой ассистент научной руководительницы экспедиции (   Читать дальше...   )Тип издания: LicenseРазработчик: Slow Bros.Жанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246DF8E731272775017E8BCD3A96126BE55FB091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713430   (39263) от 26.10.2024
-
-Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городок Брайт-Фоллс, укрывшийся среди гор и лесов на северо-западе тихоокеанского побережья, потрясла серия ритуальных убийств. Для расследования этих жутких преступлений в город прибывает Сага Андерсон - опытный агент ФБР, за плечами которой немало дел, считавшихся нераскрываемыми. Однако, когда Андерсон находит страницы из романа ужасов, который начинает оживать (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключение, ШутерыЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C65A805CD8098A28190586AD4ACF0329144788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757253   (39241) от 26.10.2024
-
-INDIKA (2024) [Ru/Multi] (1.0.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39241.jpg" />
-</div>
-
-
-###  Подробнее
-
-INDIKA - игра от третьего лица с историей о странном мире, в котором религия вступает в противоборство с жестокой реальностью. Игра повествует о молодой монахине, которая отправляется на поиски самой себя бок о бок с рогатым другом. Внешне Индика - обычная, ничем не выдающаяся монахиня. Она всеми силами пытается нести бремя монастырской жизни. Однако скромность и (   Читать дальше...   )Тип издания: LicenseРазработчик: Odd MeterЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF94492FB334957718CFE1983D9E52438440339F
 ```
 
 https://mybot314.ru/tekegram_catalog/

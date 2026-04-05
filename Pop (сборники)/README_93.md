@@ -1,3 +1,148 @@
+###  Публикация: 572725   (377396) от 11.11.2012
+
+VA - Most Wanted - Digital Dancefloor - Chapter 01-12 (2011) [MP3|320 кб/с]<Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Sleep - Moonlight Shadow (DJ's Master Mix) (6:13)
+02. Clueless - Don't Speak (Extended Version 1) (6:10)
+03. Ritmo Ritmo feat. Ricardo DC - Matador (Maxi Edit) (5:17)
+04. 2Hot4You - Can't Take My Eyes Off You (Club Rap-Mix) (6:01)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:75:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27629BCA229CE7FC08C2C15DF9DD9CEA76D8C736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253900   (377157) от 12.10.2018
+
+VA - Зайцев.нет Лучшие новинки Октября 2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker feat. Sophia Somajo - Diamond Heart 4:00
+02. Уматурман (Uma2rmaH) - Настя 3:03
+03. Альбина - Не я 3:21
+04. T1One & Лидия - Срываюсь 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 03:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4674FD02A309C8B56D4477C8DEBD282796553F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720468   (376814) от 09.11.2013
+
+Frank Duval - 25 Best Songs (2012) [MP3|~245 кб/с (V0)]<Instrumental Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lord 1985
+02. Touch My Soul 1989
+03. Ways 1984
+04. Lovers Will Survive 1986(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A215A6AE0C41C8D48E0A636CA23344F3485CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069023   (376098) от 03.11.2016
+
+VA - Осенняя хит-атака на Europa Plus. Русский сборник (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376098.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dельфина - Привет От Одиноких
+002. Estradarada - Мне Нравится
+003. Дмитрий Климашенко - Будет День
+004. Свят - Почему Же Нет(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143AD3F48CC24F1A2BEC55E608B87DC87D1B7571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069098   (375951) от 03.11.2016
+
+Teddybears (Teddybears STHLM) - Collection (2000 - 2016) [MP3|320 Kbps] <Alternative Dance, Electronic Space Rock, Space Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best You Ever Had
+02. Rocket Scientist (feat. Eve)
+03. Get Mama a House (feat. Desmond Foster)
+04. Cardiac Arrest (feat. Mapei)(   Читать дальше...   )Жанр: Alternative Dance, Electronic Space Rock, Space SynthpopПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032C69E2233443302C1141C6CFC4AEF52D4F8DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254190   (375103) от 13.10.2018
 
 VA - De Foute CD 2018 (2018) [MP3|320 Kbps] <Pop>
@@ -6,7 +151,7 @@ VA - De Foute CD 2018 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375103.jpg" />
 </div>
 
 
@@ -38,7 +183,7 @@ VA - German Top 100 Single Charts 15.10.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373189.jpg" />
 </div>
 
 
@@ -67,7 +212,7 @@ VA - Play Exclusive Cloud October 2018 (2018) [MP3|320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373002.jpg" />
 </div>
 
 
@@ -96,7 +241,7 @@ VA - Autumn Dance Hits Vol.1 (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372870.jpg" />
 </div>
 
 
@@ -125,7 +270,7 @@ VA - Дискотека забытых хитов (зарубежная) - 17 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372578.jpg" />
 </div>
 
 
@@ -154,7 +299,7 @@ VA - Русское радио: Хит-парад 'Золотой Граммоф
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372512.jpg" />
 </div>
 
 
@@ -183,7 +328,7 @@ VA - Начнем сначала. Русский сборник попмузык
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372466.jpg" />
 </div>
 
 
@@ -212,7 +357,7 @@ VA - Любимая волна. Версия 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371699.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ VA - Популярный драйвовый хитовичок. Версия 9 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371697.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ VA - Love Lyrics Songs (2020) [MP3|320 Kbps] <Pop, Rock, Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371594.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371229.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ VA - Сборник - 78 оборотов (Эстрада 1940-1960-х годо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369468.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ VA - Горячий хитовый драйв. Выпуск 5 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369265.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ VA - Осенняя позитивная 100-ка. Выпуск 7 (2016) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369260.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ VA - Музыкальный адреналин. Сборник 10 (2016) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369131.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ VA - Заключительная осенняя дискотека. Часть 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368886.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ VA - Горячий Музон (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368804.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ VA - Лучшие хиты осени (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368769.jpg" />
 </div>
 
 
@@ -537,7 +682,7 @@ VA - Super Дискотека 80х-90х В Новом Звучании (2016) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368451.jpg" />
 </div>
 
 
@@ -566,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368439.jpg" />
 </div>
 
 
@@ -595,7 +740,7 @@ VA - Лучшие Хиты Радио DFm Часть 10 (2012) [MP3|256 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368277.jpg" />
 </div>
 
 
@@ -615,169 +760,6 @@ VA - Лучшие Хиты Радио DFm Часть 10 (2012) [MP3|256 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89616D160E7428BE0D94EDBC6BEAB1CDBF393AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950669   (368032) от 27.10.2015
-
-September - Dancing In Orbit (2008) [MP3|~225 кб/с (V1)]<Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry For You
-02. Looking For Love
-03. Can't Get Over
-04. Midnight Heartache(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E6DCCDCBB87BEE0047AA8E746B93AAA64C527B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950783   (367777) от 27.10.2015
-
-VA - Зарубежный парад звёзд 60-70гг. (2004) [MP3|128 кб/с]<Pop, Pop Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367777.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Beat Goes On! Vol.01
-01 - Lovin' Spoonful - Summer In The City
-02 - Dave Edmunds - I Hear You Knockin'
-03 - Helen Shapiro - Walkin' Back To Happiness(   Читать дальше...   )Жанр: Pop, pop RockПродолжительность: 11:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7CDB8B9FB379A4F418E43A39EFAA5D3F301242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575844   (366751) от 16.11.2012
-
-VA - Музыкальное путешествие Европы плюс 50/50 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366751.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. T-Killah И Лоя - Вернись
-002. Flo Rida - Good Feeling
-003. Дискотека Авария - Недетское Время
-004. Pitbull feat. Enrique Iglesias - Tchu Tchu Tcha
-005. Алисия & Павел Есенин И Hi-Fi - Ангелы Вечны
-006. Rihanna Feat. Wayne Marshall - Man Down (Remix)
-007. Макс Барских - Dance
-008. 23:45 - Моя Любовь
-009. Потап и Настя - РуРуРу
-010. Hurts - Sunday(   Читать дальше...   )Жанр: PopПродолжительность: 12:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357477EC6D3A94496C86216FA166520F87772580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575901   (366462) от 16.11.2012
-
-VA - Coca-Cola Music Чарт 3 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366462.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Винтаж и Рома Кенга - Танцуй в последний раз
-002. Girls Aloud - Something New
-003. Слава Бодолика и Доминик Джокер - Фиеста
-004. Olly Murs feat. Flo Rida - Troublemaker
-005. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
-006. Paradiso feat. Ria - Just Dance (Radio Edit)
-007. LMФАО - Полшестого
-008. Timati feat. Craig David - Sex In The Bathroom
-009. Елка - Хочу
-010. PSY feat. Hyuna - Oppa Is Just My Style (Gangnam Style 2)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCAAEC313BDB5DDD64DAC1318EA1270B81B5AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575823   (366317) от 16.11.2012
-
-VA - И Снова Лирика (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юлия Савичева - Привет, Любовь Моя
-02. Нюша - Красивая пара
-03. Инфинити - А Он Такой (DJ Olga Joana Remix)
-04. Arif Mamedaliev - Я Тобой Дышу
-05. Рождество - Ты знаешь как хочется жить
-06. Руки Вверх - Я Тебя Люблю
-07. Алина Гросу - Бросай
-08. Катя Чехова - По Буквам Словава
-09. Ирина Билык - Как Же
-10. Владимир Рудковский - Ищу Тебя(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150FE17A4B8B61191EFF1E9B74B1128809895793
 ```
 
 https://mybot314.ru/tekegram_catalog/

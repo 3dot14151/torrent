@@ -1,160 +1,3 @@
-###  Публикация: 1134311   (688772) от 15.05.2017
-
-Е.В. Алешкина, Г.М. Крылов | Практикум по 1С: Предприятие 8: Кадровый учет. Оперативный учет. Бухгалтерский учет (2017) [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный практикум позволит любому пользователю, владеющему первоначальными основами работы на персональном компьютере, приобрести практические навыки ведения кадрового, оперативного и бухгалтерского учета в системе «1С:Предприятие 8». Практикум ориентирован на изучение и выполнение конкретных задач (тем), получение конкретных навыков работы и получение знаний учащимися (   Читать дальше...   )Жанр: Обучение 1СФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D074F1962B94DDB9A96244B61FB8C177B1418B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027891   (688232) от 23.06.2016
-
-Андрей Орлов | AutoCAD 2015 (2015) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688232.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью данного практического руководства вы изучите новую версию самой популярной программы для проектирования и черчения – AutoCAD 2015. Книга идеально подойдет как для пользователей, которые только начинают осваивать черчение на компьютере, так и для пользователей, уже знакомых с продукцией Autodesk и желающих освоить изменения в новой версии программы. Вы узнаете, (   Читать дальше...   )Жанр: 3D-моделирование, компьютерная графика, техническое проектированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49835C10E481AAD2C4A0FE7FD66F20EC9324712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506772   (687162) от 06.06.2012
-
-Е.Р.Алексеев,О.В.Чеснокова и др. | Самоучитель по программированию на Free Pascal и Lazarus [2011] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является учебником по алгоритмизации и программированию. В учебнике описан язык Free Pascal и среда визуального программирования Lazarus. Free Pascal и Lazarus являются мощными и свободно распространяемыми средствами программирования. В книге приведено большое количество примеров алгоритмов и программ. Особое внимание уделено работе с визуальными компонентами, их свойствами и методами. Подробно описаны такие этапы программирования как работа с подпрограммами и файлами. Также в книге можно познакомиться с основами объектно-ориентированного программирования и графическими средствами Lazarus. Книга содержит 25 вариантов заданий для самостоятельного решения по всем рассматриваемым темам.
-Издание предназначено для школьников, студентов, аспирантов и преподавателей, а также для всех, кто изучает программирование на Free Pascal и Lazarus.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2F448CEBA327ED7D20864C7579F9425EB0A364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134571   (686955) от 16.05.2017
-
-И. С. Николаев (ред.) | Прикладная и компьютерная лингвистика (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается первое на русском языке практическое введение в современные лингвистические технологии. Из книги можно узнать о применении знаний о языке для решения прикладных задач. Монография позволяет найти ответы на базовые вопросы, возникающие у начинающего исследователя: как работают современные лингвистические технологии, где взять основные (   Читать дальше...   )Жанр: Лингвистические технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9362F6105D74621B566EFADCE8152F6139C7218E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222390   (686900) от 28.04.2018
-
-Кристиана Пол | Цифровое искусство (2017) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686900.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге Кристианы Пол, известного немецко-американского куратора и специалиста в области компьютерного искусства, новых медиа и нет-арта, подробно рассматривается эволюция искусства, основанного на новейших информационных технологиях. Обзор основных вех цифрового искусства и творчества его ведущих представителей дополнен обширным справочным аппаратомЖанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D22F17884C7E5DF030C93AFBE4B959AB6ED41E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222157   (686899) от 28.04.2018
-
-Н. Поликарпова, А. Шалыто | Автоматное программирование (2011) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686899.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается автоматное программирование – подход к разработке программных систем со сложным поведением, основанный на модели автоматизированного объекта управления (расширении конечного автомата). Предлагаемый подход позволяет создавать качественное программное обеспечение для ответственных систем, охватывая все этапы его жизненного цикла и поддерживая (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DAE7628BE7D67F1360A57BD5CA6B3860A88669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289697   (686100) от 16.03.2019
 
 Тим Маккей и др. | XenServer. Справочник администратора (2017) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686100.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685882.jpg" />
 </div>
 
 
@@ -215,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685861.jpg" />
 </div>
 
 
@@ -241,7 +84,7 @@ Web Code Geeks | AngularJS Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684703.jpg" />
 </div>
 
 
@@ -267,7 +110,7 @@ Piyas De | Building web apps with Node.js (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684590.jpg" />
 </div>
 
 
@@ -294,7 +137,7 @@ Fabio Cimo | CSS Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684581.jpg" />
 </div>
 
 
@@ -320,7 +163,7 @@ Fabio Cimo | How to become a Web Developer (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684580.jpg" />
 </div>
 
 
@@ -346,7 +189,7 @@ Fabio Cimo | Bootstrap Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684577.jpg" />
 </div>
 
 
@@ -372,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684557.jpg" />
 </div>
 
 
@@ -398,7 +241,7 @@ Java code geeks | Docker Containerization Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684497.jpg" />
 </div>
 
 
@@ -424,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683606.jpg" />
 </div>
 
 
@@ -452,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683605.jpg" />
 </div>
 
 
@@ -478,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683499.jpg" />
 </div>
 
 
@@ -506,7 +349,7 @@ Fabio Cimo | The Best Web Programming Languages to Learn (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682801.jpg" />
 </div>
 
 
@@ -532,7 +375,7 @@ Raman Jhajj | Apache Hadoop Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682798.jpg" />
 </div>
 
 
@@ -558,7 +401,7 @@ Fabio Cimo | Web Developer Interview Questions (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682674.jpg" />
 </div>
 
 
@@ -584,7 +427,7 @@ Fabio Cimo | jQuery Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682672.jpg" />
 </div>
 
 
@@ -610,7 +453,7 @@ Andriy Redko | Advanced Java (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682671.jpg" />
 </div>
 
 
@@ -636,7 +479,7 @@ Web Code Geeks | HTML5 Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682666.jpg" />
 </div>
 
 
@@ -663,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682665.jpg" />
 </div>
 
 
@@ -674,6 +517,163 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F147C3FE138B4646C2C7A50C35D8FC0A860A8BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134600   (682663) от 18.05.2017
+
+Chryssa Aliferi | Android Programming Cookbook (2016) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682663.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге мы предлагаем компиляцию примеров программирования для Android, которые помогут вам начать ваши собственные веб-проекты. Мы охватываем широкий спектр тем, от служб и представлений, до функций Google Maps и Bluetooth. С помощью наших простых обучающих программ вы сможете запустить и запустить свои собственные проекты за минимальное время.Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A150BFBB5D61E53513C5E0AB895473C2E9358A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134608   (682662) от 18.05.2017
+
+Francesco Azzola | Android UI Design (2014) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682662.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы познакомитесь с основами дизайна Android UI. Вы будете понимать пользовательский ввод, представления и макеты, а также адаптеры и фрагменты. Кроме того, вы узнаете, как добавить мультимедиа в приложение, а также использовать темы и стили. Конечно, все это связано с примером приложения, которое вы будете строить с нуля.Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EA183CC4359F6CAB1EF80524BCB4E4FCE4F5A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134511   (682660) от 18.05.2017
+
+Nikos Souris | How to Start a Blog with WordPress (2016) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682660.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы популярность блогов растет. Компании и частные лица используют блоги, чтобы выразить свои голоса и связаться со своей аудиторией. Большая часть этого выполняется на популярной платформе WordPress.
+WordPress - это бесплатная система управления контентом (CMS) на основе PHP и MySQL. Особенности включают в себя архитектуру плагина и систему шаблонов. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA74052151EA0DD9991E6EB53FD9B8B676519A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222713   (682588) от 30.04.2018
+
+Владимир Скиба, Владимир Курбатов | Руководство по защите от внутренних угроз информационной безопасности (2008) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробно изложена суть угроз внутренней IT-безопасности и существующие способы защиты от этих угроз. Приведено огромное количество примеров из практики борьбы с инсайдерами и утечками. Используя представленный в книге материал, читатель сможет на практике значительно минимизировать риски утечки конфиденциальной информации из своей организации, узнать требования к (   Читать дальше...   )Жанр: Компьютерная литература, безопасностьФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9871BE94D175D69FA55B10DB4C6C6803D5A923BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134542   (682532) от 18.05.2017
+
+Web Code Geeks | PHP Programming Cookbook (2016) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682532.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге мы предлагаем компиляцию примеров на PHP, которые помогут вам начать ваши собственные веб-проекты. Мы охватываем широкий спектр тем: от таблиц HTML и загрузки файлов, до клиентов SOAP и выполнения команды Curl. С помощью наших простых обучающих программ вы сможете запустить свои собственные проекты за минимальное время.Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027B66DCCB83817BE159727729AB7B4D9A4D9419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134529   (682527) от 18.05.2017
+
+Fabio Cimo | JavaScript Interview Questions (2016) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы задавались вопросом, какие наиболее распространенные вопросы Javascript разработчики задают в интервью? Итак, в этой книге мы рассмотрим некоторые из наиболее ожидаемых вопросов (и их ответы), чтобы помочь вам начать работу на собеседованиях и произвести хорошее впечатление своими знаниями.Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEBE60BEC5AFE3F6CFD4B941958E84B3C1B9A10
 ```
 
 https://mybot314.ru/tekegram_catalog/

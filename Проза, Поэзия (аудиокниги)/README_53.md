@@ -1,55 +1,3 @@
-###  Публикация: 1152026   (567482) от 22.07.2017
-
-Александр Нилин | Зимняя дача (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Персонажи этой книги – Анна Ахматова, Иосиф Бродский, Алексей Баталов, с которыми автор встречался на ставшей легендарной Ордынке, в квартире Виктора Ардова. Юрий Олеша и другие обитатели писательского дома в Лаврушинском переулке. Олег Ефремов, с которым автор был близко знаком с тех давних пор, когда учился в Школе-студии МХАТ. Действие происходит и в знаменитом (   Читать дальше...   )Жанр: ПрозаПродолжительность: 05:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C8A67F41D903B0D76B5EB67E278E9A9E99D959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043872   (567297) от 19.08.2016
-
-Кнут Гамсун | Мистерии (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Бестселлер". Один из знаковых романов для творчества Гамсуна, в котором основные принципы и темы его ранних произведений - темы провинции и "человека извне", общества и сильной личности, противостоящей ему уже самим фактом своего существования, - выступают с небывалой прежде обнаженной силой. В маленький провинциальный городок - удушливо-тихий, (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 18:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4FCFCE5A18E8593103788681FE54C944746664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043840   (567284) от 19.08.2016
 
 Сергей Летов | Кандидат в Будды (2016) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567284.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565516.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565271.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563602.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563405.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562140.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561826.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561674.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561670.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561616.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560199.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560196.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560095.jpg" />
 </div>
 
 
@@ -405,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559979.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559931.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559870.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559828.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559821.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559687.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559676.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559543.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559540.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558381.jpg" />
 </div>
 
 
@@ -667,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558285.jpg" />
 </div>
 
 
@@ -678,6 +626,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BE349ECE63AFE3538BD7DEC1729F7B5FFE8BC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153294   (558265) от 27.07.2017
+
+Григорий Ряжский | Искусство принадлежит народу (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558265.jpg" />
+</div>
+
+
+###  Подробнее
+
+– Хай! – Она обворожительно улыбнулась и взяла из его рук посадочный талон. От нее пахло заграницей. Бросив на листок быстрый взгляд, улыбнулась еще шире, разбавив улыбку многозначительным кивком головы, и сказала:
+– Ферст класс, зыз уэй, плииз, сэр, – и указала рукой на закрученную спиралью лестницу, ведущую на второй, верхний, уровень самолета.
+Армен тоже широко (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A4AE458425C7508BA23EBCCECEAA40FC6EEDB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153550   (558203) от 27.07.2017
+
+Фрэнсис Брет Гарт | Габриэль Конрой (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная испытаний и жестокости жизнь золотоискателей американского Запада, суровые и мужественные герои, проявления человеческой доброты и верности — вот главные темы произведений Брет Гарта. Он был дерзким журналистом, лирическим поэтом, своеобразным прозаиком. Его писательский дар признали сразу и, как ни удивительно, раньше всего в России. Но не только авантюрные (   Читать дальше...   )Жанр: Зарубежные приключенияПродолжительность: 12:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3170EAE027D99C8F904A7698110A52D6B8A91C0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Keith Jarrett - Backhand (1974) /2013, Universal/[FLAC|tracks+.cue]<Jazz, Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541492.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Curtis Fuller Quintet - South American Cookin' (1961) /2014, Sony Music/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541491.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Electro Jazz (2015) [FLAC|tracks|WEB-DL]<Electro Jazz, Nu Jazz, Broken Beat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541411.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazzy Lounge, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Baleari
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540755.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Charles Mingus - The Black Saint And The Sinner Lady & Mingus Mingus Mingus Ming
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540651.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Jazzy Lounge, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Baleari
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540642.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dorothy Donegan - Five Classic Albums (1942 - 1960) 4CD, 2017, Real Gone Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540630.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Grant Green - The Main Attraction (1976) 2002, Epic -  EK 86145 [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540629.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Keiko Matsui - 24 альбома (1987 - 2007) [APE|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540296.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Al Foster - Inspirations & Dedications (2019) Smoke Sessions Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540073.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ellery Eskelin with Andrea Parkins & Jim Black - The Secret Museum (2000) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540071.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Charlie Mingus - Statement (1969) /2014, Studio Songs/[FLAC|tracks+.cue]<Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539315.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Dodo Marmarosa Trio - Complete Studio Recordings (1946 - 1962) 2CD, 2004, Lone H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539283.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Grover Washington Jr. - Come Morning (1981) Elektra [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539191.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Grover Washington, Jr. - Feels So Good (1975) 1986, Motown [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539186.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Grover Washington Jr. - Then And Now (1988) Columbia [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539163.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Carmen McRae - Book Of Ballads (1959) 2008, Kapp Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539097.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Flora Purim - That's What She Said (1976) 1990, Original Jazz Classics [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538987.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Marchio Bossa - Come in un quadro (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538971.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Brian Bromberg - Thicker Than Water (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538879.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Paul Bley, Franz Koglmann, Gary Peacock - Annette (1992) 2001, HAT HUT Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538427.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ James Williams - Alter Ego (1984) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538306.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Dinah Washington - Jazz Profile (1962 - 1963) 1997, Blue Note [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538305.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Count Basie - Jazz Profile (1959 - 1961) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538304.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Keiko Matsui - Journey To The Heart (2016) [FLAC|Lossless|image + .cue] <Smooth-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538082.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Helen Merrill & Gil Evans - Collaboration (1988) Nippon [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537467.jpg" />
 </div>
 
 

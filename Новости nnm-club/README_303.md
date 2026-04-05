@@ -1,3 +1,56 @@
+###  Публикация: 1810877   (8849) от 09.08.2025
+
+Чиновников Санкт-Петербурга будет отбирать искусственный интеллект
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чиновников Санкт-Петербурга будет отбирать искусственный интеллект  Администрация Санкт-Петербурга начала тестировать нейросеть для отбора кандидатов на госслужбу, разработанную Национальным исследовательским университетом ИТМО. Пока искусственный интеллект (ИИ) тренируется на кандидатах в молодежный кадровый резерв.  В Смольном заявляют, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811459   (8727) от 10.08.2025
+
+Российская сборная одержала победу на Международной олимпиаде по ИИ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборная России по искусственному интеллекту установила исторический рекорд на Международной олимпиаде в Пекине, завоевав шесть золотых медалей из восьми возможных наград. Это лучший результат по высшим наградам среди всех 61 страны-участницы престижного турнира, который проходил при поддержке ЮНЕСКО.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535765   (8569) от 30.09.2025
 
 Король и Шут (Горшок) - 15 альбомов + 4 Live + 5 compilation + BoxSet + Soundtrack (1996-2025) [MP3|320 kbps] <Punk Rock>
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8569.jpg" />
 </div>
 
 
@@ -36,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8503.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8498.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.7) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8491.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (1.9.6/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7815.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Project Zomboid (2013) [Ru/Multi] (42.8.1) License GOG [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7813.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.02/dlc) Licens
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7810.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Incubation: Time Is Running Out / Incubation: Космодесант [Ru] (L) 19
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7599.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ MAX Desktop 25.8.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7410.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-4/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7392.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7372.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7121.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6999.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6987.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ Doupo Cangqiong | Dou Po Cang Qiong | Fights Break Sphere | Battle Through The H
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6878.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6876.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6868.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6853.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6721.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6698.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ De’Longhi переименовала кофемашину в компьюте�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6528.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6375.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Scene Rune
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6228.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6225.jpg" />
 </div>
 
 
@@ -624,63 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C38595FF129DCB407FCC9E97EC4A4AA936C9C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564024   (6220) от 24.08.2025
-
-Максим Вердикт | Авторские курсы (18 курсов) (2020-2025) WEB-DLRip [AD] [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максим Вердикт — один из известнейших в русскоязычном сегменте интернета людей, оказывающий помощь мужчинам в правильном построении отношений с женщинами. Изучать тематику взаимоотношений начал достаточно давно, более 10 лет назад. Первоначально консультировал как женщин, так и мужчин, но затем переключился исключительно на консультации мужчин. Максим учит правильно (   Читать дальше...   )Жанр: Психология отношенийЯзык озвучки: РусскийПродолжительность: 43:27:38Реклама: * - В этих курсах есть рекламные логотипы сторонних ресурсов
-
-Максим Вердикт | Авторские курсы (16 курсов) (2020-2025)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A9989B915CC4CA951C28B2DA96D4651939E821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523848   (6049) от 25.08.2025
-
-Robin Trower - 43 альбома, 2 Box Set (1973 - 2025) 84 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитарист Робин Трауэр (Robin Trower) получил широкую известность не только из-за участия в "Procol Harum", но и благодаря своей манере игры, напоминавшей Jimi Hendrix. Робин родился 9 марта 1945 года в английском городе Кэтфорд. В начале 60-х он перебрался в Лондон, где играл в различных местных командах. Самой известной из этих групп была "The Paramounts", (   Читать дальше...   )Список альбомов:
-1973 Twice Removed from Yesterday
-1974 Bridge of Sighs
-1975 For Earth BelowЖанр: Blues RockПродолжительность: 68:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770B09D7A226D36529EF8FA36A36614E12AFC513
 ```
 
 https://mybot314.ru/tekegram_catalog/

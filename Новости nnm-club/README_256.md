@@ -1,3 +1,58 @@
+###  Публикация: 406992   (147278) от 26.12.2016
+
+George Michael - 78 Albums (1984-2014) 89 CD [MP3|192 - 320 kbps]<Pop, Dance, Soul>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Light (4:35)
+02. Song to the Siren (3:33)
+03. White Light (Voodoo Sonics Remix) (6:58)
+04. White Light (Kinky Roland Remix) (6:47)Жанр: Pop, Dance, SoulПродолжительность: 57:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A8DD4692A207F2BA550659F85CC383ED80E9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086976   (147250) от 26.12.2016
+
+Microsoft Windows 10 Enterprise Insider Preview Redstone 2 Build 10.0.14997.1001 (x64) [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая сборка Windows 10 Creators Update была "слита" неизвестными в сеть 25 декабря сего года. Сборка не выпускалась в рамках инсайдерской программы, по сущности является внутренним ISO образом, который просочился в интернет. В отличие от Insider Preview, она поставляется с большим количеством изменений, которые не были официально объявлены Microsoft.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0172522302261D4479D7B812049CFA7502CB6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086922   (147198) от 26.12.2016
 
 Иван (2016) SATRip
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147198.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Space Hulk: Deathwing (2016) [Ru/En] (1.06) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147190.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ uDraw Wii collection [Wii] [PAL] [Eng] (2010-2011)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147034.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Deworker Pro, Дмитрий Елисеев | Разработка аукцио�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146950.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146897.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146453.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146378.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ Alien Skin Exposure X 1.0.0.2005 Revision 31988 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146200.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146137.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ Adobe After Effects CC 2015 (v13.6.1) RUS/ENG Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146095.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ Crash Bandicoot N. Sane Trilogy (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146079.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146040.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146032.jpg" />
 </div>
 
 
@@ -346,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145996.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145965.jpg" />
 </div>
 
 
@@ -398,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145421.jpg" />
 </div>
 
 
@@ -424,7 +479,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144902.jpg" />
 </div>
 
 
@@ -450,7 +505,7 @@ Adobe After Effects CC 2019 16.0.1.48 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144897.jpg" />
 </div>
 
 
@@ -476,7 +531,7 @@ The Forest (2018) [Ru/Multi] (1.10b) SteamRip R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144883.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.04) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144875.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ SafeInCloud v20.8.5 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144814.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144806.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144488.jpg" />
 </div>
 
 
@@ -608,7 +663,7 @@ Topaz Video Enhance AI 2.6.2 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144286.jpg" />
 </div>
 
 
@@ -619,58 +674,6 @@ Topaz Video Enhance AI – это совершенное новое решени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE03638698080F5BF02FB8E0A5DE334A93EE0DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518799   (144144) от 26.12.2021
-
-Дракулов (2021) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская империя. Юрист Петр Смирнов приезжает в мрачное имение загадочного графа Дракулова, чьи предки родом из далекой Трансильвании, чтобы оформить покупку дома в Москве. Граф замечает фотокарточку невесты Петра, юной Вари, и немедленно срывается проинспектировать свою новую недвижимость… Петр обеспокоен, но его бдительность усыпляют старательные служанки графа. (   Читать дальше...   )Производство: Россия / Central Partnership ProductionsЖанр: комедияРежиссер: Илья КуликовАктеры: Михаил Галустян, Денис Васильев, Татьяна Бабенкова, Алексей Золотовицкий, Надежда Сысоева, Мария Лисовая, Дмитрий Блохин, Роман Попов, Иван Агапов, Александр ЗагоскинПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC29E63980429365F67E118675B26902AF08747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969497   (144071) от 28.12.2015
-
-Марсианин / The Martian (2015) HDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного. Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель Хенни, Чиветель ЭджиофорПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA18990CC1EAA50C8EDBB2F22E2A31A77532AD98
 ```
 
 https://mybot314.ru/tekegram_catalog/

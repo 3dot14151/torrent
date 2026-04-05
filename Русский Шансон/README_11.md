@@ -1,3 +1,32 @@
+###  Публикация: 1620267   (245858) от 19.03.2023
+
+VA - Застольные от Петровича 40% - 96% (2004) 3 Альбома (2004) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сёстры Вековые - Что такое
+02. О. Чесноков - Королева красоты
+03. Хрустящие - Вот что было
+04. О. Чесноков - Диарея(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCD19FE1C85972F9EA01FE5D1BE28E58BA7992D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631416   (245016) от 05.05.2023
 
 Александр Шепиевкер - Мне снятся сны (1983) [MP3|320 Kbps] <Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245016.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Памяти Аркадия Северного (1995) [MP3|320 Kbps] <Ша�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244949.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244682.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Калина красная 3-Песни, спетые сердцем (1999
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244386.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244079.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Русский шансон часть 6 (1999) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242326.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242058.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241993.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA – Русский шансон часть 2 (1996) [MP3|320 Kbps] <Шанс�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240806.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Русский шансон часть 5 (1998) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238986.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238880.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237711.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237662.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237466.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Русский шансон часть 8 (2000) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237460.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236932.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Русский шансон часть 3 (1997) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235798.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Шоферской 6 (2001) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234446.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234135.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Шоферской 17 (2005) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233962.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232186.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Памяти А. Северного (1995) 2CD [MP3|320 Kbps] <Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224579.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220668.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217990.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216448.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18D502C0C334CEC8FDFC9B55180EA753378AB745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586459   (214655) от 28.10.2022
-
-Дмитрий Прянов - Дуэты (2022) MP3 [320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дмитрий Прянов и Инна Вальтер - Прекратим этот бой
-02. Дмитрий Прянов и Марина Девятова - Мы не можем друг без друга
-03. Дмитрий Прянов и Ярослав Сумишевский - Страна моей юности
-04. Дмитрий Прянов и Светлана Лазарева - Сильнее, чем тогда(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36032BBC1F6E61D728E8E0AF33574336B38028D
 ```
 
 https://mybot314.ru/tekegram_catalog/

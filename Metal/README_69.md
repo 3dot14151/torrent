@@ -6,7 +6,7 @@ Saxon - Battering Ram (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420384.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Subscaria - Afterwrath (2016) [MP3|320 Kbps] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419547.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Metallophobia by Peterson - Metallophobia (2022) [MP3|320 Kbps] <Old School Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419478.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dynazty - Final Advent (2022) [MP3|320 Kbps] <Power Metal, Hard Rock, Melodic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419462.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pantera - The Great Southern Trendkill (1996) 2CD, Remastered, 2016, Rhino Recor
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418938.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lindemann - Steh auf (2019) Single [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418673.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Mountains of Charlie - Unfinished Business (2020) [MP3|320 Kbps] <Progressive Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418462.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Enshine - Singularity (2015) [MP3|320 кб/с]<Atmospheric Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418110.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Destruction - Thrash Anthems II (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417311.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Amaranthe - Manifest (2020) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413615.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Betraying The Martyrs - Rapture (2019) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412801.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ DragonForce - Extreme Power Metal (2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412563.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Francesco Fareri - Universal Collision (2016) [MP3|320 Kbps] <Metal, Instrumenta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412399.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Morning Dwell - The Guardians of Time (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412377.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ So Hideous - Laurestine (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Shoega
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411618.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Nocturnal Rites - Phoenix (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410557.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Defacing God - The Resurrection Of Lilith (2022) [MP3|320 Kbps] <Symphonic Melod
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410542.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Miss May I - Curse Of Existence (2022) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410541.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Scamp - Man meets ape (2022) [MP3|320 Kbps] <Groove Metal, Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410538.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Trial (swe) - Feed the Fire (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410492.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Aeternam - Heir of the Rising Sun (2022) [MP3|320 Kbps] <Symphonic Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410478.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ghost Wish - Dimension (2022) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410411.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Mad Max - Wings Of Time (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410408.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) [MP3|320 Kbps] <Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410237.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Hammerschmitt - Dr. Evil (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410225.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Horncrowned - Rex Exterminii (The Hand of the Opposer) (2020) [MP3|320 Kbps] <Ex
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410104.jpg" />
 </div>
 
 

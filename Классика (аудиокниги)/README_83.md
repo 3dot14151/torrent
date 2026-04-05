@@ -1,3 +1,31 @@
+###  Публикация: 1802476   (66059) от 17.06.2025
+
+Иван Бунин | Господин из Сан-Франциско (2022) [MP3, Вадим Максимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Список школьной литературы 10-11 класс.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Безымянный господин из Сан-Франциско совершает атлантический круиз со своим семейством на пароходе с символическим названием «Атлантида». Роскошная жизнь на корабле и в туристических местах невероятно (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Аудиокнига (АСТ)Продолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC188F50D4DDEF257140CC331ADB60317F95F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802454   (66058) от 17.06.2025
 
 Иван Бунин | Дело корнета Елагина (Радиоспектакль) (1991) [MP3, Борис Улитин, Анатолий Петров и др.]
@@ -6,7 +34,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66058.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66056.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66053.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65921.jpg" />
 </div>
 
 
@@ -121,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65751.jpg" />
 </div>
 
 
@@ -149,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65727.jpg" />
 </div>
 
 
@@ -178,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65557.jpg" />
 </div>
 
 
@@ -207,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65554.jpg" />
 </div>
 
 
@@ -235,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65539.jpg" />
 </div>
 
 
@@ -262,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65507.jpg" />
 </div>
 
 
@@ -291,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65395.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65394.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65340.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65189.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65011.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64965.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64954.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64939.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64896.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64877.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64873.jpg" />
 </div>
 
 
@@ -590,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64693.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64680.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64673.jpg" />
 </div>
 
 
@@ -675,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63902.jpg" />
 </div>
 
 
@@ -686,33 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26782E5F8AEC8B536D12EB62D1A5DAE0FC53C77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821725   (63878) от 03.10.2025
-
-Сергей Есенин | Чёрный человек. Поэмы, проза (2024) [MP3, Станислав Концевич]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Всемирная литература».
-Сергей Александрович Есенин (1895–1925) – один из ключевых поэтов своей эпохи. Кажется, еще при жизни поэтические тексты Есенина обрели статус культовых. Его стихи не просто проходят в школах, после чего навсегда забывают, нет – эти стихи давно стали родными для каждого отечественного читателя. В настоящее издание вошли подлинные (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, прозаИздательство: ЭксмоПродолжительность: 07:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A598363B8148533DF12A2D861E86E652FC64DD63
 ```
 
 https://mybot314.ru/tekegram_catalog/

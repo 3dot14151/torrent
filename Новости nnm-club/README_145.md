@@ -1,3 +1,56 @@
+###  Публикация: 1306318   (555593) от 04.06.2019
+
+Ubuntu Desktop 18.04.2 LTS [amd64] 1xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ubuntu - свободная операционная система семейства Linux. Об Ubuntu слышал наверное каждый пользователь компьютеров. Ubuntu поставляется в двух редакциях: Ubuntu Desktop и Ubuntu Server.
+Версия Desktop ориентирована на обычных пользователей, а вот Server - на сервера (это облегчённая версия системы, существенными отличиями которой являются повышенная стабильность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6241993E43FCCB99C169D38F8E192CA67247431C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306397   (555498) от 05.06.2019
+
+Garmin: Дороги России Топо 6.30 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карты «Дороги России. РФ. ТОПО.» уникальны тем, что совмещают в себе три отдельных продукта. Во-первых, это карты дорог с адресной маршрутизацией и поиском, во-вторых, это топографические карты с высотами и типами растительности, в-третьих, это карты глубин внутренних водоемов с навигационной информацией и водной инфраструктурой. В карты включено полное покрытие (   Читать дальше...   )Тип издания: разблокированные картыРелиз состоялся: 21.05.2019Разработчик: GarminПоддерживаемая ОС: 6.30Жанр: НавигацияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4791BC5AFD598AB23B871C6E5B33AE8D37DA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306585   (555111) от 08.06.2019
 
 Коридор бессмертия (2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555111.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Blade and Soul (2012) [Ru] (311231230.10) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555109.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554773.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554599.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ The Saboteur (2009) [Ru/Multi] (1.3hotfix/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554598.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ KMS Tools Portable 15.07.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554596.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554533.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Sublime Text 3 Build 3176 + Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554162.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Opera GX 60.0.3255.50747 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554076.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554069.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ ArcoLinux (Xfce) 6.9.2 [x86_x64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553987.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ Kaspersky Internet Security 2019 19.0.0.1088 (a) Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553956.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553953.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ Adobe Acrobat Pro DC 2019.012.20035 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553854.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553853.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ ZYTOKINE | CYTOKINE — 71 альбом (2006-2019) Touhou Vocal, Instrumental, 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553851.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553751.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553624.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ Discovery: Подлинная история высадки на Луну (Пр�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553553.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553541.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553398.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru/En] (1.8/dlc) 2012 Repack R.G. Game
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552821.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552574.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552572.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D59620BCCE9F7659E4DAD021E7F8FDC582E592BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004372   (552566) от 26.08.2016
-
-Арчер / Спецагент Арчер / Archer (2016) WEB-DLRip (сезон 7, серии 1-10 из 10) Кубик в кубе & Бяко Рекордс
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552566.jpg" />
-</div>
-
-
-###  Подробнее
-
-В международном шпионском агенстве ISIS любой мировой кризис — лишь предлог для высококлассных секретных агентов посоревноваться между собой в обмане и предательстве. Главным героем мультсериала является спецагент Стерлинг Арчер, известный также под кодовым именем «Герцогиня». На службе Арчеру приходится мириться со своей эксцентричной мамашей/начальницей — Мэлори, (   Читать дальше...   )Производство: США / FX Productions, Floyd County Productions, Radical AxisЖанр: мультфильм, боевик, комедия, для взрослыхРежиссер: Адам Рид, Брайан ФордниАктеры: Х. Джон Бенжамин, Джуди Грир, Эмбер Нэш, Крис Парнелл, Аиша Тайлер, Джессика Уолтер, Адам Рид и др.Перевод: Многоголосый закадровый, профессиональный - Кубик в кубе & Бяко Рекордс
-Внимание! Присутствует ненормативная лексика.Озвучка: Руслан Габидуллин, Константин Погодаев, Ольга Кравцова, Анна ТухПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851B9E260DB662A04E3909926B215EF611EB7E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046220   (552565) от 26.08.2016
-
-Трудная мишень 2 / Hard Target 2 (2016) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение культового экшн-триллера 1993 года о подпольных игрищах, где проплаченные «охотники» травят, как дичь, похищенных людей. Новой мишенью становится опальный мастер боевых искусств, который соблазнился деньгами, даже не подозревая, на что подписывается. Но и его преследователи еще не знают, с кем связались.Производство: США, Universal 1440 Entertainment, Living FilmsЖанр: Боевик, ТриллерРежиссер: Роэль РейнАктеры: Скотт Эдкинс, Роберт Неппер, Рона Митра, Темуэра Моррисон, Адам Саундерс, Джэйми Тимони, Питер Харди, Шон КинэнПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58AA8CEB0500EF0802A05C772E8D0C27FEB9A09F
 ```
 
 https://mybot314.ru/tekegram_catalog/

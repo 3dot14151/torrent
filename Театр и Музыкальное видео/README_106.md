@@ -6,7 +6,7 @@ David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291230.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290894.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Celtic Woman (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290747.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290605.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290553.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ The Jeff Healey Band - Live At Montreux 1999 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289517.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Bee Gees - One Night Only 1997 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289129.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289125.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288727.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Europakonzert / European concert 2008 from Moscow (2014) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288383.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286276.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286169.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286070.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285857.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Tout paye, или Все оплачено (2014) WEBRip [H.264/1080p-LQ] «Ле�
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285677.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285646.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285514.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285488.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285451.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285366.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285364.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285196.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Зимний марафон № 211: Коктейль Хитовых Нов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285130.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285105.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285022.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285019.jpg" />
 </div>
 
 

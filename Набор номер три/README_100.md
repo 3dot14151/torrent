@@ -1,3 +1,159 @@
+###  Публикация: 941111   (921523) от 18.08.2021
+
+PowerDirector – Video Editor v9.5.1 Mod [Ru/Multi] - мощный видео-редактор от CyberLink
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый мощный видео-редактор на рынке, PowerDirector дает вам возможность создавать удивительные видео. Импорт и редактировать видео, добавлять эффекты и титры, и экспорт HD видео непосредственно на Facebook или YouTube. С простом в использовании интерфейсом PowerDirector, вы можете быстро создать профессиональное, с богатые эффектами видео, с помощью всего нескольких (   Читать дальше...   )Тип издания: Пиратка (Mod)Релиз состоялся: 16.08.2021Разработчик: CyberLink.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B0B985A081910B0849DF88195F553A422FCE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433213   (921508) от 18.08.2021
+
+Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License GOG [Patches]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: LicenseРазработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6364FD3732A90DCB19C392EF3D21A7D0D566542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 178834   (921502) от 27.02.2010
+
+Демонстрационный DVD-Video диск. Dolby Digital, DTS Multichannel Sound
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430432   (921501) от 18.08.2021
+
+Cyberpunk 2077 (2020) [Ru/Multi] (1.3) SteamRip InsaneRamZes
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: SteamRipРазработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5E61263D1D6D070C4FA3F4A961BC39897DBD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430416   (921488) от 18.08.2021
+
+Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License GOG
+
+>>3
+>>22
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: LicenseРазработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F380542CC37FAB659F768E0FAE99B466DB0971A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430422   (921484) от 18.08.2021
+
+Cyberpunk 2077 (2020) [Ru/Multi] (1.3) EGS-Rip InsaneRamZes
+
+>>3
+>>42
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: EGS-Rip (Epic Games Store Rip)Разработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B339D8B1A1C6C89B45203476E53AA75B1657EA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366304   (921439) от 12.03.2020
 
 Дорого, небогато: как новый курс рубля скажется на ценах и инфляции
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921439.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Crysis 2 [Ru/En] (Lossless Repack/1.9) 2011 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921401.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921346.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921337.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Windows Vista SP2 X86.Project (RED) v.2.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921336.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ Adobe  Photoshop 8.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921335.jpg" />
 </div>
 
 
@@ -171,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921232.jpg" />
 </div>
 
 
@@ -197,7 +353,7 @@ Dead Space Trilogy / Трилогия Dead Space [Ru/En/Multi] (RePack) 2008-201
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921029.jpg" />
 </div>
 
 
@@ -223,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921024.jpg" />
 </div>
 
 
@@ -249,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920699.jpg" />
 </div>
 
 
@@ -275,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920679.jpg" />
 </div>
 
 
@@ -301,7 +457,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920637.jpg" />
 </div>
 
 
@@ -329,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920267.jpg" />
 </div>
 
 
@@ -356,7 +512,7 @@ Mozilla Firefox 51.0 Final [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920177.jpg" />
 </div>
 
 
@@ -382,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920109.jpg" />
 </div>
 
 
@@ -408,7 +564,7 @@ Windows XP Pro SP3 VL Ru x86 by Sharicov (v.01.01.2017)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920098.jpg" />
 </div>
 
 
@@ -434,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920066.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920039.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ mp3DirectCut 2.22 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920015.jpg" />
 </div>
 
 
@@ -512,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920008.jpg" />
 </div>
 
 
@@ -523,164 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988239   (919934) от 20.02.2016
-
-Resident Evil 0 / biohazard 0 HD REMASTER (2016) [Ru/Multi] (1.0/dlc) Repack SEYTER
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil  рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных телевизоров. Приготовьтесь раскрыть (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8888818B84F30ADC20F0AB1A06E5F13D0FF29C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837549   (919864) от 20.02.2016
-
-Evernote Premium 7.6 [Ru/Multi] - Создание заметок
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evernote сделает из Android-телефона продолжение Вашей памяти. Это приложение позволяет Вам сохранять и вспоминать всё, что происходит в Вашей жизни. Заметки, идеи, фото- и аудиозаписи - всё это можно поместить в Evernote и синхронизировать с телефона на веб-сервер и далее на компьютер. (с) Evernote.
-Evernote для Android позволяет вам сохранять любые события, идеи, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20.02.16Разработчик: Evernote CorporationПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B149803AB9520913BB79AD6DF64AC4D5BA570B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489951   (919863) от 19.08.2021
-
-HUMANKIND (2021) [Ru/Multi] (1.0.01.0034-S10/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919863.jpg" />
-</div>
-
-
-###  Подробнее
-
-HUMANKIND™ — главный труд Amplitude Studios, историческая стратегия, где ВЫ перепишите историю человечества. Это слияние культуры, истории и ценностей позволит вам создать уникальную цивилизацию. КАК ДАЛЕКО ВЫ ЗАВЕДЕТЕ HUMANKIND?Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Strategy (Turn-based), 4X, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735B57C2392A4410DE2423CC1228A96C90392E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988477   (919861) от 20.02.2016
-
-Parallels Desktop for Mac Business Edition 11.1.3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop для Mac - Самое быстрое, простое и мощное решение для запуска Windows-приложений на Mac без перезагрузки.
-С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 февраля 2016Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57F1E90E54282B2AB72BE22DD620845D3316B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988622   (919858) от 20.02.2016
-
-The Bat! Professional 7.1.18 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919858.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409D81565F0A84C2B1E8FBF352F8F71AEAFC3F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988181   (919854) от 20.02.2016
-
-Prospekt (2016) [Ru/En] (1.0) Repack xatab
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prospekt пересказывает историю оригинальной Half-Life 2 от лица противников героя - солдат спецподразделения HECU. Глава проекта Ричард Сибрук - поклонник творчества Valve. Первоначально он работал над проектом в одиночку, потратив 2,5 тысячи часов на создание прототипа на движке Source. Сибрук отправил раннюю копию Prospekt главе Valve Гейбу Ньюэллу и получил от (   Читать дальше...   )Тип издания: RepackРазработчик: Richard SeabrookЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F571D896DB3EC28BF5BD056C1A91364A95C2CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

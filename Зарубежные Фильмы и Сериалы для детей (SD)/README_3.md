@@ -1,3 +1,56 @@
+###  Публикация: 1098053   (910495) от 29.01.2017
+
+Мальчик, который стал желтым / The Boy Who Turned Yellow (1972) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лоботряс и неуч Джон Сандерс становится желтым, после неизвестной яркой вспышки, и пока научные умы Лондона бьются на решением это загадки, к Джону внезапно обращается таинственный металлический голос...Производство: Roger Cherrill, Children's Film Foundation (CFF). ВеликобританияЖанр: Фантастика, Семейный, ПриключенияРежиссер: Майкл ПауэлАктеры: Майк Дайтам, Роберт Эдисон, Хелен Вэар, Браин ВортПеревод: Одноголосый закадровый (Трамвай-фильм)Озвучка / Автор перевода: Трамвай-фильмПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E5DF405F87E558954A252182F02E6CC97BA29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991160   (907760) от 27.02.2016
+
+Столик-сам-накройся, золотой осёл и дубинка из мешка / Tischlein deck dich (2008) DVB
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907760.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам сказки братьев Гримм.
+Много лет тому назад жил бедный вдовец. Было у него три сына. Два старших брата ушли странствовать и учиться какому-нибудь ремеслу, а младший сын должен был ежедневно гонять на пастбище козу Берту. А вскоре вслед за братьями из дома ушёл и младший сын Макс. Старший брат обучился плотницкому делу, средний стал мельником, а Макс – портным…Производство: Германия, Askania Media Filmproduktion GmbH, Westdeutscher Rundfunk (WDR)Жанр: Мелодрама, СемейныйРежиссер: Ульрих КёнигАктеры: Ремо Шульце, Линн Ройссе, Кристина Нойбауэр, Михаэль Бранднер, Дитмар Бер, Инго Науйокс, Винфрид Глатцедер, Урсула Каруссайт, Гельмут Цирль, Карин ТалерПеревод: Многоголосый закадровыйПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6A4EC12BC644DA71042391E4A2BE6FB55DA0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866728   (907723) от 05.02.2015
 
 Каникулы маленького Николя / Les vacances du petit Nicolas (2014) HDRip [Line]
@@ -6,7 +59,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907723.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905937.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900910.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_900527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_900527.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900097.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894464.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_893750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_893750.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893626.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893352.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891989.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891914.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879736.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878155.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873425.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872667.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872421.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869960.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865158.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862338.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848925.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848605.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847904.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847801.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_846150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_846150.jpg" />
 </div>
 
 
@@ -622,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002936   (844463) от 02.04.2016
-
-Полет навигатора / Flight of the Navigator (1986) BDRip [H.264]
-
->>След.
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двенадцатилетний Дэвид пропадает без вести и самым таинственным образом возвращается восемь лет спустя, ничуть не повзрослевшим. Одновременно с его появлением в окрестностях обнаруживают НЛО. И не случайно! Все эти восемь лет Дэвид провёл в обществе инопланетян и из глубин вселенной принёс знания, ранее не известные человечеству.
-За это время Дэвид стал опытным пилотом, (   Читать дальше...   )Производство: США, НорвегияЖанр: Фантастика, приключения, семейныйРежиссер: Рэндал КлайзерАктеры: Джои Крамер, Пол Рубенс, Вероника Картрайт, Клифф Де Янг, Сара Джессика Паркер, Мэтт Адлер, Ховард Хессеман, Роберт Смолл, Элби Уайтакер, Джонатан Сэнгер, Ирис Экер, Ричард Либерти, Рэймонд Форчион, Синтия Сакелин, Тед Бартщ, Жизелль Эллиотт, Бриджид Клири, Майкл Страно, Пэрррис Бакнер, Робин ПитерсонПеревод: Дублированный, профессиональный многоголосый (рус., укр.), любительский одноголосый, авторскийЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB272E9B9CA7EC4DE5AD6C5BA436E94D475B4F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771739   (834344) от 03.04.2014
-
-Возвращение с Ведьминой Горы / Return From Witch Mountain (1978) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений детей из космоса Тиа и Тони. Они спускаются на Землю, чтобы побывать в Нью-Йорке. Злой профессор Гэннон узнает о том, что брат и сестра обладают колоссальной силой, способной управлять миром. Он внедряет в мозг Тони специальное устройство, позволяющее использовать энергию мальчика. Тиа решает спасти брата и одновременно - нашу планету.
-Первый (   Читать дальше...   )Производство: США, Walt Disney ProductionsЖанр: Фантастика, семейныйРежиссер: Джон ХафАктеры: Ким Ричардс, Айк Айсенманн, Бетт Дэвис, Кристофер Ли, Энтони Джеймс, Кристиан Джаттнер, Брэд Сэвадж, Поиндекстер Йозерс, Джеффри Жаке, Джек СуПеревод: Профессиональный (многоголосый, закадровый)Субтитры: Русский, АнглийскийПродолжительность: 01:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C800CC910471107EB90DD20334225548CF34EA3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

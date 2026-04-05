@@ -1,3 +1,29 @@
+###  Публикация: 940120   (470973) от 23.09.2015
+
+Журнал | М-Хобби №9 (171) (сентябрь 2015) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470973.jpg" />
+</div>
+
+
+###  Подробнее
+
+М-Хобби - один из лучших на сегодняшний день российский журнал для любителей масштабного моделизма и военной истории. Издание постоянно публикует материалы о моделях военной техники, авиации, автомобилях, обзоры новинок модельного рынка. Мастера моделизма делятся секретами своего мастерства.Жанр: Моделизм, военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C59094F5417FA0E916F1515B8229F9BC00AF710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058172   (470961) от 30.09.2016
 
 Журнал | Лена. Креатив №10 (2016) [PDF]
@@ -6,7 +32,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470961.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470956.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468450.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468407.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467567.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466855.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465894.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465024.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462877.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462743.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462537.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462189.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460442.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460328.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459964.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458817.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458706.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458380.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458373.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457642.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457629.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456333.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455896.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455883.jpg" />
 </div>
 
 
@@ -634,39 +660,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455726.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Outdoor Photography - популярное издание о фотографировании за пределами помещения. Наши обзоры о способах фотосъёмки помогут Вам сфотографировать первозданную природу, путешествия и спортивные мероприятия. Подсказки, рекомендации, подробные обзоры самого нового оборудования.  В раздаче архив журнала за 2010-2013 год.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629731   (455684) от 27.09.2013
-
-Подшивка журнала | Photo (2006-2013) [PDF] [FR]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo - один из лучших журналов для энтузиастов фотографии из Парижа "Reponses Photo" публикует поучительные и полезные обзоры как для малоопытных фотографов, так и для мастеров фотоискусства. В каждом журнале Вы найдёте вдохновляющие фотографии из коллекций известных фото-художников, необходимые пользовательские руководства и характеристики новейшего фото-оборудования, (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242463.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242273.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241659.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238555.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234699.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227688.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224562.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224556.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221166.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220712.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220703.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219165.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218756.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217004.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216532.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214990.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214718.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207741.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207078.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207004.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198886.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196881.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190032.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183311.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177558.jpg" />
 </div>
 
 

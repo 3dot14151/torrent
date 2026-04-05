@@ -6,7 +6,7 @@
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657665.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Breaking Orbit - Transcension (2015) [MP3|320 кб/с]<Alternative / Progressive
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656991.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ It's a Beautiful Day - It's a Beautiful Day (1969) Reissue [MP3|320 Kbps] <Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656961.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656922.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Flies - Complete Collection 1965-1968 (2001) [FLAC|Lossless]<Garage Rock, Ps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656787.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sting - Digitally Remastered (1998) Promo CD [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656671.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Phoenician - Last Orders (2017) [MP3|320 Kbps] <Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655976.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Fool's Garden (Fools Garden) - 12 Альбомов, 22 Сингла (1993-2021) 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654649.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654389.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Rolling Stones - 2120 South Michigan Avenue (The Unreleased 1964 Blues Album
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654325.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ BrainStorm - 7 Steps Of Fresh Air (2015) [MP3|320 кб/с]<Brit-pop, pop-rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654200.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Can - Delay 1968 (1981) Reissue, 1989, Spoon Records [MP3|320 Kbps] <Heavy Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653861.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Lindsey Buckingham & Christine McVie - Lindsey Buckingham & Christine McVie (201
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653850.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Panic Room - Skin (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653829.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ MacIntyre - Live At The Moontower (2015) [MP3|320 кб/с]<Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653559.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Jimmy LaFave - The Night Tribe (2015) [MP3|320 кб/с]<Rock, Folk, Americana>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653557.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Jeff Beck - Performing This Week... Live At Ronnie Scott's (2015) Deluxe Edition
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653384.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Colaars - Wood Arsenal (EP) (2012) [MP3|320 кб/с]<Math Dance Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652123.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Herba D'Hameli - Interiors (2015) [MP3|320 кб/с]<Progressive Rock, Symphonic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652096.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Low-Pass - Trimurti (2012) [MP3|192 кб/с]<Instrumental Math Rock / Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651947.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651931.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ No More Pain - Debate And Rhyme (2012) [MP3|320 кб/с]<Heavy/Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651929.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Gnod - Infinity Machines (2015) [MP3|320 кб/с]<Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651927.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Forgotten Suns - When Worlds Collide (2015) [MP3|320 кб/с]<Progressive Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651925.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Sunchild - Synesthesia (2015) [MP3|320 кб/с]<Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651920.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Maiden uniteD - Remembrance (2015) [MP3|320 кб/с]<Acoustic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651748.jpg" />
 </div>
 
 

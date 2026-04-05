@@ -1,25 +1,22 @@
-###  Публикация: 1541677   (644910) от 03.04.2022
+###  Публикация: 906444   (645642) от 08.06.2015
 
-VA - Record Super Chart 02.04.2022 [MP3|320 Kbps] <Pop, Dance>
+Журнал | Рыбалка. Энциклопедия Рыболова. №22 Все о семге (2015) [PDF]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alis Shuka - Not About Us (2:09)
-02. Minelli - Nothing Hurts (Yves V Remix) (2:09)
-03. OWNBOSS, Sevek - Move Your Body (2:37)
-04. Shouse - Wont Forget You (Edit) (3:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:24
+На страницах журналов коллекции вы найдете полезные советы о рыбалке с поплавочной удочкой и спиннингом, прочитаете об охранном периоде и квотах на вылов некоторых видов рыб, узнаете о новинках в снаряжении, которые пригодятся каждому рыболову. Кроме того, вы найдете описание самых популярных рыболовных мест в России и в мире и сможете запланировать рыбалку, о которой (   Читать дальше...   )Жанр: РыболовствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA8FD5300C9FC8B65323F8B2C57AA246B1A9C4E4
+magnet:?xt=urn:btih:53C3371B62651A6A5A01A784587D293AAA485742
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541616   (644909) от 03.04.2022
+###  Публикация: 906469   (645641) от 08.06.2015
 
-Сергей Пархоменко | Реши-пиши. Увлекательные задания для развития мышления. 5-6 лет (2018) [PDF]
+Масаи: из жары в холод (2015) HDTVRip [720p-LQ]
 
->>
->>
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645641.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаем вашему вниманию серию учебных развивающих пособий "Реши-пиши". Тетрадь содержит увлекательные задания на развитие мышления. Задания проектировались особым образом, чтобы дети с удовольствием брались за их решение и подолгу не могли оторваться от процесса.Жанр: Рабочая тетрадь, Развивающая литература для дошкольниковФормат: PDF
+Из горячей кенийской саванны – в холодную, заснеженную Россию… Несколько мужчин из африканского племени масаи отважились на такое путешествие – и не пожалели об этом. Масаи – одно из самых известных племён Африки. Они научились вписываться в рамки современной цивилизации, но при этом сохранили свой традиционный бытовой уклад. Этот самобытный народ не стремится изолировать (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПродолжительность: 00:25:59
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A66D69FF6F4E743A15EE67BF8CDB28244FC58787
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,52 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541666   (644908) от 03.04.2022
+###  Публикация: 346222   (645630) от 05.06.2011
 
-Гай Юлий Орловский, Марго Генер | «Золотой Талисман» Книга 5. Цитадель (2022) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644908.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где правят меч и магия, каждый стремится занять лучшее место на празднике жизни. Когда находишь Золотой Талисман, кажется – все. Вершина достигнута, можно праздновать победу. Но есть проблема.
-Осколки могущественного артефакта рассыпались по склонам величайшей из гор и оказались в руках разных рас. Враждующих рас…Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 11:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2A74BAD29B734345D090627BC5F957D65650D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541732   (644907) от 03.04.2022
-
-Ocenaudio 3.11.10 + Portable [Multi/Ru]
+Шагай веселее, Дживс! / Step Lively, Jeeves! (1937) DVDRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Жанр: КомедияРежиссер: Юджин ФордеАктеры: Артур Тричер, Патриция Эллис, Роберт Кент, Алан Дайнхарт, Джордж Гивот, Хелен Флинт, Джон Харингтон, Джордж Купер, Артур Хаусман, Макс Вагнер ...Перевод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:09:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:908A2279A0547CCF4681A52807A9D33D535B7B79
+magnet:?xt=urn:btih:2F7035E22F696D2B573B504B762203D77A158C38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,109 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541345   (644906) от 03.04.2022
+###  Публикация: 679458   (645619) от 15.07.2013
 
-Lords Of The Trident - The Offering (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend
-02. Acolyte
-03. Charlatan
-04. Feed The Wolves(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D3C7B158BA2BA65DC48CEA9C08B4E47BB3AC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541718   (644905) от 03.04.2022
-
-FontViewOK 7.41 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты, и конечно вы сможете с ними работать. Особенность программы, позволяющая вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCF9A1C541109CA26C140F187F5455828FD13EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541535   (644904) от 03.04.2022
-
-Марина Журавлёва - Grand Collection (2002) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если ты со мною рядом
-02. На сердце рана у меня
-03. Разбито сердце пополам
-04. Я тебя не могу не любить(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541631   (644903) от 03.04.2022
-
-Нуреев. Белый ворон / The White Crow (2019) BDRip [H.265/1080p] [10-bit]
+Курс на столкновение / Проблемный рейс / Collision Course (2012) HDRip
 
 >>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645619.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм рассказывает о биографии легендарного танцовщика Рудольфа Нуреева – от его детских лет в Уфе и до момента гастролей Кировского театра во Франции, когда Нуреев решил просить убежища на Западе.Производство: Великобритания, Франция, Сербия / BBC Films, Magnolia Mae Inc., Metalwork Pictures, Montebello Productions, Work in ProgressЖанр: драма, биографияРежиссер: Рэйф ФайнсАктеры: Олег Ивенко, Рэйф Файнс, Чулпан Хаматова, Луис Хофманн, Адель Экзаркопулос, Сергей Полунин, Оливье Рабурден, Рафаэль Персонас, Зак Эйвери, Мар СодупПеревод: Не требуетсяСубтитры: русские (форсированные - на английскую и французскую речь), французские (форсированные, полные)Продолжительность: 02:07:24
+Кейт Паркс провела последний год в рекламном туре в поддержку своей книги, в которой она рассказала о том, как пытались скрыть смерть ее мужа в авиакатастрофе. Теперь все, что она хочет, это вернуться домой, к своей 15-летней дочери Саманте. Но авиалайнер, на котором летит Кейт, повреждает сильная солнечная вспышка, в результате которой один пилот погибает, второй (   Читать дальше...   )Производство: США / Marvista EntertainmentЖанр: Фантастика, Драма, ТриллерРежиссер: Фред Олен РейАктеры: Дэвид Чокачи, Ди Уоллас, Тиа Каррере, Вильям Грегори Ли, Николас Гуилак, Меган Маклеод, Тим Эбелл, Брук Кучна, Марк БарнсПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:29:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54F02AAC4833C95395D6A1795A7793F556AD2E18
+magnet:?xt=urn:btih:0255FC1376D01AC0EA3661EFFDEC764C72BA7293
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,424 +102,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541544   (644902) от 03.04.2022
+###  Публикация: 679780   (645616) от 15.07.2013
 
-X-Wild - 3 Albums (1994-1996) [FLAC|Lossless|image + .cue] <Speed Power Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savageland (intro)
-02. Braveheart
-03. Savageland
-04. Born for War(   Читать дальше...   )Жанр: Speed Power MetalПродолжительность: 3CD, 02:42:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541431   (644901) от 03.04.2022
-
-VA - Music News vol.177 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644901.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Глюкоза - Да-Ди-Дам (02:50)
- 002. Aitana - En El Coche (02:05)
- 003. ALE - Spune Tu (Festum Music Remix) (03:55)
- 004. A Boogie Wit Da Hoodie feat. Ella Bands - Playa (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85F6903053AA7481C12AA5577433D70BC41D7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227629   (644891) от 27.05.2018
-
-Victor Modern Jazz Sextet - Matrix (1969) 2017, JVC Kenwood Victor Entertainment Corp. [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrix [5:03]
-02. Little Aby [6:58]
-03. On Green Dolphin Street [8:56]
-04. If I Said the Sky Was Falling [6:06](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227659   (644890) от 27.05.2018
-
-VA - Psycho Kinesis (2018) [MP3|320 Kbps] <Techno, Minimal, Hardstyle>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lasha & Lasha - Below Ground (Original Mix)
-02. Schwefelgelb - Das Ärmellose Hemd
-03. We Outspoken - The Fall Out
-04. Yello - The Race(   Читать дальше...   )Жанр: Techno, Minimal, HardstyleПродолжительность: 05:22:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227628   (644889) от 27.05.2018
-
-The Don Ellis Orchestra - Electric Bath (1967) 2016, Sony Music [FLAC|Lossless|image + .cue] <Post-Bop, Progressive Jazz, Experimental Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Lady [8:09]
-02. Alone [5:32]
-03. Turkish Bath [10:19]
-04. Open Beauty [8:31](   Читать дальше...   )Жанр: Post-Bop, Progressive Jazz, Experimental Big BandПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3502CE345A19B108FFC352215A0C02DA4D8B627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227711   (644888) от 27.05.2018
-
-VA - Inner Light: Music For Meditation Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masterio - Mountain (Original Mix) 8:04
-02. Andrew Riqueza - Pray (Original Mix) 3:05
-03. M.D. - Day After Tomorrow (Original Mix) 3:18
-04. R.I.B. - Reflection About The Sea (Original Mix) 4:33(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651F9B1C50453D409ED52E4601C5759221919801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227624   (644887) от 27.05.2018
-
-Клара Моисеева | Тайна горы Муг (1958) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческая повесть «Тайна горы Муг» рассказывает о далеком прошлом таджикского народа, о людях Согдианы — одного из древнейших государств Средней Азии. Столицей Согдийского царства был город Самарканд.
-Герои повести жили в начале VIII века нашей эры, в тяжелое время первых десятилетий иноземного нашествия, когда мирные города согдийцев подверглись нападению воинов (   Читать дальше...   )Жанр: Детская проза, Историческая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3741A4DC5355817AAF15CA4166A9697D6465268B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227631   (644886) от 27.05.2018
-
-Billie Holiday - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East of the Sun [2:58]
-02. Blue Moon [3:32]
-03. You Go to My Head [2:58]
-04. You Turned the Tables on Me [3:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227619   (644885) от 27.05.2018
-
-Hells Kitchen - The End of Us (2012) Aura Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of Us (05:01)
- 02. I Close The Door (feat. Irina Makosh) (05:51)
- 03. Never See Me Cry (feat. Irina Makosh) (06:15)
- 04. Regrets (feat. Irina Makosh) (07:01)(   Читать дальше...   )Жанр: Downtempo, Tech House, MinimalПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC441BA2C872BCA74A33AECF05507B49CDC6AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227607   (644884) от 27.05.2018
-
-Формула 1. Сезон 2018. 6-й Этап. Гран-при Монако. Свободная практика 3 (26.05.2018) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644884.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 мая 2018 года, суббота. 13:00 МСК
-6-й Этап сезона 2018 года. Гран-при Монако. Монте-Карло (Монако).
-Свободная практика 3
-Арена: Городская трасса Монте-Карло (Монте-Карло, Монако)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C98FADCE20F631C91E9D59BBAA69E995D3DB3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227739   (644883) от 27.05.2018
-
-Типография Исаака Н. Зедербана | Небылицы в лицах (1793) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небылицы в лицах, или Собрание веселительных повестей, и забавных сказок, в стихах и прозе, могущих служить иным отрадою в скуке , другим лекарством от печали, а некоторым приятным провождением праздного времени: избраны из иностранных писателейЖанр: Детская проза, Сказки, СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C081C97EDD4842ACF44EA67BBF7B0DD7B9BF949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227633   (644882) от 27.05.2018
-
-Terra Nine - Laniakea (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Trancient Dreams – Sjela (Terra Nine Remix) (9:20)
- 2. Suduaya & Terra Nine – Holy Mountain (Terra Nine Mix) (8:03)
- 3. Terra Nine – Laniakea (8:52)
- 4. Terra Nine – Dancing (6:52)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E8A16369DBEEE448B00BB018DEFCC50A382732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227720   (644881) от 27.05.2018
-
-Maxthon Browser 5.2.2.3000 Portable by Cento8 [Ru/En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxthon (официально называется Облачный браузер Maxthon, изначально известный как MyIE2) — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
-MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227736   (644880) от 27.05.2018
-
-Яндекс.Браузер 18.4.1.833 Portable by Cento8 [Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227605   (644879) от 27.05.2018
-
-Natura Est - Natura Est (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient>
+VA - Vintage Reggae Cafe (2013) [MP3|320 кб/с]<Reggae>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Root (08:43)
- 02. The Soil (09:27)
- 03. Grey Skies (06:06)
- 04. Black Town (05:37)(   Читать дальше...   )Жанр: Dark AmbientПродолжительность: 00:35:44
+01. Natty Bong - Blue Jeans (04:17)
+02. Sublime Reggae Kings - Human (03:50)
+03. Freedom Dub - Somebody That I Used to Know (04:10)
+04. The Reggister's - Back to Black (03:40)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:44:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4874E3368BE92D4FCAEF2E21C79377D3D24E3AD4
+magnet:?xt=urn:btih:0B652649DBCFB1260C823559AC4E66B10ABC84E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,28 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227608   (644878) от 27.05.2018
+###  Публикация: 679761   (645610) от 15.07.2013
 
-Atsushi Izumi - Snow (2018) Subtrakt [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, IDM, Industrial>
+Enigma - Enigma 4 - Metamorphosis (2013) Reworked Bootleg [FLAC|Lossless|image + .cue] <New Age, Ambient>
 
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dysprosium (07:29)
- 02. Ruthenium (03:57)
- 03. Skaul (03:59)
- 04. Snow (03:55)(   Читать дальше...   )Жанр: Dark Ambient, IDM, IndustrialПродолжительность: 00:25:00
+01. - IV Chapter (3:43)
+02. - Light Of Your Smile (5:42)
+03. - Metamorphosis (9:28)
+04. - Start-To-End (6:02)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:08:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:123462EB9F2BFE2CAD51C92DB86573FF26BF8590
+magnet:?xt=urn:btih:B5A6E980DE39110DF61F8422770C4830E7EEF0AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,25 +160,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227743   (644877) от 27.05.2018
+###  Публикация: 517703   (645600) от 02.07.2012
 
-Александр Овсянников | Александр Васильевич Суворов (1900) [PDF]
+Being - Arrival [EP] (2011) [MP3|320 кб/с]<Progressive Metal>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Граф (1789), затем князь (1799) Алекса́ндр Васи́льевич Суво́ров (13 [24] ноября 1730 — 6 [18] мая 1800) — русский полководец, основоположник отечественной военной теории, национальный герой России. Генералиссимус (1799), генерал-фельдмаршал Священной Римской империи, великий маршал войск пьемонтских, кавалер всех российских орденов своего времени, (   Читать дальше...   )Жанр: Детская проза, Историческая прозаФормат: PDF
+1. Cosmonaut
+2. DNA
+3. A Glorious Dawn
+4. Story For A Muse
+5. A Part, Apart
+6. Perpetual Groove
+7. Arcane Academic
+8. Mindflay (Bonus Instrumental)Жанр: Progressive MetalПродолжительность: 00:42:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53E6650FB8D15E8D2460F2DC2B3D5B0382A81563
+magnet:?xt=urn:btih:F85EFB775ABB83A31D446E4CDB571FD60C9427DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,25 +193,554 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227640   (644876) от 27.05.2018
+###  Публикация: 517870   (645599) от 02.07.2012
 
-Чудо техники с Сергеем Малозёмовым (27.05.2018) SATRip
+VA - Avto Club Июль (2012) [MP3|320 kbps]<Club>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_644876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Чудо техники" и Сергей Малозёмов представляют спецвыпуск, посвящённый Дню защиты детей! В программе расскажут о самых современных технологиях, доступных детям, ответят на вопрос о пользе развивающих игрушек и выяснят, какие технологии, являющиеся мечтой автомобилистов, уже воплощены в детских машинках. В праздничном выпуске объяснят, чем интерактивные (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:16
+01. Darius & Finlay feat. Carlprit & Nicco - Do It All Night 2k12 (CK Stone Mix Edit)
+02. Oliver Giacomotto, David Amo & Julio Navas - Get Together (Original Mix)
+03. Young Rebels & Francesco Diaz - Timbuktu (Daniel Ortega & Mike Moorish Remix)
+04. Madonna - Frozen '12 (Junior Mix Tribalicius Mix)
+05. NataShe & Adriana - Here & Now (Original Mix)
+06. Erick Morillo, Eddie Thoneick - If This Aint Love (Baggi Begovic Remix)
+07. Jim Noize - Play Girl (C.W.C.G. Extended Mix)
+08. Manuel Sahagun - You Make It Easy (Original Mix)
+09. Michael S. - Rewind (Extended Mix)
+10. Bladi feat. Dr Mako - Alive (Extended Mix)(   Читать дальше...   )Жанр: ClubПродолжительность: 05:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AF1A1489786BFBA945B04CC8FEFBC9CFC4887E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517983   (645598) от 02.07.2012
+
+Mission Ibiza - Including 50 ibiza House Anthems (2012) [MP3|320 кб/с]<Club House, Funky>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etienne Ozborne - Been a Long Time 2012 (feat. Paula B.)  [06:31]
+ 02. Francesco Gomez - Conga (feat. Lety)  [06:33]
+ 03. Tune Brothers - Feel the Groove (Pink Fluid Remix) [05:31]
+ 04. Dave Kurtis - Last Night in Miami (Conga) (Horny United Rework) [05:48]
+ 05. Bream, The Henchmen - All Over Again (feat. Lardoo)  [07:07]
+ 06. Boogie Pimps - 24Seven (Sanya Shelest & Esc.Ape Remix) [06:22]
+ 07. Peter Brown - The Movement (feat. Jonathan Ulysses)  [06:18]
+ 08. Javi Ortiz, X-Guerrero, Tony Cox - T.H.M (Kid Shakers Remix) [06:22]
+ 09. Matty Menck, Terri B! - Sky (Tony Romera Remix) [06:14]
+ 10. Futuristic Polar Bears - Bring the Heat (feat. Chrom3)  [06:38](   Читать дальше...   )Жанр: Club House, FunkyПродолжительность: 05:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799AEB70BF961AD53FFDD12E25111D3CCC4B0B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517540   (645596) от 02.07.2012
+
+[Графика] Художник Александр Павленко
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightrhino (John Connell)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EF6326AF6F64ACC14C23B084092CB09E637485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518116   (645595) от 02.07.2012
+
+Журнал | Yes! №163 [Июль 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yes! – авторитетный советчик, чье мнение очень важно для его молодой и активной аудитории. Журнал говорит на одном языке со своими читателями обо всех важных для них проблемах.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D0796DC5B97CB795DD61EC08AA7B259780AFA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518016   (645593) от 02.07.2012
+
+VA - Танцевальный Хит Стандарт (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645593.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta feat. Usher - Without You
+002. Chris Garcia feat. Sherry St Germain - I Rock Alone
+003. Jessie J Feat. B.O.B - Price Tag
+004. Paul van Dyk feat. Austin Leeds - Verano (Original Edit)
+005. Linkin Park - Iridescent
+006. Inna - House Is Going On (Radio Edit)
+007. Jay Sean Ft. Pitbull - I'm All Yours (Full Official Version)
+008. Picco - Mi Cafe (Ph Electro Remix Edit)
+009. Bryce Feat. Carlprit - Dance With Me 2011
+010. Christina Aguilera - Express (Radio Edit)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C565E7D55C3E5ACE53BCD5255FA10B9ABE935205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518146   (645590) от 02.07.2012
+
+Журнал | Загородный дом на все 100% №5 [июль 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cпециализированныое издание для тех, кто строит дом за городом или планируют это сделать, а также владельцам загородных домов. Вопросы строительства и недвижимости, инженерных сетей, загородного интерьера, обустройства приусадебного участка.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446AAE9D3663837BD818F8BFF6466A8A370DF526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517842   (645589) от 02.07.2012
+
+VA - Midnight Club - Летний Драйв (2012) [MP3|256 kbps]<Club|Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master Blaster - Until The End (jWEb and Molky Edit)
+02. DJ Dean Meets Kolja Beckmann - Eternal Peace (R.Gee & Tecay Edit)
+03. Andy P - Gotta Be Somebody (Radio Edit)
+04. Dancefloor Devils - Moments (Radio Edit)
+05. 2 Raverz - Into My World (Radio Edit)
+06. Kjiro - Weekend (Deltaforcez Remix Radio Edit)
+07. Radio Killer - Voila (Giorno's Jump & Run Edit)
+08. Dream Dance Alliance - Gold (Radio Edit)
+09. Scooter - Sex and Drugs and Rock 'n' Roll
+10. Tiesto - What Can We Do (A Deeper Love)(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 06:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F3692A0CD93F7E035FCD41BDD6A7A5D65A3C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517942   (645587) от 02.07.2012
+
+VA - German TOP 100 Single Charts (01.07.2012) [MP3|186-283 кб/с]<Dance, Club, Vocal, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Toten Hosen - Tag Wie Diesen 04:28
+02. Linkin Park - Burn It Down 03:51
+03. Loreen - Euphoria 03:02
+04. Carly Rae Jepsen - Call Me Maybe 03:14
+05. Tacabro - Tacate 03:31
+06. Flo Rida - Whistle 03:45
+07. Oceana - Endless Summer 03:12
+08. Lykke Li - I Follow Rivers 04:41
+09. Maroon 5 Feat. Wiz Khalifa - Payphone 03:51
+10. Of Monsters And Men - Little Talks 04:26(   Читать дальше...   )Жанр: Dance, Club, Vocal, HouseПродолжительность: 06:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6558E1BFFF65A4D0AF6D8C5913777D8685C69162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517838   (645582) от 02.07.2012
+
+VA - Убойный Русский Club В Машину (2012) [MP3|192 kbps]<Club|Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глюк`oza - Хочу мужчину (DFM mix)
+02. Светлана Лобода - На свете (Kerim Muravey & Graver remix)
+03. El Ray - Безлимитная любовь (Dj Denis Rublev & Dj Natasha Baccardi remix)
+04. Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased)
+05. Michael Yousher - Там где мы будем (you & me) (extended mix)
+06. Steel Deluxe - Сердце открой (Johan K remix)
+07. DJ Miller & Julia Lasker - Raй (Arthur Project Tel-Aviv remix)
+08. Aksioma Project - Без тебя (D'Marzio remix)
+09. DJ Solovey feat. Leila - Всё впереди (Sergey Clash remix)
+10. ViRUS! - ЧЗF(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 07:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C73E0DEFA06FECC1D994B0E5C875D361856014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032351   (645580) от 07.07.2016
+
+Космический аппарат Juno успешно добрался к Юпитеру после пятилетнего путешествия
+
+>>След.
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Буквально на днях Юпитер стал менее "одинок", благодаря тому, что космический исследовательский аппарат Juno прибыл в район этой планеты, совершив путешествие через космической пространство, длившееся пять лет. Сигналы, принятые сетью дальней космической связи Deep Space Network, принесли информацию о том, что аппарат успешно произвел 35-минутную серию (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030188   (645579) от 07.07.2016
+
+Бросок в Монте-Карло / Monte Carlo or Bust! (1969) BDRip [H.264/720p-LQ] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для участия в международном автопробеге гонщики съезжаются на север Шотландии, в Стокгольм, Афины, Рагузу и Лиссабон. Их задача — добраться до города Шамбери, а оттуда проделать путь до Монте-Карло и закончить автопробег гонкой по его улицам. Среди участников — Катберт Уэйр-Армитедж, узнавший после гибели своего отца, что ему досталась только половина акций унаследованного (   Читать дальше...   )Производство: Великобритания, Франция, Италия / Arthur Conn, Basil Keys Productions, Champion, Dino de Laurentiis Cinematografica, Les Films Concordia, Marianne Productions S.A.Жанр: Боевик, Мелодрама, КомедияРежиссер: Кен ЭннакинАктеры: Бурвиль, Ландо Будзанка, Вальтер Кьяри, Питер Кук, Тони Кертис, Мирей Дарк, Мари Дюбуа, Герт Фрёбе, Сьюзен Хэмпшир, Джек Хоукинс, Николетта Макиавелли, Дадли Мур, Пеер Шмидт, Эрик Сайкс, Терри-ТомасПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402B8BFB4D8A13B1D47106EF78EC41B91BF9CED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032434   (645578) от 07.07.2016
+
+Dr.Web LiveDisk CD/USB 9.0.0 (06.07.2016) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr.Web LiveDisk - бесплатное загрузочное антивирусное решение на базе Linux и CureIt! для восстановления зараженной системы Windows.
+Новое средство заменяет Dr.Web LiveUSB и позволяет создавать загрузочный USB-носитель. Dr.Web LiveDisk USB - антивирусный загрузочный носитель для восстановления работоспособности системы Windows, зараженной вирусами, руткитами или (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B69A39FA717C40458E55491541E22374363B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032289   (645577) от 07.07.2016
+
+Пётр Вайль, Александр Генис | Русская кухня в изгнании (2013) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645577.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русская кухня в изгнании» — сборник очерков и эссе на гастрономические темы, написанный Петром Вайлем и Александром Генисом в Нью-Йорке в середине 1980-х., — это ни в коем случае не поваренная книга, хотя практически каждая из ее глав увенчана простым, но изящным и колоритным кулинарным рецептом. Перед нами — настоящий, проверенный временем и собравший огромную (   Читать дальше...   )Жанр: Очерки, Кулинария, Современная русская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF51F23E75BDD15A13E27EF657DB7FCD9433307E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684109   (645576) от 07.07.2016
+
+True Caribbean Pirates / Вся правда о карибских пиратах (2006) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они — гроза морей. Самые кровожадные головорезы того времени. В XVII и XVIII веках карибские пираты захватили тысячи кораблей, ограбили десятки городов и поставили на карту свои жизни ради сокровищ, грабежа и разбоя. Они были у всех на устах и оставили свой страшный след в истории.Производство: США, GRB Entertainment for History ChannelЖанр: Документальный, история, пиратыРежиссер: Тим ПрокопПеревод: Двухголосый закадровый (профессиональный)Продолжительность: 01:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415307C3E61C0D39213111738FEFC4D7BC020272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032419   (645575) от 07.07.2016
+
+Т.Р. Ричмонд | По ее следам (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиса Сэлмон – молода, талантлива и амбициозна.
+Впереди у нее – целая жизнь…
+Точнее, могла бы быть. Если бы однажды ночью она не утонула при весьма загадочных обстоятельствах.
+Никто не знает, что это было: самоубийство, несчастный случай… или убийство?(   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429B64F6628C8A5D84F42CE02E15D0B2432CC310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032101   (645574) от 07.07.2016
+
+VA - Sounds of Reggae Vol 1 (The Best of Reggae and Dancehall Selected by Sly and Robbie) (2016) [MP3|320 Kbps] <Reggae>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Marley – Soul Rebel 03:42
+02. Sly & Robbie – Wedding Anniversary 04:48
+03. Black Uhuru – Aquarius 04:14
+04. Third World – Dem Man Deh 03:52(   Читать дальше...   )Жанр: ReggaeПродолжительность: 04:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D01CC40D63EC53263884008A1FFBAD8FF453451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032350   (645573) от 07.07.2016
+
+Ученые CERN объявили об открытии новых экзотических частиц
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645573.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 июня 2016 года, в ходе проведения очередных исследований на Большом Адронном Коллайдере, датчики эксперимента LHCb зарегистрировали факт появления трех новых экзотических частиц и четвертой подобной частицы, о существовании которой было известно ранее. Экзотическая природа этих частиц заключается в том, что они состоят из четырех кварков, двух кварков и двух антикварков, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032276   (645572) от 07.07.2016
+
+Экшены - GraphicRiver - Lights Leaks [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lights Leaks - украсьте свои картинки или фото разноцветными цветными бликами.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBC2677AE75EBAED341225716474AEC9DE3265A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032391   (645571) от 07.07.2016
+
+Проекты - VideoHive - Coffee Beans Logo - 16714178 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coffee Beans Logo - проект для отображения вашего логотипа в кофейных зернах или для презентации вашего бренда.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B45F584358ED14C2790B7060AC3B75074DBB638
 ```
 
 https://mybot314.ru/tekegram_catalog/

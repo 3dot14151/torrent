@@ -1,3 +1,55 @@
+###  Публикация: 1787087   (23796) от 23.03.2025
+
+The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2012) [Ru/Multi] (3.5.0.26g) Repack Wanterlude [Enhanced Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23796.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ведьмак 2: Убийцы королей», вторая часть приключений профессионального охотника на монстров Геральта из Ривии, разворачивает зрелую, философскую историю - продолжение одной из наиболее детально проработанных ролевых игр, когда-либо выходивших для ПК. Пришло время невиданного хаоса. Могущественные силы сталкиваются в борьбе за власть и величие. Северные королевства (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: Ролевая игра, Экшны, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Польский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Польский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31093C42E7CB398CEF2CED579E96C72DC96492F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787085   (23786) от 23.03.2025
+
+The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23786.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ведьмак» - ролевая игра, действие которой разворачивается в мрачном фэнтезийном мире. Мораль здесь - понятие относительное, а грань между добром и злом стёрта. Создатели игры уделили большое внимание сюжету и развитию персонажей, а тщательно продуманная боевая система в режиме реального времени делает историю ещё динамичней. Играя за ведьмака Геральта из Ривии, (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37B257FDF79C4B24637D616C55522E5AB3AAA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787418   (23578) от 25.03.2025
 
 Rogue: Genesia (2022) [Multi] (1.0.0/dlc) Repack FitGirl
@@ -6,7 +58,7 @@ Rogue: Genesia (2022) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23578.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23572.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (2.12/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23372.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23275.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) Repack Let'sРlay [Defin
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23228.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Ai Limit (2025) [Ru/Multi] (build 17884331/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23223.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+556/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23168.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23167.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23160.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ The Matchless Kungfu (2023) [Ru/Multi] (1.1.5.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23139.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23111.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23094.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23077.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23026.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.00.75033/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23002.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.0.2-a156) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22996.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Miryam The Polluted Land (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22889.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.3d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22826.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Battle Brothers (2017) [Ru/En] (1.5.1.5 HF/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22749.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22734.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Avowed (2025) [Ru/Multi] (1.3.1.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22712.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22633.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ REYNATIS (2024) [Multi] (1.0.9/dlc) Scene Rune [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22632.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Werewolf: The Apocalypse (2020-2024) [En] (1.0.13.2010191537/1.1.13.2504011817) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22443.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Werewolf: The Apocalypse - Purgatory – откройте для себя уди
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92C93E1E4A1FCDA4EED6FA16387D11FD8B05B1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763474   (22345) от 06.04.2025
-
-Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь смертных грехов. А вы слышали о восьмом? Погрузитесь в безумие в Sin Slayers, RPG Roguelite, где вам предстоит решить, сколько греха вы готовы нести, чтобы изменить мир. Sin Slayers возвращается на Steam спустя некоторое время в своем лучшем виде. Это сложная RPG Roguelite, в которой вы решаете судьбу мира, взяв на себя его грехи. Сможете ли вы держаться за (   Читать дальше...   )Тип издания: LicenseРазработчик: goonswarmЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEB210CEDCA131EAA31A8A3C018604E9B0ECB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789840   (22320) от 06.04.2025
-
-Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22320.jpg" />
-</div>
-
-
-###  Подробнее
-
-История мира изменилась в тот день, когда на земле нашли странный кристалл - осколок духовного камня. Поговаривали, будто он может исцелять любые болезни и даже возрождать умершую природу. Ну и конечно, началась грызня за власть - правители затеяли войны за новые осколки, фракции перессорились, а в довесок ко всему появились какие-то чудища. В общем, полный бардак. (   Читать дальше...   )Тип издания: RepackРазработчик: kingnagameЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Корейский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Корейский, Японский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B445F0C76DC4E7A4C1021439353955397204D58E
 ```
 
 https://mybot314.ru/tekegram_catalog/

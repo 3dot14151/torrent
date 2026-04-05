@@ -6,7 +6,7 @@ AnyMP4 PDF Converter for Mac 3.2.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146398.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Integrity Plus 12.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146301.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Print to PDF Pro for Mac 4.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146092.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Blocs 5.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145999.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Focus Professional 1.11 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145134.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Hawkmark 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145000.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ MoneyBag 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144963.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ NoteBooks 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144769.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Journal - Simple and Elegant Diary 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144758.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Movie Explorer 1.8.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144622.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Starry Night Pro Plus 8 v8.1.1.2078 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144168.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Redream Premium 1.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144001.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Diagrams 2.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143747.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ PhotoLinker 3.5.15 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143022.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Perfect Diet Tracker 3.10.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142994.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Net Worth Pro 2 v3.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142801.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Zee Timer 7.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142722.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Typing 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142593.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ NCH DreamPlan Plus 8.61 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142591.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Firetask | Task List & Planner 4.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142509.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Task Calendar 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142448.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Free 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142008.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Adobe Muse CC 2017.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141864.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Adobe Dreamweaver CC 2017 (17.0.1) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141839.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ OmniPlan Pro 3 v3.10.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141773.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Symantec Endpoint Protection 4.3.1 RU1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141148.jpg" />
 </div>
 
 

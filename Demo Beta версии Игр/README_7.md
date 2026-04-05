@@ -6,7 +6,7 @@ Death Trash (2021) [Multi] (0.8.7.3) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211198.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210543.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210522.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Split (2022) [Ru/Multi] (0.9.20) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207643.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Phasmophobia (2020) [Ru/Multi] (0.9.0.8) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201940.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kerbal Space Program 2 (2023) [Ru/Multi] (0.1.0.0.20892) Repack Chovka [Early Ac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201609.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cloud Meadow (2020) [En] (0.1.4.2a2) License GOG [Early Access] [18+]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196115.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195831.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Arena Renovation (2023) [Ru/Multi] (0.6.153) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192078.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Demonologist (2023) [Ru/Multi] (0.5.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190318.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Daimon Blades (2025) [Ru/Multi] (114924/dlc) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188776.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Witchfire (2023) [En] (0.1.9 Build 47935) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172375.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Fermi Paradox (2021) [En] (0.70.v.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167487.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Teardown (2020) [En] (0.9.0) Unofficial [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163141.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.3.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150681.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mystery of the Ancients 8: No Escape (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146943.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ PuppetShow 15: Porcelain Smile (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146856.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142666.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2019) [Ru/En] (0.20.1222.1605/dlc) Repac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136564.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124955.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Stellar Warfare (2021) [En] (29112023) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124948.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Stellar Tactics (2016) [Ru/Multi] (0.724) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123038.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Exanima (2015) [En] (0.9.0.5) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115779.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Lifecraft (2024) [En] (0.1.0d8) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106455.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Metel - Horror Escape (2020) [Ru/En] (1.01) Repack Necros [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101587.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.7.2.14566) Repack Let'sРla
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100730.jpg" />
 </div>
 
 

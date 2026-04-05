@@ -1,4 +1,31 @@
 https://t.me/izofen
+###  Публикация: 1862359   (1063425) от 
+
+DMG Canvas 4.2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063425.jpg" />
+</div>
+
+
+###  Подробнее
+
+DMG Canvas — эта утилита позволяет пользователям создавать и настраивать образы дисков, упрощая пакеты и распространяя файлы. Благодаря удобному интерфейсу DMG Canvas оптимизирует процесс создания файлов DMG, позволяет эффективно управлять приложениями и обмениваться файлами.
+Приложение предлагает различные функции, возможность включения настраиваемых фонов, установки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 ноября 2025Разработчик: Araelium GroupПоддерживаемая ОС: macOS 11.0 или более поздняя версияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3454105788684B8391F219535D4C304FA65E3AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604338   (1045424) от 13.01.2023
 
 ToothFairy 2.8.3 [Multi]
@@ -7,7 +34,7 @@ ToothFairy 2.8.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045424.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ SpamSieve 2.9.51 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045404.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ SuperDuper! 3.7.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045401.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Mirror for Philips TV 2.8.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045335.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Screegle - Clean Screen Sharing 2.2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045334.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Mirror for TCL TV 3.8.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045332.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ iconStiX 4.2.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045113.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ Backtrack - Record Past Audio 1.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045106.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ Timecode Pro 3.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045099.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ Apeaksoft iPhone Eraser 1.0.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045091.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ Geekbench 5 v.5.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044961.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ Time Stamp 2.60 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044870.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ FoneDog iPhone Cleaner for Mac 1.0.12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044865.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ Auto Invert! 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044656.jpg" />
 </div>
 
 
@@ -382,7 +409,7 @@ Action 1.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043859.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ zCommander - File Manager for Mac 6.27 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043839.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ Real Keyboard Cleaner for Mac 1.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043747.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ TG Pro (Temperature Gauge Pro) 2.78 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043548.jpg" />
 </div>
 
 
@@ -488,7 +515,7 @@ iBoysoft MagicMenu for Mac 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043423.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ Smart Storage Manager for Mac 1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043379.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ A Better Finder Rename 11 v.11.58 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043350.jpg" />
 </div>
 
 
@@ -568,7 +595,7 @@ GM Reader Pro 2.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043279.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ Serial Box & SerialSeeker 2023 - 02 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043250.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ Boom 2 v1.6.13 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041945.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ WeClean Pro 3.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041749.jpg" />
 </div>
 
 
@@ -659,32 +686,6 @@ WeClean может очищать корзину, журналы и файлы �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4760EE28B503D028F73ECBC4357D2AEF279C1EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437764   (1041575) от 06.01.2021
-
-Tenorshare UltData 9.5.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041575.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltData - Программа для восстановления данных на iPhone . Потеряли важные данные на iPhone, потому что вы случайно удалили файлы, Ваш iPhone поврежден, iPhone застрял в черный / белый экран смерти, iPhone недоступен, потеряли файлы с обновлением программного обеспечения? iPhone Data Recovery поможет вам восстановить 20 типов файлов: потерянные картинки, текстовые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2021Разработчик: Tenorshare Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E34E309F6760D7698D0E400F166775CC0DC452
 ```
 
 https://mybot314.ru/tekegram_catalog/

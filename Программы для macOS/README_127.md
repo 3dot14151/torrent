@@ -1,3 +1,56 @@
+###  Публикация: 1642145   (235694) от 26.06.2023
+
+BetterDisplay Pro for Mac 1.4.15 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235694.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterDisplay — поистине замечательный инструмент. Приложение позволяет вам преобразовать ваши дисплеи в полностью масштабируемые экраны, позволяет управлять яркостью, обеспечивает масштабирование XDR / HDR (дополнительная яркость выше 100% на совместимых дисплеях), полное затемнение до черного, помогает вам создавать и управлять виртуальными дисплеями (манекенами) (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.06.2023Разработчик: © 2023 waydabberПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CA545C6117A63858FD81E6C4E7E747E4920246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641261   (235570) от 21.06.2023
+
+Resolutionator 2.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изменение разрешения быстрее, чем Т-1000 меняет формы. Resolutionator делает его простым в использовании любого из доступных разрешений дисплея. Нужно больше места для проекта? Быстрый щелчок в строке меню или нажатием клавиатуры на ярлыке позволяет легко переключаться на любой доступный размер.
+Если у вас есть несколько мониторов, вы можете получить доступ ко всем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2023Разработчик: © 2023 Many TricksПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3CCDD7BCDF142B49370DD0444B2B1F54508A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641161   (235476) от 21.06.2023
 
 Chaotica 2.2.3 Beta [En]
@@ -6,7 +59,7 @@ Chaotica 2.2.3 Beta [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235476.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ ApolloOne - Photo Video Viewer 3.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235417.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ BluePlum Home Inventory 4 v4.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235400.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Battery Indicator for Mac 2.16.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235372.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Labels and Databases 1.7.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235288.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ ColoFolXS 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235272.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Disk PLUS 1.73 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235261.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ mcZoomOn 5 v5.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235171.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ Transfer 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235074.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Audio Ease Snapper 3.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234908.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Script Debugger 8 v.8.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234882.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234829.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Graphic Inspector 2 v.2.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234771.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Irvue 2.7.14 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234659.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Workspaces 2 v.2.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234616.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ TG Pro (Temperature Gauge Pro) 2.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234613.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ Memoires 5 v.5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234602.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ Cisdem Duplicate Finder 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234598.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ Art Text 4 v.4.3.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234544.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ BetterSnapTool 1.9.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234505.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Steinberg Dorico Pro for Mac 5 v.5.0.10 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234479.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Gas Mask 0.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234365.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ Seasonality Core 2.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234364.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ Texifier 1.9.20 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234356.jpg" />
 </div>
 
 
@@ -628,59 +681,6 @@ Texifier — это редактор LaTeX, предназначенный дл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E6FDAA6080FF70069B08A8F2666977A7859DB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642905   (234335) от 29.06.2023
-
-JustStream PRO 2.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234335.jpg" />
-</div>
-
-
-###  Подробнее
-
-JustStream — отличное приложение, которое может отображать изображение с Mac на телевизор, Mac — на Chromecast, Mac — на Apple TV и так далее. Вы можете транслировать видео на телевизор и наслаждаться им на большом экране без каких-либо проводов, кабелей или какого-либо дополнительного оборудования.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2023Разработчик: © 2022 Electronic Team, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54EE6B1E12E48B2AB23EB478E64C2E5786595A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577886   (234126) от 20.09.2022
-
-ForkLift 3.5.8 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234126.jpg" />
-</div>
-
-
-###  Подробнее
-
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
-На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2022 BinaryNights LLCПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2E11F0C137378E0DBD19231EECEF477C2E4B3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

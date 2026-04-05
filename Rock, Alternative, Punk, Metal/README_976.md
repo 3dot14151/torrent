@@ -1,3 +1,32 @@
+###  Публикация: 1657427   (192727) от 03.09.2023
+
+Far Beyond - The Moment Of Creation (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trust [00:04:00]
+02. Fast Forward [00:03:26]
+03. Challenger [00:05:08]
+04. Watch You Bleed [00:03:12](   Читать дальше...   )Жанр: Symphonic Melodic Death MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD05AF2A924901AD14EA5CB7261C13667BA7141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587531   (192724) от 31.10.2022
 
 Rotten Tongue - Sacrificial Ideation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Deathcore>
@@ -6,7 +35,7 @@ Rotten Tongue - Sacrificial Ideation (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192724.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fear Disease - Floodgates (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192717.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ginger Wildheart & The Sinners - Ginger Wildheart & The Sinners (2022) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192715.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Cursed to Occult - Diary of a Broken Man (2023) [MP3|320 Kbps] <Sludge Metal, Cr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192712.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192709.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Jon Bon Jovi - Blaze Of Glory (1990) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192707.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Various Artists - English Hard Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192697.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192695.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ UFO - Live In Vienna 1998 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192686.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Paul McCartney - The 7" Singles (2023) 2CD, Unofficial Release [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192654.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ This Is Not Real - Evanescent (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192649.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Who - The Who Sell Out (1967) Box Set, 5xCD, Compilation, Deluxe Edition, Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192633.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ A Sickness Unto Death - Beyond (2018) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192461.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Mr. Hurley & Die Pulveraffen - Leuchtturm (2023) Captain's Edition, 2023, Affeni
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192458.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Slowdive - everything is alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192444.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ U.D.O. - Touchdown (2023) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192421.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Grimskull - Awake Asleep (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192405.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192404.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Riven Earth - 3 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192401.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Edenbridge - Shangri-La (2022) [FLAC|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192399.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Dark voice of Angelique - Adult Content (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192396.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Elvis Presley - Live 1969 (2019) [FLAC|Lossless|tracks + .cue] < Rock & Roll, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192356.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Trollband - Woolgatherings (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192310.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Isolation - Isolation (Compilation) (2008) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192308.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Everlasting Fall - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192305.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Everlasting Fall - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC694041F78AEAA417F410B46DB813511A8B7DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657753   (192304) от 05.09.2023
-
-Blut Aus Nord - Disharmonium - Nahab (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hideous Dream Opus #1 (01:02)
-02. Mental Paralysis (04:22)
-03. The Endless Multitude (06:29)
-04. Hideous Dream Opus #2 (01:20)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96100BA71265400D1F0C3345DC97FE5C858FD132
 ```
 
 https://mybot314.ru/tekegram_catalog/

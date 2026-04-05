@@ -1,3 +1,57 @@
+###  Публикация: 938074   (483178) от 17.09.2015
+
+Skyshine's BEDLAM (2015) [En] (1.0) License CODEX
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постапокалиптическая пошаговая ролевая роуглайк-стратегия, разработка которой была вдохновлена такими проектами, как The Banner Saga, FTL, XCOM. Игрокам предстоит возглавить команду крепости на колесах, которая держит путь к таинственному городу Aztec City через пустошь под названием BEDLAM. Вам придется заниматься распределением ресурсов, совершенствовать крепость, (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Skyshine GamesЖанр: RPG (Rogue/Action)Язык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519B2653C6064AAC34AD77122F007F2A7855A7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545247   (482758) от 11.09.2012
+
+The Darkness II - Limited Edition [Ru] (RePack/1.0) 2012 | TimkaCool
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482758.jpg" />
+</div>
+
+
+###  Подробнее
+
+И придет Тьма…
+В продолжении популярного мистического экшена 2007 года игрокам вновь предстоит исполнить роль Джеки Эстакадо — главы преступного клана Нью-Йорка и носителя древней силы, известной под названием Тьма.
+Со времен событий The Darkness прошло два относительно мирных года. Но после того как на Джеки было совершено покушение, в нем вновь пробудилась Тьма… Лишь пройдя до конца по кровавому пути отмщения, он узнает, кто стоял за нападением и чего добивается скрытая в нем сила. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E176E115DD37CEE7D2357F2C0B1E914B63A36585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545248   (482494) от 11.09.2012
 
 Trine 2 + DCL [Ru/En/Multi14] (RePack/1.18) 2011 l SHARINGAN
@@ -6,7 +60,7 @@ Trine 2 + DCL [Ru/En/Multi14] (RePack/1.18) 2011 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482494.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Endless Space - Emperor Special Edition [Ru/En/Multi3] (Lossless Repack/1.0.16) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482231.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Minecraft (RePack/12w36a) [Ru/Multi56] 2012 | R.G. Dev1l
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482226.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Minecraft (L/12w36a) [Ru/Multi56] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482225.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ I Am Alive [Ru] (RePack/1.0) 2012 | SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482149.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Minecraft (Server/12w36a) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482148.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ Saints Row: The Third [Ru/En/Multi9] (RePack/1.0.0.1) 2011 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482147.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ Kingdoms of Amalur: Reckoning + 10 DLC [Ru/En] (Repack/1.0.0.2) 2012 | DangeSeco
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482026.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ Magicka 2 (2015) [Ru/Multi] (1.1.0.0/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481300.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481138.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478350.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ Dear Esther / Дорогая Эстер [Ru/En] (Lossless Repack/1.0r14) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478220.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478052.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Mass Effect Трилогия [Ru] (RePack) 2008-2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477813.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ Freelancer [Ru/En] (L) 2003
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476593.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | Sas
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475554.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ Counter Strike 1.6 [Ru/En] (No-Steam) 2012 | keepe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475418.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ PAYDAY: The Heist (2011) [Ru/En] (1.21.0/dlc) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474921.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ Better Late Than DEAD (2015) [Ru/Multi] (0.12.0 Alpha) Repack Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474724.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ Craft of Gods / Ремесло богов (L) [Multi4+] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474689.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ Sanctum: Collection [Ru] (RePack/1.4.16365/8 DLC) 2011 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473631.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ Darksiders 2: Death Lives [Ru/En] (Repack/u3) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473452.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ Turmoil (2016) [En/Multi] (1.0/u30) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472507.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ Reigns (2016) [Ru/Multi] (1.23/dlc) License GOG [Collector's Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472484.jpg" />
 </div>
 
 
@@ -630,58 +684,6 @@ Reigns (2016) [Ru/Multi] (1.23/dlc) License GOG [Collector's Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E7DE9C0D123627F88BD9F416BA793F52965BC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057559   (472385) от 29.09.2016
-
-The Long Dark  (2014) [Ru/Multi] (365) Repack Ученик_77
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое The Long Dark? The Long Dark - это исследовательская игра-симулятор выживания, в которой игроки-одиночки должны позаботиться о себе в ходе изучения обширных морозных необитаемых территорий. Здесь нет зомби - только вы, холод и все, что вам может предложить мать-природа.Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Pусский, Английский и другиеЯзык интерфейса: Pусский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DB416DDAD56AF1916EE81DCCE98D029AE60720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547602   (471517) от 16.09.2012
-
-Free Running [English] [PAL] (2009) [Wii]
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Free Running – это симулятор паркура. Более 60 различных испытаний, разбросанных по 10 уровням в 3 городских зонах, каждая со своим стилем геймплея. 9 игровых режимов, включая "гонку", "трюки" и "собирание целей". Free Running предлагает нам реальных спортсменов, движения которых переносятся в игру при помощи последних достижении в области motion-capture. В игре вы сможете попробовать все головокружительные пируэты, которые вытворяют мастера паркура.Жанр: Simulator / SportЯзык озвучки: EnglishЯзык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30730FA745F7FE2C41DF2A774FE0AC20346FA761
 ```
 
 https://mybot314.ru/tekegram_catalog/

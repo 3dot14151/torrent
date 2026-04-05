@@ -6,7 +6,7 @@ Summer Time Render / Summer Time Rendering / Летний рендер / Лет�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329536.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kingdom 4 / Царство [TB-4] [2022, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328593.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tomie | Томиэ [2018, Special, 2 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323164.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322506.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Try Knights | Упорные рыцари [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322495.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Bessatsu Olympia Kyklos | Экстра Олимпия Киклос | Олимп�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321542.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Meitantei Conan | Detective Conan | Детектив Конан [1996, TV, 810-8
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318454.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318428.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Hyakumannen Chikyuu no Tabi Bander Book | One Million-year Trip: Bander Book | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318352.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Kannagi | Kannagi: Crazy Shrine Maidens | Каннаги [2008, TV, 13 + SP] BDR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316657.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Miss Monochrome The Animation / Мисс Монохром [2013, TV, 13] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314925.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bem | Бэм [2019, TV, 12 из 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313203.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] HDTV 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313186.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312978.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ A Channel+smile: Nabe wo Tabeyou | A-Channel+smile: Let's Eat Hot Pot | A Channe
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312196.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Major 2nd (2020) | Второй Мэйджор [ТВ-2] [2020, TV, 25] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310245.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309806.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Naka no Hito Genome [Jikkyouchuu] | The Ones Within | Nakanohito Genome [Jikkyou
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309112.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Akage no Anne | Anne of Green Gables | Энн из Зеленых Мезонин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305253.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Trinity Seven / Святая Семёрка [2015, OVA, 1] BDRip 720p Hi10P raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302502.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Charlotte | Шарлотта [2015, TV, 13 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283280.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Rerided: Tokigoe no Derrida | РЕридеД: Деррида, что путеш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282479.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Hoshi wo ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279703.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ KissXsis TV | KissXsis 2010 | Поцелуй сестер [2010, TV, 12 эп] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278786.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Devil's Line | Линия дьявола [2018, TV, 12 + 1 ОВА] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275101.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272274.jpg" />
 </div>
 
 

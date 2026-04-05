@@ -1,25 +1,25 @@
-###  Публикация: 1391268   (781487) от 19.06.2020
+###  Публикация: 1206296   (782166) от 14.02.2018
 
-We Versus The Shark - Goodbye Guitar (2020) [MP3|320 Kbps] <Math Rock, Indie Rock>
+Art Blakey And The Jazz Messengers - Live at Kimball's (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Negative Space Rules Forever (03:36)
- 02. We All Get a Raise (03:25)
- 03. Righteous Vibes (03:47)
- 04. I Am Never Going Home For Christmas Again (03:47)(   Читать дальше...   )Жанр: Math Rock, Indie RockПродолжительность: 00:36:12
+01. Second Thoughts [08:44]
+02. I Love You [05:59]
+03. Jody [09:11]
+04. Old Folks [04:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A6A0A2068CBAD945F1BD7E830A97C81BDA14420
+magnet:?xt=urn:btih:7137591DFA1CF79CDEE31CE2D2A9487AC35F38B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391316   (781485) от 19.06.2020
+###  Публикация: 1206513   (782165) от 14.02.2018
 
-Dash 5.1.7 [En]
+Lester Young - Blue Lester: The Immortal Lester Young (1944 - 1949) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: Bogdan PopescuПоддерживаемая ОС: macOS 10.14 и новееЯзык интерфейса: Английский
+01. Ghost of a Chance [03:30]
+02. Crazy over Jazz [02:48]
+03. Ding Dong [02:29]
+04. Back Home in Indiana [02:56](   Читать дальше...   )Жанр: SwingПродолжительность: 00:44:48
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:87BDBBA1F26AC4B84B6C0896781D67638B048344
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391172   (781483) от 19.06.2020
+###  Публикация: 1206530   (782164) от 14.02.2018
 
-PDF Search 9.10 [En]
+The Buster Williams Trio LIVE - 65 Roses (2009) BluePort [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Search - это утилита, которая имеет революционный алгоритм поиска, специально разработанный для документов PDF. Время на получение информации в ваших документах PDF будет минимальным. Это позволит вам мгновенно найти то, что вы ищете в тысячах документов. Это система интегрирована. Вы можете начать поиск непосредственно из системного меню, например, Spotlight.Тип издания: macOS SoftwareРелиз состоялся: 16.06.2020Разработчик: Muharrem OzkanПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+01. We See [09:32]
+02. Concierto de Aranjuez [09:38]
+03. Song for Abdullah [07:42]
+04. Related to One [07:42](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:53:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65CBC5E4B5067D9982CAA9B5C339C1EB9B6A9702
+magnet:?xt=urn:btih:BC2023C510E589238690BF6D5B2F46DB7AE83F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 200675   (781481) от 13.05.2010
+###  Публикация: 1206580   (782163) от 14.02.2018
 
-ReaConverter Pro 5.5 [Multi (Ru)]
+VA - Music Lovers 2018 [MP3|320 Kbps] <Funky, Club House>
 
->>Мультимедиа и Графика
->>Графические редакторы
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_781481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Конвертер графических файлов с дополнительными особенностями.
+01.  Friendz By Chance - Memories (feat Cristina Clea)
+02.  Robbie Mirello & House Anatomy - Treasure
+03. Miami Shakers - Sunrise
+04. House Legion - Best of You(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:35:28
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:83377B49FE08887186AD0BECF5E7B783AA907B43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 199847   (781473) от 13.05.2010
+###  Публикация: 1206303   (782162) от 14.02.2018
 
-Меч 3хDVD5 (сезон 1, серии 1-25 из 25)
+Jean-Louis Rassinfosse, Chet Baker, Philip Catherine (1983) 1985, Igloo [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
 
->>3
->>След.
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наши дни. Москва. Растущий мегаполис выходит из-под контроля милиции. Уровень преступности растет в геометрической прогрессии. Максу Калинину 35 лет, он бывший офицер разведки ВДВ, оперативник УБОП. После 10 лет работы его увольняют со службы по фиктивному обвинению, без права в дальнейшем работать в органах правопорядка, а опасный преступник выходит на свободу без (   Читать дальше...   )Жанр: Боевик, ДрамаРежиссер: Рустам Уразаев, Виктор КонисевичАктеры: Эдуард Флеров, Роман Курцын, Тимур Ефременков, Дарья Повереннова, Виктория ФишерПеревод: ОригинальныйПродолжительность: 1913 минут
+01. Crystal Bells [06:20]
+02. Strollin [07:27]
+03. Lament [07:40]
+04. Leaving [09:45](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:43:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BFA2966200E809F0E0A87042F3411EF3B5D8560B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,27 +143,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 200579   (781466) от 13.05.2010
+###  Публикация: 1206516   (782161) от 14.02.2018
 
-Colin McRae: DiRT Коллекция [Ru/En] (RePack) 2007-2009 | R.G.ReCoding
+Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
 
->>3
->>След.
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вторая часть знаменитого хита Colin McRae: DiRT от создателей Race Driver: GRID готова ворваться в ряды лучших гонок планеты! Лучшие традиции автосимуляторов приумножены великолепием современных технологий. Вас ожидает невероятный и захватывающий тур по Америке, Европе и Азии. Представленные на выбор трассы сразят наповал даже самых продвинутых поклонников жанра. От классических кольцевых гонок до уникальных заездов с прыжками на трамплинах, рампами и даже пиротехникой.
+01. Lover Man [03:01]
+02. I Wanna Be Around [03:41]
+03. I Didn't Know About You [03:07]
+04. Funny Thing [02:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2EB95DE7413E6991806622BCEE1FFC2335B562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206537   (782160) от 14.02.2018
+
+Ron Carter And The WDR Big Band - My Personal Songbook (2015) In+Out Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight [07:03]
+02. Receipt, Please [06:00]
+03. Ah, Rio [06:09]
+04. Doom Mood [07:49](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Big BandПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D8B82148656DE819E55009EB7F32C99E1A8A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206144   (782159) от 14.02.2018
+
+Общество памяти игумении Таисии (изд.) | Краткое изложение Литургии Святого Иоанна Златоуста для мирян (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краткое изложение Литургии Святого Иоанна Златоуста для мирян с присовокуплением молитв, изданных с благословения Святейшего Правительствующего Синода, для чтения их при Божественной Литургии.
 
-Продвинутый режим одиночной игры позволит вам сесть за руль навороченных спортивных машин и бросить вызов лучшим гонщикам современности. Попробуйте подняться на вершины карьеры, исколесите весь мир! Заработайте на новые автомобили различных классов, включая классические гоночные авто и даже знаменитую Subaru Impreza WRX, на которой сам Колин Макрей одержал победу в чемпионате. Попробуйте силы в основных гонках и особых состязаниях, побейте рекорды и станьте лидером общего зачета. Вашими наставниками и советчиками, а также конкурентами в борьбе (   Читать дальше...   )Тип издания: перепакованная лицензияРазработчик: Codemasters StudiosЖанр: Гоночный Симулятор / Arcade / Racing (Cars) / Simulator / 3DЯзык озвучки: Язык интерфейса: 
+Отъ С. Петербургскаго Комитета Духовной Цензуры печатать позволяется. Апреля 3 дня 1863 года.
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:64C8AB069C0DE2B9C5DAEC27AC70FFF72DCF03DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 200717   (781463) от 13.05.2010
+###  Публикация: 1206465   (782158) от 14.02.2018
 
-Hard Truck / Ex Machina Антология [Ru] (L) 2008
+VA - Progressive Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
 
->>3
->>След.
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тип издания: лицензияЖанр: Arcade / RPG / Action / Racing / 3D / Privateer / TraderЯзык озвучки: Язык интерфейса: 
+01.  Roman Messer & Roxanne Emery  -  Lullaby (Original Mix)  3:56
+02.  WeareD  -  Through The Universe (Original Mix)  3:04
+03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
+04.  Huem  -  Ryzen (Original Mix)  3:34(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:03
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:56A7382E7CD40CF685449156091D32C1089E48C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391248   (781462) от 19.06.2020
+###  Публикация: 1206535   (782157) от 14.02.2018
 
-The Spitfires - Life Worth Living (2020) [MP3|320 Kbps] <Indie Rock>
+VA - Club Masters Vol.15 (2018) [MP3|320 Kbps] <Future House, Progressive>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Start All Over Again (03:06)
- 02. It Can't Be Done (03:38)
- 03. Life Worth Living (03:08)
- 04. Tear This Place Right Down! (03:17)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:10
+01.  BAZZFLOW  -  Lost In You (Bragaa Remix)  4:21
+02.  Menshee  -  All Night (Original Mix)  4:06
+03.  Jean Beatz  -  Future (Original Mix)  5:54
+04.  Terri B! & Slippy Beats  -  Deep In The Night (Original Mix)  5:56(   Читать дальше...   )Жанр: Future House, ProgressiveПродолжительность: 01:31:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C544240EFF18339A0629F0C05CD65633A35A98A5
+magnet:?xt=urn:btih:127C4E26F6B74D4C60A54BFF8414F87E1FC1982C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,417 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391290   (781461) от 19.06.2020
+###  Публикация: 1206245   (782156) от 14.02.2018
 
-Литл Бэйби Бам - Песни для детей про вкусную еду (2020) [MP3|320 Kbps]<Детские песни>
+Христианская жизнь (изд.) | Акафист преподобному Сергию Радонежскому (2012) [PDF, DJVU]
 
->>Аудио для детей и родителей
->>Музыка и песни для детей
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Кушай овощи
-02. Мороженое (Вкусное Мороженое)
-03. Я люблю фрукты
-04. Пекарь маффинов(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C055C78F56E14E197EB2525B36BC35541DF61631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391258   (781460) от 19.06.2020
-
-Литл Бэйби Бам - Ежедневные рутинные песни для детей (2020) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты спишь
-02. Чистим зубки
-03. Я люблю фрукты
-04. Учимся одеваться!(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8159DA3DF31D6D697CCFC464EFF7F7D41172200E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391261   (781459) от 19.06.2020
-
-Литл Бэйби Бам - Играй, танцуй, смейся! (2020) [MP3|320 Kbps]<Детские песни>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Медведь пошёл через гору
-02. На охоту мы за львом
-03. А вот и мы, привет!
-04. Янки Дудл(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391242   (781458) от 19.06.2020
-
-VA - Summer Bass: Jungle Essentials (2020) [MP3|320 Kbps] <D&B, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limit - Tell Me
-02. Dynamic Destruction - Bubbles
-03. Rebuilder - Follow Me
-04. Changer - Locals (Original Mix)(   Читать дальше...   )Жанр: D&B, JungleПродолжительность: 05:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D531BA9BE6B36BBB2B517B4C60E7A7383649F9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391315   (781457) от 19.06.2020
-
-Allavsoft Video Downloader Converter 3.22.6.7473 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter - это мощный видео загрузчик с поддержкой скачивания фильмов, музыкальных клипов,
-плейлистов, видео, уроков с видеохостингов, таких, как YouTube, Facebook, Dailymotion и других более чем 100 сайтов.
-Помимо скачивания видео в оригинальном формате, Allavsoft также может скачивать и конвертировать скачанное видео в популярные видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1EAB84C131A770D3DE03108E314BBD052216EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391223   (781456) от 19.06.2020
-
-Filmwizard Full 3.2.0 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmwizard - это простой в использовании инструмент для создания фильмов. Он может записывать, редактировать и создавать высококачественные фильмы и кодировать их в файлы MPEG-4 или публиковать их непосредственно на видео сайтах, таких как Youtube, для вашей аудитории.Тип издания: macOS SoftwareРелиз состоялся: 02.06.2020Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391159   (781455) от 19.06.2020
-
-4K Stogram Pro for Mac 3.0.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781455.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A9AA0FE12D65203ADAD9E1E2A5AF38629AEC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391204   (781454) от 19.06.2020
-
-Черти Тихого Омута - Поганая нечисть и етитская сила (2017) [MP3|320 Kbps] <Horror Punk, Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Омут
-2. История одной девушки
-3. Болотный огонь
-4. Упырь(   Читать дальше...   )Жанр: Horror Punk, RockПродолжительность: 00:19:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391295   (781453) от 19.06.2020
-
-Vivaldi 3.1.1929.40 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CAE9B9576D7BED42D8E649E2F653D0620082F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391260   (781452) от 19.06.2020
-
-Jessica Wolff - Para Dice (2020) [MP3|320 Kbps] <Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella's Song (03:14)
- 02. Perfect Kind of Wrong (03:45)
- 03. All the Right Things (03:19)
- 04. The Sunny Side of the Bay (03:28)(   Читать дальше...   )Жанр: Modern RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200189822206B1E38F6B48AB988AA1733B600896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391243   (781451) от 19.06.2020
-
-VA - June EDM DJ Mastermix (2020) [MP3|320 Kbps] <House, EDM>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren - Lonely For You
-002. Stan Kolev - Turiya
-003. Nytron - The J A M
-004. Ck Pellegrini - Hey(   Читать дальше...   )Жанр: House, EDMПродолжительность: 10:25:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391193   (781450) от 19.06.2020
-
-QLab Pro 4 v4.6.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781450.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA37A9E4266B91F1019CA35586418A5AFA2BA909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391195   (781449) от 19.06.2020
-
-Cro-Mags - In The Beginning (2020) [MP3|320 Kbps] <Hardcore Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Give In (03:01)
- 02. Drag You Under (01:32)
- 03. No One's Victim (02:39)
- 04. From The Grave (02:19)(   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66ED2CE2574D87D26746F07D809192D0163ADB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391016   (781448) от 19.06.2020
-
-Роберт Ирвин | Алжирские тайны (2018) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война за освобождение Алжира, 1959 год. Филипп Руссель, французский офицер, влекомый марксистскими идеями, переходит на сторону алжирских партизан и становится двойным агентом. Эта пародия на бондиану, щедро приправленная политической сатирой, – третий роман британского историка-медиевиста, востоковеда Роберта Ирвина, автора нашумевшего «Арабского кошмара».Жанр: Современная зарубежная литератураФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391299   (781447) от 19.06.2020
-
-Soft4Boost Document Converter 6.3.7.493 [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soft4Boost Document Converter - программа для просмотра и конвертирования разных типов документов между собой. Это приложение работает как с текстовыми, так и графическими файлами, конвертируя их в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.
+Акафист Преподобному Сергию Радонежскому, Игумену Земли Русской.
 
-Интерфейс программы интуитивно понятен и удобен: добавили файл, определили формат преобразования, папку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Кондак преподобного Сергия. Глас 8
+Христовою любовию уязвився, преподобне,/ и Tому невозвратным желанием последовав,/ всякое наслаждение плотское возненавидел еси/ и, яко солнце, Отечеству твоему возсиял еси;/ тем и Христос даром чудес обогати тя./ Поминай нас, чтущих пресветлую память твою, да зовем (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:55A1396B5378868BAB5451118465C85B79FAA8A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,26 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391200   (781446) от 19.06.2020
+###  Публикация: 1206501   (782155) от 14.02.2018
 
-Tayasui Sketches Pro 5.0 [Multi/Ru]
+Facechain - Accensor (2018) Dream Catalogue [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Ambient>
 
->>
->>
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прекрасные инструменты — залог превосходных рисунков, поэтому мы создали приложение Sketches с еще более широким набором реалистичных инструментов.
-С удивительным набором инструментов и современным пользовательским интерфейсом  Sketches  является наиболее универсальным и удобным приложением для  создания рисунков.Тип издания: macOS SoftwareРелиз состоялся: 18.06.2020Разработчик: TayasuiПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+01. Accensor (11:07)
+02. Trauma II (feat. Blank Body) (06:36)
+03. Visage I (12:27)
+04. Visage II (03:43)(   Читать дальше...   )Жанр: Techno, IDM, AmbientПродолжительность: 00:37:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FE3730CC5E3FF7496FBD599934C0ED2C3EBB5506
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391244   (781445) от 19.06.2020
+###  Публикация: 1206327   (782154) от 14.02.2018
 
-VA - Beatport Hardstyle: Electro Sound Pack #104 (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle, Core>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Санный спорт. Мужчины. 3-я и 4-я попытка (11.02.2018) WEB-DL [H.264/720p-LQ]
 
->>
->>
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Never Surrender - Fucking Maximaal
-002. Shadowcore - Blame You
-003. Ganar And Outburst - Control
-004. Seventhrun - Light Of The Stage(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, CoreПродолжительность: 08:50:43
+11 февраля 2018 года, воскресенье. 14:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Санный спорт. Мужчины.
+Одноместные сани. 3-я и 4-я попытка(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:06
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CA7F92A2B91DA99B92A29B112670379C5006202B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,26 +375,366 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391289   (781444) от 19.06.2020
+###  Публикация: 1206357   (782153) от 14.02.2018
 
-Q-Dir 8.44 + Portable [Multi/Ru]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Санный спорт. Мужчины. 1-я и 2-я попытка (11.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>
->>
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+10 февраля 2018 года, суббота. 13:10 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Санный спорт. Мужчины.
+Одноместные сани. 1-я и 2-я попытка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:48
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:05F54F9CA94A6272C3403A88590D923D2F9B5673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206472   (782152) от 14.02.2018
+
+Отчий дом (изд.) | За всё благодарите. История семьи репрессированного священника (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет книги интереснее, чем человеческая жизнь. О судьбе целой семьи — малой церкви, которая хранила Православие в огненных испытаниях XX столетия, расскажет Вам эта документальная повесть. Немного осталось живых свидетельств о том страшном времени, и каждое из них — безценно. Ведь они удостоверяют, что вера в Бога и доверие Божественному Промыслу даже в самых страшных (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B112A4A9D8B42F556D1981CCD352F46C6828335E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206526   (782151) от 14.02.2018
+
+Mike Garson - Mike Garson's Jazz Hat (2008) Reference Recordings [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rumble [05:08]
+02. All Blues [09:49]
+03. It's You or No One [05:22]
+04. A Song For You [10:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28EC1362FCD2C99508A41CDB335B36C3136C2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206425   (782150) от 14.02.2018
+
+VA - Deep Progressive House Set (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny M – Deep Progressive House Set (Dj Continuous Mix) (02:01:35)
+02. Nahuel Carrizo – Blind in the Mist (08:44)
+03. Robert R. Hardy – Sensus (GMJ Rmx) (09:14)
+04. Robert R. Hardy – Chasing PleasureЖанр: Progressive HouseПродолжительность: 04:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E959819F38B75DCE489D4E7D79E366A25D16BA51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206542   (782149) от 14.02.2018
+
+VA - Dinner In Love (Romantic Lounge Music Playlist) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabrielle Chiararo - Father Mother
+02. Jon Bax - Candy Apple
+03. Giacomo Bondi - Soft Bossa
+04. Bronkelstein Hiram - Tiki Lounge(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF83E8EEE34A8CD1FAA5F5BFB404B28D8D73A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206481   (782148) от 14.02.2018
+
+П. П. Маслов | Критический анализ буржуазных статистических публикаций (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782148.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей работе внимание сосредоточено главным образом на сводных статистических величинах, методах их получения, приемах их анализа применительно к уже готовым, опубликованным и систематизированным материалам буржуазной статистики. С такими именно данными приходится иметь дело экономисту, изучающему капиталистическую действительность.
+
+Вместе с тем здесь показаны (   Читать дальше...   )Жанр: История, политология, экономика, статистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153E7286C8FCBC21593C9CFFD8917AC4C4A0E7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206523   (782147) от 14.02.2018
+
+VA - Chillout Empire Costa Del Sol Selection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zero Feedback  -  Rien Ne Va Plus (Don Gorda Project Remix)  7:00
+02.  Enrico Donner  -  Time Stands Still (feat. Theresa Thomason)  4:43
+03.  Don Gorda Project  -  Rise To The Surface (Original Mix)  5:36
+04.  Zero Feedback  -  Deep In The Rain Forest (Original Mix)  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9BA3CF2B220C0EEB95F3BEE64B37D9C716C8A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206503   (782146) от 14.02.2018
+
+VA - 2000 Hands (2000) Hands Productions [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, Industrial, Experimental, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NKVD - ∑ (07:02)
+ 02. NKVD - Ø (04:43)
+ 03. NKVD - π (07:06)
+ 04. Typhoid - Man-Hour (Against) (04:10)(   Читать дальше...   )Тип издания: CDЖанр: Rhythmic Noise, Industrial, Experimental, Ambient •Продолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE78F1BBA47BD43BA4E37294A498A9D76CFBA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206239   (782145) от 14.02.2018
+
+Георгий Нарбут (илл.) | Деревянный орёл (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для младшего и среднего школьного возраста.Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EF06B3F5EFA1ACEE28EC6EACF636679C52A1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206522   (782144) от 14.02.2018
+
+Robert Moore - Outta My Soul (2012) 2014, Reference Recordings [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Time [03:42]
+02. Waltz for Debby [04:59]
+03. If You're Still in Love with Me [02:41]
+04. The April Fools [03:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12332AF7C8272784A0AF0218FCB20B47F3536124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206598   (782143) от 14.02.2018
+
+Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying Blues
+02. Angels
+03. I Wanted You
+04. Hello, I Thought You Were Dead(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206276   (782142) от 14.02.2018
+
+Adam Shulman Sextet - Full Tilt (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasy in Db
+02. Lonesome Dream
+03. The Conquerer
+04. San Francisco National Cemetery(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E051DB47CDAF2C33FD85DEC5837FAB47FC135E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206241   (782141) от 14.02.2018
+
+Георгий Нарбут (илл.) | Теремок. Мизгирь (1910) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей младшего возрастаЖанр: Детская проза, СказкиФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960A1511D20433CC2914268D71565DA313749240
 ```
 
 https://mybot314.ru/tekegram_catalog/

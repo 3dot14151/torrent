@@ -1,3 +1,82 @@
+###  Публикация: 1613109   (1039912) от 17.02.2023
+
+Сергей Аксаков | Семейная хроника (1996) [MP3, Людмила Долгорукова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039912.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Радио России" представляет радиоспектакль по произведению русского писателя, которое считается одним из лучших исторических документов стародворянской жизни, в котором представлена картина помещичьей жизни доброго старого времени, с ее удивительной смесью добродушия и дикого, подчас даже зверского самодурства.Жанр: Классика, РадиоспектакльПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76865639B52A404CD848880683AFF0844F8A15EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615017   (1038107) от 24.02.2023
+
+Джейн Остин | Гордость и предубеждение (2022) [MP3, Равшана Куркова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая аудиоверсия книги Джейн Остин «Гордость и предубеждение». История, знакомая нам со школьной скамьи, в исполнении Равшаны Курковой звучит совершенно иначе. Старая добрая классика заиграет новыми красками. Отличный повод ещё раз погрузиться в непростые отношения Элизабет Беннет и мистера Дарси, пройти с ними путь от отчуждения к любви, открыть для себя новые (   Читать дальше...   )Жанр: классические любовные романы, литература 19 векаПеревод: Ирина ГуроваПродолжительность: 12:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5292A3293305E49B799E48FC8BB435FF6D501043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615864   (1037265) от 27.02.2023
+
+Александр Дюма | Асканио (2014) [MP3, Леонид Деркач]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037265.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Асканио» – один из самых увлекательных романов Александра Дюма-отца, автора таких шедевров, как «Три мушкетера» и «Граф Монте-Кристо».
+Материал для романа «Асканио» Дюма почерпнул из автобиографической книги прославленного скульптора и ювелира эпохи Возрождения Бенвенуто Челлини. Поставить на карту не только собственное благополучие, но и саму жизнь ради счастья (   Читать дальше...   )Жанр: Приключения, КлассикаПродолжительность: 19:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6B18032EC94DAA32F5FD8225034711CFE16BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444714   (1034433) от 02.02.2021
 
 Анна Зегерс  | Седьмой крест (1972) [MP3]
@@ -6,7 +85,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034433.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032569.jpg" />
 </div>
 
 
@@ -62,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032534.jpg" />
 </div>
 
 
@@ -90,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030959.jpg" />
 </div>
 
 
@@ -116,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030832.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030034.jpg" />
 </div>
 
 
@@ -169,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027301.jpg" />
 </div>
 
 
@@ -197,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026119.jpg" />
 </div>
 
 
@@ -225,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025267.jpg" />
 </div>
 
 
@@ -251,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024747.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024733.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023700.jpg" />
 </div>
 
 
@@ -329,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022452.jpg" />
 </div>
 
 
@@ -355,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021788.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021676.jpg" />
 </div>
 
 
@@ -410,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021670.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021666.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021662.jpg" />
 </div>
 
 
@@ -490,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021659.jpg" />
 </div>
 
 
@@ -516,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021648.jpg" />
 </div>
 
 
@@ -542,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020188.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018921.jpg" />
 </div>
 
 
@@ -597,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018414.jpg" />
 </div>
 
 
@@ -608,86 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EBE6D8062E7050BFDD99E5C43B5F1997305A480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467441   (1017891) от 03.05.2021
-
-Александр Дюма (отец) | Граф Монте-Кристо (2004) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Граф Монте-Кристо – приключенческий роман Александра Дюма, классика французской литературы, написанный в 1844—1845 годах. Имя своему герою писатель придумал во время путешествия по Средиземному морю, когда он увидел остров Монтекристо и услышал легенду о зарытых там несметных сокровищах. Автор всего лишь немного изменил название острова.История молодого капитана (   Читать дальше...   )Жанр: Приключенческий роман, КлассикаИздательство: АрдисПродолжительность: 59:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1B2EC42820BD55345C831363536F930FDD31DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467237   (1017885) от 03.05.2021
-
-Михаил Шолохов | Тихий Дон (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Тихий Дон» принес Михаилу Шолохову мировую известность и звание лауреата Нобелевской премии по литературе.
-Широкомасштабная эпопея повествует о трагических событиях в России на протяжении бурного и жестокого десятилетия с 1912 по 1922 год, о судьбе донского казачества в Первой мировой и Гражданской войнах, о человеческих судьбах на крутых поворотах истории. (   Читать дальше...   )Жанр: Классика, РоманПродолжительность: 72:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C95CE124A94E7FF558D63A1C45C66F7449D92C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467239   (1017880) от 03.05.2021
-
-Михаил Шолохов | Тихий Дон (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Тихий Дон» принес Михаилу Шолохову мировую известность и звание лауреата Нобелевской премии по литературе.
-Широкомасштабная эпопея повествует о трагических событиях в России на протяжении бурного и жестокого десятилетия с 1912 по 1922 год, о судьбе донского казачества в Первой мировой и Гражданской войнах, о человеческих судьбах на крутых поворотах истории. (   Читать дальше...   )Жанр: Классика, РоманПродолжительность: 62:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214CB231FDA8472907D18F77FE6D9D91CA3E1E36
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1734883   (51013) от 05.07.2024
+
+Шамиль  Ахмадуллин | Майнд-фитнес. Система тренировки интеллекта для детей 8-9 лет за 21 день. Блокнот-тренажёр (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие поможет вам развить интеллект ребенка, уделяя этому всего 15 минут в день. Этот блокнот-тренажер рассчитан на детей в возрасте 8-9 лет и 21-дневную тренировку. Многие родители интересуются, как можно развивать интеллект ребёнка в домашних условиях, какие упражнения дают лучший результат и как правильно их выполнять. В качестве ответа на эти вопросы (   Читать дальше...   )Жанр: Учебно-практическое пособиеИздательство: БилингваФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888D31075AEAD51FFB2AEEB4BF6AB7216E3FB170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734832   (50995) от 05.07.2024
+
+Шамиль Ахмадуллин | Как научить ребенка пересказывать. Пошаговая система обучения. 5-6 классы (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умение пересказывать минимум на 50% определяет успеваемость ребенка в школе. Действительно, практически все предметы школьной программы, не считая, пожалуй, математики и русского, сводятся к умению прочитать и качественно пересказать материал. К сожалению, редко в школе учат пересказывать и тем более делать это правильно. Это пособие - пошаговый тренинг, с помощью (   Читать дальше...   )Жанр: учебное пособиеИздательство: БилингваФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE897A6B65A7D77CFE3DC94A14ABBFC24821CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734863   (50978) от 05.07.2024
 
 Шамиль Ахмадуллин | Тренируем интеллект: Таблица умножения за 3 дня (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50978.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50960.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50955.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50810.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50505.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50497.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50492.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ C. Куно | Большая книга поделок (2001) [PDF]
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50320.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50282.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49348.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49095.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49016.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48991.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48954.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48386.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48051.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47585.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47576.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47361.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46704.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46702.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46492.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46313.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46312.jpg" />
 </div>
 
 
@@ -639,63 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51334CF089DB66BEBA81D9D79EB3D3C3A46D449E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300742   (46295) от 19.08.2024
-
-Элен Кэй и др. | Секрет забастовки. Рассказы и стихи про американских ребят (1935) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти рассказы, стихи и песни были напечатаны в журнале американских пионеров „Нью Пайонир" ("Новый пионер") и в газете коммунистической партии Америки "Дэйли Уоркер".
-
-Многие из песен, напечатанных в этой книге, не имеют автора; их сложили американские ребята, сражаясь с полицией в забастовочных пикетах.
-(   Читать дальше...   )Жанр: Детские рассказыИздательство: Огиз-ДетгизФормат: PDFКачество: Необработанный скан + OCR без ошибок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F096DBE3DD0AC1E20A8C15113D70318D3B614218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038951   (46005) от 22.08.2024
-
-Рафаэлло Джованьоли | Спартак (1937) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический роман известного итальянского писателя рассказывает о крупнейшем в античном истории восстании рабов. В центре произведения — образ бесстрашного борца, который все силы и страсть души отдает борьбе против угнетения. Спартак гибнет, но идея свободы остается в душах подневольных людей.
-
-Роман воссоздает одну из самых интересных, насыщенных драматическими (   Читать дальше...   )Жанр: Детская проза, историяПеревод: Лев ФренкельИздательство: ДетиздатФормат: DJVUКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C2BD5F7DBA630B4CB5EC862B5C2F396C62E4F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

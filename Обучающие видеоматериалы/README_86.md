@@ -1,3 +1,29 @@
+###  Публикация: 309549   (840705) от 16.03.2011
+
+video2brain | Calvinize. The Wrong Place for Pure Photography -   Не место плохим фотографиям [2010] [EN] PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calvin Hollywood, победитель в художественной фотографии из Германии, делится секретами своего успеха в этом углубленном курсе. Начиная с основ редактирования изображения в  Photoshop – включая работу со слоями, масками, коррекцией цвета и  RAW преобразованием – он переходит к более продвинутым темам, как ретуширование и создание композиций изображений из нескольких источников. Каждый свой шаг он сопровождает демонстрацией собственных техник так, что вы можете перенести взгляд Hollywood в свои собственные работы. Calvin любит исследовать способы, которые вы не найдете ни в какой документации или книге. Поэтому если вы действительно хотите сделать свои фотографии выдающимися, вдохновляйтесь лучшим от Calvin Hollywood!Жанр: PhotoshopПродолжительность: 04:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F1EEDCE8350147A4E0AF1967A84843E0BCD490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003642   (839425) от 05.04.2016
 
 Василий Кашеваров | Создание музыки и фонограмм на базе компьютера (+Бонусы!) (2012) PCRec
@@ -6,7 +32,7 @@
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839425.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ ArtStation, Emiel Sleegers | Creating a metro train interior in Unreal Engine 5 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_839347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_839347.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ ProfIT | Паттерны и антипаттерны - помощники в р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839308.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839287.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839184.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839183.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837923.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Schoolism, Sonja Christoph | Introduction to Blender 2.9 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837752.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Mark Lauren | Bodyweight Training (2012) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837718.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837631.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837465.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ Geekatplay™ Studio | Vue Video Tutorials, Vue FX [2008] WEB-DLRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837453.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836278.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ Alex Crow | Большой пак с 9 видеоуроками (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836142.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ Udemy, Dr. Angela Yu | The Complete 2021 Flutter Development Bootcamp with Dart 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836017.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835711.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835693.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835521.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ kalachevaschool, Вера Соколова | Согревающие пожела
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835115.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ kalachevaschool, Татьяна Чулюскина | Антиква и скри�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835114.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ kalachevaschool, Анна Цымбал | Надпись на стекле (2018)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835110.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ kalachevaschool, Вера Соколова | Новогодний девиз (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835109.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ kalachevaschool, Анастасия Ермакова | Горное пастби
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835108.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ kalachevaschool, Анна Цымбал | Оформление предметов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835107.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ kalachevaschool, Анастасия Ермакова | Закат на горн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835044.jpg" />
 </div>
 
 
@@ -670,33 +696,6 @@ kalachevaschool, Анастасия Ермакова | Закат на горн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F69369E60B86DD46771E0F511242DDC69D7BE96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501478   (835042) от 10.10.2021
-
-kalachevaschool, Татьяна Чулюскина | Книжка-раскладушка (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помните, как завораживали в детстве книжки-раскладушки? Сколько радости приносит разворачивание страниц и рассматривание картинок то вместе, то по отдельности?
-Осваиваем три стиля рисования. Узнаем, что такое гротеск и вспоминаем антикву и скрипт. Продумываем последовательность композиций на страницах. Рисуем три страницы книги, одну из которых делаем навыворотку.Производство: kalachevaschoolЖанр: РисованиеПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54453A317EBA48975A68476FCA410F8DFDAC1735
 ```
 
 https://mybot314.ru/tekegram_catalog/

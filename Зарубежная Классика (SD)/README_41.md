@@ -1,3 +1,56 @@
+###  Публикация: 786309   (737936) от 14.05.2014
+
+Привидение / Widziadlo (1984) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помещик Петр, отец большого семейства, приезжает в свою усадьбу с новой женой. В доме все напоминает ему о первой жене Анжелике, которую он безумно любил, но которая умерла несколько лет назад. В каждой женщине — в своей жене, соседке, горничной, он видит образ Анжелики, и это сводит его с ума. Тем временем его сын-подросток Павел начинает задумываться, кто его родители (   Читать дальше...   )Жанр: Ужасы, ДрамаРежиссер: Марек НовицкийАктеры: Роман Вильгельми, Мажена Трыбала, Ханна Микус, Мариуш Бенуа, Мариуш Дмоховский, Ольгерд Лукашевич, Дорота Квятковска, Мацей МазуркевичПеревод: Одноголосый закадровыйПродолжительность: 01:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5392726E218539C3F1B443620AFED9B01665E864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018553   (737669) от 26.01.2022
+
+Он начинает сердиться, или Горчица бьет в нос / La moutarde me monte au nez (1974) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пьер Дюруа, учитель в пансионе для девочек, в свободное время занимается журналистикой. Когда в город приезжает съемочная группа кино, он пишет ядовитую заметку об американской кинозвезде — вулканической Джеки Логан.
+Случайно познакомившись с Джеки, он меняет свое мнение и пытается сделать все, чтобы предотвратить публикацию заметки и ее откровенных фотографий…Производство: ФранцияЖанр: КомедияРежиссер: Клод ЗидиАктеры: Пьер Ришар, Джейн Биркин, Клод Пьеплю, Жан Мартен, Даниэль Миназзоли, Витторио Каприоли, Жюльен Гиомар, Анри Гибе, Жан-Мари Пролье, Клеман Арари, Бруно Бальп, Изабель Со, Анна Гейлор, Изабель Готье, Катрин Де Кёшель, Маню Плютон, Жак ПаолиПеревод: Дублированный, профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C06E1229F8F6BDBDAB4FB42DBA2CB3802B2365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391473   (737474) от 22.07.2020
 
 Представитель закона / Lawman (1971) BDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737474.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737263.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736860.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735307.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735170.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734412.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734374.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733917.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732865.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732860.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732441.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732426.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731874.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731730.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731637.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731443.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731255.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730587.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730488.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730472.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730371.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729682.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729387.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729384.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B96059BA3702672517776F2630224A4EE87D1F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523607   (728804) от 11.02.2022
-
-Ангелы с грязными лицами / Angels with Dirty Faces (1938) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728804.jpg" />
-</div>
-
-
-###  Подробнее
-
-По рассказу Роланда Брауна. Два друга детства вместе совершили кражу. Рокки попался, взял всю вину на себя, сел в тюрьму и стал профессиональным преступником, а Джерри подался в священники. Выйдя из тюрьмы в очередной раз, Рокки отправился к Джиму Фрезеру, своему адвокату-партнёру, распоряжавшемуся всё это время их общими деньгами, а тот вместо доли натравливает (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: нуар, драма, криминал, триллерРежиссер: Майкл КёртисАктеры: Джеймс Кэгни, Пэт О`Брайен, Хамфри Богарт, Энн Шеридан, Джордж Бэнкрофт, Билли Хэлоп, Бобби Джордан, Лео Горси, Гэбриел Делл, Ханц ХоллПеревод: профессиональные многоголосые (Film Prestige; т/к Россия)Субтитры: русские, английскиеПродолжительность: 01:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0641E1E667A2DB59A7D6C8E6C9412636571BCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018937   (728581) от 02.06.2016
-
-Вечеринка / The Party (1968) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мистера Хрунди Ви Бакши пригласили сниматься в кино. Он был слегка рассеян и случайно наступил на рычаг, что привело к взрыву дорогостоящей декорации крепости. Приглашение на ужин, которое так же случайно пришло на его адрес, приводит Бакши в дом директора пострадавшей киностудии. В этом шикарном особняке с бассейном и садом начинается «замечательная» вечеринка, (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Блейк ЭдвардсАктеры: Питер Селлерс, Клодин Лонже, Мардж Чэмпион, Фэй МакКензи, Стив Фрэнкен, Бадди Лестер, Денни Миллер, Гэвин МакЛауд, Кэрол Уэйн, Дик Крокетт, Фрэнсис Дэвис, Даниэль Де МецПеревод: Профессиональный многоголосый (Первый Канал)Субтитры: ОтсутствуютПродолжительность: 01:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E920B3619DCD2D6221396A460C81D77886D4E68E
 ```
 
 https://mybot314.ru/tekegram_catalog/

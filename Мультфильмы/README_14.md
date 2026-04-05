@@ -1,3 +1,134 @@
+###  Публикация: 1616945   (1035828) от 04.03.2023
+
+Корпорация монстров (2001) / Monsters, Inc. (2001) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Склизкий гад в сливном бачке, мохнатый зверь, похожий на чудовище из «Аленького цветочка», гигантские мокрицы под кроватью — все они существуют на самом деле. Все, что им нужно — пугать детей, потому что из детских криков они получают электричество.
+Полнометражный мультфильм рассказывает о кризисах в мире монстров, их жизни. Но однажды вся мирная жизнь монстров оказывается (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Пит Доктер, Дэвид Силверман, Ли АнкричПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (full), английские (full)Продолжительность: 01:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F541BB1F15077491B2A7BD41294FF9FBB536EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443276   (1035651) от 28.01.2021
+
+Вся правда о медведях: Фильм / We Bare Bears: The Movie (2020) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды любовь медведей к фудтракам и вирусным видео выходит из-под контроля, и это привлекает внимание агента Траута из Национального управления дикой природы, который обещает восстановить порядок, разделив друзей навсегда. Изгнанный из дома Гриз решает, что есть только один способ найти убежище — переехать в Канаду! Медведи отправляются в эпическое путешествие, (   Читать дальше...   )Производство: США / Cartoon Network StudiosЖанр: мультфильм, комедия, приключения, семейныйПеревод: Дублированный, профессиональный многоголосый (NewComers)Субтитры: русские, английскиеПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6A4BC61CFD88E40346F567A9A14185EA353E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154996   (1035523) от 05.03.2023
+
+Чертёнок / The Imp (2006) DVDRip (сезон 1, серий 65 из 65)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035523.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Добро пожаловать, последователи Тьмы, в мой мегаужасный мир Зла-а-а-а! Теперь вы мои ученики...!" Вам страшно? На самом деле это - забавный сериал о чертенке, который пытается всем делать пакости. Он считает себя хитрым, находчивым и крутым. Но что бы он не замышлял, все получается лишь весело и забавно. И он такой милый...Производство: Великобритания, BRB Internacional S.A., Red Kite Animations, Screen 21, TV3Жанр: Комедия, семейный, мультсериалРежиссер: Вейн Томас, Энди ДжейнсАктеры: Стефен Мэнгэн, Хелен МакАлпайн, Гэвин Митчелл, Джулиан Райнд-ТаттПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8490882848DA00B66D5D10FE330DB01E3CA6CC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311158   (1035515) от 05.03.2023
+
+Облачно, возможны осадки в виде фрикаделек / Cloudy with a Chance of Meatballs (2009) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой мультфильма  странный ученый Флинт Локвуд, который всегда хотел изобрести что-то такое, что сделает его родной городок счастливым. И вот, у него получилось! Еды теперь хватает всем, и она просто падает с неба, создавая новые пейзажи вокруг: можно любоваться закатом с живописных холмов из фруктового желе. Но иногда вкусные осадки в виде фрикаделек могут (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Фил Лорд, Крис МиллерПеревод: Дублированный + Оригинальная дорожкаЯзык субтитров: английские, французские, испанскиеПродолжительность: 01:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1996DD864D9E748B97CB4E74A7F0EECDAC5F9AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426542   (1035402) от 29.01.2021
+
+Равноденствие оникса / Onyx Equinox (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-12 из 12) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боги ведут войну за будущее человечества. Ацтекский мальчик по имени Изэл оказался втянут в опасную игру. Чтобы спасти человечество, он должен справиться с невыполнимым заданием: закрыть пять врат в подземном мире.Производство: США, CrunchyrollЖанр: Приключения, Фэнтези, Для взрослыхРежиссер: София АлександрПеревод: Многоголосый профессиональный  (NewStation)Субтитры: русские, английские (только первая серия), арабские, португальские, французские, испанские, немецкиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240DC46481A894341174F5ADDFBC427AC4B250E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426543   (1035394) от 29.01.2021
 
 Равноденствие оникса / Onyx Equinox (2020) WEB-DLRip  (сезон 1, серии 1-12 из 12) NewStation
@@ -6,7 +137,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035394.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035305.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035101.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035081.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034824.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034819.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034762.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034582.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034577.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034347.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034039.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033901.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033877.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033860.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033694.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033321.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033226.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033114.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033069.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032947.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032663.jpg" />
 </div>
 
 
@@ -537,137 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3FF3615628BE4AB66A253F0A8705B020F36E531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619889   (1032423) от 18.03.2023
-
-Ледниковый период  / Ice Age (2002 - 2022) BDRip, WEB-DL [H.264/1080p] [Коллекция]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032423.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ледниковый период» (англ. Ice Age) — серия мультипликационных фильмов киностудии Blue Sky Studios, повествующая о приключениях Мамонта, Саблезубого тигра, Ленивца и Саблезубой белки в доисторические времена: от Ледникового периода до Дрейфа континентов. Фильмы из серии выходили в 2002—2016 годах. Планируется создание анимационного сериала по мотивам серии фильмов.Производство: США, Канада / Twentieth Century Fox, Blue Sky Studios, Arc Productions, Bardel EntertainmentЖанр: мультфильм, комедия, приключения, семейный, короткометражкаРежиссер: Крис Уэдж, Карлос Салдана, Майк Тёрмайер, Стив Мартино, Гален Т. Чу, Карен Дишер, Пол Стодольны, Джон С. ДонкинПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:21:09 / 01:30:35 / 01:34:03 / 01:27:44 / 01:34:32 / 00:25:33 / 00:24:48 / 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454A7540063770958591FC6A6752C206F80C811E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446731   (1032389) от 10.02.2021
-
-Незнайка на Луне (1997-1999) WEBRip [H.264/720p-LQ] (серии 1-12 из 12)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032389.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Незнайка на Луне" - грандиозный анимационный проект с участием звездных голосов российской эстрады Кристины Орбакайте в роли Звездочки и Валерия Меладзе с песенным хитом, как лейтмотивом фильма.
-В очаровательной детской фантастике с захватывающим сюжетом, юмором и добротой за развлекательным жанром кроется глубокий смысл. Наряду с приключениями ребенка (   Читать дальше...   )Производство: Россия, FAF EntertainmentЖанр: Рисованная анимация, Музыкальный, Фэнтези, ПриключенияРежиссер: Юрий Бутырин, Александр ЛюткевичСубтитры: Русские, АнглийскиеПродолжительность: 02:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A591DDF720EABB213E96204B3ABEA826BB7EF303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446956   (1032233) от 11.02.2021
-
-Снежная битва / La guerre des tuques 3D (2015) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы развлечься во время зимних каникул, детвора из маленькой деревни решает устроить грандиозное снежное побоище между двумя командами.Производство: Канада / CarpeDiem Film & TVЖанр: МультфильмРежиссер: Жан-Франсуа Пуле, Франсуа БриссонПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24230B035FFF0A9110D672E83237CCB34DDE5FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446906   (1032224) от 11.02.2021
-
-Семейка Бигфутов / Bigfoot Family 3D (2020) BDRip [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все семьи разные, но эта – самая разношерстная. Папа когда-то превратился в Бигфута, сын унаследовал его суперспособности и умение понимать язык животных, так еще и в доме вместе с ними и мамой живет целый зоопарк – огромный медведь, неутомимая белка и беспокойный енот со множеством очаровательных детенышей. Когда же уникальному заповеднику на Аляске понадобится (   Читать дальше...   )Производство: Бельгия, Франция / Belga Productions, nWave PicturesЖанр: мультфильм, приключенияРежиссер: Жереми Дегрусон, Бен СтассенПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full)Продолжительность: 01:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBA971AF9F3E8D334790CDDB90543F3519B8118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607202   (1032207) от 19.03.2023
-
-Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-12 из 12) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: для взрослых, мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джинАктеры: Лора Бэйли, Толизин Джаффе, Эшли Джонсон, Лайам О’Брайэн, Мариша Рэй, Сэм Ригел, Трэвис Уиллингэм, Мэттью Мерсер, Стефани Беатриз, Хари ПэйтонПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F9C523567CE54CCDCAC5DA44A03B0C22EE50AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

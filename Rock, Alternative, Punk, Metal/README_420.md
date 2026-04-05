@@ -1,3 +1,148 @@
+###  Публикация: 1139202   (658271) от 04.06.2017
+
+Madder Lake - Stillpoint (1973) Reissue, 1991,  Mushroom [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Salmon Song
+2. On My Way To Heaven
+3. Helper
+4. Listen To The Morning Sunshine(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999DF1833B02C3FC91A18662F45F053BE61B0613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139646   (658222) от 04.06.2017
+
+The Bullets - Somethin` Real Good! (2017) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Put a spell on me (02:25)
+02. Do what I did (01:57)
+03. Somethin' real good (02:48)
+04. Don't regret me (02:43)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CC1AE42393C5981896982BBAF6A588544E00EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139696   (658216) от 04.06.2017
+
+Smith - A Group Called Smith (1969) Reissue, 1994, Varèse Sarabande[MP3|320 Kbps] <Rock, Psychedelic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Together
+02. I Don't Beleive
+03. Tell Him No
+04. Who Do You Love(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Pop RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4615EA7B0B1ABF5307166CD80F340E5DBCB216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139920   (658214) от 04.06.2017
+
+Earshot - Two (2004) [FLAC|Lossless|tracks + .cue] <Alternative, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658214.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wait (3:33)
+2. Tongue-Tied (3:46)
+3. Fall Apart (4:31)
+4. Someone (3:45)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F2F2C0E0A604F335E6B1A71BE8BDB4681E87EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139847   (658212) от 04.06.2017
+
+The Mudcats - Shake It Up (2017) [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Told You Before (02:03)
+02. The Crawl (02:41)
+03. Diddy Wah Diddy (02:12)
+04. The Key (03:31)(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD01211A1C79CB6758447B5C1E9E593350319BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903439   (658167) от 31.05.2015
 
 Mount Shasta Collective - Beast (2015) [MP3|320 кб/с]<Post-Metal, Post-Rock>
@@ -6,7 +151,7 @@ Mount Shasta Collective - Beast (2015) [MP3|320 кб/с]<Post-Metal, Post-Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658167.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Direblaze - Direblaze (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658086.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Vermillion Road - Palaces (2015) [MP3|320 кб/с]<Modern / Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658084.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Sister Sparrow & The Dirty Birds - The Weather Below (2015) [MP3|320 кб/с]<Fu
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658078.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Liv Sin (ex-Sister Sin) - Follow Me (2017) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658039.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Signum Regis - Through The Storm (2015) EP [MP3|320 кб/с]<Power Metal, Melodi
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657996.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Perzonal War - The Last Sunset (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657993.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Thurisaz - The Pulse of Mourning (2015) [FLAC|image+.cue]<Melodic Death/Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657983.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Luciferian Light Orchestra - Luciferian Light Orchestra (2015) Limited Edition [
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657980.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - Beautiful Day (featuring R. Stewart, J. Cocker, Free and many more) (2004) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657951.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Adrenaline Mob - We The People (2017) [MP3|320 Kbps] <Heavy Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657931.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Jorn - Life on Death Road (2017) [MP3|320 Kbps] <Hard'n'Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657917.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ ANA - Metal for Charity Project (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657912.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Accept - The Rise Of Chaos (2017) Single [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657815.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Tankard - One Foot In The Grave (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657810.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Paradise Lost - The Plague Within (2015) [FLAC|tracks]<Doom Metal/Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657777.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Muse - Drones Singles (2015) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657763.jpg" />
 </div>
 
 
@@ -495,7 +640,7 @@ Amorphis - Queen of Time (2018) Limited Edition [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657740.jpg" />
 </div>
 
 
@@ -524,7 +669,7 @@ Roger Waters - Is This the Life We Really Want? (2017) [MP3|320 Kbps] <Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657701.jpg" />
 </div>
 
 
@@ -553,7 +698,7 @@ The Birthday Massacre - Under Your Spell (2017) [MP3|320 Kbps] <Gothic Rock, Ind
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657700.jpg" />
 </div>
 
 
@@ -582,7 +727,7 @@ John Lennon - Icon (2015) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657673.jpg" />
 </div>
 
 
@@ -595,151 +740,6 @@ John Lennon - Icon (2015) [MP3|320 кб/с]<Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA34E975E215ED6DAD6509658D7B9D4176EC08A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903507   (657665) от 31.05.2015
-
-АнтитілА (Антитела) - Все красиво (2015) [MP3|320 кб/с]<Pop Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Все красиво
-02. Хороша пісня
-03. Дій
-04. Мені тебе мало(   Читать дальше...   )Жанр: Pop Rock, RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52595FE27775DF074275786C610AD083C74F25D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138998   (657610) от 04.06.2017
-
-СерьГа - Приметы (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Сказочный лес
- 02 Приметы
- 03 Крылья за спиной
- 04 Блюз Шапито(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664AEB95FE0820E3C18157C0B27FEB8BCD0A2BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539584   (657302) от 26.03.2022
-
-Dorian Wilde - Unlimited (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Progressive Sunrise (00:05:57)
-02 - We Are Two (00:04:10)
-03 - Unlimited (00:07:42)
-04 - Empty Days (00:05:29)(   Читать дальше...   )Жанр: Progressive Rock, FusionПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4D596AEF6FA7D3C69BBD5FF0C861DD3EB5F539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539587   (657301) от 26.03.2022
-
-Spiritraiser - Ciklos (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Artificial Light (00:05:45)
-02 - Invisible Enemy (00:04:38)
-03 - Glory (00:04:30)
-04 - Stream (00:04:04)(   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD7C9BD130425050624DD223AB02F788F9579DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539589   (657275) от 26.03.2022
-
-The Urban Sea - Fall Back To Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Apocalypse (00:04:51)
-02 - Smoke Alarm (00:03:17)
-03 - Silver Tongue (00:05:06)
-04 - Like a River (00:04:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E014D1BDFB29E6823FFF95FB62BF426413DD2737
 ```
 
 https://mybot314.ru/tekegram_catalog/

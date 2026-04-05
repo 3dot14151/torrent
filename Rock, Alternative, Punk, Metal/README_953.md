@@ -1,3 +1,32 @@
+###  Публикация: 1586834   (213961) от 29.10.2022
+
+Royal Hunt - Dystopia, Pt. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midway (Resumption)
+02. Thorn In My Heart
+03. The Key Of Insanity
+04. Live Another Day(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856A0D9EAAAAE62AF559E50BA5019590E8ECE8DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193833   (213957) от 23.12.2017
 
 AC/DC - The Razors Edge (1990) X-Cellent only for sale in CIS, 2003 [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +35,7 @@ AC/DC - The Razors Edge (1990) X-Cellent only for sale in CIS, 2003 [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213957.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Evil Minds - Eyes of Tomorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213952.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dead City Ruins - Shockwave (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213938.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213931.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Evil-Minded - Lucy's Fate (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213930.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ AC/DC - Black Ice (2008) Digipack for sale in CIS 06573249 [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213929.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Binary Creed - Inferno (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213923.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Fear Factory - Recoded (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213919.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ John Norum - Gone To Stay (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213912.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Bon Jovi - 100,000,000 Bon Jovi Fans Can't Be Wrong (2004) Box Set: 4 CD [OGG Vo
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213904.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Sodom - 40 Years at War - The Greatest Hell of Sodom (2022) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213896.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ David Knopfler - Shooting for the Moon (2021) [FLAC|Lossless|WEB-DL|tracks] <Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213889.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Fear Factory - Recoded (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213888.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Joe Lynn Turner - Belly Of The Beast (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213878.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Bad Wolves - Dear Monsters (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alt.Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213870.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Barnabas Sky - Inspirations (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213862.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Polyphia - Remember That You Will Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213857.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Lake Cyanide - Lake Cyanide (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213838.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Lintver - Distorted Perception (2016) Reissue, 2017, PRC Music [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213832.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Signs Preyer - Mammoth Disorder (2015) [MP3|320 Kbps] <Groove Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213825.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Therion - Leviathan II (2022) [FLAC 2.0|24/44|WEB-DL|tracks] <Symphonic Operatic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213821.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Karmen Field - Black Star Emperor (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213813.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ AC/DC - Back In Black (1980) X-Cellent only for sale in CIS, 2003 [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213808.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Shores of Null - Black Drapes for Tomorrow (2017) [MP3|320 Kbps] <Melodic Black,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213799.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Adrenaline Rush - Soul Survivor (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213739.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Adrenaline Rush - Soul Survivor (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E893810772B46769CD9A992E7FBC24CDB181B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344077   (213737) от 09.12.2019
-
-KillHammer - Время скверны (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пир во время чумы
-02. Путь крови
-03. Демон внутри
-04. Молот возмездия(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330B557085DE01BE4C1F36BD268157BB1BDF65E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

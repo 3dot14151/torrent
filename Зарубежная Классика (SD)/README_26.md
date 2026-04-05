@@ -1,3 +1,55 @@
+###  Публикация: 1107651   (855319) от 01.03.2017
+
+Побег в никуда / Ride in the Whirlwind (1966) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот вестерн рассказывает историю о том, как невиновный человек может оказаться вне закона. Три ковбоя оказались в ненужном месте не в то время и были приняты за банду линчевателей. Двое из ковбоев убиты и последний становится вне закона. Если он останется жить…Производство: СШАЖанр: ВестернРежиссер: Монте ХеллманАктеры: Кэмерон Митчелл, Милли Перкинс, Джек Николсон, Кэтрин Скуайр, Джордж Митчелл, Руперт Кроссе, Гарри Дин Стэнтон, Джон Хэкетт, Том Файлер, Брэндон Кэрролл ...Перевод: Профессиональный многоголосый (DVD Магия)Субтитры: ОтсутствуютПродолжительность: 01:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19EE0DD3A45937B85F2CACA36D70860419FB64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110063   (855228) от 01.03.2017
+
+Большой Джейк / Big Jake (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейкоб МакКендл после долгого отсутствия возвращается домой и узнаёт от жены скверные вести — пока его не было, на ранчо заявилась банда отморозков и, похитив его маленького внука, начала требовать за него миллион долларов выкупа.Производство: США, Мексика / Batjac Productions, Cinema Center FilmsЖанр: Боевик, Драма, Криминал, ВестернРежиссер: Джордж Шерман, Джон УэйнАктеры: Джон Уэйн, Ричард Бун, Патрик Уэйн, Кристофер Митчем, Брюс Кэбот, Бобби Уинтон, Гленн Корбетт, Джон Дусетт, Морин О’Хара, Джим ДэвисПеревод: Многоголосый закадровый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E245D117EAFF0272C3F775F097DD092E74A6321B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 647285   (854320) от 24.04.2013
 
 Как украсть миллион / How to Steal a Million (1966) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854320.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854276.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854172.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853694.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853598.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852635.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852327.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852029.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851969.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851953.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851871.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851809.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851765.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851063.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851007.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850266.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850252.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850247.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850244.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850206.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850192.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850026.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850016.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849273.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B13EC3A152756BF4E4780006911C00F2ABC79A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842559   (848490) от 31.03.2016
-
-Вор / Le voleur (1967) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Франция, Италия / Compania Cinematografica Champion, Les Productions Artistes Associs, Nouvelles ditions de FilmsЖанр: Драма, Комедия, КриминалРежиссер: Луи МальАктеры: Жан-Поль Бельмондо, Женевьев Бюжо, Мари Дюбуа, Жюльен Гиомар, Поль Ле Персон, Кристиан Люд, Франсуаза Фабиан, Марлен Жобер, Бернадетт Лафон, Мартин СарсиПеревод: Двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888CCBDEA817983719C1AAABA9791468781D7941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998721   (848313) от 31.03.2016
-
-Барбарелла / Barbarella (1968) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой ученый по имени Дюран-Дюран неожиданно исчез в неизведанных окрестностях звезды Тау-Сети по пути на Полярную Звезду. Казалось бы — ну и что? Мало ли какие дела могли появиться у уважаемого ученого?
-Однако Президент Солнечной Системы прекрасно осведомлен, что Дюран-Дюран изобрел такую великую игрушку, как позитронический луч, которая может уничтожить не только (   Читать дальше...   )Производство: Франция, Италия / Dino de Laurentiis Cinematografica, Marianne Productions S.A.Жанр: Фантастика, Фэнтези, Комедия, ПриключенияРежиссер: Роже ВадимАктеры: Джейн Фонда, Джон Филлип Ло, Анита Палленберг, Майло О’Ши, Марсель Марсо, Клод Дофен, Вероника Венделл, Джанкарло Кобелли, Серж Маркан, Нино МускоПеревод: Многоголосый закадровый х2Язык субтитров: Русский, английскийПродолжительность: 01:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7672D4F58773F91C8B8CF335D3A1577B1FF41A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1841876   (1048282) от 13.12.2025
+
+Черная вуаль (1995) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048282.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа "Отравленная совесть" Александра Амфитеатрова.
+Петербургский меценат Андрей Рокшин богат, умен, обаятелен, смел - с ним связана не одна женская судьба. Однако Рокшина убивают у него дома. Следователь Синев находит голубой конверт и, таким образом, получает в руки улику, свидетельствующую об убийстве.Производство: Россия / Мосфильм, Ритм, РоскомкиноЖанр: мелодрама, криминалРежиссер: Александр ПрошкинАктеры: Ирина Метлицкая, Александр Абдулов, Татьяна Васильева, Сергей Маковецкий, Ирина Розанова, Наталья Петрова, Маргарита Шубина, Владимир Ильин, Петр Янданэ, Валерий ДоронинСубтитры: отсутствуютПродолжительность: 01:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0799B5855142038444C58F4E99F41B53FC80AE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841739   (1048214) от 12.12.2025
 
 Шкура (1991) WEBRip [H.264/1080p]
@@ -6,7 +33,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048214.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047622.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047552.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047112.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047060.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047057.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046933.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046850.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046740.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046739.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046729.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046700.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046623.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046606.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046580.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046519.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046518.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046369.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046302.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046292.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046290.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046238.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046095.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045965.jpg" />
 </div>
 
 
@@ -632,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045551.jpg" />
 </div>
 
 
@@ -643,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96FB0C34A440CF54C0451887743C2AB604DC20B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603963   (1045542) от 11.01.2023
-
-Рядом (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кира — типичный, внешне благополучный представитель миллениалов. Кира выстраивает жизнь по своим правилам, но судьба вносит коррективы. Опыт трагедии вынуждает ее переосмыслить отношения с матерью и принять прошлое своей семьи, чтобы шагнуть в будущее новым человеком.Производство: Россия, Пан-Атлантик СтудиоЖанр: драмаРежиссер: Тамара ДондурейАктеры: Екатерина Ермишина, Илья Маланин, Ингеборга Дапкунайте, Татьяна Друбич, Александр Алябьев, Максим Стоянов, Полина Виторган, Марина МанычПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4082C82A61763D002886C835DD125D5045D746
 ```
 
 https://mybot314.ru/tekegram_catalog/

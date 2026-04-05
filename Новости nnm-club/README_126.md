@@ -1,3 +1,57 @@
+###  Публикация: 355586   (623588) от 10.04.2019
+
+Евгений Карташов | Photoshop CS5 от A до Я [2011] [Iso + Bonus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623588.jpg" />
+</div>
+
+
+###  Подробнее
+
+CS5 - одна из самых удачных версий фотошопа за последнее время. Не даром уже более 50% пользователей фотошопа использует именно её.
+Но проблема в том, что с каждой новой версией в фотошопе появляются все новые и новые инструменты и функции, а также изменяется внешний вид рабочего окна.
+Для новичка это просто головная боль! Об этом свидетельствуют многочисленные письма, (   Читать дальше...   )Жанр: Дизайн, графикаФормат: Iso
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9D85AE7E55FA46EAFBB9AEC6D017691BEE937C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543764   (623320) от 14.04.2022
+
+Популярнейший торрент-трекер, многократно попадавший под блокировку, объявил, что принадлежит видному борцу с пиратством
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный испанский торрент-трекер, распространяющий пиратское видео, после нескольких десятков случаев блокировки внутри страны решил защищаться оригинальным способом – указать в качестве владельца вице-президента американской ассоциации кинокомпаний, непримиримого борца с пиратством.Данный шаг администраторами ресурса, вероятно, расценивается лишь как остроумная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908141   (623189) от 19.06.2015
 
 HaoZip 5.3.1 Build 10340 Ru-Board Edition [Multi/Ru]
@@ -6,7 +60,7 @@ HaoZip 5.3.1 Build 10340 Ru-Board Edition [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623189.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Need for Speed: Most Wanted - Technically Improved [Ru] [RePack] 2010
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_623107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623107.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Sacred 2 Gold: Падший Ангел + Лёд и Кровь [Ru] (L) 2010
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_623101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623101.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623089.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ ProDAD Mercalli V2 Plugin 2.0.121 Tech. r79 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623084.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623081.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ Multi Utilities 2015 5.1.6 by Муллин Иван [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623078.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623075.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622443.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ ESET NOD32 Antivirus 9.0.386.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622133.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ Stop SMS Live & Boot v.2.7.13 [Русский и английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622112.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.3) [Ru] 2012 l Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622102.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ The Elder Scrolls V: Skyrim - Компиляция модов v5 (Mod) {1.5.26.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622096.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Primo Ramdisk Ultimate Edition 5.6.0 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622089.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621468.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621278.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_621271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621271.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_621266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621266.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621035.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_620642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_620642.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.0.1.2/reg1.02) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620501.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620491.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_620451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_620451.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ Parallels Desktop for Mac 9.0.24237 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620449.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ Parallels Desktop for Mac 9.0.24237 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246964981AB6EC437720FCDF0B1267CDD8AB83EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035360   (620303) от 20.07.2016
-
-2001 год: Космическая одиссея / 2001: A Space Odyssey (1968) BDRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620303.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Космическая одиссея 2001 года" - плод совместного творчества известного британского кинорежиссера Стэнли Кубрика и не менее известного британского писателя-фантаста сэра Артура Кларка, несомненно, является лучшим англо-американским научно-фантастическим фильмом 20 века. Безукоризненное мастерство Кубрика и философская глубина идей Кларка позволили миру (   Читать дальше...   )Производство: Великобритания, США (кинокомпания: «Metro-Goldwyn-Mayer», «Stanley Kubrick Productions»Жанр: Фантастика, Приключения, ДрамаРежиссер: Стэнли КубрикАктеры: Кир Дулли, Гари Локвуд, Уильям Сильвестер, Дэниэл Риктер и др.Перевод: Многоголосый закадровыйЯзык субтитров: Русский, украинский, английскийПродолжительность: 02:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCA12C622A78CE58F4BA89029647CA4A94C148F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265500   (619936) от 12.04.2019
-
-Darksiders III / Darksiders 3 (2018) [Ru/Multi] (1.4/dlc) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darksiders III — долгожданная третья глава популярной серии Darksiders. В Darksiders III вы вернетесь на мертвую Землю в роли ЯРОСТИ, которая намерена найти и уничтожить Семь смертных грехов.Тип издания: LicenseРазработчик: Gunfire GamesЖанр: Action, RPG 3rd Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0135E43250861557A521D006E6A4DBCC39C08AC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

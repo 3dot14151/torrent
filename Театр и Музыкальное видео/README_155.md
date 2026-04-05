@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36441.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36240.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35178.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35126.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35072.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35033.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35027.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35025.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35020.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35007.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35005.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35002.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35001.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34990.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34908.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34907.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34904.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34902.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34901.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34896.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34895.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34885.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34836.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34471.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34083.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34058.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1650069   (194941) от 30.07.2023
+
+Max Twain | Workshop Июль 2023: Создание нейроартов в нейросети Stable Diffusion (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеозапись прямого эфира с процессом создания нейроартов в нейросети "Stable Diffusion"
+- Интересный и динамичный процесс
+- Быстрый результат прям в процессе
+- Доработка арта в Photoshop(   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 03:41:58Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC4BE46E70EBB07850EEE97F0B4A96F8FE43702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650151   (194914) от 31.07.2023
 
 Udemy, Nafay Sheikh | Unreal Engine 5: Realistic Product Animation / Visualization (2023) WEB-DL [AD] [EN]
@@ -6,7 +35,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Realistic Product Animation / Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194914.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Abbas Masri | The Complete Android 14 Developer Course - Build 100 Apps (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194882.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194842.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Udemy, Richard Chesterwood | Kubernetes Hands-On - Deploy Microservices to the A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194627.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ Abbas Masri | Mastering Android App Development with Kotlin [XML +COMPOSE] (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194586.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ Udemy, Richard Chesterwood | Istio Hands-On for Kubernetes (2023) WEB-DL  [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194529.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ Stepik, Shultais Education, Никита Шультайс | Проектиров
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194493.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194350.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ HOP&SCOTCH | Английский: Продвинутый Уровень (2023) 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194348.jpg" />
 </div>
 
 
@@ -257,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194344.jpg" />
 </div>
 
 
@@ -286,7 +315,7 @@ Stepik, Илья Фофанов | React - Полное руководство (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194313.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ Kalachevaschool, Анна Эгида | Цветная графика (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194297.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ The Gnomon Workshop, Sean Marino | Creating a Sci-Fi Pistol for Games (2023) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194271.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ Andrii Piatakha | Software Architecture and Clean Code Design in OOP (2022) WEBR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194269.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ Infostart, Николай Бондаренко | Видеокурс «1C - Пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194268.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Easy Cinematic Environments (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194258.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Boundless Entertainment, Sam Eisenhower | Unreal Engine for Filmmakers - Advance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194237.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Canopy Games, Erindale Woodford | BCS: Geometry Nodes For Blender 3.3+ (2022) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194212.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ Udemy, Gustavo Rosa | Learn Blender Compositor! (2022) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194202.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194175.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194159.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194153.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Udemy, Yusuf Katı | Improve English by Movies (2022) WEB-DL [AD] [EN / EN Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194117.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Babokschool, Анна Вичугова | Методы описания бизн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194088.jpg" />
 </div>
 
 
@@ -680,7 +709,7 @@ Skypro, Александр Оспищев, Никита Маклахов, Ива
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194053.jpg" />
 </div>
 
 
@@ -694,34 +723,6 @@ Skypro, Александр Оспищев, Никита Маклахов, Ива
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F618BC7BCA3EA350EC48A68870D258503D3A28A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654120   (194049) от 19.08.2023
-
-IndigoGo, Денис Швец | Онлайн-курс по развитию вашей речи и дикции (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по развитию дикции включает в себя 3 объёмных, насыщенных практикой видеоурока. Каждый урок - это полноценная тренировка, благодаря которой ваша дикция будет становиться чётче, а голос сильнее и увереннее с каждым днём!
-
-При регулярном выполнении упражнений вы выработаете правильную артикуляцию, избавитесь от погрешностей дикции, скорректируете произношение (   Читать дальше...   )Производство: IndigoGoЖанр: ораторское искусство, дикция, артикуляцияЯзык озвучки: русскийПродолжительность: 01:12:33Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857BCD978DA24857724F8BCA7655113F04062E8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

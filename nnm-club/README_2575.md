@@ -1,31 +1,22 @@
-###  Публикация: 609372   (991293) от 28.01.2013
+###  Публикация: 1353152   (992435) от 17.01.2020
 
-VA - Creative Electro Box 2 (2013) [MP3|320 кб/с]<Electro House, House, Electro>
+Джеймс Кори | Гнев Тиамат (2019) [MP3]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 12th Planet - The End Is Near, Pt. 1 (Felguk Remix)
-2. Avicii feat. Nicky Romero - I Could Be the One (Dirty Dutch Visionaire Remix)
-3. Avicii feat. Nicky Romero - I Could Be The One (Seif Remix)
-4. Bruno Mars - Locked Out Of Heaven (Sultan feat. Ned Shepard Remix)
-5. Dada Life - So Young So High (Andybody Remix)
-6 .Deorro - Hands Up
-7. Direct - Zombie
-8. Hot Mouth feat. Chris James - Totally Worth It (Peacetreaty Remix)
-9. Jean Elan feat. Cosmo Klein - All About Us (Pyero Remix)
-10. Joe Luthor- Sad Memories (Clonation Remix)(   Читать дальше...   )Жанр: Electro House, House, ElectroПродолжительность: 02:46:36
+Тысяча триста Врат открылись в другие солнечные системы по всей галактике. Но по мере того, как человечество строит свою межзвездную империю на руинах Чужих, число угроз и загадок становится лишь больше. В мертвых системах, где Врата ведут к вещам более странным, чем планеты Чужих, Элви Окойе отчаянно пытается выяснить причины геноцида, случившегося задолго до появления (   Читать дальше...   )Жанр: Космическая, Военная, Социальная фантастикаПродолжительность: 18:05:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C7FEAE8AEAC7B13EC6E631BFC3B3CDB6EB1C909
+magnet:?xt=urn:btih:448A870F3CBDC179B1C36ADD3E1954C1FF11121D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,29 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608309   (991292) от 28.01.2013
+###  Публикация: 1353289   (992434) от 17.01.2020
 
-VA - Club Dubstep №24 - HNY (2012) [MP3|320 кб/с]<Dubstep>
+Проекты - VideoHive - Summer Slideshow - 20373386 [AEP]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  1 501 - Chasing Stars (04:43)
-02.  2 501 - Headrush (feat. Belle Humble) (04:31)
-03.  3 Ain't No Love - Shine (03:43)
-04.  4 ak9 - Everything Matters (Original Mix) (04:45)
-05.  5 Ben Kumar, Roy Merchant, Grainne O'Neill - Street Lights (03:54)Жанр: DubstepПродолжительность: 02:17:51
+Summer Slideshow - динамичный, легкий проект, отлично подойдет для фото, видео материала снятого в путешествии или на празднике.
+Автор проекта: TrixVFXФормат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE9BD559831A937ABE3A86AD4A1B8C15296FE004
+magnet:?xt=urn:btih:6396DB29A83763F974A7BDA9C0EE535BFD8769B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -63,266 +51,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609497   (991291) от 28.01.2013
+###  Публикация: 609686   (992429) от 27.01.2013
 
-VA - Cahaya Dari Jiva (2012) [MP3|320 кб/с]<Chillout, Ambient, Downtempo>
+Various Artists - Jazz & Hitzaz No. 2 (1998) [FLAC|Lossless]<Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992429.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Sonnie Mishki - Lost Planet (Mushroom Lab Touch)
-2. By The Rain - Mystical Water
-3. Wavespell - White Wispers Dub
-4. Tymek - Transgalactic Jazz
-5. Heliopatis - Recognition Of Emptiness
-6. Dream Stalker - Under Moon
-7. Astronaut Ape - Your Personal Sun
-8. Faura - Keep On Going
-9. Tarac - ComakinoЖанр: Chillout, Ambient, DowntempoПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2374C63110FD1482376D9C4A41D245BE9149C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608303   (991289) от 28.01.2013
-
-VA - Club Dubstep №23 - ERROR (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savant -Welcome To Death (03:05)
-02. Ascendance, The Nineties, Cori Pena, Drop Goblin -Come Find Me (Drop Goblin Remix) (05:36)
-03. Bassnectar & DC Breaks -Breathless feat. Mimi Page (05:27)
-04. Booty Luv -Say It (Nero Remix) (05:30)
-05. Cassius -I Love You So (Schoolboy Remix) (04:20)
-06. Cutline -Die For You (JMajik And Wickaman Remix) (05:37)
-07. Cypress X Rusko -Lez Go (FRNKNSTYN Remix) (03:42)Жанр: DubstepПродолжительность: 02:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD42B04A5659809FBF4247203CAB6FDF3639AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609999   (991288) от 28.01.2013
-
-VA - Drum and Bass Pro V.2 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.P.Y - You
-02. D.M.T, Sensa - I'm Holding On (Original Mix)
-03. Ruffhouse - The Foot (Original Mix)
-04. Keosz & Trilo - Pride (Orignal Mix)
-05. D-Pression - 3rd Trimester (Original Mix)
-06. Smote feat. Flautistar - I Believe You Do (Original Mix)
-07. Muzzy - Pegasus ft. Roniit
-08. Dementia & Basses Intentions - Shocking Eruption
-09. Halosphere - Run Away (Aurosonic Remix)
-10. Modest Intentions - Look Around You (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA730F09DC7DF37299875C6B4710A8EAE66F806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610073   (991286) от 28.01.2013
-
-Журнал | Здоровье [Россия] №2 (февраль 2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, antiage, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFA60B516FD076A455907FEAE210123FB5EEBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608673   (991285) от 28.01.2013
-
-Johnny Burnette - The Ballads Of (2010) [MP3|320 кб/с]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamin'
-02. Clown Shoes
-03. My Special Angel
-04. Please Help Me I'm Falling
-05. Shattered Dreams
-06. I'll Never Love Again
-07. Love Me
-08. You're Sixteen
-09. I Just Found Out
-10. Settin' The Woods On Fire(   Читать дальше...   )Жанр: popПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685E395360AA4774FA28C3F5FCFE2E2CF0F18C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610050   (991278) от 28.01.2013
-
-Газета | Сезон у дачи №2 (январь 2013) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD63F4C434984F9A22583A4001E7F171EFD9666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609285   (991277) от 28.01.2013
-
-Коалиция / The Coalition (2013) BDRip [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991277.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о четырех молодых женщинах, которые объединяются. чтобы отомстить четверке перспективных спортсменов за предательство и публичные оскорбления...Жанр: Комедия, МелодрамаРежиссер: Моника МингоАктеры: Адриенн Белон, Джеке Гарри и Х.Р. РамиресПеревод: ОтсутствуетПродолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111AEDD2DD97E087B7F3988DE768EFFCF1524E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610111   (991276) от 28.01.2013
-
-Сборная СССР | Буклет к ЧМ 1986 года. [1986] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборная СССР по футболу.
-Буклет к ЧМ 1986 года.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC66B1DB721B69146BD558E12705C6242C46E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609985   (991274) от 28.01.2013
-
-Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One More (Extended Mix) (8:21)
-02. Just One More (Dub Mix) (5:53)
-03. Just One More (MANIK Remix) (6:07)
-04. Just One More (Martin Roth Remix) (5:57)
-05. Just One More (Radio Edit) (3:45)Жанр: Progressive House, House, Deep HouseПродолжительность: 00:30:04
+01. Nick Rassias - You Don't Love Me (2:43)
+02. Gus Vali And His Dixieland Band - 12th Street Rag  (2:48)
+03. Buddy Sarkissian & The Mecca Four - Caravan  (3:30)
+04. Nick Demetrius And The Athenian Forum - Hello Dolly (2:46)
+05. George Mgrdichian - Yesterday (1:41)
+06. Gus Vali And The Caravan - Whyek (5:15)
+07. Phil Woods & Iordanis Tsomidis - Nica  (5:48)
+08. Markos Melkon With R. H. Mozian Orchestra - Asia Minor  (2:43)
+09. Oudi Hrant, Tassos Halkias, Emin Gunduz - Oriental Improvisations (5:11)
+10. Nick Demetrius And The Athenian Forum - The Shadow Of Your Smile  (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:36
 
 ## Скачать торент
 ```bash
@@ -334,25 +86,95 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609127   (991272) от 28.01.2013
+###  Публикация: 609644   (992422) от 27.01.2013
 
-Фотография - Ulorin Vex [JPEG]
+Various Artists - Gershwin Jazz (1998) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slim Gaillard - Oh, Lady Be Good (2:29)
+02. Lee Konitz, Jimmy Giuffre - Someone To Watch Over Me (3:38)
+03. Billie Holiday - They Can't Take That Away From Me (4:12)
+04. Ben Webster - Love Is Here To Stay (3:24)
+05. Oscar Peterson - Liza (All The Clouds 'll Roll Away) (4:31)
+06. Clifford Brown - Embraceable You (3:02)
+07. Lester Young - The Man I Love (4:50)
+08. Charlie Parker - I Can't Get Started (3:10)
+09. Joe Williams - Embraceable You (4:38)
+10. Coleman Hawkins - Somebody Loves Me  (3:53)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606121   (992421) от 27.01.2013
+
+Hardwell - On Air 099 (18.01.2013) [MP3|320 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jewelz & Scott Sparks - NYMSN (Original Mix)
+02. Dannic - Clobber
+03. Hardwell Exclusive - W&W & Ummet Ozcan - The Code
+04. Porter Robinson & Mat Zo vs Charlie Darker - Easy Atlantic (Hardwell MashUp)
+05. Depeche Mode - Enjoy The Silence (Tom Staar & Kryder Remix)
+06. Dyro vs Henrix - Hit Is vs Top Of The World (Hardwell MashUp)
+07. Afrojack - Rocker
+08. Joe Ghost - Are You Ready (Hardwell Rework)
+09. Demo Of The Week - Zedd - Clarity (eSQUIRE Remix)
+10. Dani L. Mebius and DJ Punish - Rockin' (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5E4DAEAF0CA1B617D26E33F3453B59E97E7E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609579   (992415) от 27.01.2013
+
+Wallpapers - Large collection of wallpapers vol.5 (27.01.13) [JPG]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Ulorin VexРазрешение файлов: 388x576 ~ 1612x2000Формат: JPEG
+Разрешение файлов: 1600х1200 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC3904762F3E757ACFEA2C8108055EA0BFAB37B8
+magnet:?xt=urn:btih:96261F516F33109026EC681585B7ABFC38FD4226
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,34 +182,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 608662   (991270) от 28.01.2013
+###  Публикация: 431213   (992406) от 04.01.2012
 
-Franco Simone - C'Era Il Sole Ed Anche Il Vento (2011) [MP3|320 кб/с]<pop>
+Хоккей. Чемпионат мира среди молодежных команд в Канаде. 1/4финала. Россия-Чехия (2012) HDTVRip [H.264]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Respiro (3:32)
-02.Cara Droga (3:38)
-03.Tu... E Cosi Sia (4:11)
-04.Sogno Della Galleria (4:11)
-05.Malafemmena (4:51)
-06.Paesaggio (3:31)
-07.Tu Per Me (3:39)
-08.Tentazione (3:19)
-09.Fiume Grande (3:31)
-10.Notte Di San Lorenzo (4:12)(   Читать дальше...   )Жанр: popПродолжительность: 00:59:45
+Чемпионат мира по хоккею с шайбой среди молодежи (игроков не старше 20 лет) — ежегодное соревнование, организуемое Международной хоккейной федерацией с 1977 года.
+Место проведения: Калгари, Эдмонтон.Жанр: СпортПродолжительность: 02:00:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F40B9062CCEA32445EFFDA26537335534A89C94
+magnet:?xt=urn:btih:C5A55768EC3A4BF24073BAAFE5EEDFFD8BA528CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,25 +209,208 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349442   (991269) от 18.01.2020
+###  Публикация: 1350298   (992393) от 17.01.2020
 
-Дождливый день в Нью-Йорке / A Rainy Day in New York (2019) BDRemux [H.264/1080p]
+Дакар 2020 вместе с КАМАЗ-мастер (2020) WEB-DL [H.264/1080p-LQ] (Серии 1-15 из 15)
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992393.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дакар-2020»: гонщики «КАМАЗ-мастер» едут за победой в пески Саудовской АравииПроизводство: КАМАЗ-мастерЖанр: Спорт, АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:10:00 - 00:29:00 — серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AA5100AF6E58C08D87299163A781F9975A59BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353233   (992392) от 17.01.2020
+
+Тор: Рагнарёк / Thor: Ragnarok (2017) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Walt Disney Pictures, Marvel StudiosЖанр: фантастика, боевик, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AD1D4E0C36AD01B57F862AC150779D6DC649CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353359   (992391) от 17.01.2020
+
+3D модели - Blender Cloud - Julien Kaspar - Rain [BLEND]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992391.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D модель девушки Rain для Blender 2.8.Формат: BLEND
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAC42BB3D4B66E3691DC1A83152FFF0267334AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353191   (992390) от 17.01.2020
+
+Call of Duty: Strike Team v1.0.40 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: Strike Team - отличное продолжение знаменитой игры на андроид. 2020 год, среди мировых держав возникает напряжённость. На США было совершенно неожиданное нападение Ваша миссия заключается в проведении ряда секретных миссий для того чтобы выследить и уничтожить своего врага. В игре использована революционная возможность динамически переключаться с вида (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 23.08.2017Разработчик: Activision Publishing, Inc.Поддерживаемая ОС: Android 4.0+Жанр: ЭкшеныЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86A410747623CCC7D6EC0F44FF1317ABF424B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216903   (992388) от 17.01.2020
+
+Приключения на ПЛАНЕТЕ ЧИСЕЛ 2 {5+} (L) [Ru] (2000)
+
+>>Детские PC Игры
+>>Развивающие Игры для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе, что однажды, проснувшись утром, выобнаружили, что все числа на свете... просто исчезли. Теперь никто не сумеет сказать вам, сколько яблок брать с собой в школу или сколько монеток отдать за билет в автобусе. Жизнь превратилась в самый настоящий кошмар, и никто вам не поможет, пока вы не уговорите числа вернуться домой! Скажете, так не бывает? Но (   Читать дальше...   )Тип издания: LРазработчик: Data SunЖанр: Обучающие игрыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582F869BBAF34BA0ED960ACF47098C84A7B217C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353280   (992387) от 17.01.2020
+
+Проекты - VideoHive - Website Presentation - 23215860 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации вашего веб-сайта, продвижения различных товаров, демонстрации видов услуг. Представлен в двух цветовых вариантах - чёрном и белом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814FC7DEE7A1EDC8E625371EA6A3FD58E550D8A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353193   (992386) от 17.01.2020
+
+Call of Duty: Black Ops Zombies 1.0.11 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: Black Ops Zombies - консольная версия игры теперь для андроид, теперь и Вы сможете бросить вызов армии зомби. Используя различное оружие истребляйте толпы зомби в различных городах.
+Вы можете играть как в одиночном режиме, так и с друзьями из 4 человек по wi-fi. При поддержке своих друзей Вы сможете используя всю огневую мощь подавить атаку зомби. Воспользовавшись (   Читать дальше...   )Тип издания: VIP (С вырезанной проверкой лицензии)Релиз состоялся: 23.08.2017Разработчик: Activision Publishing, Inc. ЕЩЁ!Поддерживаемая ОС: Android 2.3+Жанр: ЭкшеныЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D72226FB16DA13BE77580EB7EA2C3CA27F1FD91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353167   (992385) от 17.01.2020
+
+Последняя пуля / Disturbing the Peace (2020) WEB-DL [H.264/720p-LQ]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Он — из состоятельной семьи Нью-Йорка, она — из небольшого городка в Аризоне. Выросший на Манхэттене юноша мечтает показать ей свой любимый город. Судьба дает ему шанс, когда девушку отправляют взять интервью у известного режиссера. Однако этот дождливый день изменит их жизнь навсегда. В проливной суете мегаполиса он встретит свою давнюю подругу, а девушку затянет (   Читать дальше...   )Производство: США / Gravier Productions, Perdido ProductionsЖанр: Мелодрама, комедияРежиссер: Вуди АлленАктеры: Тимоти Шаламе, Эль Фаннинг, Селена Гомес, Джуд Лоу, Диего Луна, Лив Шрайбер, Сюзанн Смит, Оливия Борхэм-Уинг, Бен Уорхейт, Гриффин НьюманПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:32:23
+Тихий городок оказывается захвачен бандой дерзких и жестоких преступников. Их план — обрубить все каналы связи и держать жителей в заложниках, чтобы ограбить проезжающий через город инкассаторский грузовик с крупным кушем. Им плевать сколько мирных людей погибнет ради их наживы, однако им не стоило недооценивать опытного местного шерифа, который даже в одиночку готов (   Читать дальше...   )Производство: США, Aloe Entertainment, Grodnik /Aloe Productions, Media Finance Capital, Wonderfilm MediaЖанр: БоевикРежиссер: Йорк ШеклтонАктеры: Гай Пирс, Девон Сава, Барби Бланк, Майкл Беллисарио, Дуэйн Камерон, Келли Грейсон, Джейк Гродник, Теренс Дж. Ротоло, Джон Льюис, Эль Е. УоллесПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:30:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38A2BB9F88620BEE88816611E3F02023B89CA9D5
+magnet:?xt=urn:btih:B1FD606D07F5A128240D274095E1255ACF6826AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,28 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353572   (991268) от 18.01.2020
+###  Публикация: 1353212   (992384) от 17.01.2020
 
-VA - Top50: Tracks Deep House Ver.16 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House>
+Я иду искать / Ready Or Not (2019) BDRip [H.265/1080p] [10-bit]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ben Delay - Giving Up On Love (Extended Mix) 5:20
-02. Parah Dice - Hot (Imanbek Extended Remix) 4:03
-03. Tones and I - Dance Monkey (Gumanev & Tim Cosmos Deep Remix) 4:04
-04. Sean Aaron - Hold Me (VetLove Remix) 5:12(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Club HouseПродолжительность: 04:18:09
+Молодая невеста — теперь часть семьи своего новоиспеченного мужа, богатого, но эксцентричного рода, чтящего вековые традиции. Кто бы мог подумать, что первая брачная ночь превратится в смертельную игру с новообретёнными родственниками, в которой девушке нужно будет очень постараться, чтобы дожить до рассвета.Производство: Канада, США / Mythology Entertainment, Vinson FilmsЖанр: триллер, комедия, ужасыРежиссер: Мэттью Беттинелли, Тайлер ДжиллеттАктеры: Самара Уивинг, Адам Броди, Марк О`Брайэн, Генри Черни, Энди МакДауэлл, Мелани Скрофано, Кристиан Бруун, Никки Гуаданьи, Элиз Левеске, Джон РалстонПеревод: Дублированный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (форсированные, полные), украинские, английскиеПродолжительность: 01:35:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7409D10B1A3AF79910C5AB29792D6E408A417854
+magnet:?xt=urn:btih:E3D22EDDD416E9AD7E0088EAF37D30C33BF9261C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353580   (991267) от 18.01.2020
+###  Публикация: 1353287   (992383) от 17.01.2020
 
-VA - Лучшие Trance треки Ver.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+Песенка мышонка (1967) WEBRip [H.264/1080p-LQ] [PR]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A-Ha - Take On Me (Robert Nickson Remix) 5:57
-02. KINETICA & Denise Rivera - Every Time Your Heart Runs Dry (Extended Mix) 6:58
-03. Darren Porter & Jak Aggas - Transonic (Extended Mix) 7:02
-04. Sean Tyas & Shelby Merry - Someday (Extended Mix) 7:25(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 05:16:12
+Мультфильм о том, как бездельник Мышонок стал прилежным строителем.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, детский, рисованная анимацияРежиссер: Юрий ПрытковАктеры: Клара Румянова, Александра Панова, Алексей Грибов, Борис Рунге, Александр ГравеСубтитры: ОтсутствуютПродолжительность: 00:09:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0B87F088553B1DDD8438D34494D889DF00FF86E
+magnet:?xt=urn:btih:E53B365B7A1CC238B3C3FAC212492BF6AFA4E884
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,25 +470,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353656   (991266) от 18.01.2020
+###  Публикация: 1350285   (992382) от 17.01.2020
 
-Сиротский Бруклин / Motherless Brooklyn (2019) HDRip [H.265] [10-bit]
+Рубеж мира / Rim of the World (2019) UHD WEBRip [H.265/2160p] [4K, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама с трудом вытаскивает из-за компьютера подростка Алекса, ботаника и всезнайку, чтобы отправить его в летний лагерь «Край света» завести друзей и набраться впечатлений. С летними развлечениями у парня как-то сразу не задаётся, ведь его больше интересуют новости о происходящем на международной космической станции. Когда весь лагерь приезжает к озеру, Алекс увязывается (   Читать дальше...   )Производство: США / Wonderland Sound and Vision, NetflixЖанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: МакДжиАктеры: Джек Гор, Мия Чех, Бенжамин Флорес мл., Алессио Скальцотто, Эндрю Бэчелор, Аннабет Гиш, Скотт Макартур, Дин Джаггер III, Майкл Бич, Линн КоллинсПеревод: Дублированный (Пифагор)Субтитры: русские (форсированные), английские (форсированные, полные)Продолжительность: 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C07C84B0E0400A79D4B9A0650A6124A8924052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353196   (992381) от 17.01.2020
+
+Последняя пуля / Disturbing the Peace (2020) WEB-DLRip
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лайонел Эссрог, одинокий частный детектив с синдромом Туретта, решает начать расследование убийства своего наставника и единственного друга Фрэнка Минны. У него есть лишь несколько зацепок и сила разума, одержимого поставленной целью, чтобы распутать клубок тщательно скрываемых тайн, которые сохраняют баланс сил в самом Нью-Йорке. Расследование заводит его в джазовые (   Читать дальше...   )Производство: США / Class 5 Films, MWM Studios, Warner Bros. PicturesЖанр: Драма, криминал, детективРежиссер: Эдвард НортонАктеры: Эдвард Нортон, Гугу Эмбата-Ро, Алек Болдуин, Бобби Каннавале, Уиллем Дефо, Брюс Уиллис, Итан Сапли, Черри Джонс, Даллас Робертс, Джош ПэйсПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:24:21
+Тихий городок оказывается захвачен бандой дерзких и жестоких преступников. Их план — обрубить все каналы связи и держать жителей в заложниках, чтобы ограбить проезжающий через город инкассаторский грузовик с крупным кушем. Им плевать сколько мирных людей погибнет ради их наживы, однако им не стоило недооценивать опытного местного шерифа, который даже в одиночку готов (   Читать дальше...   )Производство: США, Aloe Entertainment, Grodnik /Aloe Productions, Media Finance Capital, Wonderfilm MediaЖанр: БоевикРежиссер: Йорк ШеклтонАктеры: Гай Пирс, Девон Сава, Барби Бланк, Майкл Беллисарио, Дуэйн Камерон, Келли Грейсон, Джейк Гродник, Теренс Дж. Ротоло, Джон Льюис, Эль Е. УоллесПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:909ECA54F352BA7995AC6681F153E60FF6C70FBA
+magnet:?xt=urn:btih:BFD6AB164B8E6409E8EFB7DA38FCFD95442810D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,25 +522,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353511   (991265) от 18.01.2020
+###  Публикация: 1353201   (992380) от 17.01.2020
 
-Бесстрашные: Битва при Мидуэй / Dauntless: The Battle of Midway (2019) HDRip [H.265] [10-bit] [AVO] [PR]
+VA - Meeting with Love (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Стремясь изменить ход войны, американская группа авианосцев прибывает к побережью Мидуэя. Ей поручено установить ловушку для врага. Во время ключевого сражения экипаж из двух человек вынужден совершить посадку на воду. Находясь на плаву, мужчины обращаются к своим товарищам за спасением...Производство: США, Bayou Pictures, Gypsy Lane FilmsЖанр: военныйРежиссер: Майк ФиллипсАктеры: Joe Barrino, Эйдан Бристоу, Джерри Бутейн, Louie Chapman, Jamison Coe, Wyatt Derman, John Enick, Мендел Фогельман, Дрю Гаррет, Alejandro GehryПеревод: Авторский (А.Багичев)Субтитры: АнглийскиеПродолжительность: 01:37:46
+01. Frank Duval - Angel Of Mine
+02. Sonny Black - Blues Is King
+03. Ben E King - Stand By Me
+04. Valefim Planet - Come Whit Me(   Читать дальше...   )Жанр: Instrumental, Easy listening, BluesПродолжительность: 04:08:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F11E8EEB17FEA8C28FBEB5358A870B505EF6635
+magnet:?xt=urn:btih:E280A3E1DC424A0E04A08503123640A198A57788
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,52 +551,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008692   (991264) от 18.01.2020
+###  Публикация: 1353229   (992379) от 17.01.2020
 
-Протоиерей Владимир Головин | Проповеди (2008-2019) WEB-DL [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протоиерей Владимир Головин является священнослужителем Русской Православной Церкви. Из разных частей света паломники приезжают в город Болгар, где живет батюшка, чтобы получить от него наставления в христианской вере, чтобы услышать из его уст глаголы жизни вечной.
-В храме Мученика Авраамия, где служит батюшка Владимир, возрождается многовековой опыт молитвы по (   Читать дальше...   )Жанр: Религия и культыПродолжительность: 374:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B979DC597BD52C4329AB427CEA53F99EEBF9843B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353480   (991263) от 18.01.2020
-
-Проклятый дом / The Witch in the Window (2018) WEB-DL [H.264/1080p]
+Я иду искать / Ready or Not (2019) BDRip [H.264/720p]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После болезненного развода с женой отец 12-летнего Саймона решает перебраться на новое место жительства, чтобы помочь мальчику пережить семейные проблемы. Они отправляются в провинцию в отдаленное местечко в штате Вермонт, где купил старенький особняк. Для начала он занялся ремонтом, чтобы придать дому приличный вид, но вскоре их начнут одолевать странные видения. (   Читать дальше...   )Производство: США / One Bad House FilmsЖанр: Драма, УжасыРежиссер: Энди МиттонАктеры: Алекс Дрэйпер, Чарльз Эверетт Такер, Кэрол Станционе, Грег Нафтон, Ария Барейкис, Зак Йетте, Молли Слотауэр, Фрэнки Данливи, Аделаида Фиттон, Наоми ФиттонПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:16:34
+Молодая невеста — теперь часть семьи своего новоиспеченного мужа, богатого, но эксцентричного рода, чтящего вековые традиции. Кто бы мог подумать, что первая брачная ночь превратится в смертельную игру с новообретёнными родственниками, в которой девушке нужно будет очень постараться, чтобы дожить до рассвета.Производство: США / Mythology Entertainment, Vinson FilmsЖанр: Триллер, комедия, ужасыРежиссер: Мэттью Беттинелли, Тайлер ДжиллеттАктеры: Самара Уивинг, Адам Броди, Марк О`Брайэн, Генри Черни, Энди МакДауэлл, Мелани Скрофано, Кристиан Бруун, Никки Гуаданьи, Элиз Левеске, Джон РалстонПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:35:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68D6E52016EA4EF383C24AF99BE377DE56F73A0F
+magnet:?xt=urn:btih:B8310E05AD2C40BF10F89767F2355A5F77EB943C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,25 +577,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353508   (991262) от 18.01.2020
+###  Публикация: 1353269   (992378) от 17.01.2020
 
-Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [H.264/1080p] [DVO]
+Фильм, фильм, фильм (1968) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм о том, как снимается кино, весь путь фильма с момента рождения сценария и до премьеры.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, комедия, рисованная анимацияРежиссер: Фёдор ХитрукАктеры: Алексей Полевой, Георгий ВицинСубтитры: ОтсутствуютПродолжительность: 00:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021A96DD696A9D8B58709AF22C53769800D37AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 130552   (992377) от 17.01.2020
+
+Компьютер для дошкольников [6 лет] (L) [Русский] (2008)
+
+>>Детские PC Игры
+>>Развивающие Игры для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992377.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас в руках увлекательный сборник развивающих игр, заданий и видеоматериалов. Обучающие видеосюжеты расскажут ребенку о том, что такое компьютер, из чего он состоит и как работает. Дети освоят основные действия: научатся запускать и закрывать программы, создавать папки и файлы, набирать текст и рисовать. Веселые игры и задания помогут им развить внимание, память, (   Читать дальше...   )Тип издания: LРазработчик: "Одиссей"Жанр: Обучающие и развивающие игрыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9A292E5E9F846F3DD484BA81E080F02344A0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353157   (992376) от 17.01.2020
+
+Последняя пуля / Disturbing the Peace (2020) WEB-DL [H.264/1080p-LQ]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сара Коннор превратилась в настоящую охотницу за терминаторами и теперь занимается уничтожением роботов-убийц из будущего. Она считала, что главное — это не дать им добраться до Джона, но теперь появилась Дани Рамос, от выживания которой также зависит судьба человечества. Вместе с ней в бой вступает и загадочная Грейс, смесь человека и машины.Производство: США, Китай, 20th Century Fox Film Corporation, ...Жанр: фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Арнольд Шварценеггер, Эдвард Ферлонг, Линда Хэмилтон, Диего Бонета, Маккензи Дэвис, Том Хоппер, Бретт Азар, Гэбриел Луна, Наталия Рейес, Кассандра СтаррПеревод: Любительский двухголосый (LakeFilms)Субтитры: Английский (Full)Продолжительность: 02:08:06
+Тихий городок оказывается захвачен бандой дерзких и жестоких преступников. Их план — обрубить все каналы связи и держать жителей в заложниках, чтобы ограбить проезжающий через город инкассаторский грузовик с крупным кушем. Им плевать сколько мирных людей погибнет ради их наживы, однако им не стоило недооценивать опытного местного шерифа, который даже в одиночку готов (   Читать дальше...   )Производство: США, Aloe Entertainment, Grodnik /Aloe Productions, Media Finance Capital, Wonderfilm MediaЖанр: БоевикРежиссер: Йорк ШеклтонАктеры: Гай Пирс, Девон Сава, Барби Бланк, Майкл Беллисарио, Дуэйн Камерон, Келли Грейсон, Джейк Гродник, Теренс Дж. Ротоло, Джон Льюис, Эль Е. УоллесПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:30:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7291CBDE96961212D93DF2747AF16B399B687B6D
+magnet:?xt=urn:btih:5C721B1EECB2E3164529C5BE496277F9ACE8C9A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,28 +655,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353504   (991261) от 18.01.2020
+###  Публикация: 1342962   (992375) от 17.01.2020
 
-Windows 10 Enterprise 1909 x64 Rus by OneSmiLe [18363.592]
+Пёс (2019) WEB-DLRip [H.264/720p-LQ] (сезон 4, серии 1-20 из 20)
 
->>След.
->>Архив Программ
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка сделана из оригинального образа
-ru_windows_10_business_editions_version_1909_updated_dec_2019_x64_dvd_2d4f8f30
-Интегрированы последние обновления на 18.01.20.
-Удалены все модерн приложения, вместе с магазином(   Читать дальше...   )Язык интерфейса: Русский
+В новом сезоне напарникам Максу Максимову и Псу в очередной раз представится возможность доказать и показать на что же способны напарники. Макс и Пес будут раскрывать самые запутанные преступления.Конечно, напарникам не обойтись без поддержки с тыла.Производство: Украина / PRO-TVЖанр: детективРежиссер: Николай Каптан, Игорь Забара, Владимир ДощукАктеры: Никита Панфилов, Андрей Саминин, Михаил Жонин, Ольга Олексий, Денис Роднянский, Светлана Зельбет, Ольга Морозова, Тарас Мельничук, Автандил Бежиашвили, Илья Прокопив и др.Язык озвучки: русскийПродолжительность: ~00:52:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BC85E1D12BD5A69D1768C193C6C73431ED435F0
+magnet:?xt=urn:btih:F4C76E0681B9AD5A7B0433EBE2EDC23090E31300
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,103 +681,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353402   (991260) от 18.01.2020
+###  Публикация: 1353199   (992374) от 17.01.2020
 
-Windows 7 SP1 44in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2020) [Ru/En]
+Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [H.264/720p] [MVO] [PR]
 
->>3
->>4
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данная сборка Windows 7 включает в себя 11 русских редакций и 11 английских редакций, основанных на оригинальных образах, с интегрированными обновлениями по 01.2020, системными библиотеками для 32-битного (x86) и для 64-битного (x64) ядра, с возможностью выбора опций установки, а также автоустановкой драйверов и программ. А также есть возможность сделать выбор о (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Сара Коннор превратилась в настоящую охотницу за терминаторами и теперь занимается уничтожением роботов-убийц из будущего. Она считала, что главное — это не дать им добраться до Джона, но теперь появилась Дани Рамос, от выживания которой также зависит судьба человечества. Вместе с ней в бой вступает и загадочная Грейс, смесь человека и машины.Производство: США, Китай, 20th Century Fox Film Corporation, ...Жанр: фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Арнольд Шварценеггер, Эдвард Ферлонг, Линда Хэмилтон, Диего Бонета, Маккензи Дэвис, Том Хоппер, Бретт Азар, Гэбриел Луна, Наталия Рейес, Кассандра СтаррПеревод: Любительский двухголосый (LakeFilms)Субтитры: АнглийскийПродолжительность: 02:08:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A631D46118C14E3D1B401B73A7E35D854CDCF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353462   (991259) от 18.01.2020
-
-В.Д. Мунистер | Компьютерные сети. IoT & межмашинное взаимодействие (2020) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебно-теоретическом издании (хрестоматии) «Компьютерные сети. IoT и межмашинное взаимодействие» проведена работа по систематизации сведений, стандарты и подходы к технической реализации концепции Интернета вещей (Internet of Things, IoT), технологий рабочих групп IEEE 802.11, 802.15 (IEEE 802.15.4). Рассмотрена новая (расширенная) систематизация локально-вычислительных (   Читать дальше...   )Жанр: Компьютерная литература, Сетевые технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8B0EE1545E6C384F5B15E16967BC93ABD466F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353393   (991258) от 18.01.2020
-
-Президент пообещал бесплатный интернет. Что в этом вызывает вопросы?
-
->>3
->>14
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991258.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 января Владимир Путин обратился к Федеральному собранию. Помимо конституционных и социальных реформ он предложил ввести проект «Доступного интернета» — сделать бесплатными некоторые «социально-значимые интернет-сервисы». Чиновники предложение уже одобрили. Рассказываем, чего ждать от доступного интернета и какие вопросы вызывает у нас этот проект.Что за «Доступный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942326   (991257) от 18.01.2020
-
-X Rebirth (2013) [Ru/En] (2.51.187332)  Repack alexalsp
-
->>След.
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далекое будущее. Вселенная Х находится на пороге неотвратимых перемен. Пока весь мир шагает в неопределенность, появляются новые враги, ищущие силы и власти. В это нелегкое время начинаются приключения юного авантюриста и его спутницы. На потрепанном прославленном в боях космическом корабле наши герои столкнутся со вселенной один на один и сыграют ключевую роль в (   Читать дальше...   )Тип издания: RepackРазработчик: EgosoftЖанр: Simulator (Space), 3D, Privateer, TraderЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B16522848466C34F576D21F6728DA4914E5FDDB
+magnet:?xt=urn:btih:D354B0F77EF5B139D9262914B0E2427E8060CB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

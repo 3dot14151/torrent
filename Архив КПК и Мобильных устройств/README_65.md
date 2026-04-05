@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490713.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490635.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489745.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Image Blender Instafusion v4.0.0 [En/Ru] - смешивание двух фот�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489404.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486304.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Bliss - Icon Pack 1.0.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485581.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485352.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484660.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484572.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484562.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Avito автопоиск с оповещениями 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483305.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ RadixCalc+ 2.0 [Ru/Multi] - Калькулятор Систем Счислени
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483105.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ LINE 5.5.1 [Rus]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479251.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Xperia™ Home v10.2.A.1.0 [Ru/Multi] - фирменный лаунчер ком
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478784.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478600.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ YouTube ReVanced (ROOT + VFM) 17.29.34 Mod by Blays` [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478324.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478126.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ SUV Desert Road Racing 4x4 3D v1.0.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477654.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Xenowerk 1.3.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477414.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476174.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Slay 1.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475855.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475674.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475249.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Red Bull Air Race The Game v1.15 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475118.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Overdrop - Weather & Widgets 1.8.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474327.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474177.jpg" />
 </div>
 
 

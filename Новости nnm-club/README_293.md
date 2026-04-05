@@ -1,3 +1,58 @@
+###  Публикация: 384385   (27905) от 12.02.2025
+
+Kenny Wayne Shepherd - 13 Albums (1995 - 2024) 15 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кенни Уэйн Шеппард (англ. Kenny Wayne Shepherd; 12 июня 1977, Шривпорт) - американский блюзовый гитарист, певец, автор песен. Он вышел на сцену нью-орлеанского фестиваля уже в 13 лет. Отец-продюсер прочил сыну карьеру юриста, но Кенни Уэйн спустя год уже гастролировал со своей группой, а в 18 лет записал дебютный альбом "Ledbetter Heights", который имел (   Читать дальше...   )Список альбомов:
+1995 - Ledbetter Heights
+1997 - Trouble Is
+1999 - Live OnЖанр: Blues RockПродолжительность: 14:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79468B556F5199A9DF729BD56AF1B04707A786A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694262   (27800) от 13.02.2025
+
+Интерстеллар / Interstellar (2014) BDRip [AV1/2160p] [4K, SDR, 10-bit] [IMAX Edition] [hand made Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету.Производство: США, Великобритания / Warner Bros. Pictures, Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Кейси Аффлек, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Джессика Честейн, Джон Литгоу, Мэтт ДэймонПеревод: Дублированный (Blu-ray CEE)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760962   (27794) от 13.02.2025
 
 Half-Life 2 (2004) [Ru/Multi] (Build 17324696/dlc) Repack Let'sРlay [20th Anniversary Edition]
@@ -6,7 +61,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 17324696/dlc) Repack Let'sРlay [20th Anniv
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27794.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27792.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5487 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27700.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27688.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.02.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27585.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27584.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27477.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27177.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27171.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Nvidia сломала PhysX во множестве старых игр на н�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27142.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27071.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26957.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26955.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26742.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26723.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26651.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26637.jpg" />
 </div>
 
 
@@ -452,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26517.jpg" />
 </div>
 
 
@@ -479,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26417.jpg" />
 </div>
 
 
@@ -505,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26335.jpg" />
 </div>
 
 
@@ -531,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26322.jpg" />
 </div>
 
 
@@ -559,7 +614,7 @@ MInstAll v.15.02.2025 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26221.jpg" />
 </div>
 
 
@@ -585,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26205.jpg" />
 </div>
 
 
@@ -611,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26116.jpg" />
 </div>
 
 
@@ -623,61 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D4ED20CE050EF0B9D259D1215A9A6F2E9F07F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782107   (26099) от 01.03.2025
-
-В России сняли свой «Форсаж» —  фильм «Жига. На полной скорости»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Жига» расскажет о парне, который влетает в мир стритрейсинга на прогнившем дедовском Жигуле.Сюжет уже тянет на Оскар:
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782486   (26084) от 01.03.2025
-
-Очередное достижение: 1000 релизов от Darkhan_m_e!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 1000 релизов от Darkhan_m_e!!Уважаемые одноклубники, рада сообщить Вам о возможности поздравить нашего товарища и активного релизера hand made * video с первой круглой, а потому такой важной, цифрой -  1000 релизов!! Так держать!!
-От всей души поздравляем
-Darkhan_m_e(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

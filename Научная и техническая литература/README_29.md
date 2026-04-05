@@ -1,133 +1,3 @@
-###  Публикация: 1437918   (1041710) от 06.01.2021
-
-Ф.Ф. Веселаго | Краткая история русского флота (В 2 вып.) (1893,1895) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое издание труда Феодосия Федоровича Веселаго (1817-1895) русского историка военно-морского флота, генерала флота, тайного советника. Книга дает тщательный подбор фактического материала, кратко в хронологическом порядке излагающего предысторию русского флота с IX до XVIII века и историю русского флота с основания его Петром I и до 1825 г. включительно.Жанр: История, Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BF6CFD37357866709BDED3C3AA3A1B2CFAF9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437913   (1041702) от 06.01.2021
-
-Л.Г. Павлова | Спор, дискуссия, полемика (1991) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041702.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в доступной, популярной форме рассказывается об основных принципах и правилах ведения публичного спора, различных полемических приемах. Автор дает советы и рекомендации, как работать над повышением полемического мастерства.Жанр: История, искусство, этика, психология, социологияИздательство: ПросвещениеФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86B7B403B7CB260904128F57470C8198C44DEEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437757   (1041698) от 06.01.2021
-
-Георгий Санников | Большая Охота. Разгром УПА (2002) [FB2, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги четверть века проработал в органах государственной безопасности, участвовал в работе по ликвидации остатков вооруженного бандитизма на территории Западной Украины. Книга рассказывает о националистическом движении ОУН, о многолетнем кровавом противостоянии на Украине, где шла необъявленная гражданская война, унесшая более сотни тысяч жизней с обеих сторон. (   Читать дальше...   )Жанр: Мемуары, Спецслужбы, ИсторияФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B23BF54139AC76416EF09B00916AE5AF48378C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437802   (1041695) от 06.01.2021
-
-Кари Надё, Слоан Барнетт | У меня на это аллергия. Первая научно доказанная программа против пищевой аллергии (2021) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041695.jpg" />
-</div>
-
-
-###  Подробнее
-
-По данным ВОЗ, пищевая аллергия – одно из самых быстрорастущих заболеваний в мире. Молоко, яйца, рыба и главный враг – арахис заставляют вздрагивать миллионы человек в США, Китае, Австралии и Африке. А в России число пациентов с пищевой непереносимостью глютена увеличивается с каждым годом в геометрической прогрессии. Если вы не страдаете пищевой аллергией, вам сложно (   Читать дальше...   )Жанр: Иммунология и аллергология, Популярно о медицинеПеревод: Л.Н. МироноваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D69BD5F2970675F678B54443ADA4230F38EB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610828   (1041606) от 10.02.2023
-
-В.Н. Ларин | Наша Земля (2005) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041606.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге изложена принципиально новая концепция происхождения, строения и развития Земли и других планет земной группы, а также обсуждаются следствия, которые могут быть интересны в практическом отношении. Для сокращения объема данной книги в ней почти полностью отсутствует полемика с другими гипотезами и концепциями. Я надеюсь, что осведомленный читатель сможет (   Читать дальше...   )Жанр: Геология, АстрофизикаЯзык: РусскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9677895500ED763D76DC1B090D4CFF34926FB867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437801   (1041602) от 06.01.2021
 
 Изабелла Венц | Протокол Хашимото: когда иммунитет работает против нас (2020) [FB2]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041602.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041543.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041482.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041481.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041461.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041440.jpg" />
 </div>
 
 
@@ -296,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041401.jpg" />
 </div>
 
 
@@ -322,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041400.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041370.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041360.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041353.jpg" />
 </div>
 
 
@@ -427,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041347.jpg" />
 </div>
 
 
@@ -453,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041320.jpg" />
 </div>
 
 
@@ -479,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041132.jpg" />
 </div>
 
 
@@ -505,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041083.jpg" />
 </div>
 
 
@@ -531,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041047.jpg" />
 </div>
 
 
@@ -557,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041046.jpg" />
 </div>
 
 
@@ -583,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041027.jpg" />
 </div>
 
 
@@ -609,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040621.jpg" />
 </div>
 
 
@@ -635,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040547.jpg" />
 </div>
 
 
@@ -661,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040507.jpg" />
 </div>
 
 
@@ -672,6 +542,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4205FDFF91320C2B061B335BC5BBFE712EEE272F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438998   (1040492) от 10.01.2021
+
+Т.В. Митрошкина | Типичные фразы английского речевого этикета. Справочник (2018, 3-е изд.) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит типичные фразы, характерные для стандартных ситуаций общения на английском языке: знакомство, привлечение внимания, приветствие, прощание, просьба, благодарность, извинение, сожаление, сочувствие, согласие, одобрение, приглашение, предложение, поздравление, пожелание и др. Адресован тем, кто уже владеет нормативной грамматикой и общеупотребительной (   Читать дальше...   )Жанр: Учебное пособие, СправочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C628874BD24DC2EAB7515F531233CF3F17174D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439158   (1040297) от 11.01.2021
+
+Айзек Азимов | Мир измерений (2003) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040297.jpg" />
+</div>
+
+
+###  Подробнее
+
+С развитием науки и техники значение единиц измерений неуклонно росло. В этой книге рассказано о пути их развития со времен глубокой древности до наших дней. Человек, как считали древние, сам является мерой всех вещей. Но чтобы создать в мире порядок людям пришлось все измерить. Первыми единицами измерениями стали: пальцы, локти и ступни. Вы узнаете, почему фут равен (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BA7CDC093EBBBFF3604D68E82A8C87A4B3C0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439263   (1040045) от 12.01.2021
+
+Сэйдж Типпот | США. Полная история страны (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соединенные штаты Америки – страна с необычной историей. Несмотря на то, что первые люди появились на территории Североамериканского континента 16 тысяч лет назад, первое государство было образовано только в XVIII в. Возникшее в результате смешения множества народов и столкновения мощнейших держав эпохи Нового времени молодое американское государство прошло путь (   Читать дальше...   )Жанр: Документальная литература, Общая история, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50455866EE680E13A729E3B653909C25D2A97AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439271   (1039997) от 12.01.2021
+
+Бруно Мансулье | Вся физика в 15 уравнениях (2020) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039997.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 базовых уравнений и соответствующих им законов физики, выбранные для этой книги, сделали революцию в современном понимании мира. Благодаря изумительно легкому языку автора читатели погрузятся с головой в самую прекрасную из наук, которая может объяснить все, что происходит во Вселенной (ну или почти все), – и, быть может, захотят остаться в этой науке навсегда. (   Читать дальше...   )Жанр: Научно-популярная литература, ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40876276F4B2B9DCC6781DBAF56346307996C0EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439505   (1039909) от 13.01.2021
+
+Дмитрий Трубочкин | Константин Райкин и Театр «Сатирикон» (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039909.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге – рассказ о первом двадцатилетии нового «Сатирикона», всколыхнувшего в 1988 году театральный мир грандиозными «Служанками» Романа Виктюка с Константином Райкиным в главной роли. После окончания славной эпохи Театра миниатюр Аркадия Райкина, в бурное постперестроечное время, в беспокойные девяностые кирпичик за кирпичиком Константин Райкин строил свой (   Читать дальше...   )Жанр: Биографии и мемуары, Культура и искусство, Кинематограф, театрФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15012D11889B13077FA4B139330B788FC86E37D
 ```
 
 https://mybot314.ru/tekegram_catalog/

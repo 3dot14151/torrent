@@ -1,3 +1,32 @@
+###  Публикация: 1013917   (776935) от 06.05.2016
+
+Blackwater Park - Dirt Box (1971) Remastered, 2015, Long Hair [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776935.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mental Block
+2. Roundabout
+3. One's Life
+4. Indian Summer(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DEFB3A0E5F04B1E76C7A3B1C4ECC8BA2FB7A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014194   (776918) от 06.05.2016
 
 Rich Robinson - Paper (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
@@ -6,7 +35,7 @@ Rich Robinson - Paper (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776918.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bliss - Bliss (1969) Reissue, 2007, Tone Arm [MP3|320 кб/с] <Psych Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776187.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ FM - Atomic Generation (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774400.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Lost - The Lost (1991) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774290.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ American Dog - Poison Smile (2012) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773394.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Tense Machine - Echoes (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773249.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Steelheart - Through Worlds of Stardust (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773093.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rival Sons - 6 Albums, 1 EP, 1 Compilation, 1 Live (2009-2019) [MP3|320 кб/с]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772824.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Vega - Who We Are (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770291.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Phantom 5 - Phantom 5 (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769557.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Diana Drive - Diana Drive (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769382.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Eugene Carnan - Eugene Carnan (1972) Reissue, 2011, Shadoks Music [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767744.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Alice Cooper - The Essential Alice Cooper: The Epic Years (2018) [MP3|320 Kbps] 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764814.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Bad English - Greatest Hits (2003) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762568.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Van Halen - 12 альбомов (1978-2012) [MP3|320 кб/с]<Classic Rock & Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762430.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Razzmattazz - Hallelujah (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761876.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758848.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Punky Meadows - Fallen Angel (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753952.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Ten Foot Wizard - Get Out of Your Mind (2020) [MP3|320 Kbps] <Hard Rock, Stoner 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753820.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ The Dead Daisies - Burn It Down (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752936.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Michael Grant & The Assassins - Always the Villain (2020) [MP3|320 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752284.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Enuff Z'Nuff - Brainwashed Generation (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752196.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Odyssey Desperado - Don't Miss The Sunset (2018) [MP3|320 Kbps] <Melodic Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751083.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Shout The Band - Made Of Gold (2020) [MP3|320 Kbps] <Melodic Hard Rock, Alt.Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750071.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Acacia Avenue - Early Warning (2016) [MP3|320 кб/с] <Hard Rock, Melodic Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746822.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Acacia Avenue - Early Warning (2016) [MP3|320 кб/с] <Hard Rock, Melodic Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA01B86C2D3458F8658B33C8BBDBF78043C843BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217349   (743130) от 04.04.2018
-
-Jaded Heart - Devil's Gift (2018) [MP3|320 Kbps] <Hard Rock, Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743130.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wasteland (4:24)
- 2. The Enemy (4:01)
- 3. Set Free (5:33)
- 4. Scream of Anger (5:27)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' HeavyПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D055583BC457112237DB02BBFF7ECD3FC70F5FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

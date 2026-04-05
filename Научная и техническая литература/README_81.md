@@ -1,139 +1,3 @@
-###  Публикация: 979214   (959686) от 26.01.2016
-
-В. Н. Пенькова, Д. А. Коваленко (ред.) | Бенин. Справочная карта (1986) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Бенина с административным делением (масштаб 1:1 000 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510BE457E4FB689ECA03E276538E42A72EEC9F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978818   (959661) от 26.01.2016
-
-А. Г. Чимшидова (ред.)| Бельгия. Справочная карта (2003) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959661.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Бельгии с административным делением (масштаб 1:500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF23220E8AB4BC9B9F9694301D5627C56EA0A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979057   (959646) от 26.01.2016
-
-В.А. Галкин | Основы программно-конфигурируемого радио (2015) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена основам построения радиоканала для программно-конфигурируемого радио. Рассмотрены варианты функциональных схем трансивера, которые потенциально обеспечивают выполнение основных требований программно-конфигурируемого радио - работа в сверхширокой полосе частот вне зависимости от ширины канала, типа модулированного сигнала и скорости передачи информации (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8403283ACC1F21B001A087AFF9975C1BE303D845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979356   (959588) от 26.01.2016
-
-Г.В. Мылов | Печатные платы. Выбор базовых материалов (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Систематизирована обширная информация об основных материалах и компонентах, используемых при изготовлении печатных плат различного типа. Изложены методологические основы применения и испытаний базовых материалов печатных плат. Рассмотрены вопросы технологичности материалов в производстве печатных плат и сборок. Представлена концепция обеспечения надежности входного (   Читать дальше...   )Жанр: КомпонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56ABAA7279B6925C8C8858BB37E2AA372F64FA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979149   (959532) от 26.01.2016
-
-Е.И. Юревич | Основы робототехники (+CD) (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрена история становления робототехники как современной отрасли науки и техники от первых попыток создания «механических людей» до современных роботов и перспективы ее дальнейшего развития. Описано устройство роботов и близких им средств робототехники, приведены способы управления роботами от программного до интеллектуального, принципы проектирования. Широко (   Читать дальше...   )Жанр: РобототехникаФормат: PDF, WMV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1F3DC29DCE2B1C341F1A34B3E0D3256FF26CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360653   (959338) от 16.02.2020
 
 Андрей Савельев | Троянская война. Реконструкция великой эпохи (2019) [FB2]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959338.jpg" />
 </div>
 
 
@@ -170,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959298.jpg" />
 </div>
 
 
@@ -196,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959295.jpg" />
 </div>
 
 
@@ -222,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959263.jpg" />
 </div>
 
 
@@ -248,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959250.jpg" />
 </div>
 
 
@@ -274,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958107.jpg" />
 </div>
 
 
@@ -300,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958095.jpg" />
 </div>
 
 
@@ -327,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958037.jpg" />
 </div>
 
 
@@ -353,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957989.jpg" />
 </div>
 
 
@@ -380,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957983.jpg" />
 </div>
 
 
@@ -406,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957918.jpg" />
 </div>
 
 
@@ -433,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957914.jpg" />
 </div>
 
 
@@ -459,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957857.jpg" />
 </div>
 
 
@@ -486,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957702.jpg" />
 </div>
 
 
@@ -513,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957276.jpg" />
 </div>
 
 
@@ -539,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957037.jpg" />
 </div>
 
 
@@ -567,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956992.jpg" />
 </div>
 
 
@@ -593,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956986.jpg" />
 </div>
 
 
@@ -621,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956761.jpg" />
 </div>
 
 
@@ -648,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956626.jpg" />
 </div>
 
 
@@ -674,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956584.jpg" />
 </div>
 
 
@@ -685,6 +549,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F346373262F6CAC52F4BF2BCA2B13AB371B6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979966   (956389) от 29.01.2016
+
+М. Т. Иовчук | Белинский. Его философские и социально-политические взгляды (1939) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга М. Т. Иовчука "Белинский. Его философские и социально-политические взгляды" представляет собой научно-популярный очерк, излагающий в сжатой форме основные моменты философских и социально-политических взглядов Виссариона Григорьевича Белинского. Книга рассчитана на партийный актив, советскую интеллигенцию, студентов вузов и других читателей, изучающих (   Читать дальше...   )Жанр: История, философия, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2BDBB19A37127639FA453CF5705A7584FD061C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980346   (956386) от 29.01.2016
+
+А. М. Орехов | Первые марксисты в России. Петербургский "Рабочий союз" 1887-1893 гг. (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена крупнейшей социал-демократической организации периода распространения и упрочения марксизма в России - Петербургскому "Рабочему союзу" (группа Михаила Бруснева).
+
+В книге рассматривается история становления и деятельности "Союза", уточнены периодизация и хронологические рамки этой организации. На фоне развития революционного движения (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF441BBA258C081DCB2BFF3DA633B0E5C5D0C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980344   (956292) от 29.01.2016
+
+Л. С. Шатенштейн | Мултанское дело. 1892-1896 (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мултанское дело — процесс 1892 года над группой крестьян-удмуртов (в те времена их называли «вотяками») из села Старый Мултан Малмыжского уезда Вятской губернии. 10 жителей этого села обвинялись в ритуальном убийстве — человеческом жертвоприношении языческим богам. Характерный пример кровавого навета.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086DE176BC5B44FBDC62955F5DEF7EADD5631341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980338   (956283) от 29.01.2016
+
+А. Буздес | Гитлер угрожает Чехословакии (1938) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обстановка в Центральной и Юго-Восточной Европе становится все более напряженной. О положении Чехословакии и фашистской угрозе, нависшей над этой страной, ежедневно пишет вся печать. Кто с тревогой, а кто с сочувствием говорит об агрессии германского фашизма, непосредственно угрожающей Чехословакии. Нависшая над Чехословакией угроза агрессии со стороны фашистской (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AE6A8A61C4F2343F6435D9E7C3FEE47E94B9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979829   (956275) от 29.01.2016
+
+А. Я. Вышинский | Вопросы международного права и международной политики (1951) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем томе собраны речи и выступления А. Я. Вышинского, произнесенные на третьей сессии Генеральной Ассамблеи ООН в 1948 году, на шестой сессии Совета Министров Иностранных дел в 1949 году в Париже и на четвертой сессии Генеральной Ассамблеи ООН в 1949 году.
+Оформитель Г. С. Бершадский. Тираж 25 000. Москва.Жанр: Внешняя политика СССР, Международные отношения, Документы и материалыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4D69AE27D3B7E60BC7199C168DD07754277A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

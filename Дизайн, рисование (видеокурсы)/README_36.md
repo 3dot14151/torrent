@@ -1,3 +1,58 @@
+###  Публикация: 518123   (640468) от 04.07.2012
+
+video2brain |Adobe Premiere Pro CS6: Learn by Video [Jun 8, 2012] PCRec [Eng]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro быстро становятся номер один в системе редактирования для широкого круга специалистов и полупрофессиональных редакторов во всем мире. Вот и в CS6 версии, Adobe добавила ряд новых элементов, задача которых - экономить Ваше время при нелинейном монтаже. К ним относятся специальные эффекты новой линейки, которые раньше можно было увидеть только в Adobe After Effects а также новый улучшеный интерфейс. В этом курсе эксперт - редактор и ведущий Maxim Jago представит полное руководство по работе с Adobe Premiere Pro CS6, охватывающее все: от основ нелинейного монтажа до самых современных новых возможностей. Вы научитесь использовать несколько типов медиа - файлов в Premiere Pro, объединить их для производства профессиональные изменений, применить эффекты, добавить названия, работать с аудио и в различных форматах, включая DVD, Blu-ray и файлы.Жанр: Видеоредакторы (Обучающее видео + файлы упражнений)Продолжительность: 14:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B730EEA90178DDF584A77E8408BF594443FBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679797   (639756) от 18.07.2013
+
+Евгений Попов | Как быстро и бесплатно создать 3D-обложку [2012] PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скорее всего, вы уже многократно видели в Сети 3D-обложки для различных программ, курсов и прочих виртуальных вещей. Из моего урока вы узнаете как создать подобную обложку своими силами, используя специальный сервис и фотошоп.
+Приятного просмотра!
+
+С уважением, Евгений Попов.Жанр: обучающий видеоурокПродолжительность: 00:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4BB9AF50AD9E98B20465FB2C793C9B45FCC0E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907175   (639033) от 11.06.2015
 
 Роман Гуро | Рисунок и цифровая Живопись (2013) PCRec
@@ -6,7 +61,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639033.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638756.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638747.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635010.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634958.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ CGcircuit, Matthew Skonicki | Scratch to Substance Volume 4 (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634926.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ CGcircuit, Matthew Skonicki | Scratch to Substance Volume 3 (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634918.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633347.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633204.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632683.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632579.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632575.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ Lynda.com | Создание отзывчивого веб-дизайна / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623180.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622047.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ Allegorithmic, What's New in Substance Designer 5, Wha's New in Substance Painte
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621886.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ Levelup.Digital, Daniel Thiger | Plaster Wall with Parameter-driven Bullet Holes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621876.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ Shane Hurlbut | Cinematography Starter Kit (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621747.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ Udemy, Nexttut, Alejandro Aguilar | Making a Fantasy Axe in Blender 3.1 and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619783.jpg" />
 </div>
 
 
@@ -484,7 +539,7 @@ lectoroom, Елена Базанова | Этюд с гортензией акв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617202.jpg" />
 </div>
 
 
@@ -512,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613833.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613831.jpg" />
 </div>
 
 
@@ -569,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613818.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ Scott Deardorff | Креативные техники художественно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612118.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612103.jpg" />
 </div>
 
 
@@ -637,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6C0CA80F1AFA5B956DA52E5500E289F9740E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912823   (608328) от 27.06.2015
-
-Ellery Connell | Модо 701 Базовый тренинг/ Modo 701 Essential Training (2013) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608328.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как дизайнеры используют Modo уже несколько лет, он так и не прижился с VFX-художниками или аниматорами. Однако, когда Foundry и Luxology объединили свои силы, Modo 701 родился заного и стал использоваться как конечное решение для 3D-моделирования и рендеринга. Из этого курса вы узнаете, как использовать Modo 701 и предварить ваш 3D-проект в жизнь с аниматором (   Читать дальше...   )Производство: Lynda.comЖанр: 3D-графикаПродолжительность: 05:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34EA16F54FB2E6D73E2A54EE41C87F1A769715B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544948   (605928) от 24.04.2022
-
-Mzed, Seth Worley | Writing 101 w/Seth Worley (2015) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605928.jpg" />
-</div>
-
-
-###  Подробнее
-
-riune Films и сценарист/режиссёр Сет Ворли с удовольствием представляют вам первый курс в серии для киноделов "Основы сценария".
-Этот цифровой набор состоит из 11 видеоуроков, которые познакомят вас со структурой истории, персонажами, темами, а также глубокой техникой планирования истории в форме циферблата часов.
-Помимо обучающих видео, вы также найдёте (   Читать дальше...   )Производство: MzedЖанр: Основы сценарияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3D3A2A06692B39F649C00928CEAA62B4BD2B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

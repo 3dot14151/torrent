@@ -1,3 +1,145 @@
+###  Публикация: 1135160   (682523) от 18.05.2017
+
+КняZz - Узники долины снов (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Призраки Там-тама
+02. Рок-н-ролльный Дед Мороз
+03. Наука Билли Бонса
+04. Брат(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6996F3F3F60A0DA2B2CF3D8C84B26371375D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535697   (682515) от 08.03.2022
+
+Farseer - Crowned By The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into Oblivion (06:43)
+02. The Valiant Dead (04:26)
+03. Calamitas (04:26)
+04. Legion (05:06)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592A6074C7F9957D025D1CFE4879302B80553A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535848   (682505) от 08.03.2022
+
+Boxer - 3 albums (1975-1979) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одно из многочисленных пристанищ так и не нашедших себе постоянной гавани варягов Кийта Эллиса (ex-Van Der Graaf Generator, Juicy Lucy) и Тима Богерта (ex-Vanilla Fudge, Cactus, Jeff Beck Group). Небезынтересный коллектив, где лидером был талантливый органист Крис Стэйнтон. Но справляться с супергруппой (а именно таковой нужно считать Boxer) ему было непросто. Помимо (   Читать дальше...   )--------------------------
+
+01. Hey Bulldog (3:49)
+02. The Blizzard (3:19)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 01:59:52 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDE16E2777D4D51B4A8DC9694F99E060AF36E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222737   (682449) от 30.04.2018
+
+Ленинград - В Зените (2018) Single [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В ЗенитеЖанр: Rock, SkaПродолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2922C4A911C4110029326E51852A69B8A965A733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135318   (682402) от 18.05.2017
+
+Papa Roach - Crooked Teet (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682402.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Break The Fall
+2. Crooked Teeth
+3. My Medication
+4. Born For Greatness(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 01:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD6276692713640855385538089CB12073032BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135260   (682397) от 18.05.2017
 
 Papa Roach - Crooked Teeth (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
@@ -6,7 +148,7 @@ Papa Roach - Crooked Teeth (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682397.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ Wild Ox Moan - Wild Ox Moan (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682376.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ Beth Hart - A Tribute To Led Zeppelin (2022) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682373.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ Spirit Of The Forest - A Brew Of Lightning And Terror (2007) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682228.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ Fever Feel - Fever Feel (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie, Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682164.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ Hollowheart - Hollowheart (2016) [FLAC|Lossless|WEB-DL|tracks] <Love, Gothic Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682156.jpg" />
 </div>
 
 
@@ -180,7 +322,7 @@ The Fall - Bend Sinister | The Domesday Pay-Off Triad Plus! (2019) RM. [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682087.jpg" />
 </div>
 
 
@@ -209,7 +351,7 @@ Darkwater - Human (2019) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682085.jpg" />
 </div>
 
 
@@ -238,7 +380,7 @@ Le Butcherettes - bi/MENTAL (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682078.jpg" />
 </div>
 
 
@@ -267,7 +409,7 @@ The Young Gods - Data Mirage Tangram (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682075.jpg" />
 </div>
 
 
@@ -296,7 +438,7 @@ Elysian Fields - The Afterlife (2009) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682074.jpg" />
 </div>
 
 
@@ -325,7 +467,7 @@ Karen O & Danger Mouse - Lux Prima (2018) [FLAC|Lossless|tracks + .cue] <Electro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682071.jpg" />
 </div>
 
 
@@ -354,7 +496,7 @@ Deluge Grander - The Form Of The Good (2009) [FLAC|Lossless|image + .cue]<Sympho
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682020.jpg" />
 </div>
 
 
@@ -383,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681986.jpg" />
 </div>
 
 
@@ -412,7 +554,7 @@ Q5 - 3 albums (1984-2016) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n' Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681983.jpg" />
 </div>
 
 
@@ -441,7 +583,7 @@ Messer Chups - Mondo Harp (2019) [FLAC|Lossless|tracks + .cue] <Punk, Surf, Tras
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681981.jpg" />
 </div>
 
 
@@ -470,7 +612,7 @@ Fleetwood Mac - Transmission Impossible (2018) 3CD, Remastered, Compilation [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681973.jpg" />
 </div>
 
 
@@ -499,7 +641,7 @@ The Doors - Transmission Impossible (2019) 3CD, Remastered, Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681970.jpg" />
 </div>
 
 
@@ -528,7 +670,7 @@ Deluge Grander - August In The Urals (1996) [FLAC|Lossless|image + .cue]<Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681928.jpg" />
 </div>
 
 
@@ -557,7 +699,7 @@ Amanda Palmer - There Will Be No Intermission (2019) [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681879.jpg" />
 </div>
 
 
@@ -586,7 +728,7 @@ Red Hot Chili Peppers - Transmission Impossible (2016) 3CD, Remastered, Compilat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681878.jpg" />
 </div>
 
 
@@ -600,157 +742,6 @@ Red Hot Chili Peppers - Transmission Impossible (2016) 3CD, Remastered, Compilat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2A697BE7B04CF697A1287971FA0C8AFD5CF5EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029304   (681853) от 26.06.2016
-
-Rammstein - Liebe Ist Fur Alle Da (2009) [FLAC|Lossless|image + .cue] <Rock, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Rammlied 	05:19
-02. 	Ich Tu Dir Weh 	05:02
-03. 	Waidmanns Heil 	03:33
-04. 	Haifisch 	03:45(   Читать дальше...   )Жанр: Rock, IndustrialПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4933DF51909F6D750AA2961820D4F6BA9FE56712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796765   (681711) от 16.06.2014
-
-Beth Hart - 37 Days (2007) 2011, Smartfeller and David Wolff [FLAC|Lossless|image + .cue]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Good As It Gets   (3:57)
-02.  Jealousy   (4:28)
-03.  Beautiful Child   (3:57)
-04.  One Eyed Chicken   (4:53)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0F5B1EF28F424167ABA8D28F26769A2BF16548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506782   (681610) от 09.06.2012
-
-Diezel - Classic Album Collection (2011) 5 CD [FLAC|Lossless]<Rock, Soul, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days Like These (Lizotte) — [03:24]
-02. Souldier (Goncalves, Lizotte, Moloney) — [03:13]
-03. Crimson Man (Lizotte) — [02:56]
-04. Lay Down Here (Goncalves, Lizotte, Moloney) — [03:41]
-05. Something Good (Goncalves, Lizotte, Moloney) — [03:26]
-06. Prisoner (Lizotte) — [03:28]
-07. Need Your Fire (Goncalves, Lizotte, Moloney) — [03:20]
-08. Ain't Giving Up (Lizotte) — [04:28]
-09. That Strong (Goncalves, Lizotte, Moloney) — [03:47]
-10. Take My Heart (Lizotte) — [04:47]Жанр: Rock, Soul, BluesПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898144   (681379) от 15.05.2015
-
-Nelson - Peace Out (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Everybody
-02. Back In The Day
-03. Invincible
-04. Let It Ride(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB1ADAA66458D80E1AECAC551E442C4187702C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135382   (681185) от 19.05.2017
-
-Titanic - Sea Wolf (1971) Remastered, 2000, Repertoire Records [MP3|320 Kbps] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sea Wolf
-2. Underbird
-3. Confusion
-4. Sultana(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956A3B4E276FEDFE5C5F4573917F7E306B4D2B3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

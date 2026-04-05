@@ -1,3 +1,31 @@
+###  Публикация: 1669510   (172760) от 16.10.2023
+
+Фотография - Фотограф года дикой природы 2022 [PNG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский фотограф Дмитрий Кох стал лауреатом премии Wildlife Photographer Of The Year в номинации «Дикая природа в городе». Он необычным способом запечатлел белых медведей на Чукотке.
+
+Жюри конкурса по достоинству оценило работу россиянина — фотографию «Медвежий дом» (смотрите 1 скриншот). На снимке изображены белые медведи, бродящие в заброшенном поселке на острове (   Читать дальше...   )Формат: PNGРазрешение файлов: 1536x1920 - 2560x2560
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292450FC613EEBAF130E86A3B35F0676F56B21EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669427   (172756) от 16.10.2023
 
 Фотография - Фотограф года дикой природы 2023 [PNG]
@@ -6,7 +34,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172756.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172585.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172434.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172433.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172411.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172407.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172400.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172390.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172264.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172254.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172203.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172073.jpg" />
 </div>
 
 
@@ -336,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172066.jpg" />
 </div>
 
 
@@ -365,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171996.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171120.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170974.jpg" />
 </div>
 
 
@@ -445,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170967.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170942.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170930.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170928.jpg" />
 </div>
 
 
@@ -551,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170912.jpg" />
 </div>
 
 
@@ -577,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170894.jpg" />
 </div>
 
 
@@ -606,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170883.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170863.jpg" />
 </div>
 
 
@@ -661,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170814.jpg" />
 </div>
 
 
@@ -672,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:428EDDB18CD714FFCA3CE308E9A8354B980B3350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515045   (170768) от 05.12.2021
-
-Фотография - ArtStation - Grafit Studio - 600+ Female Portraits Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот выпуск включает в себя более 600 фото-референсов в высоком разрешении с женскими портретами, на которых изображены четыре модели. Некоторые портреты были сняты при различных условиях освещения, что станет отличным инструментом для создания портретных этюдов, на некоторых снимках изображены различные выражения лиц для дизайна персонажей и иллюстрации.Формат: JPGРазрешение файлов: 1922x2275 - 4107x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FF36A2124D319BA57FB547F99863755B5E7899
 ```
 
 https://mybot314.ru/tekegram_catalog/

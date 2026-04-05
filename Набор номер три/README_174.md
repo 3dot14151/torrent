@@ -1,3 +1,163 @@
+###  Публикация: 1119547   (806652) от 28.03.2017
+
+Mozilla Firefox 52.0.2 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5E446852E01D25366BBA431171EF56719C5561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119141   (806643) от 28.03.2017
+
+Мираж - Снова вместе (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Млечный путь [4:28]
+02. Где я [4:40]
+03. Море грёз [4:33]
+04. Я не шучу [3:15](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE4841B3DD9E405FC339282FF55786A72AB2149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119035   (806638) от 28.03.2017
+
+Проекты - VideoHive - Backstage Promo - 17258484 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания динамичной презентации, состоящей из трех вариантов различной продолжительности.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E3DADC29E5677B14B51C0A8EF0D9C13795E9A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119599   (806556) от 28.03.2017
+
+Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Великобритания / Allison Shearmur Productions, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Диего Луна, Алан Тьюдик, Донни Йен, Вэнь Цзян, Бен Мендельсон, Форест Уитакер, Риз Ахмед, Мадс Миккельсен, Джимми СмитсПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные),  Английские (Full, SDH)Продолжительность: 02:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA663955FA6883479F0186276F5C4268884CA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119043   (806553) от 28.03.2017
+
+Пользователи подали в суд на Microsoft из-за Windows 10
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_806553.jpg" />
+</div>
+
+
+###  Подробнее
+
+В окружной суд США в Чикаго поступил коллективный иск на компанию Microsoft из-за нестабильной работы операционной системы Windows 10.Инициаторами иска стали трое американцев, которые не смогли восстановить ценную информацию после внезапного обновления системы.В жалобе говорится, что Windows 10 является дефектным продуктом, и ее производитель не в состоянии открыто (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119415   (806548) от 28.03.2017
+
+Почему в СССР были запрещены микроволновые печи
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_806548.jpg" />
+</div>
+
+
+###  Подробнее
+
+В СССР в 1976 году микроволновые печи были запрещены из-за их вредного воздействия на здоровье, поскольку в отношении них было проведено множество исследований. Запрет был снят в начале 90-х после Перестройки. Вот некоторые из результатов исследований:
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 829731   (806464) от 03.04.2015
 
 Cross Ange: Tenshi to Ryuu no Rondo | Крест Анжи: Танец ангела с драконом [2014, TV, 25 эп.] HDTV 720p raw
@@ -6,7 +166,7 @@ Cross Ange: Tenshi to Ryuu no Rondo | Крест Анжи: Танец ангел
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806464.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806459.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ War for the Overworld (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806454.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_805915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_805915.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_805863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_805863.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_805757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_805757.jpg" />
 </div>
 
 
@@ -162,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805740.jpg" />
 </div>
 
 
@@ -188,7 +348,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805738.jpg" />
 </div>
 
 
@@ -214,7 +374,7 @@ Revelation (2015) [Ru] (07.01.18) License
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805735.jpg" />
 </div>
 
 
@@ -240,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805734.jpg" />
 </div>
 
 
@@ -266,7 +426,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (7575778) License 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805686.jpg" />
 </div>
 
 
@@ -292,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805685.jpg" />
 </div>
 
 
@@ -318,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_805599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_805599.jpg" />
 </div>
 
 
@@ -344,7 +504,7 @@ Windows 7-10 Pro х86-x64 by g0dl1ke 20.05.15 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805590.jpg" />
 </div>
 
 
@@ -370,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805577.jpg" />
 </div>
 
 
@@ -396,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805113.jpg" />
 </div>
 
 
@@ -422,7 +582,7 @@ The KMPlayer 4.0.7.1 RePack by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805110.jpg" />
 </div>
 
 
@@ -448,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_805108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_805108.jpg" />
 </div>
 
 
@@ -474,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805106.jpg" />
 </div>
 
 
@@ -500,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805105.jpg" />
 </div>
 
 
@@ -511,163 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A59950B371ED51714AD8E9C2D42C39AAA91FB4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 686337   (805104) от 23.04.2016
-
-White Noise v6.1.2 Pro / Full [Ru/En] - будильник с релаксирующими звуками
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите расслабиться? Выспаться? Улучшить свое самочувствие? Загрузите White Noise и спите здоровым сном! В White Noise собрано 40 аудизаписей различных окружающих обстановок, чтобы помочь Вам расслабиться или заснуть. Воспроизведение аудио в фоне, таймер выключения, несколько мелодий будильников, настройка звуковых эффектов и идеально сведенные для бесконечного воспроизведения (   Читать дальше...   )Тип издания: Пиратка (Full и Pro)Релиз состоялся: 09.04.2016Разработчик: TMSOFTПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C6EA49F544E64151465B7CECCD1BACDDC3F51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009833   (805101) от 23.04.2016
-
-Король обезьян: Начало / Xi you ji zhi: Sun Wukong san da Baigu Jing / The Monkey King the Legend Begins (2016) BDRip [H.264/720p] [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805101.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой части фильма зрителю предстоит узнать, как зародилась легенда про непобедимого Короля обезьян.Производство: Китай, США / FilmkoЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Поу-Сои ЧингАктеры: Аарон Квок, Гон Ли, Чоу Юнь-Фат, Чунг, Хим Ло, Шаофен Фен, Сяо ШенъянПеревод: Одноголосый закадровый, любительский (Хихидок)Продолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737FAADC8BB57D2363BA4BE43BE4E4D1C8D0E006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010061   (805100) от 23.04.2016
-
-Navitel / Навител Навигатор v9.6.2385 Full и другие  [Ru/Multi] - только программа навигации
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 23.04.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069567F52578F192B48E0C8C9BD74834C7477051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940237   (805099) от 23.04.2016
-
-The Long Dark (2014) [Ru/Multi] (0.326) Unofficial
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805099.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма. Главной вашей задачей будет выжить как можно дольше, чтобы выяснить что же произошло с миром и как он изменился?Тип издания: UnofficialРазработчик: Hinterland Studio Inc.Жанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2AFF543DB75CCCEDF8AF7310967BCBDEBD729B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009841   (805098) от 23.04.2016
-
-Навител / Navitel v9.6.2221 [Ru/Multi] - с авто-определением настроек GPS для автонавигаторов ГУ на WinCE
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 21.04.2016Разработчик: NAVITEL ®Поддерживаемая ОС: WinCE5&6Язык интерфейса: Multilanguage / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE4C271E65435E7563E519EBDBC40DB5D580F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306970   (805097) от 23.04.2016
-
-Маша и медведь (2009-2016) BDRemux [H.264/1080p] (1-55 серии) [ОБНОВЛЯЕМЫЙ]
-
->>3
->>17
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805097.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Маша и Медведь" - самый удачный и успешный российский анимационный сериал.
-Новое прочтение любимой детской сказки про Машу и Медведя. Сюжет и персонажи этой русской народной сказки знакомы любому ребенку, но характеры их и взаимоотношения сильно изменены – не Маша боится Медведя, скорее он боится осложнений в своей размеренной жизни, которые приносит с (   Читать дальше...   )Производство: Россия, Студия "Анимаккорд"Жанр: Компьютерная анимация, Детский, Приключения, СемейныйРежиссер: Олег Кузовков, Олег Ужинов, Денис ЧервяцовПерсонажи: Маша и медведьПродолжительность: 55 х ~ 00:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5A69D9D6BB6DE60F0C6384395F77E9A7DED05E
 ```
 
 https://mybot314.ru/tekegram_catalog/

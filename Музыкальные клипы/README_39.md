@@ -6,7 +6,7 @@ Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33669.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33664.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33660.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33654.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33650.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32746.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32721.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29259.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29258.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29119.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28242.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28042.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28030.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ NЮ – Некуда бежать (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27835.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27831.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21260.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20815.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17884.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17691.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ STAYC - BEBE (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12171.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Girls' Generation - Paparazzi (2012) WEBRip [H.265/2160p] [60fps, AI Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12157.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Seogi - Nap (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12148.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9573.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7509.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7480.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7453.jpg" />
 </div>
 
 

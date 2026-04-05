@@ -1,3 +1,61 @@
+###  Публикация: 1011572   (795965) от 28.04.2016
+
+Blue Man Group - Three (2016) [MP3|320 кб/с] <Electronic, Experimental>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dispatches 1
+02. The Forge
+03. Hex Suit
+04. 3 to 1 (feat. Mike Relm & Rob Swift)(   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CEC3262937F34474133F26EDFFC1ECB585AE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108949   (795829) от 27.05.2020
+
+Monolog - Discography 16 Releases (2001-2020) Tender Productions, Hymen Records, Ad Noiseam [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, IDM, Dubstep, Breakcore, Experimental>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbos (03:04)
+ 02. Seppuku (05:12)
+ 03. Stream (04:34)
+ 04. Grag (05:06)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/IDM/ExperimentalПродолжительность: 09:22:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BE436A301F8065CE26D546AE05ACA6217F97F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385791   (795801) от 27.05.2020
 
 The KLF - Коллекция (1989 - 2010) [FLAC|Lossless|image + .cue] <Deep House, Ambient, Electronic>
@@ -6,7 +64,7 @@ The KLF - Коллекция (1989 - 2010) [FLAC|Lossless|image + .cue] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795801.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795712.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795710.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Petit Boutique Vol.3 (20 Lounge Accessoires) (2018) [MP3|320 Kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795708.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Ludvig Cimbrelius - Dreaming The Night Sky (2018) Eternell [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795701.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Winter Time Vol.6 (22 Premium Trax Chillout-Chillhouse-Downbeat-Lounge) (20
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795699.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soul
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795695.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Laliya - The Middle Way (2017) [MP3|320 Kbps] <Lounge, New Age>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795659.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795636.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - DJ Зорькин - Приключения Электроника (1998) Ga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795599.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Global DJ Broadcast: Top 20 January (2018) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795595.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Omauha - Omauha (Remixed) (2016) [MP3|320 кб/с] <Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795567.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795502.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Matthias Meyer - Watergate 20 (2016) [FLAC|Lossless|tracks + .cue] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795500.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Funkstörung (Funkstorung) - Viceversa (2001) Studio !K7 [FLAC|Lossless|tracks+.
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795281.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795232.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Robert Rich - Offering To The Morning Fog (2020) Soundscape [FLAC|Lossless|WEB-D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795224.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Coll
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795108.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795071.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795068.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Best Of Soulful (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795065.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795064.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - The House of House (2019) [MP3|320 Kbps] <House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795061.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795054.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C7AD9A588C203525019740E25D40716E9D259A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274127   (795050) от 05.01.2019
-
-Dreamtime - Farout (2009) [APE|Lossless|image + .cue] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleeping Prophet Part One (2:18)
-02. Ghosthack (5:47)
-03. Escape to the Past (6:16)
-04. New Horizons (6:51)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867A0498C0149BEA0D1929DA1990C43BE6AF6D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274157   (795045) от 05.01.2019
-
-Derrick May - Innovator (1997/2008) R & S Records [FLAC|Lossless|tracks+.cue] <Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be Or Not To Be (06:54)
- 02. Icon (Montage Mix) (05:50)
- 03. Phantom (01:43)
- 04. Kaotic Harmony (06:35)(   Читать дальше...   )Тип издания: CD, Remastered, ReissueЖанр: Detroit Techno •Продолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FAA32B2C9BB65ADE0F3800B1960A57AF21541A
 ```
 
 https://mybot314.ru/tekegram_catalog/

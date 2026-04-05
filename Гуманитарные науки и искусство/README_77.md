@@ -1,81 +1,3 @@
-###  Публикация: 825552   (456268) от 29.09.2014
-
-Г. Г. Шпет | Философское мировоззрение Герцена (1921) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена рассмотрению эволюции взглядов А. И. Герцена на философские проблемы и течения XIX века.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D70F26C81381F16E3E8880B0316B87B24FF117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942170   (454077) от 01.10.2015
-
-А. И. Володин и др. (ред.) | История философии и марксизм [Вопросы методологии историко-философской науки] (1979) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454077.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются актуальные проблемы современной историко-философской науки: методологические принципы марксистско-ленинской концепции истории философии; значение ленинской критики историко-философских воззрений Богданова—Шулятикова; вопросы истории философии в трудах Ф. Меринга; дается критический анализ историко-философских позиций современного позитивизма (   Читать дальше...   )Жанр: История, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB411B15939A28D582D8761F64306419E7226CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941635   (454069) от 01.10.2015
-
-А. Швейцер | Культура и этика (1973) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454069.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Культура и этика» — эта проблема становится в наше время все более актуальной, ибо развитие цивилизации в XX веке уже подошло к такому рубежу, когда лишенная этического начала культура буржуазного общества все более угрожает благополучию и существованию человека на Земле. Необходимо в полной мере оценить ту опасность, которую представляет для будущего человечества (   Читать дальше...   )Жанр: История, философия, этика, культурологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71B1DE52618FE73C1EF2D5B978D468561FEBDD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941588   (454004) от 01.10.2015
 
 Мих. Лифшиц | Г. В. Плеханов: Очерк общественной деятельности и эстетических взглядов (1983) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454004.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453994.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453992.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453989.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453981.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453706.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453552.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453387.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453336.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452954.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452664.jpg" />
 </div>
 
 
@@ -380,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452564.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451141.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451137.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450512.jpg" />
 </div>
 
 
@@ -488,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450374.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450220.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450142.jpg" />
 </div>
 
 
@@ -569,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446243.jpg" />
 </div>
 
 
@@ -595,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446161.jpg" />
 </div>
 
 
@@ -623,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443124.jpg" />
 </div>
 
 
@@ -651,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443122.jpg" />
 </div>
 
 
@@ -677,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443120.jpg" />
 </div>
 
 
@@ -688,6 +610,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C73C04D052D037C8BE5163A1246F17ACB74F2F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943842   (443104) от 06.10.2015
+
+А. П. Скрипник | Моральное зло в истории этики и культуры (1992) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сущность и происхождение зла — одна из вечных проблем человечества. К ней обращались мифология, религия, этика, мыслителе разных эпох в народов. Свойственно ли зло природе человека? Как рождается гуманность и что побуждает людей быть бесчеловечными? Какие факторы стимулируют несправедливость? Эти и другие вопросы, касающиеся морального зла, рассматриваются в книге (   Читать дальше...   )Жанр: История, философия, этика, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6299D7F84096BEE5308544EA31FE74E46C58A659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944022   (442961) от 06.10.2015
+
+Ф. Ф. Вяккерев и. др. (отв. ред.) | Материалистическая диалектика [5 томов] (1981-1985) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многотомное издание по материалистической диалектике в нашей стране предпринимается впервые.
+
+В 1-м томе дается характеристика предмета и принципов материалистической диалектики, излагается диалектическое понимание материи, анализируется природа материального объекта и его атрибутов, исследуются категории количества, качества, меры, движения, времени, закона, случайности, (   Читать дальше...   )Жанр: История, философия, логика, науковедение, математика, физика, химия, астрономия, геология, кибернетика, биология, социология, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39544EB157C435182244AAB34E2A9204E65B3253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943321   (442960) от 06.10.2015
+
+М. Розенталь, П. Юдин (ред.) | Краткий философский словарь (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее, четвертое, издание "Краткого философского словаря" дополнено рядом новых слов, понятий и терминов, отсутствовавших в предыдущих изданиях. Пересмотрена в целях с целью улучшения текста часть старых статей, некоторые статьи написаны заново, сделаны необходимые дополнения. В издании учтены критические замечания и пожелания, высказанные в печати (   Читать дальше...   )Жанр: История, философия, словарьФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C54ABFC3C0167CEC180B659D1274328F92A537E
 ```
 
 https://mybot314.ru/tekegram_catalog/

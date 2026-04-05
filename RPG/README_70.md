@@ -1,3 +1,55 @@
+###  Публикация: 1784777   (24843) от 13.03.2025
+
+Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая полноценная экшен-RPG в серии игр Final Fantasy. Мрачное фантастичное приключение, в котором судьбу мира решат айконы и управляющие ими доминанты. Узнайте историю Клайва Розфилда - воина, получившего титул "Первого Щита Розарии" и поклявшегося защищать своего младшего брата Джошуа, доминанта Феникса. Нашему герою предстоит пережить трагедию, после (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23A419A3C2DCF9A6A9926386C44967F50CC3D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784778   (24836) от 13.03.2025
+
+Rise of the Ronin (2024) [Ru/Multi] (1.09/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rise of the Ronin - динамичная ролевая игра, в которой вам предстоит стать ронином, самураем без хозяина, и вершить свою судьбу в Японии эпохи Бакумацу. Ваш выбор повлияет на развитие событий - на чью сторону вы встанете? Будете сражаться с сёгунатом или поддержите его? Может быть, примкнете к прозападным силам? Будущее страны в ваших руках.Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C8D86802563ABB72E384671C40B42C41DE296F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761732   (24756) от 14.03.2025
 
 Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
@@ -6,7 +58,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24756.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24673.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24672.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24660.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24646.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24635.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24632.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24629.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.1hf) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24522.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24433.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24416.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24410.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24320.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24199.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24189.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24113.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24107.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Reignbreaker (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24083.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Dread Tomb (2025) [Multi] (1.16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23979.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23912.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23903.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23902.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23816.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23801.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED6037F0C7034C6D8A6B08BBD2D57315E5AB131A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787087   (23796) от 23.03.2025
-
-The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2012) [Ru/Multi] (3.5.0.26g) Repack Wanterlude [Enhanced Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23796.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ведьмак 2: Убийцы королей», вторая часть приключений профессионального охотника на монстров Геральта из Ривии, разворачивает зрелую, философскую историю - продолжение одной из наиболее детально проработанных ролевых игр, когда-либо выходивших для ПК. Пришло время невиданного хаоса. Могущественные силы сталкиваются в борьбе за власть и величие. Северные королевства (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: Ролевая игра, Экшны, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Польский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Польский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31093C42E7CB398CEF2CED579E96C72DC96492F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787085   (23786) от 23.03.2025
-
-The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23786.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ведьмак» - ролевая игра, действие которой разворачивается в мрачном фэнтезийном мире. Мораль здесь - понятие относительное, а грань между добром и злом стёрта. Создатели игры уделили большое внимание сюжету и развитию персонажей, а тщательно продуманная боевая система в режиме реального времени делает историю ещё динамичней. Играя за ведьмака Геральта из Ривии, (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37B257FDF79C4B24637D616C55522E5AB3AAA6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

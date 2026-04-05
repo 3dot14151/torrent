@@ -1,3 +1,32 @@
+###  Публикация: 1651414   (222365) от 06.08.2023
+
+Dryadel - Dreams of the Dead Forest (Сны мёртвого леса) (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Dark Ambient, Neofolk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На пути к забвению [00:06:49]
+02. Безмолвие северных гор [00:08:51]
+03. Чёрное пламя столетия [00:14:22]
+04. Последняя звёздная ночь [00:09:34](   Читать дальше...   )Жанр: Atmospheric Black Metal, Dark Ambient, NeofolkПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76515D2B2B910A72FDEE614EF0D501D4BDC38CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651384   (222356) от 06.08.2023
 
 Soulkick - Hide the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +35,7 @@ Soulkick - Hide the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222356.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Houston - Relaunch III (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222340.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Simple Minds - Direction of the Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222339.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dymna Lotva - The Land Under The Black Wings: Blood (2023) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222333.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Crossfade - Innocent Days (2023) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222326.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222321.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Ellereve - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <indie rock, altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222319.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Twinky - Dead Generation (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222311.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kaj Pousar - Nine Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222299.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222285.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Stray Gods - Olympus (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222268.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Tony Mitchell - Radio Heartbeat (2023) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222262.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Red Hot Chili Peppers - Return of the Dream Canteen (2022) [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222261.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Steel Inferno - Evil Reign (2022) [MP3|320 Kbps] <Heavy, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222240.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222236.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Tobias Sammet's Avantasia - A Paranormal Evening With The Moonflower Society (20
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222231.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Pink Floyd - Delicate Sound of Thunder (2019 Remix) (2020) 2CD, Live [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222177.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ M.A.G.S. (MAGS) - Destroyer (2023) [MP3|320 Kbps] <Alternative & Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222146.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Barclay James Harvest - Once Again (1971) 3CD, Expanded & Remastered, 2023, Esot
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222130.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Genesis - The Last Domino? (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222129.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Freedom - Born Again: The Complete Recordings 1967-1972 (2023) 5CD, 2023, Grapef
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222083.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The Beatles - Revolver (1966) Box Set, 5 x CD, Remastered, 2022, Super Deluxe Ed
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222067.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Jimmy Page & Friends - Tribute To Alexis Korner (2019) Reissue, 2023, Angel Air 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221750.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Tyler Leads - Planetary Movement (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221714.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Billy King & the Bad Bad Bad - 2 Albums (2017-2020) [MP3|320 Kbps] <Surf, Acid R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221706.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Billy King & the Bad Bad Bad - 2 Albums (2017-2020) [MP3|320 Kbps] <Surf, Acid R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA653681DBDC3C195637E270E268526BF9DF724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585471   (221695) от 22.10.2022
-
-Crooked Royals - Quarter Life Day Dream (2022) [MP3|320 Kbps] <Progressive Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Hands (3:10)
-02. Ill Manor (3:40)
-03. Waypoint (3:48)
-04. Counterfeit (2:41)(   Читать дальше...   )Жанр: Progressive Metalcore, Post-HardcoreПродолжительность: 00:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D1DD34B95461E335AEED07678C7BD059A1B6FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

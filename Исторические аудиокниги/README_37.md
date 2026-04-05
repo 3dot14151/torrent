@@ -1,56 +1,3 @@
-###  Публикация: 1430522   (170852) от 10.12.2020
-
-Антон Деникин | Очерки русской смуты. Том третий. Белое движение и борьба Добровольческой армии (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор "Очерков русской смуты" Антон Иванович Деникин (1872-1947), занимая в период с 1917 по 1920 гг. ключевые посты в русской армии, сыграл значительную роль в истории России, став одним из руководителей белого движения.
-В третьей книге автор рисует политическую карту Российского государства к середине 1918 года, рассказывает о внутренней жизни Добровольческой (   Читать дальше...   )Жанр: История, мемуарыПродолжительность: 03:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770130F584D5AA16832FE776426DE8C01BC91D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344300   (170552) от 10.12.2019
-
-Мари-Бернадетт Дюпюи | Лики ревности (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синеглазая красавица Изора уже испытала много разочарований в любви. Девушка часто думала: единственные люди, которые по-настоящему ее любят,□– это родители. После взрыва на шахте в поселке Феморо Изора переживала, что пострадал Тома, в которого она безнадежно влюблена. Тома выжил. Но Изора его не интересует, ведь он собирается жениться на белокурой полячке (   Читать дальше...   )Жанр: Исторические любовные романыПродолжительность: 18:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE31B980AD05FAB9B85C1164D0087C51EEEB2DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515567   (169265) от 07.12.2021
 
 Валентин Пикуль | На задворках Великой империи (Книга 1). Плевелы (2021) [MP3, Сергей Дадыко]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169265.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168493.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168409.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167571.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167458.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166974.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166807.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166699.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166547.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166186.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165775.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165754.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165668.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165621.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165014.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164405.jpg" />
 </div>
 
 
@@ -483,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164382.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164291.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164240.jpg" />
 </div>
 
 
@@ -561,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163568.jpg" />
 </div>
 
 
@@ -587,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163478.jpg" />
 </div>
 
 
@@ -614,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163472.jpg" />
 </div>
 
 
@@ -640,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163429.jpg" />
 </div>
 
 
@@ -669,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162891.jpg" />
 </div>
 
 
@@ -680,6 +627,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22CC60F34B3E8282CA5FABFE5BE4CB1DE7E1E475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443283   (162868) от 03.11.2023
+
+Артур Конан Дойль | Родни Стоун (2005) [MP3, Владимир Ровинский]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Конан Дойл (1859–1930) – знаменитый английский писатель.
+Действие повести или короткого романа знаменитого английского писателя сэра Артура Конан Дойля происходит в Англии начала XIX века. Сам автор считал «Родни Стоуна» романом о боксе, на самом же деле, несмотря на то, что в книге есть описания и боксерских поединков, и конных состязаний – это изображение (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: БиблиофоникаПродолжительность: 11:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A6A790A9281810A6430CF467345176764C6F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376508   (162847) от 03.11.2023
+
+Генри Райдер Хаггард | Братья (2006) [MP3, Денис Кулютников]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творчество английского романиста Генри Райдера Хаггарда (1856–1925) широко известно у нас по переводам романов «Копи царя Соломона» и «Дочь Монтесумы», однако два этих произведения – лишь малая часть богатого творческого наследия автора. В историко–приключенческом романе «Братья» слушателя ждет встреча со средневековыми рыцарями и их прекрасными дамами. Завораживающая (   Читать дальше...   )Жанр: Историко–приключенческий романПродолжительность: 13:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF110ECCF9565478F3E29DF96642FCE5AFE7823
 ```
 
 https://mybot314.ru/tekegram_catalog/

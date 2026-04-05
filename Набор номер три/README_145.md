@@ -1,3 +1,162 @@
+###  Публикация: 1498682   (852308) от 29.09.2021
+
+Microsoft превратит в «кирпич» неподдерживаемые устройства, обновленные до Windows 11?
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_852308.jpg" />
+</div>
+
+
+###  Подробнее
+
+До официального релиза Windows 11 остается чуть больше недели, но пользователи по всему миру по-прежнему не знают, смогут ли они полноценно пользоваться Windows 11 на неподдерживаемых устройствах.Когда Microsoft анонсировала свою операционную систему Windows 11, компания четко дала понять, что новая система подойдет только для устройств, которые отвечают системным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648280   (852221) от 25.04.2013
+
+Microsoft Windows 8 RTM x86-x64 AIO Russian - CtrlSoft [Русский]
+
+>>3
+>>25
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852221.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Windows 8 у вас появятся новые замечательные способы использования компьютера. Эта быстрая, динамичная и понятная операционная система создана, чтобы вы могли делать то, что вам нравится, и так, как вам нравится.
+
+Особое внимание в Windows 8 уделяется вашей жизни — друзьям и родным, а также работе с приложениями и файлами. Используя новые возможности, такие как (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8757B34A94CE60CE81CC37C6456E9DA17E853745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443478   (852116) от 24.03.2014
+
+VideoReg Pro 6.81 [Ru] - Видеорегистратор
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеорегистратор.Разработчик: RubberBigPepperЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150830372BBBE638A25F148A354D994F80773C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001279   (851613) от 29.03.2016
+
+Пираты перебираются в Telegram — появились боты для торрент-трекеров
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_851613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торрент-трекер NNMClub в сети Telegram
+Похоже, что пиратские ресурсы, заблокированные на территории России, начали массово перебираться в мессенджер Telegram. Бета-версию бота запустил торрент-треккер NNMClub, а также свою версию готовит Ru Tracker.После набора определённой команды пользователь получает так называемую magnet-ссылку, с помощью которой можно скачать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001428   (851604) от 29.03.2016
+
+Mortal Kombat: Komplete Edition (2011) [PS3] [EUR] 4.30 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя годы легендарная серия Mortal Kombat возвращается такой, какой ее помнят и ждут тысячи игроков, в игре Mortal Kombat. Komplete Edition. Это жестокая, кровавая и беспощадная битва не на жизнь, а на смерть, битва, в которой может победить только сильнейший. Столетия понадобились Шао Кану, чтобы одержать верх над Рейденом и его союзниками. Однако перед лицом (   Читать дальше...   )Тип издания: UnofficialРазработчик: NetherRealm StudiosЖанр: Arcade (Fighting), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A7AF9D2022E0D1CF9A75B6CF9C2C5862D25C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110527   (851400) от 03.03.2017
+
+Total Commander 9.0a (x86) Freemen 17.3 Slim RePack (& Portable) by notn [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5699338A62AC2A650DC3F087D934F669A9E4FEC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110692   (851388) от 03.03.2017
 
 Deus Ex: Mankind Divided  (2016) [Ru/Multi] (1.16.761.0/dlc) License SKIDROW
@@ -6,7 +165,7 @@ Deus Ex: Mankind Divided  (2016) [Ru/Multi] (1.16.761.0/dlc) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851388.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851387.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851125.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_851018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_851018.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ Comodo Internet Security Premium 12.2.2.7036 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851002.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_850997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_850997.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_850991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_850991.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850989.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_850746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_850746.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_850698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_850698.jpg" />
 </div>
 
 
@@ -267,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_850682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_850682.jpg" />
 </div>
 
 
@@ -293,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850672.jpg" />
 </div>
 
 
@@ -319,7 +478,7 @@ Microsoft Office 2016-2021 LTSC Professional Plus / Standard + Visio + Project 1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850669.jpg" />
 </div>
 
 
@@ -345,7 +504,7 @@ Adobe Photoshop 2021 v22.5.1 + Neural Filters [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850668.jpg" />
 </div>
 
 
@@ -371,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850667.jpg" />
 </div>
 
 
@@ -397,7 +556,7 @@ MInstAll v.10.09.2021 By Andreyonohov (Unpacked) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850666.jpg" />
 </div>
 
 
@@ -423,7 +582,7 @@ CyberLink PowerDirector Ultra (x86/x64) 9.0.0.2702 [Multi + Rus by loginvovchyk]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850601.jpg" />
 </div>
 
 
@@ -449,7 +608,7 @@ Ubuntu 13.04 [i386, x86-64] (2xCD)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850492.jpg" />
 </div>
 
 
@@ -477,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850491.jpg" />
 </div>
 
 
@@ -503,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850342.jpg" />
 </div>
 
 
@@ -514,166 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DCC2ED1727BCE7935DBE5AFF4D2E33AC6D57AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770534   (850338) от 25.03.2014
-
-OS X 10.9.2 Installer USB for Win (13C64)
-
->>3
->>29
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раздача предназначена для создания установочной флешки OS X 10.9.2 с использованием ресурсов ОС Windows.
-Для создания образа установщика применена программа инсталлятора Install OS X Mavericks.app из AppStore.
-В качестве бутлоадера использована UniBeast 3.0.1
-Программа MultiBeast 6.1.0, для установки драйверов и загрузчика, в комплекте раздачи.(   Читать дальше...   )Язык интерфейса: Русский/Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D443DDDFBF292569E96FB43559871DABA20339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876781   (850318) от 10.03.2015
-
-Исход: Цари и боги / Exodus: Gods and Kings (2014) BDRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветхозаветная история о великом пророке Моисее и освобождении еврейского народа из египетского плена. Моисей появился на свет в те времена, когда фараон приказал убивать всех новорожденных мальчиков еврейского происхождения. Чтобы спасти его, мать положила малыша в корзину из тростника и отправила вниз по Нилу.
-Ребенка нашла дочь фараона, которая усыновила его и (   Читать дальше...   )Производство: Chernin Entertainment, Scott Free Productions, Babieka, Volcano Films / Великобритания, США, ИспанияЖанр: Боевик, Драма, ПриключенияРежиссер: Ридли СкоттАктеры: Кристиан Бэйл, Джоэл Эдгертон, Джон Туртурро, Аарон Пол, Бен Мендельсон, Мария Вальверде, Сигурни Уивер, Бен Кингсли, Хиам Аббасс, Исаак ЭндрюсПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 02:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD8FFD00AB747A54E1A203E0FC032EA34F04B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000956   (849936) от 30.03.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264/720p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Новый Порядок во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Нового Порядка Финна (   Читать дальше...   )Производство: СШАЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Харрисон Форд, Энди Серкис, Кэрри Фишер, Донал Глисон, Гвендолин Кристи, Марк Хэмилл, Оскар Айзек, Лупита Нионго, Адам Драйвер, Уорвик ДэвисПеревод: Дублированный (Чистый звук)Субтитры: Русские (полные, форсир), английскиеПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94DCF55619563CA623233211071D98411B8AC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001892   (849933) от 30.03.2016
-
-Movavi Video Editor 11.4.0 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Editor - мощный и между тем достаточно простой видео редактор, позволяющий пользователю редактировать видео файлы, используя простой и дружелюбный пользовательский интерфейс. При помощи этого видео редактора, можно легко импортировать медиафайл, открыть файл DVD или 3D видео, а также записать видео или аудио поток.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB3C73359F685E74BB17549B206A33307BFA4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973619   (849929) от 30.03.2016
-
-Boku Dake ga Inai Machi / Erased / Город, в котором меня нет [2016, TV, 12] HDTV 720p raw
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой по имени Сатору Фудзинума — идущий к успеху мангака, у которого есть неожиданная способность: он умеет поворачивать время вспять и предотвращать гибель людей. Когда кто-то убивает мать Сатору, герой отправляется в прошлое, чтобы раскрыть эту тайну, но промахивается и попадает в пору младшешкольного детства незадолго до загадочного исчезновения своей (   Читать дальше...   )Жанр: драма, магия, тайна, психологическийРежиссер: Ито ТомохикоПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929136A8AF9BE6186DFD1AF24695DFEE7D70FC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000373   (849925) от 30.03.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264/1080p] [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (чистый звук)Язык субтитров: Русский (полные), английскийПродолжительность: 02:18:06Реклама: Удалил 5 вставок голосовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDFF518DF554CE77DC3F9B791EC589DCE1FF073
 ```
 
 https://mybot314.ru/tekegram_catalog/

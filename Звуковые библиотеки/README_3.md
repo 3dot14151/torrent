@@ -6,7 +6,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990490.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989723.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989715.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cinesamples - CineBrass Sonore [KONTAKT]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984817.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983355.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983311.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cinesamples - Voices of War - Men of the North [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975373.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975177.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ilya Efimov Production - Acoustic Guitar - RePack Андрей650071 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971647.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969980.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964013.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946393.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Boom Library - DESTRUCTION [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944081.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NNM-Club Unmarked Team - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940480.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939304.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NNM-Club Sound Cleaner's - Collection of Soundtracks (Cleared from the Watermark
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933082.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NNM-Club Sound Cleaner's - Collection of Soundtracks (Cleared from the Watermark
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931809.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929833.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923538.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918535.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916355.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916337.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915043.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915026.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913607.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911241.jpg" />
 </div>
 
 

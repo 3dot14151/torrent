@@ -1,3 +1,55 @@
+###  Публикация: 1424695   (220477) от 21.11.2020
+
+Вл.Д. Мазуров | Математические методы распознавания образов (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задачи распознавания образов связаны с классификацией объектов, которая подчинена некоторой цели. Существуют различные направления формализации задач распознавания образов, приводящие к множеству математических постановок. Распознавание образов является основой искусственного интеллекта. В учебном пособии излагаются основные математические модели и методы решения (   Читать дальше...   )Жанр: Математика, электроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA02EBB9D397AEE47D87245DF667800F0EC3263C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269689   (219786) от 15.12.2018
+
+В.Н. Гришин, Е.Е. Панфилова | Информационные технологии в профессиональной деятельности (2007) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219786.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике дается характеристика информационно-коммуникационным технологиям и системам, используемым в процессах управления организацией. Особое внимание уделяется рассмотрению вопросов выбора системных, прикладных и специализированных программных средств для организации работы управленческого персонала. Представлен обзор рынка информационных технологий и особенности (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25AF5ABF27593BE9FC4E4D5F45AF5A0ACE1A185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343151   (219696) от 05.12.2019
 
 Т.Е. Мамонова | Информационные технологии. Лабораторный практикум (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219696.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219380.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218540.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218194.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218059.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217867.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217847.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217794.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217774.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217593.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217401.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216345.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216236.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216166.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215983.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215520.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215317.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215004.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214495.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214489.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214362.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214244.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214164.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214151.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309E909B72FC6F662224C6852A6B295671D07054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653847   (214144) от 17.08.2023
-
-С.У. Гончаренко | Конкурсные задачи по физике (1966) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целью данного сборника является ознакомление поступающих в вузы с характерными для конкурсных экзаменов задачами, методикой их решения. Большинство задач предлагалось на вступительных экзаменах в вузы в последние годы. Ко всем задачам даны подробные решения и необходимые объяснения, к которым рекомендуется обращаться только в тех случаях, когда возникают трудности (   Читать дальше...   )Жанр: ФизикаИздательство: ТехнiкаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128B615BE149296C9FA90C042FB7B0CE697AA73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194021   (214072) от 23.12.2017
-
-Ю.Г. Бабаскин | Технология строительства дорог (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охарактеризованы основные материалы, оборудование, технологии и организация строительства. Материал изложен системно и обеспечивает последовательное изучение всех стадий строительства. Рассмотрены свойства грунтов, их применимость в дорожном строительстве.
-Дана краткая характеристика дорожно-строительной техники. Изложены особенности и способы сооружения земляного (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D657BE94EC3A36323E9A89255CDCF377FDDFFCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

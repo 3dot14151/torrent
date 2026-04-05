@@ -1,3 +1,133 @@
+###  Публикация: 989928   (912984) от 24.02.2016
+
+Школа Монстров: Большой Кошмарный риф / Monster High: Great Scarrier Reef (2016) DVB [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лагуна Блю получает подводные права и приглашает подруг в заплыв на субмарине. Она хочет проверить, действительно ли у школьного бассейна нет дна, а в глубинах его таится много опасностей. В погоне за острыми впечатлениями подружки заплывают слишком глубоко и попадают на территорию Большого Кошмарного рифа. С помощью волшебства дочери Посейдона — Поси Ри — девочки (   Читать дальше...   )Производство: США, Hi-Tops Video, Mattel Playground ProductionsЖанр: Мультфильм, приключения, семейный, детский, полнометражныйРежиссер: Уильям ЛауПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBFDEB497E0AD11C396662A91C7F17BF58B00D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865846   (912828) от 02.02.2015
+
+Небесный меч / Heavenly Sword (2014) WEB-DLRip [H.264/720p-LQ] [VO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнометражный мультфильм по известной игре Heavenly Sword. Тысячи лет прошло с тех времен, когда злостный король по имени Ворон захватил практически всю земли и вскоре должна была покрылся во тьму и ужас для простых людей. Но против него выступил небесный посланник, дабы прекратить эту несправедливость. В жестоком бою он смог одолеть ужасного царя и мир снова стал (   Читать дальше...   )Производство: США |  AZ Works, Blockade EntertainmentЖанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Ган Хо ДжангПеревод: Одноголосый закадровый, любительский (Павел Морозов aka PashaUp)Язык субтитров: АнглийскийПродолжительность: 01:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8FB7F2F1FA86D7A7A22C7E78B86FB214E7ED36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634158   (912784) от 24.03.2013
+
+Скуби-Ду! Маска голубого сокола / Scooby-Doo! Mask of the Blue Falcon (2012) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ужасный злодей мистер Хайд выпускает летучих мышей-монстров, воющих гончих и зловещую слизь на праздник, наступает время для Корпорации Тайны — разгадывать загадки и расставлять ловушки на монстров. Но наевшаяся пиццы, супер-заряженная команда Шегги и Скуби-Ду должны раскрыть в себе внутренних супергероев, чтобы остановить эту удушающую, омерзительную зеленую (   Читать дальше...   )Жанр: Мультфильм, приключения, семейныйРежиссер: Майкл ГогуэнПерсонажи: Грегг Бергер (Hank Prince / Zorak, озвучка), Минди Кон (Velma Dinkley), Ника Футтерман (Jennifer Severin, озвучка), Фред Татаскьор (Jack Rabble, Cruel Dynomutt, озвучка)Перевод: ДублированныйЯзык субтитров: Русские, английскиеПродолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AD450601BB2F135799ADCB8040C20666D0F99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 179015   (912753) от 05.03.2010
+
+Принцесса и лягушка / The Princess and the Frog (2009) [720p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы знаем, что бывает, когда принц целует заколдованную в лягушку принцессу. Но что случится, если переодетая в принцессу официантка поцелует лягушку-принца? Команда мультипликаторов под руководством Рона Клементса и Джона Маскера, создателей «Русалочки» и «Аладдина», а также обладатель премии «Оскар» композитор Рэнди Ньюман поведают самую прекрасную историю любви (   Читать дальше...   )Производство: Disney / СШАЖанр: Комедия, ПриключенияРежиссер: Рон Клементс, Джон МаскерПеревод: Многоголосый закадровыйСубтитры: Английские (отключаемые, вшитые)Продолжительность: 01:37:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634159   (912622) от 24.03.2013
+
+Скуби-Ду! Маска голубого сокола / Scooby-Doo! Mask of the Blue Falcon (2012) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ужасный злодей мистер Хайд выпускает летучих мышей-монстров, воющих гончих и зловещую слизь на праздник, наступает время для Корпорации Тайны — разгадывать загадки и расставлять ловушки на монстров. Но наевшаяся пиццы, супер-заряженная команда Шегги и Скуби-Ду должны раскрыть в себе внутренних супергероев, чтобы остановить эту удушающую, омерзительную зеленую (   Читать дальше...   )Жанр: Мультфильм, приключения, семейныйРежиссер: Майкл ГогуэнПерсонажи: Грегг Бергер (Hank Prince / Zorak, озвучка), Минди Кон (Velma Dinkley), Ника Футтерман (Jennifer Severin, озвучка), Фред Татаскьор (Jack Rabble, Cruel Dynomutt, озвучка)Перевод: ДублированныйЯзык субтитров: Русские, английскиеПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD2159D1921E6DE02175A0DBD702CDB9517640C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491389   (912516) от 24.08.2021
 
 Клоун Коко. Невидимые чернила / Invisible Ink (1921) DVDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912516.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912495.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912445.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912250.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912094.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911913.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911804.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911794.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911752.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911537.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911357.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911120.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911089.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911056.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910413.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910383.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910302.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910262.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910221.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910192.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910191.jpg" />
 </div>
 
 
@@ -540,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A26D9946739E872001C0869324A35B58E7A2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491574   (910108) от 25.08.2021
-
-Щенячий патруль в кино / PAW Patrol: The Movie (2021) WEB-DLRip [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда злодей Хамдингер становится мэром города Приключений, бесстрашные щенки бросают ему вызов. Райдера с друзьями ждут опасности и веселье, тайны прошлого и новые знакомства — так, к патрулю присоединяется находчивая такса Либерти. Вооружившись новыми гаджетами, смекалкой и дружбой, команда хвостатых героев готова противостоять Хамдингеру и спасти жителей города (   Читать дальше...   )Производство: Канада, США, Spin Master Entertainment, Nickelodeon Movies, Paramount AnimationЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Кэллан БрункерАктеры: Иэн Армитедж, Марсаи Мартин, Рон Пардо, Яра Шахиди, Ким Кардашьян Уэст, Рэндолл Пак, Дэкс Шепард, Тайлер Перри, Джимми Киммел, Уилл БрисбинПеревод: Двуголосый любительский (Pazl Voice // tnx. Kino.Pub)Субтитры: отсутствуютПродолжительность: 01:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0872882D21CB340C3903F1D5679192ED163E6C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098036   (910083) от 29.01.2017
-
-Волшебный меч: Спасение Камелота / Quest for Camelot (1998) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все то же царство Камелот, все тот же король Артур, все тот же легендарный меч Экскалибур, который похищает злой рыцарь Рубер. Храбрая девушка по имени Кейли отправляется на поиски меча, ведомая ослепшим юношей по имени Гаррет.
-Они встречаются с забавным созданием — двухголовым драконом по имени Девон и Корнуол. Во время их волшебного и музыкального путешествия Кейли (   Читать дальше...   )Производство: СШАЖанр: Фентези, Комедия, ПриключенияРежиссер: Фредерик Ду ЧауПеревод: дублированный, многоголосый, одноголосый авторскийЯзык субтитров: русские (форсированные на песни, полные), английские (полные)Продолжительность: 01:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70A62A2CB10D31CDCAB04F88DC093DFB09DDAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098054   (909831) от 29.01.2017
-
-Волки и овцы: бе-е-е-зумное превращение (2016) HDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимцу стаи, молодому и беззаботному волку Серому невдомек, что скоро он окажется чужим среди своих друзей. Претендуя на роль вожака стаи и на руку (вернее, лапу) и сердце самой красивой волчицы Бьянки, Серый продолжает дурачиться и устраивать розыгрыши над сородичами. Все переворачивается с ног на голову, когда он решает изменить себя с помощью волшебного зелья. (   Читать дальше...   )Производство: Россия, Кинокомпания CTB, Wizart AnimationЖанр: Мультфильм, семейный, комедия, приключенияРежиссер: Максим Волков, Андрей ГалатАктеры: Александр Петров, Елизавета Боярская, Сергей Безруков, Екатерина Иванчикова, Юрий Гальцев, Андрей Рожков, Татьяна Шитова, Диомид Виноградов, Андрей Бархударов, Дмитрий ФилимоновПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C70FDCABA30199FFF29B5841832CC8FF0869F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098086   (909810) от 29.01.2017
-
-Волки и овцы: бе-е-е-зумное превращение (2016) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимцу стаи, молодому и беззаботному волку Серому невдомек, что скоро он окажется чужим среди своих друзей. Претендуя на роль вожака стаи и на руку (вернее, лапу) и сердце самой красивой волчицы Бьянки, Серый продолжает дурачиться и устраивать розыгрыши над сородичами. Все переворачивается с ног на голову, когда он решает изменить себя с помощью волшебного зелья. (   Читать дальше...   )Производство: Россия, Кинокомпания CTB, Wizart AnimationЖанр: Мультфильм, семейный, комедия, приключенияРежиссер: Максим Волков, Андрей ГалатАктеры: Александр Петров, Елизавета Боярская, Сергей Безруков, Екатерина Иванчикова, Юрий Гальцев, Андрей Рожков, Татьяна Шитова, Диомид Виноградов, Андрей Бархударов, Дмитрий ФилимоновПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDC87BE1C69D2B9EDE934D588840DFD09672F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098368   (909676) от 29.01.2017
-
-Темная Лига справедливости / Justice League Dark (2017) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главой группы сверхъестественных героев выступает Джон Константин, в команду которого входят - Болотная тварь, Затанна, Мертвец, Демон и Черная орхидея. Все они объединяются в Темную Лигу Справедливости, чтобы взять на себя оккультные и сверхъестественные угрозы, против которых Лига Справедливости может оказаться бессильной.Производство: США, Warner Bros. Animation, DC ComicsЖанр: Рисованная анимация, Фентези, ПриключенияРежиссер: Джей ОливаПерсонажи: Джон Константин, Бэтмен, Болотная тварь, Затанна, Мертвец, Демон, Черная орхидея.Перевод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: РГ "Black Show"Язык субтитров: Русский, АнглийскийПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7863BBB278DF93813A006BF69B9586771DA080E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

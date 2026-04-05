@@ -1,3 +1,30 @@
+###  Публикация: 1418630   (346434) от 25.10.2020
+
+Udemy | Создание Sci-Fi ассета для игр в Blender 2.81 / Blender Sci fi Game Asset Creation with Emiel Sleegers (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс по созданию ассета для игры AAA качества от художника из Ubisoft.
+Этот курс не для полных новичков, которые никогда раньше не использовали Blender, Substance painter, Marmoset toolbag. Вместо этого это дружественный курс для начинающих, что означает, что если вы знаете, как передвигаться в этих программах, возможно, уже использовали их раньше, но вы все еще (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 13:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BEAC15C5EACFD3FF59F16BA399F61E7947C6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 838133   (346396) от 07.11.2014
 
 Profileschool | Имиджевая предметная съемка (2014) PCRec
@@ -6,7 +33,7 @@ Profileschool | Имиджевая предметная съемка (2014) PCRe
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346396.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346288.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346283.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346275.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346208.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ HighLights | Основы веб-дизайна (2016) PCRec [H.264]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346184.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Empo | Контекстная реклама Google AdWords (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346089.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ Codeby | Paranoid - анонимность и безопасность в сет
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345997.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ Udemy, Parv Shah | Dark Web: Complete Introduction to the Deep/Dark Web 2022 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345368.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Bravo Chef! Выпечка и десерты [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345144.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ Bravo Chef! Вегетарианская кухня [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345017.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ Bravo Chef! Итальянская кухня [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344986.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ BJ Gaddour | Delta Fit Speed Shred (2014) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344225.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ Tony Horton | Double Time (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344135.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344115.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344097.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343949.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343947.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342862.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342852.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342442.jpg" />
 </div>
 
 
@@ -567,7 +594,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Modular Environments in Unreal Engine 5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342440.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342034.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341993.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ IT Security Academy Hacking School | IT Безопасность Для Начи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341989.jpg" />
 </div>
 
 
@@ -659,34 +686,6 @@ IT Security Academy Hacking School | IT Безопасность Для Начи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D692FDAF0BC396B7892C25044AC6288331A8162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072298   (341975) от 17.11.2016
-
-Александр Левичев | Asterisk: Профессиональный курс по open-source телефонии (2013) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asterisk — свободное решение компьютерной телефонии (в том числе, VoIP) с открытым исходным кодом от компании Digium, первоначально разработанное Марком Спенсером. Приложение работает на операционных системах Linux, FreeBSD, OpenBSD и Solaris и др. Имя проекта произошло от названия символа «*» (англ. asterisk — «звёздочка»).
-
-Asterisk в комплексе с необходимым оборудованием (   Читать дальше...   )Производство: SkillFactoryЖанр: VoipПродолжительность: 21:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E913061AE0A722BFF840AFC302C60970077A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

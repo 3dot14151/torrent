@@ -1,3 +1,55 @@
+###  Публикация: 1438025   (1041402) от 07.01.2021
+
+Joel Bradley | 3ds Max 2018: Mastering UVW Mapping (2018) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041402.jpg" />
+</div>
+
+
+###  Подробнее
+
+UVW mapping - это метод сопоставления координат, который позволяет художникам проецировать 2D-текстуры на поверхности трехмерных объектов. Это ключевой навык для всех областей 3D-индустрии, включая фильмы, игры и визуализации. Этот курс помогает дизайнерам выполнять мэппинг геометрии в процессе подготовки для текстуринга, используя мощные функции UVW мэппинга в 3ds (   Читать дальше...   )Производство: LyndaЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 02:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1507A2CCF31A3E870BF16FB94A95F08E2512610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438016   (1041349) от 07.01.2021
+
+Рачинский Михаил | 3D Моделирование ювелирных изделий в Blender 2.66 (2013) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс не использует существующие учебные пособия, это полностью уникальный курс основанный на личном опыте автора в ювелирном дизайне и преподавании. В течении курса вы научитесь пользоваться пакетом 3D моделирования Blender, изучите теорию и практику не только 3D но и ювелирного дела. Узнаете все этапы построения изделия начиная от идеи и заканчивая выращиванием (   Читать дальше...   )Производство: jewelcourses.comЖанр: Создание видеоПродолжительность: 21:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351723861DF72B383D342BDF3562A9A215C705EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438127   (1041340) от 07.01.2021
 
 Sean Fowler | Zbrush 4R8: Hard Surface Sculpting for all Levels (2017) PCRec
@@ -6,7 +58,7 @@ Sean Fowler | Zbrush 4R8: Hard Surface Sculpting for all Levels (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041340.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Eric keller | Introduction to the UV Toolkit in Autodesk Maya 2018 (2018) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041275.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ CGMA, Vidya Vinnakota др. | Intro to Production Modeling (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041267.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ John Lynch | Houdini 17 Masterclass: Advanced Vellum Workflows (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040821.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Joe Mandia | Animating with Maya for Games and More (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040542.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Victory 3D, Corazon Bryant | Полное руководство по созда
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040423.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ Ari Danesh | Houdini Projects: Terrain Generation (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040323.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Delano Athias | Getting Started with MEL in Maya (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040083.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ Nicolas Garilhe | Armor Creation in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040024.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ CG Cookie, Chunck Trafagander | Давайте создадим снеговик
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039782.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ CG Fast Track | Основы Blender 2.82 части 1-3 / Blender Fundamentals 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039753.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039709.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ Michael Rigley | Design for Production: Animation (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039512.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ Jonathan Lampel | Creating Plants in Blender (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039504.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ Jonathan Hamilton | Painting with Ambient occlusion (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039492.jpg" />
 </div>
 
 
@@ -415,7 +467,7 @@ Chung Kan | 3D Creature Modeling for Production (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039491.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ Kent Trammell | Short Film Character Production in Blender (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039450.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ James Paick | Environment Design 1 James Paick (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039434.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039433.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039423.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ Blender Cloud | Процедурный шейдинг в Blender 2.8 и 2.9 / Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039250.jpg" />
 </div>
 
 
@@ -576,7 +628,7 @@ Michael Rigley | Design for Production: Workflow (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039038.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ Adam Swaab | Houdini Particles (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038952.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ CG Cookie, Kent Trammell, Jonathan Lampel | Основы шейдинга в Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038754.jpg" />
 </div>
 
 
@@ -640,59 +692,6 @@ CG Cookie, Kent Trammell, Jonathan Lampel | Основы шейдинга в Ble
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41B2522552D2FC52EAE04A8B801C0D0A0F45B376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440527   (1038752) от 17.01.2021
-
-CG Cookie, Kent Trammell | Шейдинг кожи в Cycles в Blender 2.69 / Skin Shading with Cycles in Blender 2.69 (2014) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ключом к шейдингу кожи в Cycles является относительно новый нод "Subsurface Scattering". Этот "BSSRDF" тип поверхности по сути представляет собой полнофункциональный полупрозрачный материал, позволяющий свету частично проходить через ваш объект. Важнейшая характеристика человеческой кожи.
-В первом уроке я расскажу вам о более упрощенном подходе (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделирование, ШейдингЯзык озвучки: АнглийскийПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3DFE6F3AECFFDAB6034A39F5D7381B16C4E0E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440606   (1038749) от 17.01.2021
-
-Пакин Липтават | Intro to Background Design and Perspective (2011) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе красивый замок с огромными шпилями, подземное логово супер-злодея, или темный и грязный завод, наполненный нелепыми машинами. Как вы берёте идею для окружающей среды и превращаете её в рисунок? Этот урок даст начинающим дизайнерам основу, необходимую для проектирования сред и фона. Кроме того, этот урок будет введением в техники дизайна фона, которые (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 02:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBB041AD4DC744501BF3A069F9D9F1F9B5F3C81
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1808155   (65066) от 22.07.2025
+
+Александр Кальянов - De Luxe Collection (2003) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Здравствуйте-здравствуйте [00:03:09]
+02 - Таганка [00:03:13]
+03 - Старое кафе [00:03:44]
+04 - Путана [00:04:07](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A61B9A812B9FA3412064368CD5395B8A623CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808435   (64973) от 25.07.2025
 
 Ильдар Южный - С Севера на Юг. Песни под гитару. (2025) [MP3|320 Kbps] <Chanson>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64973.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64928.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64721.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59609.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54945.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54054.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Kismet-Юбилейный сборник 2CD (2019) [MP3|320 Kbps] <Шан�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52981.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47340.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45237.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45203.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45022.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Ништяк, браток! (Лучшее и новое) (2005) [MP3|320 Kb
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44744.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Привет, менты! (Ништяк, браток!) (1998) [MP3|320 Kbp
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44703.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38314.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38288.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38269.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37204.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37177.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36144.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35835.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35736.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34591.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ iSenin - Устал я... (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25930.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21233.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21214.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:987C98A7193AF26FA73A603A4331898DF93E7F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791834   (21200) от 16.04.2025
-
-Алексей Голубев - Погоны, кортик, дальняя дорога (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Погоны, кортик, дальняя дорога [00:04:11]
-02 - Перекрёстки [00:03:36]
-03 - Привет, Санёк [00:05:12]
-04 - И на небе будем вместе [00:04:33](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3C878962CD2C3A8DA61B948A3144D99CFBAB30
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1233269   (593381) от 29.06.2018
+
+Вирхиния Вальехо | Любить Пабло, ненавидеть Эскобара (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593381.jpg" />
+</div>
+
+
+###  Подробнее
+
+В истории известного наркобарона Пабло Эскобара и журналистки Вирхинии Вальехо есть все, что требуется для настоящей латиноамериканской драмы, – пылкая любовь и холодное предательство, миг неземного счастья и горькие слезы отчаяния, серенады и жестокие убийства.
+
+Претенциозная и эмоциональная, чувственная, яростная и податливая, утонченная и безудержная, наивная (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40703E775EEC66170DAA839559DA9F1FAF263515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300342   (593201) от 06.05.2019
 
 Г. Л. Розанов | План «Барбаросса». Замыслы и финал (1970) [DJVU, PDF]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593201.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592938.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592716.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592484.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590904.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590876.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587920.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585935.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585871.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585807.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584776.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583740.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582631.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581342.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581306.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581243.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580164.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579382.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579380.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579333.jpg" />
 </div>
 
 
@@ -543,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579275.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578924.jpg" />
 </div>
 
 
@@ -595,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576143.jpg" />
 </div>
 
 
@@ -622,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575688.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573651.jpg" />
 </div>
 
 
@@ -659,34 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:656026063F9800B71A317E21FEC62FB566BA6805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303093   (573058) от 21.05.2019
-
-Н. П. Дубинин | Вечное движение (1973) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573058.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своих воспоминаниях лауреат Ленинской премии академик Н. П. Дубинин, прошедший путь от беспризорника до ученого с мировым именем, повествует об очень интересной науке - о генетике, которой посвятил всю свою жизнь.
-
-Автор рассказывает о многих замечательных советских ученых, с которыми ему приходилось вместе работать, и о событиях, связанных с решением ряда коренных (   Читать дальше...   )Жанр: История, науковедение, автобиография, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E355BE47E1CE70F0C6585E6A4286E20E0D782D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

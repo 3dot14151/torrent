@@ -6,7 +6,7 @@ Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128078.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Riding with Killers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127765.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ C-Clamp - Dream Backwards (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127761.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127599.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127359.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Meredith Hunter - Proud to be Different (2023) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127079.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ A Crime Called... - Primal Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126446.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Challenger Deep - III.The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126395.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ art against agony - Sound of Inevitability (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126202.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Disperser CA - Critical Moment of Agony (2023) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126194.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cyan Kicks - Come Hell, Come High Water (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126099.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Letters Sent Home - Forever Undone (2024) Extended Edition, 2025, SharpTone Reco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126059.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Heartlay - The Alteration (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126055.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ King Cat Rhythm - Black Rings (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125904.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sam Higham - Jam Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progres
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124759.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ T.A.S.S. - Maniafesto (1994) [APE|Lossless|image + .cue] <Industrial>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124649.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123920.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Hurricane on Saturn - Фnx (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123615.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122881.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122764.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Subsonica - Realta Aumentata (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122360.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122337.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ghinzu - 3 альбома (2000 - 2009) [FLAC|Lossless]<Alternative / Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122240.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Nomy - Dark Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120945.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120636.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Colin Newman & Malka Spigel - Bastard (1997) Deluxe Edition, 2024, swim [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120453.jpg" />
 </div>
 
 

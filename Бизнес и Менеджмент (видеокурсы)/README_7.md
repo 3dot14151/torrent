@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844353.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842492.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ TargetHunter | Академия TargetHunter 3.0 Полный курс по пр
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842362.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ SkillBox | Мастер-класс «Интернет-маркетолог – �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835766.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Geekbrains | Управление клиентским опытом (2021) WEB-D
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833218.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832532.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829235.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829115.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829113.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828703.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828489.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823324.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816699.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816697.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815106.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813118.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811133.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809707.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809240.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807726.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807560.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805120.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798630.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798455.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798441.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798285.jpg" />
 </div>
 
 

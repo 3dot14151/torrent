@@ -1,3 +1,107 @@
+###  Публикация: 1543008   (239979) от 22.04.2022
+
+Бумажная луна / Paper Moon (1973) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авантюрный тандем колесит по маленьким городкам Канзаса во времена Великой депрессии и промышляет мелкими махинациями, чтобы хоть как-то заработать на хлеб. Он — мошенник-неудачник по имени Мозэс, продающий Библии одиноким вдовам. Она — девятилетняя девочка с недюжинной склонностью к авантюрам и практически не расстающаяся с сигаретой.Производство: США / The Directors Company, Saticoy Productions, Paramount PicturesЖанр: драма, комедия, криминалРежиссер: Питер БогдановичАктеры: Райан О’Нил, Татум О’Нил, Мэдлин Кан, Джон Хиллерман, П.Дж. Джонсон, Джесси Ли Фултон,  Джеймс Н. Харрелл, Лайла Уотерс, Ноубл Уиллингэм, Боб ЯнгПеревод: Многоголосый профессиональный (5 канал), двухголосый  профессиональный (НТВ+)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931B48CEBB8ADC751C7B2CDFC13D2540BEF4A9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546361   (239822) от 23.04.2022
+
+Невезучие / La chevre (1981) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует тип людей, страдающих хроническим невезением. Они опаздывают на поезда, проливают красное вино на белую одежду, на них падают кирпичи. Единственная дочь миллионера Мари, как раз из таких. Не повезло ей в очередной раз — пропала где-то в Латинской Америке.Производство: Франция, Мексика, Мальта / Conacite Uno, Fideline Films, Gaumont InternationalЖанр: Комедия, криминал, приключенияРежиссер: Франсис ВеберАктеры: Пьер Ришар, Жерар Депардье, Педро Армендарис мл., Коринн Шарби, Марица Оливарес, Андре Валарди, Хорхе Луке, Серхио Кальдерон, Мишель Робен, Робер ДальбанПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66CC66606CF9FC0A7C889FAA880405F2EAEB5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571798   (239754) от 23.08.2022
+
+Элвис / Elvis (1979) BDRip [H.264/1080p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкально-биографическая драма, рассказывающая о начале творческого пути никому неизвестного певца и о рождении его звездной славы.Производство: США / Dick Clark ProductionsЖанр: Драма, биография, музыкаРежиссер: Джон КарпентерАктеры: Курт Рассел, Шелли Уинтерс, Бинг Расселл, Роберт Грэй, Сизон Хабли, Пэт Хингл, Мелоди Андерсон, Эд Бегли мл., Джеймс Каннинг, Чарльз СайферсПеревод: многоголосый профессиональный (Селена Интернейшнл), авторский (А. Гаврилов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0532AE1855667E265432AF7BBDD30AAE3925E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621600   (239653) от 18.04.2023
+
+Неприятности с Гарри / The Trouble with Harry (1955) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239653.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о беспокойном трупе, который создает множество умопомрачительных проблем для мирных соседей в Новой Англии.Производство: США / Alfred J. Hitchcock ProductionsЖанр: комедия, детективРежиссер: Альфред ХичкокАктеры: Эдмунд Гвенн, Джон Форсайт, Милдред Нэтвик, Милдред Даннок, Джерри Мэзерс, Ройал Дэно, Паркер Феннелли, Бэрри Мэколлам, Дуайт Марфилд, Ширли МаклейнПеревод: Дублированный (BD EUR)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B8C6C407AE7D6CA0A293C5EA82C330D04146B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569695   (239652) от 23.08.2022
 
 Строшек / Stroszek (1977) BDRip [H.264/720p] [VO]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239652.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239141.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237834.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237780.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237168.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237022.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236847.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236801.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236702.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236459.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236327.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235448.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234294.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233776.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233694.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233634.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233570.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233549.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232817.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232801.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232649.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232367.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6C8C13F6AA40735E1840F7471D5AADCB22EA61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635893   (232120) от 27.05.2023
-
-Три дня Кондора / Three Days of the Condor (1975) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работающий в одном из замаскированных отделов ЦРУ в Нью-Йорке парень по имени Джо Тэрнер занимается анализом бульварно-детективной литературы, в которой выискивает интересующие Ведомство «оригинальные приёмы».
-В последний предрождественский рабочий день Тэрнер, вернувшись после обеденного перерыва, с ужасом обнаруживает в конторе трупы своих 6-х коллег. Он звонит (   Читать дальше...   )Производство: США / Dino De Laurentiis Productions, Paramount Pictures, Wildwood EnterprisesЖанр: триллер, криминал, детективРежиссер: Сидни ПоллакАктеры: Роберт Редфорд, Фэй Данауэй, Клифф Робертсон, Макс фон Сюдов, Джон Хаусмен, Эддисон Пауэлл, Уолтер МакДжинн, Тина Чэнь, Майкл Кэйн, Дон МакГенриПеревод: Дублированный (киностудия «Союзмультфильм»)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2ECF98CE58C496958FD9A287090FE129DE0AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637845   (231732) от 01.07.2023
-
-Плоть и фантазия / Flesh and Fantasy (1943) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231732.jpg" />
-</div>
-
-
-###  Подробнее
-
-По произведениям Оскара Уайльда. Фильм состоит из трёх вольно связанных рассказов с таинственными и романтичными сюжетами. В первом - влюблённая девушка получает маску, способную изменить её жизнь. Во втором - адвокату предсказывают судьбу. В третьем предсказании помогают избежать трагедии в цирке...Производство: США, Universal PicturesЖанр: фэнтези, драма, мелодрамаРежиссер: Жюльен ДювивьеАктеры: Эдвард Дж. Робинсон, Шарль Буайе, Барбара Стэнвик, Бетти Филд, Роберт Каммингс, Томас Митчелл, Чарльз Уиннингер, Анна Ли, Мэй Уитти, С. Обри Смит, Роберт Бенчли, Эдгар Барье, Дэвид Хоффман, Фрэнк АрнольдПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9C7D5CEB7437138BB7DE5EE2706831DAAC3C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578136   (231134) от 05.10.2022
-
-Игра в ящик / Des pissenlits par la racine (1964) BDRip [H.264/1080p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231134.jpg" />
-</div>
-
-
-###  Подробнее
-
-У гангстера по кличке "Пом-Чипс" (он же "Чирик") освобожденного из тюрьмы, есть серьезные претензии к Жаку. В потасовке Жак убил Пом-Чипса. Тело Жак прячет в футляре от контрабаса, однако на следующий день оно исчезает. И тут оказывается, что у гангстера был выигрышный билет со скачек, и выплата на него - миллион франков...Производство: Франция, Италия / Ardennes Films, Transiter Films, Cocinor, Les Films Marceau, Films ColumbusЖанр: комедияРежиссер: Жорж ЛотнерАктеры: Луи де Фюнес, Мишель Серро, Мирей Дарк, Морис Биро, Франсис Бланш, Раймон Мёнье, Юбер Дешам, Джанни Музи, Барбара Брэнд, Паола БарбараПеревод: Авторский (Козлов)Язык озвучки: русский, французскийСубтитры: французскиеПродолжительность: 01:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049C55C7A181CDC7B041A468E3AAC0A003E6FB44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631295   (231110) от 02.06.2023
-
-Кот и канарейка / The Cat and the Canary (1939) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рука в черной перчатке стирает пыль с надгробного камня родовой могилы. Богатый владелец замка Сайрус Уэст пишет завещание, запечатывает их в двух конвертах и ставит обязательным условием открыть их лишь спустя десять лет после его смерти. Таким образом, его наследники оказываются в положении кота, сидящего перед канарейкой. Наконец пробил час обнародования завещания.Производство: США / Paramount PicturesЖанр: ужасы, триллер, комедия, детективРежиссер: Эллиотт НаджентАктеры: Боб Хоуп, Полетт Годдар, Джон Бил, Дугласс Монтгомери, Гэйл Сондергаард, Элизабет Паттерсон, Нидия Вестман, Джордж Зукко, Джон Рэй, Джордж РегасПеревод: Одноголосый любительский (Игорь Клушин)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH), русскиеПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD4C07204830837BFA977E4DF41FEA2D0CAAD3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

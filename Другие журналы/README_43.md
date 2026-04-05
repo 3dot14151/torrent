@@ -1,3 +1,56 @@
+###  Публикация: 1308012   (554506) от 12.06.2019
+
+Журнал | Тайны СССР №11 (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал для широкого круга читателей.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A34D72A844364BF6DE98648AD712F1A38E889D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308013   (554504) от 12.06.2019
+
+Журнал | Дарья. Биография №3 (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
+Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C41C4DAB4A3EF3A87097E27FCC7C0B1CF797AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308010   (554474) от 12.06.2019
 
 Журнал | Народные рецепты - здоровье. Спецвыпуск №3 Целебные травы (2019) [PDF]
@@ -6,7 +59,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554474.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553778.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553740.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553519.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552929.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552152.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552038.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551278.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550453.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549703.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549109.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548877.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548585.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548269.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548163.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547772.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547771.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547106.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546526.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546521.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546471.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546428.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546070.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546062.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ Bauer Media Group — одна из самых успешных и передо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:733C83C0F31CB499960377C5FD619CB587FE3B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694927   (545935) от 30.08.2013
-
-Журнал | Здоровье [Россия] №9 (699) (сентябрь 2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545935.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Здоровье" - первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, antiage, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D25189497EF21BE13C57B00D158C3645D73CD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694923   (545623) от 30.08.2013
-
-Журнал | Esquire [Россия] №91 (сентябрь 2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545623.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Esquire" предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде. Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DD0CFF97D83BBEFF8F3353C615803855C738A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1214152   (764974) от 21.03.2018
-
-Т.В. Локоть | Политические партии и группы в Государственной думе. Характер и причины политического бессилия Первой думы. Возможный характер и задачи Второй думы (1907) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический очерк о Первой Российской Государственной Думе.
-
-Тимофей Васильевич Локоть (19 (31) января 1869 года, Борзна — 25 июля 1942 года, Земун, Югославия) — русский учёный-агроном, политик и публицист.
-Избирался гласным Черниговского уездного и губернского земских собраний. Занимался публицистикой, выступал за муниципализацию земли. Входил в Союз освобождения, (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0278744232C7ECF32A880FC75F3091149F398908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214315   (764971) от 21.03.2018
 
 Партия свободомыслящих (программы) (1905) [DJVU]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764971.jpg" />
 </div>
 
 
@@ -62,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764969.jpg" />
 </div>
 
 
@@ -88,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764966.jpg" />
 </div>
 
 
@@ -117,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764965.jpg" />
 </div>
 
 
@@ -143,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764937.jpg" />
 </div>
 
 
@@ -169,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764933.jpg" />
 </div>
 
 
@@ -196,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764931.jpg" />
 </div>
 
 
@@ -224,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764928.jpg" />
 </div>
 
 
@@ -252,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764925.jpg" />
 </div>
 
 
@@ -279,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764924.jpg" />
 </div>
 
 
@@ -305,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764923.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764919.jpg" />
 </div>
 
 
@@ -358,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764910.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764909.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764908.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764895.jpg" />
 </div>
 
 
@@ -464,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764870.jpg" />
 </div>
 
 
@@ -490,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764868.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764864.jpg" />
 </div>
 
 
@@ -543,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764566.jpg" />
 </div>
 
 
@@ -571,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764062.jpg" />
 </div>
 
 
@@ -599,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763239.jpg" />
 </div>
 
 
@@ -625,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762139.jpg" />
 </div>
 
 
@@ -653,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761924.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761923.jpg" />
 </div>
 
 
@@ -690,6 +661,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9190800370EF27877D640661F4DA5D6143143458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214949   (761921) от 24.03.2018
+
+Устав и воззвание братства свободы и порядка [две брошюры] (1905) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761921.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Братства свободы и порядка" образовано 23 октября 1904 г. в С.-Петербурге. Руководители: земский врач А. Н. Борк и писательница, антрепренер театра Е. А. Шабельская (Борк). В 1907 г. братство влилось в Союз русского народа.Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1748C53F0E1FE30911AC06FA549AE6749682A8BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

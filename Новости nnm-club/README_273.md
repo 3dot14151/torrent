@@ -1,3 +1,56 @@
+###  Публикация: 1705985   (62722) от 17.03.2024
+
+MInstAll v.10.03.2024 By Andreyonohov (Unpacked) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами обновленный 10 Марта 2024 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B451CF26B37908BB1C8A138AFA2A18E026E75931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707818   (62624) от 18.03.2024
+
+Властелин колец: Братство кольца / The Lord of the Rings: The Fellowship of the Ring (2001) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Extended Edition] [hand made Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказания о Средиземье - это хроника Великой войны за Кольцо, войны, длившейся не одну тысячу лет. Тот, кто владел Кольцом, получал власть над всеми живыми тварями, но был обязан служить злу.
+Тихая деревня, где живут хоббиты. Волшебник Гэндальф, придя на 111-й день рождения к своему старому другу Бильбо Бэггинсу, начинает вести разговор о кольце, которое Бильбо нашел (   Читать дальше...   )Производство: США, Новая Зеландия / New Line Cinema, WingNut FilmsЖанр: фэнтези, приключения, драма, боевикРежиссер: Питер ДжексонАктеры: Элайджа Вуд, Иэн Маккеллен, Шон Эстин, Вигго Мортенсен, Билли Бойд, Доминик Монахэн, Джон Рис-Дэвис, Орландо Блум, Шон Бин, Иэн ХолмПеревод: Дублированный (Мосфильм + "Позитив" на расширенные сцены)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, forced)Продолжительность: 03:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C809D58481E54D803EC1DA7E2F86872821B1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424526   (62618) от 18.03.2024
 
 Перевал Дятлова (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-8 из 8 + Фильм о сериале)
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62618.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ VLC преодолел рубеж в 5 миллиардов загрузок. Р
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62594.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62509.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62504.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62302.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62300.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62203.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62167.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62090.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62089.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ Windows 11 PRO 23H2 22631.3296 Update 7.1 by Ghost Spectre x64 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61991.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61985.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61967.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61898.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61893.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61888.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61879.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61843.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen / Зл�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61785.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61777.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61760.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ F-Secure Freedome VPN 2.71.176.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61567.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61549.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ F-Secure Freedome VPN 2.71.176.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61462.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ F-Secure Freedome VPN - надежное и эффективное решени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBD7B14B677DB453F2053A414E75B8F424CADDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711278   (61451) от 29.03.2024
-
-The KMPlayer 4.2.3.10 repack by cuta (build 1) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61451.jpg" />
-</div>
-
-
-###  Подробнее
-
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB8CAF0B93AE995AD0A89813A0090B31E0E8478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691529   (61371) от 30.03.2024
-
-Saijaku Tamer wa Gomi Hiroi no Tabi o Hajimemashita. / The Weakest Tamer Began a Journey to Pick Up Trash / Слабейшая укротительница в путешествии по сбору мусора [2024, TV, 12] WEBRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61371.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Айви совсем нет времени на отдых. Она переродилась в мире RPG, обладая самым слабым классом и, что еще хуже, самым слабым рангом. Айви — слабейшая укротительница. Даже родители не хотят иметь с ней ничего общего и бросили её на произвол судьбы. За Айви гонятся люди которые хотят убить проклятое дитя, что в итоге приводит Айви в лес, где ей удаётся приручить первое (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Ямаути СигэясуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F7DB9821DE74F72FBB1222A0B6756118A87FB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

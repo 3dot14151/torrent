@@ -1,3 +1,58 @@
+###  Публикация: 300208   (870410) от 27.02.2011
+
+Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk RockПродолжительность: 20:10:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998289   (869820) от 19.03.2016
+
+Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 3 CD [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Had A Heart (Fever Ray)
+02. Battle Field
+03. The Eye Of Odin
+04. Of Fathers And Sons(   Читать дальше...   )Жанр: Score |Продолжительность: 03:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3CAFD280E99DE5E0F7FB8425803CF2402038B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107019   (869674) от 21.02.2017
 
 Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
@@ -6,7 +61,7 @@ Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869674.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868615.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868516.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868512.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868439.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868437.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868003.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867140.jpg" />
 </div>
 
 
@@ -235,7 +290,7 @@ Stephan Micus - 18 Альбомов (1977-2013) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866939.jpg" />
 </div>
 
 
@@ -264,7 +319,7 @@ Danny Wright - Unwind: Peaceful Piano Relaxation (2020) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866936.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866934.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, I
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866892.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Enigma - 100% Enigma (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866847.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ VA - New Age Hits - Relax (2010) [MP3|320 kbps]<New age, Relax, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866445.jpg" />
 </div>
 
 
@@ -407,7 +462,7 @@ Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865724.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ Slowgold - Aska (2020) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Folk, Indie Rock>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865391.jpg" />
 </div>
 
 
@@ -465,7 +520,7 @@ VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864785.jpg" />
 </div>
 
 
@@ -494,7 +549,7 @@ Govannen - Celtic Air (2016) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864641.jpg" />
 </div>
 
 
@@ -523,7 +578,7 @@ VA - Bedouin Nights (2015) [MP3|320 Kbps] <Arabic, Arabic Pop, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864544.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ Blonker - Zeitreise-25 Jahre Gitarrenmusik (2003) [MP3|320 Kbps] <New Age, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864533.jpg" />
 </div>
 
 
@@ -581,7 +636,7 @@ Deva Premal - Password (2011) [FLAC|Lossless|tracks + .cue] <New Age, Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864529.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ Mairead Nesbitt - Hibernia (2016) [MP3|320 Kbps] <Instrumental,  Celtic,  Folk>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864270.jpg" />
 </div>
 
 
@@ -639,7 +694,7 @@ Unknown Artist - A Night In A Greek Taverna (Unknown) [FLAC|Lossless|image + .cu
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863066.jpg" />
 </div>
 
 
@@ -668,7 +723,7 @@ Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862579.jpg" />
 </div>
 
 
@@ -682,64 +737,6 @@ Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:897CA1392BA1DDFFB1FA62BBCE94260106425DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999700   (861972) от 23.03.2016
-
-Иеродиакон Герман (Рябцев) - Псалмы Давидовы (2001) 5CD Box Set [FLAC|Lossless|image + .cue] <Песнопение>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псалтирь — это одна из книг Библии. Псалмы являются неотъемлемой частью богослужения в храме и молитвенного правила православных христиан. В псалмах ярко выражены многие чувства и переживания человека: покаяние и смирение, сознание своего недостоинства перед величием Божиим, благодарение за Его великие милости, надежда на милосердие Вседержителя и взывание к Нему (   Читать дальше...   )CD 1
-01. Начало обычное (01:24)
-02. Тропари, глас 6 (01:39)
-03. Господи, помилуй. 40 (00:43)(   Читать дальше...   )Жанр: ПеснопениеПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B654B730D7CA4C8F943253B71D78BA7DE6F5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276517   (861540) от 16.04.2020
-
-Максим Дунаевский - Мэри Поппинс, до свидания! (1985) [APE|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра (2:40)
- 02. Непогода (3:12)
- 03. Ожившее пианино (0:48)
- 04. Леди Совершенство (2:35)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB3C06F13106BA441B27A9DDC2BF58FDD299D43
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1185385   (291424) от 22.11.2017
-
-Marina & the Diamonds - The Family Jewels (2010) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291424.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Are You Satisfied? 3:21
-A2 Shampain 3:12
-A3 I Am Not A Robot 3:35
-A4 Girls 3:29(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185543   (291229) от 22.11.2017
 
 Agnetha Faltskog - Eyes Of A Woman (ABBA) (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Electronic>
@@ -35,7 +6,7 @@ Agnetha Faltskog - Eyes Of A Woman (ABBA) (1985) [FLAC 2.0|192/24|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291229.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291218.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ ABBA - Ring Ring (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Vocal, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291034.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Amy Winehouse - Back To Black (2007) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291016.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Queen - The Works (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290893.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Barclay James Harvest - Everyone Is Everybody Else (1974) [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290157.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Lehotka Gabor - J. S. Bach. Organ Music (1966) [FLAC 2.0|96/24|image+.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289767.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Pink Floyd - The Dark Side of the Moon (1973) (Vinyl Rip 24/192) [FLAC|Lossless]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289373.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Meat Loaf - Blind Before I Stop (1986) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288950.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Paul McCartney - Flowers In The Dirt (1989) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288850.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288143.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Dire Straits - Love Over Gold  (1982) SHM-SACD /2011/ [DSD 2.0 1bit/2822,4kHz |S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287369.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ The Beverley-Phillips Orchestra - Gold On Silver - 20 Gold Hits From The Silver 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_287217.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285125.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Peter Gabriel - So (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283640.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282679.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Rod Stewart - It Had To Be You... (2003) [DTS 5.1 44.1 /16 | .wav+.cue (DVD-Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280867.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Modern Talking - Ready For Romance (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Ita
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280157.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Didier Marouani - Space Opera (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<El
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278409.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ The Beatles - The Beatles (The White Album) (1968) 2018 [DTS 5.1 CD-Audio|44.1/1
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277512.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274502.jpg" />
 </div>
 
 
@@ -647,7 +618,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) 1984, Stiff Records [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273474.jpg" />
 </div>
 
 
@@ -676,7 +647,7 @@ VA - На теплоходе музыка играет. Песни В. Добр�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273346.jpg" />
 </div>
 
 
@@ -705,7 +676,7 @@ VA - Синий Туман. Песни В. Добрынина (1989) [FLAC 2.0|9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273235.jpg" />
 </div>
 
 
@@ -734,7 +705,7 @@ Antonio Vivaldi - The Four Seasons (2008) [MLP 2.0, 4.0 96/24 |DVD-Audio (SACD-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267389.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Antonio Vivaldi - The Four Seasons (2008) [MLP 2.0, 4.0 96/24 |DVD-Audio (SACD-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F68931F50CC4CB096C1F0351624C2DE1B6AC9932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 53106   (267333) от 05.12.2018
+
+Mozart - Classics London Symphony Orchestra (2005) [MLP 5.1 48/24 |DVD Audio]<classic>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Concerto for Piano no 22 in E flat major, K 482: 2nd movement, Andante
+2.  Symphony no 35 in D major, K 385 "Haffner": 2nd movement, Andante
+3.  Serenade no 13 in G major, K 525 "Eine kleine Nachtmusik": 4th movement, Rondo
+4.  Concerto for Flute and Harp in C major, K 299 (297c): 2nd movement, Andantino(   Читать дальше...   )Жанр: классическая музыкаПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5ED2EFD2A7DDA37AEA36AF5E8E209F5CAAACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1740850   (48021) от 03.08.2024
-
-Мистер Грей | Творческий курс по рисованию. Подарочное издание (2023) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное подарочное издание "Творческого курса по рисованию" подойдет как для профи в мире изобразительного искусства, так и для новичков!
-В этой книге подобраны скетчи разной сложности и на разную тематику: анатомия человека, животные, натюрморты и пейзажи! Развивайте свои художественные навыки с помощью доступных пошаговых инструкций. Кроме того, вы (   Читать дальше...   )Жанр: Культура. ИскусствоИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9030C359F648FCA28300E8B1C094BD4C74EB6549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740872   (47917) от 04.08.2024
-
-Эрик Оливарес, Лия Вилаур | Рисунок в графическом дизайне (2024) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рисунок – это единство техники, опыта, восприимчивости и творчества. Чтобы выразить идею, нужно уметь наблюдать, анализировать и обобщать. В графическом дизайне техническое воплощение идеи тесно связано с концепцией, которую следует изобразить, и совокупностью ценностей, которые отображаемый образ должен передать, чтобы сообщение было продуктивным. Авторы книги – (   Читать дальше...   )Жанр: Культура. ИскусствоИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B139412257B484C3415292AD421C2FF205C6D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741055   (47901) от 04.08.2024
-
-Габриэль Мартин Ройг | Быстрая живопись. С дополненной реальностью (2023) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая живопись - это техника изображения модели на пленэре, для которой характерно легкое и быстрое исполнение, требующее завершения работы в сжатые сроки. Благодаря этой книге вы легко освоите все приемы и хитрости, необходимые для создания колоритных и эффектных картин.
-Иллюстрированное подарочное издание станет прекрасным подарком как начинающим живописцам, (   Читать дальше...   )Жанр: Культура. Искусство  /  ЖивописьИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4A43D665B79E60EA302187C672D5C19D877276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740869   (47893) от 04.08.2024
 
 Давид Ортега Гомес, Хавьер Хименес Каталан | Рисунок в дизайне интерьера (2024) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47893.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47183.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46111.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39090.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38097.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38091.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37703.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37619.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36609.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35444.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35427.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34729.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33893.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33437.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33177.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32655.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32508.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32190.jpg" />
 </div>
 
 
@@ -561,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32110.jpg" />
 </div>
 
 
@@ -587,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31696.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31534.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31533.jpg" />
 </div>
 
 
@@ -666,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30989.jpg" />
 </div>
 
 
@@ -677,6 +597,91 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFE313DE23EEF3209B3E4AF05C90694F3A39B0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773208   (30984) от 14.01.2025
+
+В.В. Корнев | Шедевры мирового кино (2023) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предлагает вам провести пятьдесят вечеров в компании Антониони, Бергмана, Брессона, Бунюэля, Вендерса, Годара, Джармуша и других гениев кинематографа. В идеале нужно сначала посмотреть фильм, а потом прочесть главу из «Шедевров мирового кино». От Чарли Чаплина до Чарли Кауфмана – ровно 80 лет истории киноискусства.
+Объемные комментарии к признанным и малоизвестным (   Читать дальше...   )Жанр: культура и искусство, кинематографИздательство: Канон-Плюс, РООИ «Реабилитация»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6278E441CE8FE2920A4C6D0DBC50232E3BD8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773301   (30900) от 15.01.2025
+
+Библиотека ЖАФИК, Vol. 3: Искусство Современное (живопись, pop-art, pin-up, плакат, постеры, инсталляции) [139 книг] (1973-2024) [PDF, DJVU] [ENG]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека ЖАФИК, Vol. 3: Искусство Современное (живопись, pop-art, pin-up, плакат, постеры, инсталляции)
+
+Технические и выходные данные книг
+(   Читать дальше...   )Жанр: Живопись, инсталляции, альбомыИздательство: РазличныеФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162E2585C255E848E1EAAAD48CA483FFEB201759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773285   (30878) от 15.01.2025
+
+Библиотека ЖАФИК, Vol. 4: Уличная культура (Граффити, Стрит-арт, Стиль) [68 книг] (1983-2024) [PDF] [ENG]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека: Библиотека ЖАФИК, Vol. 4: Уличная культура (Граффити, Стрит-арт, Стиль)
+
+Технические и выходные данные книг
+(   Читать дальше...   )Жанр: Живопись, фотоальбомЯзык: АнглийскийИздательство: РазличныеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F42BF75B37BFA52D54905DD4D52A8BA057157C
 ```
 
 https://mybot314.ru/tekegram_catalog/

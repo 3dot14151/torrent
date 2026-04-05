@@ -1,3 +1,29 @@
+###  Публикация: 1262329   (296782) от 14.11.2018
+
+Wondershare Video Converter Ultimate 10.2.0 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое быстрое универсальное решение для развлечений с цифровым видео. Скачивайте видео на сверхвысокой скорости одним нажатием мыши! А ещё оцените мощь универсального медиа-плеера, встроенного видео-редактора, интегрированного DVD-привода и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: Mac OS X 10.7 или вышеЯзык интерфейса: Английский, Испанский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C2052432D8259909B13DDE7AD3ABCB0237CA2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079178   (295164) от 03.12.2016
 
 Video Converter Movavi 7.0 [Multi/Ru]
@@ -6,7 +32,7 @@ Video Converter Movavi 7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295164.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Little Audio App 1.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294185.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Macgo Blu-ray Player Pro 3.3.19 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292909.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ MPlayerX 1.1.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291556.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ M4VGear DRM Media Converter 4.2.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290089.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ AirPlayer Pro 2.5.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289756.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ KMPlayer 0.3.2 Beta [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287616.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Aurora Blu-ray Player 2.18.9 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283395.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ Blu-ray Player for Mac 1.1.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281150.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ Music Converter Pro 1.5.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280804.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ VideoboxPro 1.5.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274895.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ VideoDuke 1.4 (250) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274889.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ Smart Converter Pro 2 v2.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274692.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ MetaMovie 2.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273693.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ HD Video Converter Movavi 6.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269096.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ TunesKit Audio Converter 3.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267054.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ TunesKit Apple Music Converter 2.0.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265687.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ Capo 3.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265311.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ MKVToolNix 40.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263585.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ iSkysoft Video Converter 6.1.0.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262922.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257719.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ NCH Switch Plus 11.09 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255511.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ HD Video Converter Movavi 22.1.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250086.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246153.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246151.jpg" />
 </div>
 
 
@@ -668,33 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83E926BE6108906BB086CE1E0648F555BE9E41D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608016   (246045) от 28.01.2023
-
-Bigasoft QuickTime Converter for Mac 5.7.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bigasoft QuickTime Converter для Mac поддерживает преобразование различных видео, включая преобразование AVI в QuickTime, WMV в QuickTime, а также преобразование RMVB, MOD, TOD, FLV, MKV, DIVX, VP8 и других форматов в QuickTime MOV для воспроизведения в QuickTime.
-QuickTime Converter Mac также поддерживает преобразование фильмов QuickTime в видеоформаты, например, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2023Разработчик: © 2022 Bigasoft CorporationПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A0A1374D88351A95050DC80E65AEEFCA45E886
 ```
 
 https://mybot314.ru/tekegram_catalog/

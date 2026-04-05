@@ -1,3 +1,501 @@
+###  Публикация: 1365173   (931492) от 06.03.2020
+
+3D модели - 3DDD - Wardrobe & Cabinets - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 50 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8486E2E57C90C037D78A2B2B63E1E3AABBEF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365177   (931483) от 06.03.2020
+
+3D модели - 3DDD - DECORATION SET - 3D Models - 3dskyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 99 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC44B142A8A2084031F60B792A085E9191AB80AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194463   (931386) от 06.03.2020
+
+Футажи - Video3D - «Салюты» Fireworks 02RU  [MOV, AVI]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для создания привлекательных зрелищных эффектов, при монтаже свадебного фильма не обойтись от компьютерных спецэффектов с разнообразными салютами, фейерверками и световыми вспышками. Профессиональное звуковое сопровождение качественное исполнение видеороликов с альфа каналом, создадут праздничную атмосферу в Вашем фильме. В основном на дисках представлены завершённые (   Читать дальше...   )Формат: MOV, AVIРазрешение файлов: 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82EE2822B55B800BA5CB93F04DDC2061CF598C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754659   (931200) от 08.02.2014
+
+Сборник - Открытки на смотрины / Baby shower card [JPEG,PSD,EPS,AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытки на смотрины (обмывание ножек)Формат: JPEG,PSD,EPS,AIРазрешение файлов: 6000х6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDECF81EF2C7DC44E96DE50F24E85ECBA2847EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754537   (931133) от 08.02.2014
+
+Растровый клипарт - Анатомия человека,органы,вирусы / Human anatomy,viruses and internal [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатомия человека и всякие страшностиФормат: JPEGРазрешение файлов: 2700х2600-3300х3200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC70E8CBFE468CE3F686B10DDD9275B475E9910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754776   (931126) от 08.02.2014
+
+Векторный клипарт - Красочные неоновые рамки / Colorful Neon Frames [AI,EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочные неоновые рамкиФормат: AI,EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383CEB065FEB0C75FBB611D16A576F92F7304A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986580   (930284) от 14.02.2016
+
+Текстуры - Wooden backgrounds with elements of cut and boards [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930284.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 деревянных текстур для вашего творчества.Формат: JPGРазрешение файлов: 2483х2483 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4E79371B1EA506516E56DF99B1853C9BA24E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365400   (930151) от 07.03.2020
+
+Экшены - GraphicRiver - Style Paints Photoshop Action - 25674415 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Style Paints - действие фотошоп превратит ваши изображения в акварельное полотно. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D4BDB4BEA228BE65C311DE130A3C2102CF8F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365395   (930150) от 07.03.2020
+
+Экшены - GraphicRiver - Journal Art Photoshop Action - 25683156 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Journal Art - превратит ваши изображения в красочную композицию с элементами печатных оттисков. Множество вариантов цветовых решений, быстрый в работе, пригодится как новичкам, так и профессионалам. После завершения работы действия, конечный результат - полностью редактируемый, хорошо организованные слои / папки, и у вас есть полный контроль над ними, чтобы настроить (   Читать дальше...   )Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7731776D71311ED71480EFA0BA8FA9579F0B4BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365450   (930147) от 07.03.2020
+
+Экшены - GraphicRiver - Soft Watercolor Photoshop Action - 23903344 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soft Watercolor - экшен фотошоп превратит ваши изображения в акварельное полотно. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата. Для достижения наилучшего результата, используйте фотографии с размером от 2500px до 3500px.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE47671682F025AB45B8F0568DB9AA8941E79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755001   (929662) от 09.02.2014
+
+Растровый клипарт - Автоаварии и поломки / Auto Accidents & Damage [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автоаварии и поломкиФормат: JPEGРазрешение файлов: 2400х1800-8500х5600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FAA6FD78E888924B1D647E8A9EF257AE6F8071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094402   (928763) от 18.01.2017
+
+Экшены - GraphicRiver - Ink In Water V.1 Photoshop Action - 19121415 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ink In Water V.1 - создаёт эффект чернил в воде из ваших фотографий. Для достижения наилучших результатов, рекомендуется использовать фотографии с высоким разрешением в диапазоне от 1500px – 3500px. Оптимальный диапазон составляет от 2500px – 3500px. После того, как действие завершит работу, вы получаете хорошо организованный со множеством слоями, папок и настроек (   Читать дальше...   )Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBD32EBD51981D2502F85D75B43EFCCB981F261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365686   (928697) от 08.03.2020
+
+Экшены - GraphicRiver - Archec - Painting Sketch Photoshop Action - 25624369 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archec - Painting Sketch - это действие, которое преобразует ваши фотографии в рисованный эскиз всего за один клик без выбора какой- либо части изображения, просто загрузите и воспроизведите. Эффект очень профессиональный и поставляется с дополнительными опциями. Очень быстро обрабатывает не требует делать каких-либо действий от вас. Эффект работает с любыми видами (   Читать дальше...   )Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7615B3908E4E37A703FE4F870497944DC1E01313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986884   (928539) от 15.02.2016
+
+Шрифты - Decorative and script fonts [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка Декоративных и рукописных шрифтов.
+Автор подборкиФормат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18BB0732BD59C11E85D4BFA8E8CEFC36351A0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986919   (928536) от 15.02.2016
+
+Шрифты - Exclusive Cyrillic fonts [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивные кириллические шрифты.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992FCD5922C0977374CDFE95CA9A19195E34E3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986450   (928535) от 15.02.2016
+
+Футажи - Hearts Collection - III [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть сборника футажей с сердечками от различных авторов. Всего 72 файла.Формат: MOVРазрешение файлов: 1920х1080, 1280x720
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A4170767BA7916770780A4400457C8E8F0DD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986971   (928449) от 15.02.2016
+
+Шаблоны - Everest Powerpoint Template [PPT, PPTX]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественный бизнес-шаблон для PowerPoint,
+более 85 слайдов в 4 цветовых решениях.Формат: PPT, PPTXРазрешение файлов: 1920х1080 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCADE095B31C46E10CB51E1AD4F2A9F0C4BDB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985855   (928441) от 15.02.2016
+
+Digital Juice - Juice Drops 43 popLIFE [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Juice Drops Volume 43: Жизнь - наша учительница. Для видения каждого художника, в Juice Drops есть все: люди, жизнь,бизнес и образ жизни в чистых иллюстрациях. Мелкие оттенки, яркие корпоративные цвета, и ничего лишнего для вашей творческой необходимости. Вдохните жизнь в ваш проект и получите массу жизненных оттенков оттенков. Фантазируйте, перетаскивайте слои из (   Читать дальше...   )Формат: ISOРазрешение файлов: 5175х3375, 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EB09E3E3468BE815BB6F8BC09066834EECDBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094961   (927464) от 19.01.2017
+
+Экшены - GraphicRiver - Serenity Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serenity - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0186E5245F89070F0437892476550D4DB486AEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489216   (926890) от 15.08.2021
 
 Экшены - Creative Market - Premium Vector Art PS Action - 6383781 [ATN, ABR]
@@ -6,7 +504,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926890.jpg" />
 </div>
 
 
@@ -32,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926757.jpg" />
 </div>
 
 
@@ -58,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926733.jpg" />
 </div>
 
 
@@ -84,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926030.jpg" />
 </div>
 
 
@@ -111,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925597.jpg" />
 </div>
 
 
@@ -137,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925506.jpg" />
 </div>
 
 
@@ -163,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925379.jpg" />
 </div>
 
 
@@ -174,504 +672,6 @@ Organic juice maker - генератор сцен, который поможет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EDC93395BEADCFAA3E9DB89FFFC24E3B06A15ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489544   (925287) от 16.08.2021
-
-3D модели - CGTrader - Scania P Crew Cab CP28 Chassis Truck 2017 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925287.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Scania.Формат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EAB77AF67A535034DF4DEE49F003C2048C850A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489556   (925223) от 16.08.2021
-
-3D модели - Hum3D - Skoda Superb (B6) Combi 2011 [V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925223.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Skoda.Формат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D2566BB6701B8421A75D6E892E08B9AE74855F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489567   (925221) от 16.08.2021
-
-3D модели - TurboSquid - Iveco EuroCargo Double Cab Chassis Truck 2008 - 1266903 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925221.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки IvecoФормат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778B81914DCCDDA51D0CD642E56692A0D08376B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366145   (925205) от 10.03.2020
-
-Стили - GraphicRiver - Holographic Text Effects vol 3 - 24957031 [PSD, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тенденция голографического дизайна получила огромный успех на протяжении нескольких лет. Будьте модны с этими макетами в 2019 году! 10 блестящих голографических эффектов. Это простой способ представить свой текст, форму или логотип в классном стиле ретро.Формат: PSD, ASLРазрешение файлов: 2560×2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8C911B111013F405AF2761FDA85204B16C722B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489425   (925199) от 16.08.2021
-
-3D модели - Hum3D - Peterbilt 357 Day Cab Chassis Truck 2006 [V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, MB, OBJ, STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925199.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Peterbilt.Формат: V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, MB, OBJ, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C3F6147C46B0578EDADC755095CE2B8FA7AEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366157   (925197) от 10.03.2020
-
-Оверлеи - Creative Market - Light Flare Photoshop Overlays - 4298685 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкие блики для фотошопа.Формат: PNGРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6212AB7C81DE716488F33B12E02C4D713E23393F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987707   (924082) от 18.02.2016
-
-Экшены - GraphicRiver - PSD - Water Drops Creator - 14460447 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный экшен для создания капли росы в PSD.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9B12F8BB3435E6AE6FD7C7FC76A540CA7B9598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095516   (924009) от 21.01.2017
-
-Экшены - GraphicRiver - Halftone Watercolor Art | PS Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Halftone Watercolor Art - это действие Photoshop превратит ваши фото в профессиональные растровые и акварельные произведения. Множество возможностей лёгкой настройки и улучшения для достижения высокого, детализированного результата. После того, как действие завершит работу, вы получаете хорошо организованный со множеством слоями, папок и настроек. Вы можете удалить (   Читать дальше...   )Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1ABAFDB38DB0177B95E82CB9B6E05D0884E02B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489816   (923538) от 17.08.2021
-
-Звуковые библиотеки - Insanity Samples - The Cool Jazz Collection RePack Андрей650071 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923538.jpg" />
-</div>
-
-
-###  Подробнее
-
-NS Крутая джазовая коллекция Специально подобранная библиотека из пяти инструментов, созданная для воплощения классной джазовой идиомы.Со стилем и чувством Майлза Дэвиса / Чета Бейкера.Отлично подходит для угрюмого и мрачного "крутого" джаза в стиле нуар.Пока что это поджанры, которые еще не исследованы должным образом в мире выборки.Формат: Kontakt: NICNT, NKI, NKC, NKR, NCW
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADECBB77874ABB02544A7E7F8074140106AC54B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366465   (923383) от 11.03.2020
-
-3D модели - 3DDD - 3D Panel - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 50 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57F7A3098B17921846C68B3C38F55148A7256BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366471   (923376) от 11.03.2020
-
-3D модели - Evermotion - Archmodels vol. 119 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archmodels vol. 119 включает в себя 50 очень подробных моделей детских игрушек и оборудования. Все модели готовы к использованию в ваших визуализациях. Представленные модели и сцены были представлены в V-Ray с 3ds Max.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701633E7789D80607A4328B8CD7CC9DB1FC272FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366464   (923372) от 11.03.2020
-
-3D модели - 3DDD - Sofa Collection - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 48 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD8F184245D44BCFB88E4E7D350AB66B398EBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366457   (923362) от 11.03.2020
-
-3D модели - 3DDD - DECORATION SET - 3D Models - 3dskyPro - Volume 2 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 97 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD0B61670D12D4A12B9BF80E4361D8EECDE94B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366469   (923358) от 11.03.2020
-
-3D модели - Evermotion - Archmodels vol. 195 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archmodels vol. 195 включает в себя 32 профессиональных, очень подробных 3d набора моделей для архитектурных визуализаций. В эту коллекцию входят 32 комплекта гаджетов для вечеринок и мебель. Здесь вы найдете бутылки с вином и шампанским, напитки, клубную мебель, воздушные шарики, шляпы и реквизиты для вечеринок и многое другое.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787EEB1AA614F068298F49D232633F06072C74A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366466   (923355) от 11.03.2020
-
-3D модели - 3DDD - Bathtub (Bathroom) - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 30 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFD61E2829CA7F6262C30EC69EF1C609C899702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756285   (922732) от 13.02.2014
-
-Растровый клипарт - Евро / EURO [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евро / EUROФормат: JPEGРазрешение файлов: 2000х2000-8000х5400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0622EF1504F2B8A147FF10A40940DAC186E9011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756471   (922685) от 13.02.2014
-
-Векторный клипарт - Элегантные костюмы / Elegant Suits [AI,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элегантные костюмы мальчикам на 14 февраля и 8 марта, чтобы выглядели как люди    :bravo:Формат: AI,EPS и превью в JPG и TIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1FDE345239087184EF9A4F2CBD691F7C1E72B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095889   (922080) от 22.01.2017
-
-Экшены - GraphicRiver - Minimal Dispersion Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal Dispersion - это действие Photoshop, которое производит эффект манипуляции с иллюстрациями практически из любых образов. По завершению действия, вы получаете хорошо организованный со множеством слоями, папок и настроек результат. Для достижения наилучших результатов, рекомендуется использовать фотографии разрешением 2000px – 4000px по ширине/высоте.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8E431BBA5EC9698B7C4ADF59F3414C163C07C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096034   (922066) от 22.01.2017
-
-Экшены - GraphicRiver - Artist Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artist - действие создает сочетание акварели и эффекта эскиза. У вас есть возможность комбинировать эффекты вместе или использовать эффект эскиза самостоятельно. Для достижения наилучших результатов, рекомендуется использовать фотографии с высоким разрешением в диапазоне от 1500px – 3500px. Оптимальный диапазон составляет от 2300px – 4500px.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A65A9617C18EBE70E2F60DE3C387391E5E1320
 ```
 
 https://mybot314.ru/tekegram_catalog/

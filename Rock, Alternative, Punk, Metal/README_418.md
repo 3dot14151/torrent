@@ -1,3 +1,148 @@
+###  Публикация: 902781   (660304) от 29.05.2015
+
+Isvind - Gud (2015) [FLAC|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660304.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flommen
+2. Ordet
+3. Himmelen
+4. Daren(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF37853266967CA0467254693B880ECFCB01E664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902877   (660287) от 29.05.2015
+
+Fall Of Carthage - Behold (2015) [MP3|320 кб/с]<Modern Thrash/Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upon The Small Things
+02. Degeneration
+03. Dawn Of The Enemy
+04. Imperfection(   Читать дальше...   )Жанр: Modern Thrash/Groove MetalПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00689FF9592A1A5E8A006570E14434A09CAAA71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539043   (660278) от 23.03.2022
+
+Tristitia - Doomystic (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Withering (00:00:48)
+02 - Doomystic (00:05:44)
+03 - The Crosses (00:05:33)
+04 - Witches Dawn (00:06:32)(   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF02CCE87332A0B50103F8F09C5E3D245213878B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139242   (660271) от 02.06.2017
+
+Saint Just - La Casa Del Lago (1974) Reissue, 1994, Mellow Records [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tristana (6:41)
+2. Nella Vita, Un Pianto (11:04)
+3. Viaggio Nel Tempo (6:33)
+4. La Casa del Lago (6:28)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928AFB5C8C18EF49796FA6C0D63696C2B9F03C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538579   (660259) от 23.03.2022
+
+Andi The Wicked - Sexually Transmitted Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Neo-Classical Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staccato Mayhem (04:59)
+02. Just a Tale (07:02)
+03. Sexually Transmitted Mojo (04:40)
+04. The Wicked Interlude (01:04)(   Читать дальше...   )Жанр: Heavy Metal, Neo-Classical Metal, InstrumentalПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979FE161ED1185C4E070200D36880D47315CB186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902621   (660231) от 29.05.2015
 
 Midnight Odyssey - Shards Of Silver Fade (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
@@ -6,7 +151,7 @@ Midnight Odyssey - Shards Of Silver Fade (2015) [MP3|320 кб/с]<Atmospheric Bl
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660231.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Lou Pardini - Look The Other Way (1998) [FLAC|Lossless]<AOR, Soft Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660223.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Luca Turilli's Rhapsody - Prometheus (2015) Single [MP3|320 кб/с]<Symphonic P
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660214.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ Robert Fripp and the League Of Crafty Guitarists - Live! (1986) [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660185.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660173.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ Mulla - مَوْلَى (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660169.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_660097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_660097.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Axel Rudi Pell & Friends - Magic Moments (2015) 25th Anniversary Special Show [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660019.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Helloween - My God-Given Right (2015) Mailorder Edition [FLAC|image+.cue]<Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659929.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ Helloween - My God-Given Right (2015) [FLAC|Lossless|WEB-DL]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659923.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ Paradise Lost - The Plague Within (2015) Deluxe Edition [MP3|320 кб/с]<Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659919.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Florence + The Machine - How Big, How Blue, How Beautiful (2015) Limited Deluxe 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659916.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ U2 - The Joshua Tree: 30th Anniversary [Super Deluxe 4CD Box Set] (2017) [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659911.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Tarja - Luna Park Ride (2015) [MP3|320 кб/с]<Power Metal, Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659839.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659824.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ New England - Explorer Suite (1980) Reissue, 2009,  Wounded Bird Records [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659755.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ New England - Walking Wild (1981) Reissue, 1998, GB Music [MP3|320 Kbps] <Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659753.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ New England - New England (1979) Reissue, 1993, MCA Records [MP3|320 Kbps] <Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659752.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Helloween - My God-Given Right (2015) Mailorder Edition [MP3|320 кб/с]<Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659736.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ Lindemann - Praise Abort (2015) Single & EP [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659734.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Cripper - Antagonist (2012) [MP3|320 кб/с]<Thrash Metal / Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659359.jpg" />
 </div>
 
 
@@ -603,169 +748,6 @@ Cripper - Antagonist (2012) [MP3|320 кб/с]<Thrash Metal / Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80F70DA3702DCE6D2AA0817C55EA59F42E781EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514323   (659351) от 23.06.2012
-
-Luca Turilli`s Dreamquest - Lost Horizons (2006) [MP3|320 кб/с]<Electro-Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introspection
- 02. Virus
- 03. Dreamquest
- 04. Black Rose
- 05. Lost Horizons
- 06. Sospiro Divino
- 07. Shades Of Eternity
- 08. Energy
- 09. Frozen Star
- 10. Kyoto`s Romance(   Читать дальше...   )2006Жанр: Electro-Symphonic Power MetalПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB7000D10ED4466DEE0E7B20C303B9DB134BF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514183   (659349) от 23.06.2012
-
-СВ - Московское время (1984) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вот начало
- 02. Лето
- 03. Вот и лето прошло
- 04. Осень
- 05. День продолжается
- 06. Когда на улице темно
- 07. Песочные часы (зима)
- 08. Пили и курили
- 09. Я выдохся
- 10. Весна(   Читать дальше...   )1984Жанр: RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AA12AF0D8E31D6DECFF91FB838BC303895B806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903256   (659316) от 30.05.2015
-
-Nekrogoblikon - Heavy Meta (2015) [MP3|~275 кб/с]<Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The End Of Infinity
-2. We've Had Enough
-3. Bring Us More
-4. Snax & Violence(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AB19A4AE6328B807DA8814A21684A651174F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903024   (659304) от 30.05.2015
-
-Midriff - Doubts & Fears (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outcry (03:55)
-02. Playing a Role (04:42)
-03. Only a Pawn (In His Game) (04:28)
-04. Long Gone (05:06)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE284052FF337547CE13980EE578D83A2BD83AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514440   (659274) от 23.06.2012
-
-Gemini - Geminism (1987) [MP3|320 кб/с]<Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. T.L.C.
-2. Beat The Heat
-3. Mio, My Mio
-4. Ghost Town
-5. I Am The Universe
-6. Shiffin' On The Snakes
-7. I'm A Bitch When I See Red
-8. There's No Way To Fool A Heart
-9. Wild About That Girl
-10. Nearly There1987Жанр: Rock, Pop-RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CF0C9F38634FE2DB573B78B36D08697C278B70
 ```
 
 https://mybot314.ru/tekegram_catalog/

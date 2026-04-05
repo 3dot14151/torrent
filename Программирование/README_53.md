@@ -1,81 +1,3 @@
-###  Публикация: 1085907   (151057) от 24.12.2016
-
-Джон Шарп | Microsoft Visual C#. Подробное руководство. 8-е изд (+ Examples) (2017) [PDF, EPUB]
-
->>След.
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освойте основы программирования и углубите свои познания, используя новейшую версию C# с Visual Studio 2015. Вы научитесь быстро писать код и создавать проекты, работать с переменными, операторами, выражениями и методами, разрабатывать надежные приложения с обработкой ошибок и исключений, использовать коллекции, создавать запросы LINQ, а кроме того получите навыки (   Читать дальше...   )Жанр: Программирование на C#Формат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE288BF8964F5AB35B7F4EF3CBC3D56E11251278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677596   (150306) от 18.11.2023
-
-Julien Pivotto, Brian Brazil | Prometheus: Up and Running (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возьмите на вооружение Prometheus – систему мониторинга на основе метрик, используемую тысячами организаций. Это обновленное издание расскажет, что такое Prometheus, и познакомит с наиболее важными аспектами этой системы. Вы узнаете, как настроить Prometheus, Node Exporter и Alertmanager, научитесь использовать эти инструменты в своей работе и поймете, почему эта (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADA67C3DA624757C78E518FCE7BA9D94EEAB6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677603   (150235) от 18.11.2023
-
-Bartlomiej Plotka | Efficient Go (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150235.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этой книги любой инженер сможет узнать, как эффективно, профессионально и без стресса подходить к вопросам эффективности программного обеспечения. Автор предоставляет инструменты и знания, необходимые для того, чтобы сделать ваши системы более быстрыми и менее требовательными к ресурсам. Книга поможет вам добиться большей эффективности в повседневной работе (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC37C28795EFE2111660AE09A54AFF0E5C4C18B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589294   (149944) от 14.12.2012
 
 Кайл Бэнкер | MongoDB в действии [2012] [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149944.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148045.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147462.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ Brett McLaughlin | Programming Kotlin Applications / Программирова�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147389.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146641.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146509.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146484.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ Marin Todorov | Modern Concurrency in Swift, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145496.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143837.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143598.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143307.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143252.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143198.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143164.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142469.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141836.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141283.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140596.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140117.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140022.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139834.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138847.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Sec
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138800.jpg" />
 </div>
 
 
@@ -679,6 +601,89 @@ Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Sec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347652   (138532) от 30.12.2019
+
+Илья Кантор | Современный учебник JavaScript [3 книги] (2019) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами учебник по JavaScript, начиная с основ, включающий в себя много тонкостей и фишек JavaScript/DOM
+
+Оффлайн версия учебника, предназначенная для людей у которых например, отсутствует интернет или для чтения с мобильных устройств.Жанр: Программирование, JavaScriptФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDF6022EEAFC744FC8517A55728B03A6C1536B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088492   (137429) от 31.12.2016
+
+Хорхе Паласиос | Unity 5.x. Программирование искусственного интеллекта в играх (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игровой движок Unity 5 включает в себя множество инструментов, помогающих разработчикам создавать потрясающие игры, снабженные мощным искусственным интеллектом. Эти инструменты вместе с прикладным программным интерфейсом Unity и встроенными средствами открывают безграничные возможности для создания собственных игровых миров и персонажей. Данная книга охватывает как (   Читать дальше...   )Жанр: Искусственный интелект. Экспертные системыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF79F9820EA64F9A9584AEDBD92C384D955BEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825415   (136983) от 17.10.2025
+
+Джон Хортон | Создаем игры и изучаем C++ [3-е издание] (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтаете создавать игры, но не знаете, с чего начать? Книга «Создаем игры и изучаем C++» станет вашим проводником в мире игровой разработки!
+
+Это издание было адаптировано под Visual Studio 2022, C++20 и библиотеку SFML, оно предлагает уникальный подход: вы не только освоите язык C++ с нуля, но и примените знания на практике, создав четыре игры в разных жанрах.
+(   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. ЛаринИздательство: ПитерФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7AAB1E35EFE9D01BB613FF5DF1D197AA9441DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

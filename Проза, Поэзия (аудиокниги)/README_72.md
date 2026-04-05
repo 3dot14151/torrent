@@ -1,56 +1,3 @@
-###  Публикация: 1331005   (334851) от 13.10.2019
-
-Дмитрий Липскеров | О нем и о бабочках (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой нового романа «О нем и о бабочках» попадает в очень деликатную и абсолютно гоголевскую ситуацию. Именно с нее начинаются события, переворачивающие весь мир, в котором плутоватые и мудрые персонажи, ангелы и обыкновенные люди, плетут судьбу мироздания.
-Дмитрий Липскеров – автор более 25 прозаических произведений, среди которых романы «Сорок лет Чанчжоэ» (шорт-лист (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 12:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA00B2EC54000494BDFCAA6E0EF34C91EEA671D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331056   (334666) от 13.10.2019
-
-Цыпкин Александр | Девочка, которая всегда смеялась последней (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые лирическо-хулиганские рассказы от автора проекта «БеспринцЫпные Чтения». Александр Цыпкин – автор бестселлеров «Дом до свиданий», «Женщины непреклонного возраста», общим тиражом более 200 000 экземпляров. Его рассказы по всему миру со сцены читают: Сергей Бурунов, Максим Виторган, Сергей Гармаш, Михаил Горевой, Ингеборга Дапкунайте, Виктория Исакова, Данила (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BD50177E1C58A29FB7FF798A3DD6F7AB0D52CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 412381   (334024) от 18.11.2011
 
 Дэн Браун | Роберт Лэнгдон (Книга 2). Код да Винчи (2006) [MP3, Эммануил Виторган]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334024.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333948.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_333010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333010.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332343.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332150.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331526.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330646.jpg" />
 </div>
 
 
@@ -248,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329929.jpg" />
 </div>
 
 
@@ -274,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329811.jpg" />
 </div>
 
 
@@ -302,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328975.jpg" />
 </div>
 
 
@@ -329,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327483.jpg" />
 </div>
 
 
@@ -355,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325750.jpg" />
 </div>
 
 
@@ -381,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324410.jpg" />
 </div>
 
 
@@ -407,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323980.jpg" />
 </div>
 
 
@@ -433,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323711.jpg" />
 </div>
 
 
@@ -459,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323568.jpg" />
 </div>
 
 
@@ -485,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323567.jpg" />
 </div>
 
 
@@ -511,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323294.jpg" />
 </div>
 
 
@@ -537,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323172.jpg" />
 </div>
 
 
@@ -565,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323154.jpg" />
 </div>
 
 
@@ -591,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322937.jpg" />
 </div>
 
 
@@ -617,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322208.jpg" />
 </div>
 
 
@@ -645,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321874.jpg" />
 </div>
 
 
@@ -671,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321293.jpg" />
 </div>
 
 
@@ -682,6 +629,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1624CB32E4A53030AE53F309C993DCF1E64E60EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074929   (321285) от 22.11.2016
+
+Виктория Токарева | Своя правда (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интереснейшая история о том, как трудно жить и выживать в нашем мире женщине. Всё было в жизни Марины: и семья, и дети, и предательство, и яркая всепоглощающая любовь, и национальные разборки, и новое предательство… Всё смогла пережить Марина и пронести свою любовь, несмотря ни на что. Оказывается, можно простить даже предательство, если по-настоящему любишь. Душа (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 02:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BFAE9796784BAFDB784FFC7D17FD0249EB0C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331750   (320885) от 17.10.2019
+
+Сара Райнер | Один момент, одно утро (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь утра, поезд из Брайтона в Лондон. Все как обычно, люди украдкой наблюдают друг за другом, впереди очередной рабочий день. Но в одно мгновение что-то меняется… И судьба Анны, Лоу и Карен никогда уже не будет прежней. Один момент, одно необыкновенное утро в поезде… Кто бы мог подумать, что история, случившаяся тогда, станет для них отправной точкой новой жизни, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAF35466628270318A17BAA8131755B53D5B25F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1562236   (212519) от 15.07.2022
+
+Почтальон всегда звонит дважды / The Postman Always Rings Twice (1981) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Времена Великой Депрессии. Бродяга Фрэнк Чемберс нанимается в работники на бензоколонку к пожилому греку Нику Пападакису, который вместе с молодой женой Корой содержит таверну «Два дуба». Словно луч света в темном царстве, стало для Коры появление Фрэнка в их доме.
+Изнывающая в скучном, бесстрастном браке, она влюбляется во Фрэнка. Между ними вспыхивает безудержная (   Читать дальше...   )Производство: Германия (ФРГ), США / CIP Filmproduktion GmbH, Lorimar Film Entertainment, Northstar InternationalЖанр: Триллер, драма, мелодрама, криминалРежиссер: Боб РейфелсонАктеры: Джек Николсон, Джессика Лэнг, Джон Коликос, Майкл Лернер, Джон П. Райан, Анжелика Хьюстон, Уильям Трейлор, Томас Хилл, Джон Ван Несс, Брайан ФэррелПеревод: Дублированный, двуголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0409E60C7932FE00A86CA9443E840A4C6D9BF9FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589161   (212513) от 15.07.2022
+
+Супер Фантоцци / Superfantozzi (1986) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм начинается с того, что Господь, устав, создал Фантоцци. Через день он создал Адама, Еву и женщину для Фантоцци (полная противоположность красавице Еве). Потом Господь изгоняет супругов Фантоцци из Рая за то что Фантоцци по просьбе Евы сорвал запретный плод. Но Господь не знал о злой шутке Евы. Далее идут небольшие сюжеты, в которых показывается злоключения (   Читать дальше...   )Производство: Италия / Reteitalia, Scena FilmЖанр: КомедияРежиссер: Нери ПарентиАктеры: Паоло Вилладжо, Лью Босисио, Жижи Редер, Плинио Фернандо, Ева Лена, Люк Меренда, Джимми иль ФеноменоПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F05CAD37E7C01B7DEBED6631EC6D47A612AEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562723   (212342) от 20.07.2022
 
 Кабаре / Cabaret (1972) BDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212342.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212328.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212107.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211285.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211184.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210842.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210321.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210240.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210164.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210142.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210052.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209871.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209818.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209665.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209590.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209520.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209495.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209286.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209264.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209261.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209249.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209061.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209015.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208982.jpg" />
 </div>
 
 
@@ -617,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3100FB826652F513AF9BC57FF6D9C33CFD84EC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643592   (208765) от 17.07.2023
-
-Желтый роллс-ройс / The Yellow Rolls-Royce (1964) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три новеллы о любви и разлуке. Объединяет их «Роллс-ройс» - именно он служит пристанищем для влюбленных. Увы, их первое свидание в силу разных обстоятельств обычно оказывается и последним, после чего владелец машины предпочитает избавиться от нее, но, похоже, этот «Роллс-ройс» заколдован - с каждым следующим покупателем происходит то же самое...Производство: Великобритания / De Grunwald Productions, Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрама, комедияРежиссер: Энтони ЭсквитАктеры: Ингрид Бергман, Рекс Харрисон, Ширли Маклейн, Жанна Моро, Джордж К. Скотт, Омар Шариф, Ален Делон, Арт Карни, Джойс Гринфел, Эдмунд ПурдомПеревод: Многоголосый профессиональный, одноголосый любительскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD755C06D72D7997F522C6B031B413E36AFE11B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647302   (208616) от 18.07.2023
-
-Инцидент на границе / Border Incident (1949) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о совместной операции американской и мексиканской иммиграционных служб с целью пресечения незаконной переправки мексиканских сельскохозяйственных рабочих для работы на американских ранчо. Для реализации этого плана мексиканский агент и его американский коллега под прикрытием внедряются в банду, действующую по обе стороны границы, в итоге разоблачая (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: фильм-нуар, триллер, драма, криминалРежиссер: Энтони МаннАктеры: Рикардо Монтальбан, Джордж Мерфи, Ховард Да Сильва, Джеймс Митчелл, Арнольд Мосс, Альфонсо Бедойа, Тереза Челли, Чарльз МакГроу, Хосе Тровей, Джон РиджлиПеревод: Одноголосый любительский (Andy Green)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E2FC17508CE5D43FB446419B0326E07D0D4B52
 ```
 
 https://mybot314.ru/tekegram_catalog/

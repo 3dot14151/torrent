@@ -1,31 +1,3 @@
-###  Публикация: 908646   (631271) от 15.06.2015
-
-Скотт Паттерсон | Кванты. Как волшебники от математики заработали миллиарды и чуть не обрушили фондовый рынок (2013) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бойтесь гиков, формулы приносящих. (Уоррен Баффет)
-Эта книга о квантах - королях Уолл-стрит, колдующих над фондовым рынком. О тех, кто устроил кризис 2007 года, кто сейчас выводит из него мировую экономику и, увы, имеет возможность повторить этот круг еще не раз.
-Что мы знаем о людях, творящих финансовую историю? Ничего, кроме стереотипов. Они делают деньги из ничего? (   Читать дальше...   )Жанр: Биографии и Мемуары, Ценные бумаги, инвестицииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31C1CAAACF7FCE867F9E33783E7241D9251856C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908606   (631270) от 15.06.2015
 
 Джон Янч | По рекомендации. Бизнес, который продвигает себя сам (2015) [PDF, DOCX, EPUB]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631270.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630667.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630130.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628288.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627960.jpg" />
 </div>
 
 
@@ -169,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627873.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627773.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627761.jpg" />
 </div>
 
 
@@ -247,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627697.jpg" />
 </div>
 
 
@@ -273,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627681.jpg" />
 </div>
 
 
@@ -300,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627647.jpg" />
 </div>
 
 
@@ -326,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627567.jpg" />
 </div>
 
 
@@ -352,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627250.jpg" />
 </div>
 
 
@@ -379,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627165.jpg" />
 </div>
 
 
@@ -406,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626645.jpg" />
 </div>
 
 
@@ -432,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626625.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624388.jpg" />
 </div>
 
 
@@ -484,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624304.jpg" />
 </div>
 
 
@@ -513,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624228.jpg" />
 </div>
 
 
@@ -540,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624002.jpg" />
 </div>
 
 
@@ -566,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623426.jpg" />
 </div>
 
 
@@ -592,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623417.jpg" />
 </div>
 
 
@@ -618,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622062.jpg" />
 </div>
 
 
@@ -644,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621277.jpg" />
 </div>
 
 
@@ -670,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619851.jpg" />
 </div>
 
 
@@ -681,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88BDE242F23AAD38216E2F546EA72E37C6ECC021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036431   (618822) от 21.07.2016
+
+Дэвид Аакер | Аакер о брендинге. 20 принципов достижения успеха (2016) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Аакер – одна из самых крупных фигур мирового брендинга. Его книга – результат многолетней успешной практики – представляет собой двадцать простых, эффективных, доступных принципов достижения успеха. Никаких абстрактных рекомендаций и советов, только конкретные тактики, схемы, концепции и приемы, результатом реализации которых становится разработка, расширение (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3147C89258C18D02122243E59015A5632EB9AFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1200533   (795706) от 21.01.2018
+
+Вадим Радецкий (сост.) | Юный русский чтец-декламатор (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов для среднего и старшего школьного возраста.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295444B6B1ECDB06570DF4401A3523F891A8F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200541   (795704) от 21.01.2018
 
 Н.В. Тулупов, П.М. Шестаков (ред.) | Светлый день. Книжка для чтения на втором году обучения (1909) [JPG]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795704.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795700.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795697.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795673.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795654.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795651.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795588.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795556.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795526.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795440.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795420.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795257.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795202.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795152.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795055.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794954.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794953.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794767.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794765.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794627.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794323.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794087.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794071.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794018.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793836.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55019232EC9FA7F4A6159F5AEC5FE59FFA5F85F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012499   (793829) от 01.05.2016
-
-Игорь Сичовик | Цветёт багульник (1984) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для детей дошкольного возраста о интересных приключениях мальчика в тайге, о природе, о строительстве БАМа.Жанр: Детская прозаПеревод: Людмила КудрявскаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493F1713AD9F8485C5C103CA1E75ADAA9BD8CC8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

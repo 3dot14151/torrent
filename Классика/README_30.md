@@ -1,3 +1,32 @@
+###  Публикация: 541285   (500824) от 31.08.2012
+
+Антонио Вивальди - Концерты "Времена года" (2008) [MP3|320 кб/с]<Классическая музыка>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт № 1 "Весна": Allegro (3:10)
+Концерт № 1 "Весна": Largo (3:20)
+Концерт № 1 "Весна": Allegro (Danza Pastorale) (4:23)
+(   Читать дальше...   )Жанр: Классическая музыкаПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A6E6CCCDBE127AAD9E54F6EF22ED4A33C9A07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317440   (500411) от 01.08.2019
 
 Adiemus - Songs Of Sanctuary (1995) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient>
@@ -6,7 +35,7 @@ Adiemus - Songs Of Sanctuary (1995) [FLAC|Lossless|tracks + .cue] <Modern Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500411.jpg" />
 </div>
 
 
@@ -37,7 +66,7 @@ Adiemus - Songs Of Sanctuary (1995) [MP3|320 Kbps] <Modern Classical, Ambient>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500355.jpg" />
 </div>
 
 
@@ -66,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498606.jpg" />
 </div>
 
 
@@ -101,7 +130,7 @@ Brahms - Works for solo piano (Julius Katchen) (1997) (6CDs)[FLAC|image +.cue]<C
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497263.jpg" />
 </div>
 
 
@@ -130,7 +159,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495450.jpg" />
 </div>
 
 
@@ -159,7 +188,7 @@ Murray Perahia with ASMF Plays Bach Concertos (2011) [FLAC|Lossless]<Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495106.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494765.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ Wagner and Weber - Symphonies in C (Ari Rasilainen & Norwegian Radio Orchestra) 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494181.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ VA - One Night at the Opera (5CDs) (2000) [FLAC|tracks + .cue]<Classical, Romant
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494158.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490866.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ VA - Мировая Классика в современной обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490621.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Wolfgang Amadeus Mozart: Concertos for Clarinet, Flute and Bassoon / Karl Böhm 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489791.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Luciano Pavarotti - 16 Альбомов (20 CD) (1977-2007) [MP3|320 кб/с]<Op
 >>Вокал
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488706.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488632.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ VA -  Парад Оркестров (1973) [MP3|320 кб/с]<Instrumental,Orches
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484344.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ Weber, Mahler - Die drei Pintos (Paolo Arrivabeni & National Philharmonic Orches
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483944.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ VA - Complete Classical Chillout (2015) [MP3|320 кб/с]<Classical, Instrumenta
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483737.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ Antonio Lucio Vivaldi - Complete Opus 8 "Il Cimento dell'Armonia e dell'Inventio
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483735.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ Sweet Susie, Manni Montana ‎ - Kv 2006 (Inspired By Mozart) (2005) [FLAC|Lossl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483215.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ VA - Ave Maria (Unknown) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483071.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ Teodor Currentzis, MusicAeterna - Gustav Mahler Symphony n°6 (2018) [FLAC|Lossl
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482989.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ Hauser, London Symphony Orchestra - Classic (2020) Conductor Robert Ziegler [FLA
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482857.jpg" />
 </div>
 
 
@@ -688,7 +717,7 @@ VA - Russian Legends (Legendary Russian Soloists Of The 20-th Century) (100 CD  
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481795.jpg" />
 </div>
 
 
@@ -717,7 +746,7 @@ Christian Grovlen - BACH - Inside Polyphony (2017) [MP3|320 Kbps] <Classical>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481737.jpg" />
 </div>
 
 
@@ -746,7 +775,7 @@ Andrew Lloyd Webber - The Phantom of the Opera (1987) [FLAC|(image+.cue)]<Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481722.jpg" />
 </div>
 
 
@@ -760,41 +789,6 @@ Andrew Lloyd Webber - The Phantom of the Opera (1987) [FLAC|(image+.cue)]<Opera>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3A807C2DA995FB6AD0C23BC0830ABC2B2E1279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544133   (480118) от 12.09.2012
-
-VA - Иисус Христос Суперзвезда (русская версия)+Бонус(128-320кб/с) (1992) [MP3|320 кб/с]<Rock-opera>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра
-02. Живущие лишь небесным
-03. Что стряслось / Нахожу то странным
-04. Всё превосходно
-05. Пускай он умрёт
-06. Осанна
-07. Симон Зелот
-08. Сон Пилата
-09. Храм
-10. Как должен быть любим он(   Читать дальше...   )Жанр: Rock-operaПродолжительность: 01:27:45 (бонус: 05:59:02)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

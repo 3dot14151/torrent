@@ -1,3 +1,119 @@
+###  Публикация: 1652071   (219538) от 09.08.2023
+
+Moon Boots - Ride Away (Remixed) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Deep House, Speeeedyunderground, TechHouse>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride Away (Loods Remix) [00:03:54]
+02. Come Back Around (Romain Garcia Remix) [00:04:23]
+03. Hot Minute (Kareem Ali Remix) [00:03:47]
+04. Take Me To Your Body (Demuir's Playboi Edit) [00:03:51](   Читать дальше...   )Жанр: Deep House, Speeeedyunderground, TechHouseПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0717CC1E21692349709ABA110D770224952B1739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152130   (219499) от 05.12.2019
+
+Dement3d Records - Label-Pack 23 Releases (2011-2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blurry Youth (Elise Reshape) (05:08)
+ 02. Slave No Slave (Bambounou Reshape) (06:41)
+ 03. Falling For Her (Prequel Tapes Reshape) (07:19)
+ 04. Blurry Youth (Bjarki Reshape) (05:06)(   Читать дальше...   )Жанр: Techno/Electro/IDM/ExperimentalПродолжительность: 01:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38D3D0341D5D34E5B014793FD065564F2B790BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514271   (219486) от 02.12.2021
+
+VA - Best of Progressive Vocal Trance (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Elara - Paralyzed 3:19
+02. Costa & Cathy Burton - Always 2021 3:45
+03. Zetandel & Tiff Lacey - Higher Ground (Costa & Aurosonic Remix) 3:45
+04. Aurosonic, Spark7 & Sarah Russell - Touched By An Angel 4:09(   Читать дальше...   )Жанр: TranceПродолжительность: 04:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4E4E1FEAAAD3D24624484F295242D52B47D6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652019   (219475) от 09.08.2023
+
+Hybernoid - Advanced Technology (1998) [FLAC|Lossless|image + .cue] <Breakbeat, Breaks, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. Trapped
+03. Recoil
+04. Kullu(   Читать дальше...   )Жанр: Breakbeat, Breaks, Big BeatПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFC8F8DA0625F94692A3D0EB94D48B519192C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425993   (218956) от 22.11.2020
 
 Dither - Souma (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Abstract>
@@ -6,7 +122,7 @@ Dither - Souma (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Abstr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218956.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Dancing Pirates Vol. 1 (House Radio Edits) (2023) [MP3|320 Kbps] <Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218852.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Markus Schulz -Global DJ Broadcast  - World Tour Montreal (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218794.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Private Room - The Lounge Session Vol. 17 (2016) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218790.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dj De Key - Anniversary Edit (2019) [MP3|320 Kbps] <Progressive House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218763.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Ori Uplift & Phoenix - Uplifting Only 356 (2019) [MP3|320 Kbps] <Trance, Up
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218757.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Ibiza Dance Party (2023) CD, Compilation [MP3|320 Kbps] <Electro, Club, Fut
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218690.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - EFX - Club 3rd Compilation (1996) [FLAC|Lossless|tracks] <Hard Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218660.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Suanda Music Radio Top 20 (December) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218638.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Naono - Discography 6 Releases (2002-2012) Vibrant Music, Archaic Horizon [FLAC|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218584.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Ferry Corsten presents Gouryella - From The Heavens (2016) [FLAC|Lossless|tracks
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218575.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Fancy - Strip Down (2000) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218530.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downte
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218497.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ VA - House Clubhits Megamix 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218460.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ VA - Digiseeds (Compiled by Ambientium) (2015) Ultimae Records [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218345.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Mylene Farmer - Remixes (2004) [FLAC|Lossless|tracks + .cue] <Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218219.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ VA - Summer Uplifting Trance (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218215.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ VA - Uplifting Only Top 15: October (Extended Mixes) (2022) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218208.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Synth Sense - Discography 12 Releases (2010-2015) Auxiliary [FLAC|Lossless|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218127.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Lazarus Moment - A Moment for Eternity (2018) Nucifera Records [FLAC|Lossless|WE
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217917.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Eguana - Nearness (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Downt
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217907.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ VA - Black Hole House Music 08-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217875.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ VA - Black Hole House Music 08-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E03843DED2FA94DE012813B52F5EE5CDB4E3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652472   (217764) от 11.08.2023
-
-VA - Black Hole Trance Music 08-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. XiJaro & Pitch & Ava Silver - Heart (Extended Mix) [7:35]
-02. Craig Connelly & HALIENE - Other Side Of The World (Extended Mix) [7:43]
-03. Richard Durand - Solar Express (Extended Mix) [5:33]
-04. BT - Godspeed (Maria Healy Extended Remix) [7:42](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E775ED397F36CF8989972228B1374220BE0B12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652436   (217759) от 11.08.2023
-
-Leaether Strip - Last Station (2023) [FLAC|Lossless|image + .cue] <EBM, Industrial, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Edged Sword (05:31)
-02. Dead Soldiers (04:46)
-03. Flammen Und Flusse (03:49)
-04. Last Station (06:31)(   Читать дальше...   )Жанр: EBM, Industrial, Synth-popПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E548079A4A90954E726C64C5F5864B4148CC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269979   (217730) от 16.12.2018
-
-VA - Buddha Bar: The Ultimate Chillout Lounge Collection (2018) [FLAC|Lossless|tracks] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Boy  (3:19)
-02. The Hunt  (1:20)
-03. Drunk Dopes  (3:40)
-04. Tiny Spiders  (4:54)(   Читать дальше...   )Релиз состоялся: 22 October 2018Жанр: Lounge, ChilloutПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A874BC36DB56102E3954353DDB3432B782BAD0DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327789   (217650) от 22.11.2020
-
-The Higher Intelligence Agency (HIA, H.I.A.) - Discography 22 Releases (1993-2020) Beyond, Fax, Headphone [FLAC|Lossless|tracks+.cue, tracks] <Techno Ambient, Downtempo, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why (06:25)
- 02. Selenite (07:02)
- 03. Harmony Angel (05:42)
- 04. Alien Mind (06:41)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno Ambient, Downtempo, Ambient •Продолжительность: 18:30:18 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3D991F7C7036A0AD0231CC38024E36BEBE5652
 ```
 
 https://mybot314.ru/tekegram_catalog/

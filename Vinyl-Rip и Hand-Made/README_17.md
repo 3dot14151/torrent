@@ -1,3 +1,32 @@
+###  Публикация: 843813   (738047) от 25.01.2022
+
+VA - 20 Power Hits (1973) As advertised on T.V. [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+01. Crocodile Rock - Elton John (1972)
+02. Alright Alright Alright - Mungo Jerry (1973)
+03. Bad Bad Boy - Nazareth (1973)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A3EE8B4691FE5D4D1A056F82A0D78D7C47151B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397762   (737596) от 22.07.2020
 
 The Sugarcubes - Life's Too Good (1991) Recorded April 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Indie Rock>
@@ -6,7 +35,7 @@ The Sugarcubes - Life's Too Good (1991) Recorded April 1988 [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737596.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737585.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Police - Дискография (1978 - 1983, 1993) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737329.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stone - Studio Albums (1988 - 1991) hand made [restored, declipped] [FLAC 2.0|Lo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736922.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Armin van Buuren - Imagine (2008) 2LP Reissue 2021 [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736879.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Mike Morton Non Stop Party Show Vol. 1 (1973) 30 Great Sounds [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736425.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Mindfeed - Studio albums (1997-1998) hand made [restored, declipped] [FLAC 2.0|L
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735388.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Opus - Up And Down (1984) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735169.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Terror Universal - Make Them Bleed (2018) hand made [restored, declipped] [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734969.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ The Police - Zenyatta Mondatta (1980) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Ne
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734968.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734960.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734306.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Diana Ross & The Supremes - Baby Love (1973) Compilation 1963-1966, Czechoslovak
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733570.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ The Alan Parsons Project - Gaudi (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731843.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731394.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730776.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Secret Service - Collection (7 LP) (1979-1987) [FLAC 2.0 24/192|image(Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730294.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729859.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Jethro Tull – The Zealot Gene (2022) [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728929.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728766.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728683.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728545.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727525.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ VA - Антология советского киношлягера - Любим
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726267.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Various Artists - Любимые песни из фильмов  /Movie Songs (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726101.jpg" />
 </div>
 
 
@@ -711,35 +740,6 @@ Various Artists - Любимые песни из фильмов  /Movie Songs (1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECD299A21D9D284D6A4D25CAE019DE1A40EE08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284878   (724474) от 24.02.2019
-
-Майя Кристалинская - В Подмосковье Ловятся Лещи (1975) [FLAC 1.0|96/24|tracks+.cue|Vinyl-Rip] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В Подмосковье ловятся лещи
-02. Добрый мой друг
-03. Довоенное танго
-04. Я Ваша ВеснаЖанр: Pop, RetroПродолжительность: 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AEA6DA2EC770ACC48605C2C5F5FC73E157DA48
 ```
 
 https://mybot314.ru/tekegram_catalog/

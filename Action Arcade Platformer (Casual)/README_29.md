@@ -1,3 +1,55 @@
+###  Публикация: 1788964   (21141) от 17.04.2025
+
+Koira (2025) [Ru/Multi] (1.0.7/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы просыпаетесь вдали от сердца леса – от дома. Где-то вдалеке раздается эхом лай щенка по деревьям. Кажется, ему нужна помощь. Вы встаете на ноги. Koira - это добрая сказка о дружбе, в которой вы и ваш новый щенок путешествуете по музыкальному лесу, cпасите щенка и вместе с ним отправьтесь в трогательное рисованное приключение. Защитите своего нового друга от охотников (   Читать дальше...   )Тип издания: RepackРазработчик: Studio TolimaЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42191DA4B18574551B0AB35BB34BA7EAA26D8AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779376   (21122) от 17.04.2025
+
+Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.1.0/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skelethrone: The Chronicles of Ericona – в этом достаточно непростом двухмерном платформинге нашлось место для ролевой игры. А еще он был вдохновлен на Castlevania и Dark Souls. Впечатляет, не так ли? Здесь вам предстоит превратиться в лорда, обреченного на смерть, который избежал ее, но только более мрачным образом. Попросту говоря, отправьтесь навстречу большим (   Читать дальше...   )Тип издания: RepackРазработчик: 70`StrikeЖанр: Экшены, Ролевые игрыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAA11D973EA2BEF4E3DD5393EB5CEF0774F125D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792137   (21106) от 17.04.2025
 
 30XX (2023) [Ru/Multi] (1.3.5/dlc) Repack Pioneer
@@ -6,7 +58,7 @@
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21106.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Magenta Horizon - Neverending Harvest (2024) [Ru/Multi] (1.0.15) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21085.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20967.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Bionic Bay (2025) [Multi] (1.3.0.4/dlc) Repack Other s [Complete Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20846.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Dive The Depths (2025) [Ru/Multi] (0.1.0a) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20839.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Air Xonix 3D / Воздушный ксоникс (L) [Ru] 2005
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20671.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Artisan TD (2024) [Ru/Multi] (1.310) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20652.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Sacre Bleu (2025) [Ru/Multi] (1.0.10) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20510.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ BIOMORPH (2024) [Ru/Multi] (2.0.27583) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20333.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Menace from the Deep (2024) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20252.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Mega City Police / Mega City Force (2023) [Ru/Multi] (1.092) License GOG [Digita
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20245.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Astral Ascent (2023) [Ru/Multi] (1.10.1/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19477.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Ship of Fools (2022) [Ru/Multi] (1.5.0_d7a95f1a/dlc) Repack FitGirl [Completely 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19470.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Bionic Bay (2025) [Ru/Multi] (1.3.5.2/dlc) Repack Let'sРlay [Complete Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19323.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Sacre Bleu (2025) [Ru/Multi] (1.0.16) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19317.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Rain World (2017) [Ru/Multi] (1.10.3/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19300.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Revita (2022) [Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19212.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Slavania (2024) [Ru/Multi] (1.1.0-885/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19118.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Slavania (2024) [Ru/Multi] (1.1.0-887/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19054.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Death Road to Canada (2016) [Multi] (Omentum Update) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18898.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack Let'sРlay [Last Wish E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17437.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (Build 18577240) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17284.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) License G
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16933.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16930.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5B8E795C0999A6F6B0DE478DDE89F31A2C87D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798776   (16906) от 26.05.2025
-
-The Siege and the Sandfox (2025) [Ru/Multi] (51162 patch 1) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16906.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Siege and the Sandfox - это стелс-метроидвания в едином огромном мире. Под ослепительной красотой дворца вас ждут подземные тюрьмы и древний мавзолей, а соединены они сложной сетью пещер. В каждой локации - уникальные враги, и некоторые из них куда лучше других обучены поимке ловких Песчаных лисиц! Будьте начеку: даже потухший факел или незакрытая дверь могут (   Читать дальше...   )Тип издания: LicenseРазработчик: Cardboard SwordЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2108DD8E86D7D31A5866511299CC7595E1BFDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790308   (16436) от 29.05.2025
-
-The Little Brave (2025) [Ru/En] (1.0.6) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16436.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Little Brave это захватывающая, приключенческая, иммерсивная 2D метроидвания о маленьком герое по имени Кили. Приготовьтесь к захватывающему приключению. Раскройте секреты старой сказки, наберитесь храбрости и силы на пути! Кили живет в мире в котором, когда-то давным-давно была магия, но однажды ужасное проклятье исказило волшебные места. Кили мечтает отправится (   Читать дальше...   )Тип издания: RepackРазработчик: Dmitrii BatovЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Китайский  и другиеЯзык интерфейса: Русский, Английский, Испанский, Китайский  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE37D7A537D1DE5298D0CAE80C8DB45BD4C44A12
 ```
 
 https://mybot314.ru/tekegram_catalog/

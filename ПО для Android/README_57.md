@@ -1,3 +1,107 @@
+###  Публикация: 1385465   (479968) от 30.07.2022
+
+Electronic Component Pinouts v16.80 PCBWAY [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение обеспечивает автономную базу данных с более чем 70000 распиновкой электронных компонентов. Чипы, транзисторы, диоды, триаки, микропроцессоры и многое другое. Распаковка компонентов выполняется быстро и не требует доступа в Интернет для поиска. Более 23000 различных контактов с большим количеством эквивалентов.Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 22.07.2022Разработчик: Adriano MoutinhoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D425E4D839036B93FCD81A2B0A0A4DF658BD359F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227749   (479954) от 30.07.2022
+
+Ventusky: Прогноз погоды v20.1 Mod by Сіtrus, qwerty [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 29.07.2022Разработчик: InMeteoПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDAB936E8E82F3D62BA13BA989B0755DD8E8478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244628   (479568) от 02.09.2018
+
+VPN Max by Aeronliru v100.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение VPN Max by Aeronliru это мод приложения Samsung Max для Android - бесплатное мобильное приложение с функциями "Экономия трафика" и "Защита конфиденциальности" для управления передаваемыми данными, экономии интернет-трафика и защиты Wi-Fi подключений. Приложение Samsung Max пришло на смену Opera Max. Samsung Max позволяет экономить трафик, (   Читать дальше...   )Тип издания: Пиратка (Mod без рекламы и т.п.)Релиз состоялся: 31.08.2018Разработчик: SamsungПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF55CB20746FE06B154532F3864D4350048B7A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567000   (478339) от 31.07.2022
+
+ZArchiver Pro 1.0.4 Mod by 5Mod Team [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478339.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZArchiver Pro - файловый менеджер, что обладает впечатляющими дополнительными возможностями по работе с архивными файлами. Проект не только помогает оперативно взаимодействовать со всем, что есть на устройстве, но и без каких-либо преград выполнять задуманное с заархивированными элементами. Как популярными и всем известными, так и весьма редкими, применяемыми в специализированных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.05.2022Разработчик: ZDevsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A26941BD73FADF699773E66669B4CD7D555F94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057184   (477094) от 27.09.2016
 
 Monetal v3.1.6 [Ru/En] - Удобный менеджер финансов
@@ -6,7 +110,7 @@ Monetal v3.1.6 [Ru/En] - Удобный менеджер финансов
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477094.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474621.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Your Calendar Widget 1.56.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474316.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Oxford Learner's Bookshelf - Карманная библиотека Оксфо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474244.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Flightradar24 v8.18.7 Gold [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473906.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Measure Map Pro 8.0.6_79 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472119.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Agro Measure Map Pro 8.0.6_67 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472117.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Wallpaper Changer Premium 4.9.3 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472112.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ AudioRelay Pro: стриминг аудио 0.24.9 + Сервера для Windo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472106.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Lesser AudioSwitch 2.7.2 Mod by KirIif' [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470196.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470077.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Lesser AudioSwitch 2.7.2 Mod by KirIif' [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470076.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Prof Reminder 3.3.5 (Premium) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470053.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Omnia Music Player / Музыкальный плеер Omnia 1.5.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468009.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Darker (Screen Filter) 4.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466006.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ Mantis Gamepad Pro 1.3.6b Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465913.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ WinZip – Zip UnZip Tool 6.4.0 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465898.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464134.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Twilight Pro - Фильтр синего света 12.17 Mod by Balatan [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464076.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Advanced Download Manager v14.0.13  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463815.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ RAR for Android Premium v5.71 build 74 Final [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462663.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ Free Ringtone Maker / Создатель Рингтона 1.01.41.0613 Mod by Mi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461812.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ Free Ringtone Maker - предназначенный для быстрого и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22EF0C22E74206B072F22297D280081671BADD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568500   (461811) от 08.08.2022
-
-Мой бюджет 8.13 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой бюджет - благодаря функциям просмотра отдельных записей и регулярных переводов Вы можете получить детальную информацию по следующим месяцам, чтобы понять, сколько денег будет находиться в Вашем распоряжении каждый месяц. Дополнительно эту информацию можно отобразить в виде графиков, что позволит Вам оптимально планировать (крупные) приобретения на несколько месяцев (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 07.08.2022Разработчик: OneTwoAppsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский, Немецкий, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A72B30A74671698E1B90590D1C5194521B7D7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568545   (461804) от 08.08.2022
-
-Wombo: Make your selfies sing 3.1.1 Mod by Mixroot [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wombo: Make your selfies sing - развлекательное приложение, что задействует возможности нейросетей для создания отличного качества анимированных фотографий с музыкой. Пользователю достаточно сделать селфи следуя определённым правилам, выбрать нужную композицию, а после просто немного подождать. Чтобы в итоге получить идеально синхронизированное видео на котором главный (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.03.2022Разработчик: Wombo Studios IncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский, Немецкий, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804E7838BF5DB3E4C0390A05A1D48E97539045B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568478   (461799) от 08.08.2022
-
-Anews: все новости и блоги 4.3.15 Mod by SurvivalHorro [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anews - это быстрый и удобный способ читать новости и статьи из любых новостных источников на вашем мобильном устройстве. Новостной агрегатор Anews позволяет вам выбирать из множества источников (практически любых новостных сайтов, СМИ, блогов, социальных сетей, порталов и RSS-каналов) и просматривать их в одном приложении.Тип издания: ProРелиз состоялся: 12.03.2021Разработчик: Anews Inc.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561C8E33B43A0AB9287C1355BCECCA3D297CA933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568479   (461795) от 08.08.2022
-
-Cool Q Launcher 8.5.1 Mod by Oflarm [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cool Q Launcher - современный, стильный и самое главное, очень удобный лаунчер для вашего Android устройства. Он стилизован под оболочку EMUI с устройств Huawei, и имеет большие возможности в области настройки и модификации.Тип издания: ModРелиз состоялся: 05.08.2022Разработчик: Cool Launcher App TeamПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500F49FF41AB5ABE0B2A9AD0FD80CE45693852EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 557683   (461841) от 26.09.2014
+
+The Testament of Sherlock Holmes / Последняя воля Шерлока Холмса (2012) [Ru/En] (1.0u?) Repack Audioslave
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461841.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой запутанной истории вы сыграете роль Шерлока Холмса. На карту поставлена ваша репутация непогрешимого детектива, так что, расследуя это сложнейшее дело, будьте предельно внимательны и максимально тщательно анализируйте любую полученную информацию. Обследуйте места происшествий, разыщите улики, восстановите цепь событий и сделайте выводы, опираясь на новую игровую систему дедукции. Весьма ценным будет умение выстраивать разговор с каждым персонажем так, чтобы выведать необходимые сведения, несмотря на стремление собеседника направить вас по ложному следу. Острый глаз и острый ум — ваши главные инструменты, используйте их на полную мощь, решайте самостоятельно, что важно, а что — нет, не поддаваясь на уловки. Распутайте клубок злодеяний и восстановите доброе имя знаменитого детектива.(   Читать дальше...   )Тип издания: RePackРазработчик: Frogwares Game Development StudioЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CEAF858B1F557AA83DE479AC9A024CF11E30D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348826   (461527) от 08.08.2022
+
+Blade Runner (1997) [Multi] (1.0.1016) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461527.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1997 году Westwood Studios выпустила игру, которая завоевала любовь игроков и критиков по всему миру и получила немало наград, в том числе титул «Лучшая приключенческая игра года» от AIAS. Игра Blade Runner, действие которой разворачиваются параллельно сюжету классического научно-фантастического фильма Ридли Скотта «Бегущий по лезвию», вышедшего в 1982 году, вернулась (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood Studios, Inc.Жанр: Приключение, От третьего лица, ФантаcтикаЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756ABF6EB675588AEC8CBDDA47ACE6E51DAE9F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246366   (460756) от 11.09.2018
+
+Flynn & Freckles (2018) [En/Es] (3.0.0.5) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flynn & Freckles — молодой пират по имени Флинн решил отправиться на поиски самого ценного сокровища: меча капитана Фрекла. Но оружие оказалось одержимо духом старого капитана. Теперь вместе им предстоит столкнуться со всеми опасностями, поджидающими их на пути, и отыскать оставшиеся сокровища. Flynn & Freckles — экшен, в котором вам предстоит много исследовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Rookie Hero GamesЖанр: Adventure, Casual, PuzzleЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAEA2A30F76DD76954D37738878F22FFD64EB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 388669   (457733) от 17.09.2011
 
 Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
@@ -6,7 +84,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457733.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack O
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457046.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [En/Ge] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456765.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Dreamfall Chapters (2014-2016) [Ru/Multi] (5.3.1) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456638.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Unfinished Swan (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455010.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Disneyland Adventures (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454305.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.1.0246) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452571.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Agatha Christie: The ABC Murders (2016) [Ru/Multi] (1.02) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452364.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Old House (2020) [Ru/En] (1.0) Steam-Rip CHRONOS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450956.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Brothers: A Tale of Two Sons (2013) [Ru/Multi] (1.0/u1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449987.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445742.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445422.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ The Beginner's Guide (2015) [Ru/En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444056.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Battle Chef Brigade (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443680.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ The Whispered World  / Ускользающий мир [Ru] (L) 2010
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443051.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Penumbra: Black Plague / Пенумбра 2: Дневники мертвецов
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443038.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Lost Horizon 2 (2015) [En] (1.0.3) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441803.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Solstice (2016) [En] (1.4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441680.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd1/dlc) License HOODLUM [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441418.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ Transference (2018) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441314.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ LOST EMBER (2019) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439779.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04a) Repack xatab (обновляема�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439756.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ My Brother Rabbit (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436847.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ My Brother Rabbit (2018) [Ru/Multi] (1.0/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD36CC377E5694B9ECA4A3A4BB49974D9863C1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164905   (436390) от 11.09.2017
-
-Late Shift (2017) [Ru/Multi] (1.0) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Late Shift - это криминальный FMV-триллер, ставки в котором как никогда высоки. После того, как студента-математика Мэтта силой втягивают в ограбление рентабельного аукционного дома, ему не остаётся ничего иного, кроме как попытаться доказать свою невиновность в этом жестоком лондонском ограблении. Ваши выборы будут иметь последствия с самого начала и до самого конца.Тип издания: RepackРазработчик: CtrlMovieЖанр: Movie, Action, Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1AED34FBB62AA1190A71D46FE0212BC9AA5D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063177   (436370) от 15.10.2016
-
-Stay Close (2016) [En] (1.04) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достаточно стандартный вечер обернется циклом мистических приключений. Темный город заставит вас играть по своим правилам и делать это можно как одному, так и в кооперативеТип издания: RepackРазработчик: Blind BirdЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0013E9FE259A5EE1CE4FBD1934233760EB7CC82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410493   (435787) от 21.09.2020
-
-Beatbuddy: Tale of the Guardians (2013) [Ru/Multi] (1.2.9) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очнувшись от забытья, Ритмобрат путешествует по пышным нарисованным от руки окружениям в квесте, целями которого являются спасение его товарищей и собственное бессмертие. Ритмобрат взаимодействует с живым дышащим окружением под ритмы оригинальной звуковой дорожки, помогающей ему по мере того, как он разблокирует новые пути и решает головоломки.Тип издания: RepackРазработчик: ThreaksЖанр: Adventure, Action, Puzzle, CasualЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06EA4DFAAC96D7DFD40F01BA0FDF97D995ED934
 ```
 
 https://mybot314.ru/tekegram_catalog/

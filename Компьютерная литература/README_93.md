@@ -1,161 +1,3 @@
-###  Публикация: 1652077   (216516) от 12.08.2023
-
-Михал Яворски, Тарек Зиаде | Python. Лучшие практики и инструменты (2024) [PDF] [4-издание]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Python - простой, но мощный язык, поэтому он используется в самых разных областях. Написать код на Python легко, но сделать его удобочитаемым и пригодным для повторного использования и сопровождения может оказаться проблемой. Четвертое издание этой книги дополнено лучшими практиками, полезными инструментами и стандартами, которые применяют профессиональные разработчики, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е. МатвеевИздательство: ПитерФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBF4348C7F13B6B52EE2336C319D462603B471E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513165   (216017) от 03.12.2021
-
-Кристиан Майер | Однострочники Python. Лаконичный и содержательный код (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткость - сестра программиста. Эта книга научит вас читать и писать лаконичные и функциональные однострочники. Вы сможете системно разбирать и понимать код на Python, а также писать выразительно и компактно, как настоящий эксперт.Здесь вы найдете приёмы и хитрости написания кода, регулярные выражения, примеры использования однострочников в различных сферах, а также (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09F4486A5438E77FD73B0558AA3DDA6326CE2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426116   (215620) от 23.11.2020
-
-Бен Рэдвуд и др. | 3D-печать. Практическое руководство (2020) [PDF]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215620.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-печать. Практическое руководство — Книга посвящена стремительно развивающимся технологиям 3D-печати, которые находят свое применение во множестве отраслей: дизайне, строительстве, медицине и других. Помимо самих технологий и материалов печати рассматриваются характеристики различных 3D-принтеров, общие особенности 3D-моделей и методы их постобработки. Благодаря (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742DEACBED7F7C33673DD981429429CA6D0BA163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426098   (215543) от 23.11.2020
-
-Дмитрий Зиновьев | Основы проектирования в КОМПАС-3D v17 (2019) [PDF]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассчитана на начинающих пользователей. В ней представлены уроки по основам проектирования в этой программе. Однако опытным пользователям она также пригодится – поможет систематизировать ранее полученные знания и навыки и узнать неочевидные приемы проектирования.Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AECFA642691875F174E505024BDEAB3FC635E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966927   (215179) от 19.12.2015
-
-Павел Козловский, Питер Бэкон Дарвин | Разработка веб-приложений с использованием AngularJS (2014) [PDF, RTF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215179.jpg" />
-</div>
-
-
-###  Подробнее
-
-С появлением HTML5 и CSS3 разработка клиентских веб-приложений на языке JavaScript приобрела особую популярность. Создатели фреймворка AngularJS предприняли революционный подход к решению вопроса превращения браузера в самую лучшую платформу для разработки веб-приложений.
- Книга проведет вас через основные этапы конструирования типичного одностраничного веб-приложения. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA4FA8907E7A90FA5A96AA70F18F7D0F51B8749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653028   (215132) от 14.08.2023
-
-Серхио Рохас-Галеано | ChatGPT: ваш наставник по Python. Овладение основами за 100 запросов (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя мир программирования на Python с помощью ChatGPT! Погрузитесь в основные концепции, решайте увлекательные и веселые задачи и исследуйте безграничный потенциал программирования. Этакнига позволит вам освоить Python всего за 100 запросов, сформировав у вас необходимые навыки.
-Python — один из наиболее широко используемых и универсальных языков программирования, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: LeanpubФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343884   (214133) от 08.12.2019
 
 Хуэй-Хуан Ли | Программирование и инженерные вычисления с помощью MATLAB (2019) [PDF] [En]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214133.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213964.jpg" />
 </div>
 
 
@@ -216,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213854.jpg" />
 </div>
 
 
@@ -242,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213828.jpg" />
 </div>
 
 
@@ -268,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213402.jpg" />
 </div>
 
 
@@ -294,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213236.jpg" />
 </div>
 
 
@@ -320,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213218.jpg" />
 </div>
 
 
@@ -347,7 +189,7 @@ DrMax | SEO Монстр NEXT (2022) [PDF] [AD]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213161.jpg" />
 </div>
 
 
@@ -374,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213109.jpg" />
 </div>
 
 
@@ -400,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213073.jpg" />
 </div>
 
 
@@ -426,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213051.jpg" />
 </div>
 
 
@@ -452,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213030.jpg" />
 </div>
 
 
@@ -478,7 +320,7 @@ Jan Newmarch, Ronald Petty | Network Programming with Go Language: Essential Ski
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213012.jpg" />
 </div>
 
 
@@ -504,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212764.jpg" />
 </div>
 
 
@@ -530,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212697.jpg" />
 </div>
 
 
@@ -556,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212692.jpg" />
 </div>
 
 
@@ -582,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212689.jpg" />
 </div>
 
 
@@ -608,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212687.jpg" />
 </div>
 
 
@@ -634,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212680.jpg" />
 </div>
 
 
@@ -660,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212669.jpg" />
 </div>
 
 
@@ -671,6 +513,167 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DADB7CA2BDDCF3DFC0EC1A4F12DA67FAA4953BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564585   (212375) от 19.07.2022
+
+Джозеф Албахари | C# 9.0. Справочник. Полное описание языка (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212375.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом издании бестселлера читателю предлагаются все необходимые ответы на разнообразные вопросы по языку C# 9.0 и .NET 5. C# — это язык с замечательной гибкостью и широким размахом, но такое его непрекращающееся развитие означает, что по-прежнему есть многие вещи, которые предстоит изучить. В соответствии с традициями справочников O’Reilly это основательно обновленное (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9733D20EC33BAD8EC9148822B0C515BCB28EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565499   (212263) от 23.07.2022
+
+AdrianK | The UI Professional's Design Manual (600+ pages and free bonuses) (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта электронная книга идеально подойдет вам, если 🤔 ...
+Вы точно не знаете, где найти полезную информацию о мобильном дизайне...
+Вы устали искать правильную структуру дизайна, которой нужно следовать...
+Вы хотите изучить основы хорошего дизайна пользовательского интерфейса, но вам не хватает настоящего руководства...(   Читать дальше...   )Жанр: Веб-дизайн, дизайн приложенийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24EF275DA183BB501ED0CCEC101758954620D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565631   (212221) от 24.07.2022
+
+А.В. Селезнева | Основы программирования. Язык высокого уровня С++. Часть I (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие состоит из двух частей, каждая из которых содержит теоретический материал, примеры задач с их реализацией, ряд лабораторных работ. Первая часть данного пособия знакомит читателя с основными понятиями программирования, его базовыми конструкциями, средами разработки. Учебное пособие направлено на приобретение студентами общих знаний и навыков программирования (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70B3C585A08D26289B86DCAE6596CBAA2AF6E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831493   (212163) от 28.10.2025
+
+Dylan G.H. Quagmire | Raspberry Pi Bible: The Ultimate Project & Programming Guide for Beginners (2025) [PDF, EPUB, MOBI] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Have you ever wondered how that tiny Raspberry Pi board everyone talks about can turn into a fully functioning robot, a weather station, or even a home automation system? Are you itching to build something exciting but feel overwhelmed by where to begin? Or maybe you’ve bought a Raspberry Pi, it’s been sitting on your desk, and you’ve been thinking—now what?
+What (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Independently publishedФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0403F2FC8D7902A90B27ABE9523E69946CE32D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831436   (212162) от 28.10.2025
+
+Phil King | Simple electronics with GPIO Zero: Take control of the real world with your Raspberry Pi (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212162.jpg" />
+</div>
+
+
+###  Подробнее
+
+There are many things that distinguish Raspberry Pi from other computers. The GPIO header might just be the most significant of them all — it allows you to connect electronic components to your Raspberry Pi and control them with code you've written yourself.
+The most popular programming language for controlling electronics on a Raspberry Pi is Python, particularly (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Raspberry Pi, Ltd.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31AE9DF9361D833AFDA2734D4C4AF7751813C821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831422   (212161) от 28.10.2025
+
+L. Hattersley (ed.) | The Official Raspberry Pi Handbook - 2026 (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212161.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Official Raspberry Pi Handbook 2026 is packed with all the information beginners need to use their new Raspberry Pi computer. Inside this book, you'll find the best projects from the past year for long-term Raspberry Pi enthusiasts. With a special attention to Raspberry Pi 5, the latest and greatest in the Raspberry Pi microcomputer line, you'll learn how to (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Raspberry Pi PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B7AF51D15F25D9EACAE1FCB0613C1A5F5CB4FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

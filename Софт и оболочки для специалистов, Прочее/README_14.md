@@ -1,3 +1,107 @@
+###  Публикация: 938079   (483170) от 17.09.2015
+
+Макросы для Sprint-Layout 6.0 00001 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макросы для Sprint-Layout 6.0Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE64267F275096D50ECD6A37B843636BA804CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545915   (478129) от 13.09.2012
+
+Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Круглосуточный скальпер для 4 пар (EURUSD, GBPUSD, USDJPY, USDCHF),таймфрейм М15.Название программы: Wall Street RоВоt - форекс советник для МТ4/МТ5Язык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160129   (477847) от 23.08.2017
+
+ZX Custom RegTweaker 2.1 Portable [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита является конструктором для создания своего твикера реестра. Интерфейс на фото, является только рабочим примером. Все элементы можно создавать самому, прописывать для них свои ключи реестра и редактировать весь интерфейс по своему вкусу. Формат записи ключей, такой же как в стандартных .reg файлах. В один чекбокс, можно прописывать не только единичные твики, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542BE67AE643BD23CBD4B82C396127F5A24E801D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243878   (477827) от 03.09.2018
+
+PowerPlan v3.2e & Trackpad++ v3.5b [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Включает в себя набор из двух программ PowerPlan и Trackpad++. Первая, PowerPlan, продлит время работы MacBook в Windows - изменяет схемы питания. Вторая, Trackpad++, добавляет жесты трекпада из Mac OS в Windows.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C78D05B4DA8CD0555D81A8E778888B77AB422A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546325   (475556) от 14.09.2012
 
 Turbo Pascal for Windows 1.5 [Английский]
@@ -6,7 +110,7 @@ Turbo Pascal for Windows 1.5 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475556.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Autodesk AutoCAD 2013 LT SP1.1 x64 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468537.jpg" />
 </div>
 
 
@@ -62,7 +166,7 @@ RusLiveFull by NIKZZZZ CD/DVD (24.09.2015) [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459353.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ SamDrivers 22.7 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457056.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ Microsoft .NET Framework 4.8.1 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454913.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Hex Workshop Professional 6.8.0.5419 RePack by ErikPshat [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452997.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ Easy DriverPack 6.5.2015.0915 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441811.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ solidThinking Inspire and Evolve Suite 2016.1 Build 5559 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441621.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ TransTrade 2.9 [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440211.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ EMCO MSI Package Builder Enterprise 5.2.9.3741 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439553.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ Java SE Development Kit 18.0.2.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438053.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ Sybase PowerDesigner 16.5.0.3982 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437294.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Home Plan Pro 5.5.1.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434208.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ LDPlayer 4.0.83 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433718.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ Red Gate SQL Toolbelt 1.8.2.497 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428642.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ WinToUSB Enterprise 7.1 Release 1 Portable by AlexYar [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425402.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ KinoScreen 1.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425068.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Hiren's BootCD Pro 2.3 [Русский / Английский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_423194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423194.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ XAMPP 7.4.10 + Portable [En/De]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417831.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ Tarma InstallMate 9.97.1.7573 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415576.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Pascal ABC.NET 1.8 build 496 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_410951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_410951.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ CorelCAD 2016 Build 16.0.0.1079 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408975.jpg" />
 </div>
 
 
@@ -577,112 +681,6 @@ CorelCAD 2016 – высокопроизводительная система а
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1CDD64E6FB289A500F08E48432195718BCFCFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252222   (408905) от 05.10.2018
-
-Комплект средств для развертывания и оценки Windows (ADK) для Windows 10 V. 10.1.17763.1 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот комплект предназначен для изготовителей и поставщиков оборудования, энтузиастов и ИТ-специалистов, которые измеряют эксплуатационные характеристики компьютера, включая его производительность, надежность и функциональность. Оценки Windows – это средства, которые помогают предоставить эти данные, диагностировать проблемы и способы их решения. Выявляя потенциальные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB71F3314EFA410A4F39C20AF1260F295876999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324827   (408299) от 17.09.2019
-
-WinHex 19.8 SR-8 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами новенькая версия очень известной программы, а именно универсального HEX ( шестнадцатеричная система счисления ) редактора. Вы сможете работать с любыми жесткими дисками и дискетами, архивами формата ZIP, различными флеш картами, приводами и разными другими носителями информацииЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49145601E7A77C59926E4F53728EA38F239E0A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413613   (407978) от 04.10.2020
-
-AmiBroker 6.30.0 Professional Edition + AmiQuote 3.31 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа технического анализа. Позволяет производить ручной анализ графиков, а также создавать и тестировать механические торговые системы.
-
-AmiQuote - это быстрая и эффективная программа загрузки и импорт финансовых данных с общедоступных веб-сайтов в AmiBroker.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46776C866A601E2A8F831C1BB37710AC421ADDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561367   (405383) от 19.10.2012
-
-Драйвера для ноутбуков Samsung серий 300E4X/300E5X/3431EX-DOS (System Software Media) for WINDOWS 7 32bit-64bit n/a [Русский]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный диск шел в комплекте с ноутбуком SAMSUNG NP300E5X-U01RU.Сделал iso-образ и выложил.Название программы: Драйвера для ноутбуков Samsung серий 300E4X/300E5X/3431EX-DOS (System Software Media) for WINDOWS 7 32bit-64bitЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

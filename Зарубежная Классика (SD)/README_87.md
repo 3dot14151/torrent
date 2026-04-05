@@ -1,3 +1,55 @@
+###  Публикация: 1256351   (336167) от 30.10.2018
+
+Трип / The Trip (1967) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина открывается сценой, в которой режиссер телерекламы ссорится с женой, собирающейся с ним развестись. Расстроенный личными неурядицами, он едет с другом в причудливо раскрашенный дом хиппи, торгующего наркотиками, чтобы купить там ЛСД. Так начинается «поездка»…Производство: США / American International Pictures (AIP)Жанр: ДрамаРежиссер: Роджер КорманАктеры: Питер Фонда, Сьюзен Страсберг, Брюс Дерн, Деннис Хоппер, Салли Сачсе, Барбура Моррис, Джудит Лэнг, Луана Андерс, Бич Дикерсон, Дик МиллерПеревод: Многоголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D47AA5BA3DCF89B5D9C325788CB2293FEB0DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179547   (335368) от 06.11.2017
+
+Комедианты / The Comedians (1967) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация известного романа Грэма Грина о садистском диктаторском режиме на Гаити. Великолепные звезды американского кино тонко передают мрачную обстановку мира тонтон-макутов, слежки, убийств и террора.Производство: США, Франция / Maximillian Productions, Metro-Goldwyn-Mayer (MGM), Trianon FilmsЖанр: ДрамаРежиссер: Питер ГленвиллАктеры: Ричард Бёртон, Элизабет Тейлор, Алек Гиннесс, Питер Устинов, Пол Форд, Лиллиан Гиш, Джордж Стэнфорд Браун, Роско Ли Браун, Глория Фостер, Джеймс Эрл Джонс, Дута Сек, Закес Мокае, Рэймонд Сент-Жак, Сисели ТайсонПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A0CE99A0611C6CB5C8504E34AD00760246966C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764306   (335328) от 30.10.2020
 
 Юлий Цезарь / Giulio Cesare (1909) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335328.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335286.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335203.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334326.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334243.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333756.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333658.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333569.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332916.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332804.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332411.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332293.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332282.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332199.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331880.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331499.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331125.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331056.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331041.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331036.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330899.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330892.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330740.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330483.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E24FF609ECE8F340289BD36AC64864AE208604F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175978   (330470) от 01.10.2022
-
-Рождение Нации / The Birth of a Nation (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330470.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту трехчасовую киноэпопею Гриффит вложил все свои знания в области режиссуры. Фильм "Рождение нации" (1915), в котором прослеживалась история отношений двух американских семей на протяжении Гражданской войны и последующего периода восстановления страны, стал наиболее значительной картиной из всех, снятых в Америке до того времени. Особенно зрелищными (   Читать дальше...   )Производство: СШАЖанр: Драма, военный, историяРежиссер: Дэвид Уорк ГриффитАктеры: Lillian Gish, Mae Marsh, Henry B. Walthall, Ralph Lewis, George Siegmann, Walter Long, Spottiswoode AitkenПеревод: Одноголосый закадровыйПродолжительность: 03:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC2F596E0D3FC5F689308C878806D8EF2ABF190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954786   (330147) от 14.11.2015
-
-Захват власти Людовиком ХIV / La prise de pouvoir par Louis XIV (1966) DVB [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Людовику XIV было всего пять лет, когда умер его отец. Вдовствующая королева Анна считалась правительницей Франции, но фактически всеми делами вершил ее фаворит кардинал Мазарини. Он способствовал переселению королевской семьи в Пале-Рояль. Там в очень простой и даже убогой обстановке юный король провел свое детство. Людовик во всем послушно следовал указаниям Мазарини. (   Читать дальше...   )Производство: Франция, Office de Radiodiffusion Tlvision Franaise (ORTF)Жанр: История, БиографияРежиссер: Роберто РосселлиниАктеры: Жан-Мари Патт, Раймон Журдан, Сильвани, Катарина Рэн, Доминик Венсан, Пьер Барра, Фернан Фабр, Франсуаз Понти, Жоэлль Ложуа, Морис БарьеПеревод: Многоголосый закадровый (ТК "Культура")Продолжительность: 01:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE6BF1AA9B466F7B9B2E45A4DBC4B18CEE9807C
 ```
 
 https://mybot314.ru/tekegram_catalog/

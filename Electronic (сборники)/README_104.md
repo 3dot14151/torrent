@@ -1,3 +1,61 @@
+###  Публикация: 1035925   (622750) от 19.07.2016
+
+VA - Ultra Festival Live Life Anthems (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. StadiumX -  Mombasa (Radio Edit) 3:17
+002. DJ Tafta & Miss Effe -  My Flower (Extended Version) 4:47
+003. R3HAB & Quintino -  Freak (VIP Remix) 4:12
+004. Eddy.T -  Funky Shit (Original Mix) 3:50(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 11:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3598BB084AAD8902935F45B6478214416DF48790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036184   (622746) от 19.07.2016
+
+VA - Festival Alfa Future People (2016) [MP3|320 Kbps] <Trance, House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & Rising Star feat. Betsie Larkin -  Again (Armin Van Buuren Remix) 3:11
+02. W&W -  How Many (Original Mix) 4:23
+03. MATTN & Futuristic Polar Bears -  Cafe Del Mar (Dimitri Vegas & Like Mike Edit) 3:47
+04. Bobina -  Music Box (Extended Mix) 6:35(   Читать дальше...   )Жанр: Trance, House, ClubПродолжительность: 03:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272B65138336BF58C403760A1B220A5E32804511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229746   (622720) от 08.06.2018
 
 VA - Empire Records  - Stadium 2 (2018) [MP3|320 Kbps] <Hands Up, Big Room>
@@ -6,7 +64,7 @@ VA - Empire Records  - Stadium 2 (2018) [MP3|320 Kbps] <Hands Up, Big Room>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622720.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Empire Records - Stadium 7 (2018) [MP3|320 Kbps] <Hardstyle, Hard Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622716.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Bass Killer 15 (2018) [MP3|320 Kbps] <Dubstep, Trap, Electro House, Big Roo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622620.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Beatport Deep House: Sound Pack #512 (2022) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622002.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Beatport Psychedelic Trance: Sound Pack #511 (2022) [MP3|320 Kbps] <Psy Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622000.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Empire Records - Trance 9 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621751.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Synthpop Remixes (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621544.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Vocal Trance Collection (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621529.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - House EDM Witness Tech (2016) [MP3|~249 - 320 Kbps] <House, Funky, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621169.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Best Cocktail Party Music: Lounge and Jazzy Moods Selection (2016) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621165.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621158.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Clubbing Designer Long Days (2016) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621157.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - 100 Hits Insane Best Remixed (2016) [MP3|320 Kbps] <House, Trance, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621086.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - The Official UK Top 40 Singles Chart 08.06.2018 (2018) [MP3|192-320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620888.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Vocal Drum & Bass Selected Works [Compiled by Zebyte] (2018) [MP3|320 Kbps]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620882.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Vocal Drum & Bass Temptation Vol 2 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620362.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620360.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Empire Records - Trap (2017) [MP3|320 Kbps] <Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619815.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - The Ingredient Of Intellect Psy Trance (2016) [MP3|320 Kbps] <Trance, Psy-T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619334.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - In Da Club: Fascination Volume 1 (Summer 2012) (2012) [MP3|320 кб/с]<Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619327.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Elevation Trance Dreams Visions (2016) [MP3|320 Kbps] <Trance, Melodic, Har
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619261.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Top Ibiza Voice Club (2016) [MP3|320 Kbps] <House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619259.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Open Air Yoga Sportive Chill and Relax Music (2016) [MP3|320 Kbps] <Downtem
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619251.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Extra Trance: Bonus [08] (2016) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619242.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Extra Trance: Bonus [08] (2016) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B48E6CFC030B764744D783C5CE3261C48596859E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036736   (619156) от 21.07.2016
-
-VA - Sexy Chill-Out Occasion Vol.1-3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceanus - Arabamish (Original Mix) 5:34
-02. Chill Out Hotel - Human (Original Mix) 5:24
-03. Key Of Dreams - Manhattan (Original Mix) 3:28
-04. Chill Room - Everyday (Original Mix) 6:32(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C69A953F2061E03F501875D4F3C3A53F073DF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036656   (619142) от 21.07.2016
-
-VA - Al Mira Presents - Classic in Modern (2004) [MP3|320 Kbps] <Neo Classic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jules Massenet - Meditation    06:12
-02. Frederic Chopin - Prelude In E Minor    07:00
-03. Tomaso Albinoni - Adagio    05:34
-04. Johann Sebastian Bach - Air    05:05(   Читать дальше...   )Жанр: Neo ClassicПродолжительность: 02:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D44D34DF5C069094143638DD255057C8CA819B
 ```
 
 https://mybot314.ru/tekegram_catalog/

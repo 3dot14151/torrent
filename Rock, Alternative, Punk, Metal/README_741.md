@@ -1,3 +1,32 @@
+###  Публикация: 1259255   (321525) от 03.11.2018
+
+Walter Giardino - Temple (1998) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corte Porteño 04:36
+02. Sobre La Raya 03:45
+03. Los Amigos Del Campeón 05:23
+04. Astróloga 05:00(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D7239E7C7FCE700DCAE8A507D5E9E4B2E8AEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259465   (321521) от 03.11.2018
 
 Iain Matthews - Excerpts from Swine Lake (1998) 1999, Tangible Music [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock>
@@ -6,7 +35,7 @@ Iain Matthews - Excerpts from Swine Lake (1998) 1999, Tangible Music [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321521.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Whitesnake - The Purple Album (2015) Japanese Edition [FLAC|image + .cue]<Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321492.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dropkick Murphys - 6 альбомов (1997-2007) [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321473.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jeremy Irons & The Ratgang Malibus - Spirit Knife (2014) [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321399.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Beyond Creation - Algorythm (2018) (Deluxe Edition) [MP3|320 Kbps] <Technical De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321397.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Chris Rea - The Very Best (2001) [FLAC|Lossless|image + .cue] <Blues Rock, Soft-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321306.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Loudness - Columbia Years (2012) Japanese Edition [WavPack|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321299.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Loudness - Warner Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321295.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ SYU - You Play Hard (2016) [FLAC|Lossless|image + .cue] <Instrumental Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321286.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Hollywood Undead - PSALMS (2018) EP [MP3|320 Kbps] <Alternative Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321259.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Caffeine Cafe - Cut The Time (2014) [MP3|320 кб/с] Авторская раз�
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321231.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Deep Purple - A Fire in the Sky (2017) 3CD [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321200.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Striker - Striker (1978) Reissue, 2014, Hard Rock Diamonds [MP3|320 Kbps] <Melod
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321161.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Tombthroat - Eden Apocalypse (2012) [FLAC|Lossless]<Brutal Death Metal / Grindco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_321137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_321137.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Andrea Schroeder - Void (2016) [MP3|320 Kbps] <Indie Rock, Alt. Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320997.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Commoner - I (2022) [MP3|320 Kbps] <Heavy, Doom Metal, Crust>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320986.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Sympuls-E - Immensity (2022) [MP3|320 Kbps] <Technical Melodic Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320985.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Refugium - Refugium (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320984.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Stay Away - Олдэйджер (2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320983.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320981.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320978.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320977.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Santiano - Die Sehnsucht ist mein Steuermann - Das Beste aus 10 Jahren (2022) 2C
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320969.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Diamanda Galas - Malediction and Prayer (1998) [MP3|~225 кб/с (V1)]<Avant-Gar
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320950.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ In Mourning - Garden of Storms (2019) [FLAC|Lossless|tracks + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320878.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ In Mourning - Garden of Storms (2019) [FLAC|Lossless|tracks + .cue] <Melodic Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DFED38EE5A2087E9BB9368A1D86243215F39048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331534   (320848) от 17.10.2019
-
-Mr. Big - Lean Into It (1991) Japan, 2009 [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy, Brother, Lover, Little Boy (The Electric Drill Song) (3:56)
-02. Alive And Kickin' (5:29)
-03. Green Tinted Sixsties Mind (3:30)
-04. CDFF-Lucky This Time (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BC99C51913AB491C98BD320A0DA118EA6C702B
 ```
 
 https://mybot314.ru/tekegram_catalog/

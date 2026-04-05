@@ -1,3 +1,61 @@
+###  Публикация: 1366891   (917414) от 15.03.2020
+
+Nervenbeisser - Collection (2 Albums: Geschlechterschlacht, Zeitwandel) (2015 - 2017) [MP3|320 Kbps] <NDH, Gothic Metal, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Tagesablauf [00:02:34]
+02. Verkehrte Welt [00:05:19]
+03. Ein letztes Mal [00:04:09]
+04. Zeitenwandel [00:04:30](   Читать дальше...   )Жанр: NDH, Gothic Metal, IndustrialПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81B958FDDC680B928564D71475C1A246B8531A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989284   (917385) от 22.02.2016
+
+VA - RLX 9: The Chill out Collection (2015) [MP3|128-320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diventa Project - Coffee Shop (Short Edition) [04:14]
+02. Jens Buchert - Silver Session [05:40]
+03. C.Cil - Calm And Quiet [02:59]
+04. Fineconfine - Digital Night [05:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1135E26586784265EE17E1F1900304E39CD867A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989286   (917358) от 22.02.2016
 
 VA - RLX 10: The Chill out Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - RLX 10: The Chill out Collection (2016) [MP3|320 кб/с] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917358.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Cosmic Gate - Live @ New York City Sunset Set (2021-08-18) [MP3|320 Kbps] <Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917356.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Dance With the Dead - B-Sides: Vol. 1 (2017) [MP3|320 Kbps] <Synthwave, Synthpop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917188.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Hotel Bar Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917154.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917144.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ The Pixel Door - Discography 13 Releases (2013-2020) [FLAC|Lossless|WEB-DL|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917100.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Scatman John - Scatman's World (1995) [FLAC|Lossless|image + .cue] <Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916839.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ KiloWatts (Invisible Allies, Skeetaz, Super Galactic Expansive) - Discography 42
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916710.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Cla
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916191.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Conforce - Kinetic Image (2013) Delsin [FLAC|Lossless]<Techno, Experimental>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916153.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - River's Lounge: Stage Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916067.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Chillout Fantasies (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916055.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916036.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Sweet Vocal Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915849.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ David Arkenstone & Seth Osburn - Italian Nights (2017) [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915737.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Propaganda - 1234 (1990) [APE|Lossless|image + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915730.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915551.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915514.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915509.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Record Super Chart № 175 (2011) [MP3|320 kbps]<House, Electro House, Tran
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_915469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_915469.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Infected Mushroom - Return To The Sauce (2017) [MP3|320 Kbps] <Psy-Trance, Dubst
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915219.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Owl City - Ocean Eyes Deluxe Edition-2CD (2009) [FLAC|Lossless]<synthpop, Electr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915160.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Hybrid - Black Halo (Special Edition) - 2021 [FLAC|Lossless|WEB-DL|tracks] <Brea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915148.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ Vitalic - Voyager (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Nu-Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914987.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ Vitalic - Voyager (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CA3914D231B456B983C8CEFD0ED20139B426AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097389   (914492) от 27.01.2017
-
-The Sounds Of Nature - Dazzling Thunderstorm (1994) [MP3|320 Kbps] <New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle Droplets (10:45)
-02. Under the Leaves (9:45)
-03. Welcome Rain (9:58)
-04. Wish You Were Here (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED764763F6ABE0EAFB826054D5B9E3A1DDF9730B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097433   (914491) от 27.01.2017
-
-VA - Lyrical Music 2017 Top Best Hits Minor Lyrical Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cj Aist - Contemplation [00:02:43]
-02. Eugene Kush - Katrin [00:06:11]
-03. Eugene Kush - Winter Waltz [00:04:28]
-04. Tom Strobe - Love Makes Me Sad [00:02:50](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5706CCA282CDD0E1C4B01C7946025F1F4D0DD3A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

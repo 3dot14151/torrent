@@ -1,32 +1,3 @@
-###  Публикация: 1031143   (668594) от 03.07.2016
-
-John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (01:19)
-02. The Witching Hour (04:41)
-03. To Giant Country (02:34)
-04. Dream Country (10:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD8BC4782AA459629EF123978629C92D171BF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133256   (666593) от 27.05.2017
 
 VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
@@ -35,7 +6,7 @@ VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666593.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666501.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660499.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660006.jpg" />
 </div>
 
 
@@ -157,7 +128,7 @@ Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659611.jpg" />
 </div>
 
 
@@ -186,7 +157,7 @@ VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659283.jpg" />
 </div>
 
 
@@ -221,7 +192,7 @@ Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659214.jpg" />
 </div>
 
 
@@ -250,7 +221,7 @@ Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (20
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656621.jpg" />
 </div>
 
 
@@ -285,7 +256,7 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unof
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655102.jpg" />
 </div>
 
 
@@ -314,7 +285,7 @@ Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654770.jpg" />
 </div>
 
 
@@ -343,7 +314,7 @@ Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Ep
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654712.jpg" />
 </div>
 
 
@@ -372,7 +343,7 @@ Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домаш
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651480.jpg" />
 </div>
 
 
@@ -401,7 +372,7 @@ Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion P
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651479.jpg" />
 </div>
 
 
@@ -430,7 +401,7 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649057.jpg" />
 </div>
 
 
@@ -459,7 +430,7 @@ Jack Menhorn & Ashton Morris - Lemma Original Soundtrack (2015) [MP3|128 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647694.jpg" />
 </div>
 
 
@@ -488,7 +459,7 @@ VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647614.jpg" />
 </div>
 
 
@@ -523,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647264.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ VA - 599 фраз из нашего кино и мультфильмов (2009) 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646868.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ Henry Mancini - Trail Of The Pink Panther / След Розовой Пантер
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645454.jpg" />
 </div>
 
 
@@ -619,7 +590,7 @@ VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645428.jpg" />
 </div>
 
 
@@ -648,7 +619,7 @@ VA - Золотые Хиты Советского Кино - 2 Альбома (2
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642881.jpg" />
 </div>
 
 
@@ -683,7 +654,7 @@ Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar in
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642606.jpg" />
 </div>
 
 
@@ -712,7 +683,7 @@ VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642004.jpg" />
 </div>
 
 
@@ -741,7 +712,7 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641624.jpg" />
 </div>
 
 
@@ -770,7 +741,7 @@ Miss Congeniality / Мисс Конгениальность (1-2 части) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639259.jpg" />
 </div>
 
 
@@ -790,6 +761,41 @@ Miss Congeniality / Мисс Конгениальность (1-2 части) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C0E1850EA919601FE185B496ADAFABC772C0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518974   (639111) от 05.07.2012
+
+Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alicia Keys - Rapture (4:47)
+ 2. Dido - Everything to Lose (4:28)
+ 3. Cee Lo - Language of Love (3:59)
+ 4. Erykah Badu - Window Seat (4:50)
+ 5. Natacha Atlas - Kidda (4:56)
+ 6. Michael McGregor - Euphrates Dream (3:37)
+ 7. Liza Minnelli - Single Ladies (Put A Ring On It) (3:13)
+ 8. Ricki-Lee - Canґt Touch It (2:51)
+ 9. Alicia Keys - Empire State of Mind (Part II) Broken Down (3:33)
+ 10. Jennifer Hudson and Leona Lewis - Love Is Your Color (3:41)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BDA098700CE7F2767FB8EDCA7F01A687DBD074
 ```
 
 https://mybot314.ru/tekegram_catalog/

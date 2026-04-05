@@ -1,3 +1,61 @@
+###  Публикация: 1203631   (787717) от 03.02.2018
+
+VA - Relax Culture Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cayo Largo  -  I Don't Need Your Number (Original Mix)  3:55
+02.  Eguana  -  Puddles Of Autumn (Original Mix)  5:07
+03.  D. Batistatos  -  This Road (Original Mix)  5:32
+04.  GMO & Dense  -  Into A New Dimension (Original Mix)  7:36(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A70A385083CF35F7C94AA2CCFD3D1A1D60380C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203630   (787715) от 03.02.2018
+
+VA - Late Night Disco House, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Nothlich - Need You 04:13
+02. Jonse - Paradise 06:54
+03. Julian MC Cain - Dark Side 06:42
+04. Soulful-Cafe - Hey Baby Baby 03:10(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490239B99EB655D16E82567043CEC4D6BD087EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203770   (787700) от 03.02.2018
 
 VA - Full Moon Chill Vol. 2: A Magical Sound Journey (Mixed by DJ Maretimo) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
@@ -6,7 +64,7 @@ VA - Full Moon Chill Vol. 2: A Magical Sound Journey (Mixed by DJ Maretimo) (201
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787700.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Median Project - In The Depths Of Space (2018) [FLAC|Lossless|tracks] <Goa-Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787638.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Uplifting Trance Sessions Vol.11 (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787633.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Fogh Depot - Turmalinturm (Remixes) (2018) [FLAC|Lossless|Web-DL|tracks] <Experi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787626.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ James Blake - Assume Form (2019) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Experim
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787586.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Best Workout Dance Tracks (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787576.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787259.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787258.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Aevin - Gravity (2019) [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Electro, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787255.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Adverb - Collection 6 Releases (2013-2019) Etoka Records [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787249.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 January (2019) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787247.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Black Hole Trance Music 01-19 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787238.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Sublime Drum And Bass, Vol.14 (2019) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787222.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Best Of Citrus (2018) [MP3|320 Kbps] <Electronica>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787219.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Af
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787103.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Spell of Unseeing - Weaving Light and Shadow (2020) 2021, Northern Silence Produ
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787067.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Dirty Disco Stars - Body Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Funky H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787056.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787030.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787029.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787027.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Dance Mix Vol.10 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787023.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Cryo Chamber Sampler #1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787018.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Robert Rich - Tactile Ground (2019) Soundscape [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787009.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Danger - Origins (2019) 1789 Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Syn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786990.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Danger - Origins (2019) 1789 Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40D8D6E83F8D86ED008B0535588C43BE6B516C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101938   (786985) от 19.01.2019
-
-Cactus Island Recordings - Label-Pack 34 Releases (2002-2010) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Downtempo, Glitch, Leftfield, Abstract>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bury & Disinter - Parting Way (04:35)
- 02. Bury & Disinter - Duffle (03:29)
- 03. Bury & Disinter - Moments After A Yawn (03:15)
- 04. Bury & Disinter - Yuki (03:56)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Ambient, Glitch, Downtempo, Experimental, Leftfield, Abstract •Продолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7CB90A9ECBEFAF3A005F7CC4FB830BECE280D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388324   (786879) от 05.06.2020
-
-Sixsense - Feeling Strong (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786879.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sultan (8:29)
-2. Oriental Nights (6:53)
-3. Multi Time (7:24)
-4. Feeling Strong (6:34)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA71EC98AA20C3437E63265DC8E137539CE1F16
 ```
 
 https://mybot314.ru/tekegram_catalog/

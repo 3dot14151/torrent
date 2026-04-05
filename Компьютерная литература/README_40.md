@@ -1,160 +1,3 @@
-###  Публикация: 1213250   (767223) от 18.03.2018
-
-Иван Абрамовский | Программист-предприниматель. Пошаговый алгоритм создания бизнеса в интернете для программиста (2018) [PDF, RTF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для программистов, которые хотят осчастливить человечество своими гениальными разработками и при этом организовать прибыльный бизнес! Абрамовский Иван — основатель успешной ИТ-компании «Органайзер ЛидерТаск», автор видео курсов по «Тайм-менеджменту», выстроил онлайн-бизнес с нуля и готов поделиться всеми секретами в этой книге. Сейчас планировщик «ЛидерТаск» (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85A8D404092090CF2CE42A7E21D5CAC97795530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839241   (767163) от 18.03.2018
-
-Николай Шмырёв и др. | GIMP (2013) [CHM] [Multi/Ru]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767163.jpg" />
-</div>
-
-
-###  Подробнее
-
-GIMP — многоплатформенное программное обеспечение для работы над изображениями. GIMP является акронимом, означающим GNU Image Manipulation Program. Редактор GIMP пригоден для решения множества задач по изменению изображений, включая ретушь фотографий, объединение и создание изображений.
- Данное справочное пособие является off-line версией Справки программы.Жанр: Справочное пособиеФормат: CHM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF9A648AEFDCD216442C683129018029EDFA4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213777   (767158) от 18.03.2018
-
-Роман Григорьев | Задачник по PHP (с решениями) (2018) [PDF, RTF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана для начинающих программистов. Ко всем задачам есть решения. Присутствуют задачи повышенной сложности.Жанр: ПрограммированиеФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB19BBA6B68BA8224B21D497B0192ED259E6BB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125614   (766880) от 16.04.2017
-
-Е.Д. Баран | LabVIEW FPGA. Реконфигурируемые измерительные и управляющие системы (2009) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766880.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлено описание нового модуля графической среды проектирования LabVIEW. С помощью этого модуля, расширяющего концепцию виртуальных инструментов в область разработки аппаратных средств, можно создавать собственные каналы ввода-вывода и устройства обработки данных, функциональность и характеристики которых определяются не на заводе изготовителе, а инженером-разработчиком (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9270814436F86EA013D35894737695678FE314C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279097   (766627) от 28.01.2019
-
-И.Б. Аббасов | Промышленный дизайн в AutoCAD 2018, 4-е издание (2018) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для освоения графической системы AutoCAD в рамках изучения курса "Инженерная и компьютерная графика" студентами машиностроительных направлений и дизайнеров. При написании книги использован многолетний опыт преподавания автора в области инженерно-графических дисциплин. Издание содержит методические материалы по созданию, редактированию (   Читать дальше...   )Жанр: Графика. Дизайн. ПроектированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64EF713E7084405E227CBF31D9DC617FCAF21D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213921   (766523) от 19.03.2018
-
-Кенни Ламмерс | Шейдеры и эффекты в Unity. Книга рецептов (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766523.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге раскрываются секреты разработки тендеров в Unity - самом популярном в мире мультиплатформенном инструменте для разработки двух- и трёхмерных игр и приложений. Описываются базовые модели освещения, создание эффектов с помощью текстур, анимация моделей в реальном времени, настройка тендеров для мобильных устройств, а также использование ностэффектов в гейм-плее. (   Читать дальше...   )Жанр: Графика, дизайн, мультимедиаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BECC4B4E5720BA256858B82723F5CA30E7AB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521324   (765801) от 01.01.2022
 
 Мэттью Джастис | Как на самом деле работают компьютеры (2022) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765801.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765642.jpg" />
 </div>
 
 
@@ -216,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765171.jpg" />
 </div>
 
 
@@ -242,7 +85,7 @@ Matt Lombard | Mastering SolidWorks (2019) [PDF] [En]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765069.jpg" />
 </div>
 
 
@@ -268,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765043.jpg" />
 </div>
 
 
@@ -295,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764264.jpg" />
 </div>
 
 
@@ -321,7 +164,7 @@ Dassault Systemes | Новые возможности SolidWorks 2019 (2019) [PD
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764130.jpg" />
 </div>
 
 
@@ -348,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764048.jpg" />
 </div>
 
 
@@ -376,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763312.jpg" />
 </div>
 
 
@@ -402,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762756.jpg" />
 </div>
 
 
@@ -428,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762421.jpg" />
 </div>
 
 
@@ -454,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761877.jpg" />
 </div>
 
 
@@ -480,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761727.jpg" />
 </div>
 
 
@@ -506,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761584.jpg" />
 </div>
 
 
@@ -532,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761475.jpg" />
 </div>
 
 
@@ -558,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761411.jpg" />
 </div>
 
 
@@ -584,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760138.jpg" />
 </div>
 
 
@@ -610,7 +453,7 @@ Adobe Press | Adobe Illustrator CS6. Официальный учебный ку�
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759850.jpg" />
 </div>
 
 
@@ -636,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759080.jpg" />
 </div>
 
 
@@ -662,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758824.jpg" />
 </div>
 
 
@@ -673,6 +516,166 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDF70B4F485E1570CCB3A954BF85B4360C97F7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280499   (758173) от 04.02.2019
+
+Чед Фаулер | Программист-фанатик (2019) [PDF, DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758173.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы не найдете описания конкретных технологий, алгоритмов и языков программирования — ценность ее не в этом. Она представляет собой сборник практических советов и рекомендаций, касающихся ситуаций, с которыми порой сталкивается любой разработчик: отсутствие мотивации, выбор приоритетов, психология программирования, отношения с руководством и коллегами (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B614D8E03CC7378A77F166AB5EDFF551F5F43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522410   (758144) от 07.01.2022
+
+Лакшманан Валиаппа, Тайджани Джордан | Google BigQuery. Всё о хранилищах данных, аналитике и машинном обучении (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас пугает необходимость обрабатывать петабайтные наборы данных? Познакомьтесь с Google BigQuery, — системой хранения информации, которая может консолидировать данные по всему предприятию, облегчает интерактивный анализ и позволяет реализовать задачи машинного обучения. Теперь вы можете эффективно хранить, запрашивать, получать и изучать данные в одной удобной среде. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE34570383C2CFE821B0B38EB9513B192A4A2C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018185   (756962) от 19.05.2016
+
+Андрей Прахов | Самоучитель Blender 2.7 (2016) [PDF]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для самостоятельного освоения трехмерного моделирования и анимации в свободно распространяемой программе Blender 2.7 Описано простое моделирование с помощью примитивов Mesh, использование кривых, поверхностей NURBS, материалов и текстур, создание анимации.
+
+Рассмотрены различные физические системы для симуляции движений частиц (гравитация, силовые (   Читать дальше...   )Жанр: анимация, самоучитель, моделированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089635F3E8F2150DA7785372D0627B9B294B2140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395183   (756845) от 09.07.2020
+
+Брюс Питер, Брюс Эндрю | Практическая статистика для специалистов Data Science (2018) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассчитана на специалистов в области Data Science, обладающих некоторым опытом работы с языком программирования R и имеющих предварительное понятие о математической статистике. В ней в удобной и легкодоступной форме представлены ключевые понятия из статистики, которые относятся к науке о данных, а также объяснено, какие понятия важны и полезны с точки зрения (   Читать дальше...   )Жанр: Базы данныхФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFF966A91752AB75C0B171AD1828A02D968FF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280904   (754841) от 06.02.2019
+
+Дмитрий Кудрец | Основы языка HTML [2 части] (2019) [PDF, RTF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754841.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается об использовании форм, фреймов и мультимедийных объектов в HTML-документах. Рекомендована учащимся школ, гимназий, а также всем желающим изучить основы языка HTMLЖанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB57C91C5492B69FC03FE88286C439135B32FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663316   (754579) от 31.05.2013
+
+А. В. Пузанов | Инженерный анализ в Autodesk Simulation Multiphysics. Методическое руководство [2012] [DJVU]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для инженеров и конструкторов, занимающихся разработкой и моделированием машиностроительных конструкций, а также для студентов и аспирантов технических специальностей вузов.
+Книга изложена в максимальном приближении к официальной справке по Autodesk Simulation и, по сути, является локализованным справочным руководством.
+В книге представлены описание (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6C569EB8ED77C31CA3CCCB72B6CF7C741D5B4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,115 @@
+###  Публикация: 1566368   (211758) от 28.07.2022
+
+Сасаки и Мияно OVA | Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi. [2022, OVA] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ноябрь. В школьный совет за помощью обращается ученик, потерявший брелок от ключей. Осенённый внезапным озарением, Масато Хандзава предлагает организовать детективное агентство по поиску потерянных вещей, члены которого дружно отправляются на розыски!Производство: Япония / Студия Studio DeenЖанр: Сёнэн-ай, повседневность, романтика, комедияРежиссер: Исихира СиндзиЯзык озвучки: Русский многоголосый закадровый, Японский
+- Arno, Kisik, Riforp (EVA)Субтитры: Русские, Английские (софтсаб полные) (Crunchyroll)Продолжительность: 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267BA558E0BD2A8ABAA9B437461878EAD31F1E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568420   (210968) от 08.08.2022
+
+Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотливая Ао не может учиться [2019, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец главной героини - писатель и этим зарабатывает на жизнь. Жанр книг необычен, он пишет на тему эротики. Удивительно, но произведения пользуются большим спросом. Тематика рассказов будоражит умы не только читателей, но и самого автора. Поэтому ещё маленькую дочку он назвал именем связанным с его профессией. Буква «А» взята из слова «яблоко», а вторая буква «О» (   Читать дальше...   )Производство: Студия Silver LinkЖанр: комедия, романтика, эттиРежиссер: Иноэ КэйсукэПеревод: ANderground teamЯзык озвучки: Японский и русскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549D2AB0CE539D440F874B3D25B3BEC0D6432757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568959   (210836) от 10.08.2022
+
+Шестое чувство | Ре-Кан! | Re-Kan! [2015, TV, 13 из 13] BDRip 1080p 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хибики Амами, темноволосая красавица из старинного рода синтоистских священников, перевелась в новую старшую школу. С такой внешностью и манерами быть бы ей очередной «принцессой», если бы не странные репризы, что регулярно выдает новенькая – то с пустым местом заговорит, то по улице вприсядку пойдет. Хибики даже не таилась перед новыми знакомыми, а сразу честно (   Читать дальше...   )Производство: Производство: Япония / Студия Pierrot PlusЖанр: Комедия, мистика, сейнен, школаРежиссер: Кудо МасасиЯзык озвучки: Русский двухголосый закадровый, Японский
+- (внешним файлом) Mikrobelka, Railgun (AniLibria.TV)Субтитры: Русские (софтсаб полные)
+- (внешним файлом) (Enzexanadu) (1-2), (Krasialex) (3-13)Продолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DAB218CD5EE5FB33F09B8DCE3F11CA6A4571E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568908   (210825) от 10.08.2022
+
+Виви: Песнь флюоритового глаза | Vivy: Fluorite Eye's Song [2021, TV, 13 из 13] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210825.jpg" />
+</div>
+
+
+###  Подробнее
+
+История начинается в парке развлечений «НиаЛэнд», где «мечты, надежда и наука» успешно сосуществуют как тематический парк, основная идея которого это Искусственный интеллект. В НиаЛэнде был создан первый автоматизированный ИИ человеческого типа. Виви поёт на сцене для посетителей парка каждый день, ведь это её основная «программа». По воле судьбы Виви встречает ИИ (   Читать дальше...   )Производство: Япония / Студия Wit StudioЖанр: Музыка, фантастика, приключенияРежиссер: Эдзаки СимпэйЯзык озвучки: Русский многоголосый дублированный, закадровый, Японский
+- Т. Шамарина, Г. Кармрян, В. Нефедова, П. Ртищева, М. Волкова, Е. Васильев, И. Породнов, А. Русаков, Д. Бобылёва (Wakanim)
+- Amikiri, HectoR, WhiteCrow (AniLibria.TV)Субтитры: Русские, Английские  (cофтсаб)
+- (полные/надписи) RUS (Wakanim): Переводчик/Редактор: Вадим Попков, Кирилл Стешов
+- (полные) RUS (Alisma): Переводчик: Mory Fam, Snat4
+- (полные) ENG (YameteTomete)Продолжительность: 13 серий по 26 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E32366FBC9DA270BA3BDF796B6904366AAF0244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569161   (210745) от 11.08.2022
 
 Детективное агентство Хаматора [ТВ-2] | Хаматора: Ответ | Reply Hamatora | Re: Hamatora [2014, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
@@ -6,7 +118,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210745.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210739.jpg" />
 </div>
 
 
@@ -62,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210652.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210232.jpg" />
 </div>
 
 
@@ -115,7 +227,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210123.jpg" />
 </div>
 
 
@@ -141,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210117.jpg" />
 </div>
 
 
@@ -170,7 +282,7 @@ Bakuman 3 | Бакуман [ТВ-3] [2012, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210017.jpg" />
 </div>
 
 
@@ -196,7 +308,7 @@ Bakuman 2 | Бакуман [ТВ-2] [2011, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210004.jpg" />
 </div>
 
 
@@ -222,7 +334,7 @@ Bokura no Yoake | Break of Dawn | Наш рассвет [2022, Movie] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209910.jpg" />
 </div>
 
 
@@ -248,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209703.jpg" />
 </div>
 
 
@@ -278,7 +390,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209561.jpg" />
 </div>
 
 
@@ -307,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209254.jpg" />
 </div>
 
 
@@ -335,7 +447,7 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209173.jpg" />
 </div>
 
 
@@ -361,7 +473,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209093.jpg" />
 </div>
 
 
@@ -387,7 +499,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208895.jpg" />
 </div>
 
 
@@ -413,7 +525,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208727.jpg" />
 </div>
 
 
@@ -439,7 +551,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208344.jpg" />
 </div>
 
 
@@ -465,7 +577,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208181.jpg" />
 </div>
 
 
@@ -491,7 +603,7 @@ Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207951.jpg" />
 </div>
 
 
@@ -517,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207872.jpg" />
 </div>
 
 
@@ -543,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207828.jpg" />
 </div>
 
 
@@ -569,7 +681,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207713.jpg" />
 </div>
 
 
@@ -580,116 +692,6 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC8679CF12852C7EC8A91776A5AB0C7EC08CBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611323   (207659) от 11.02.2023
-
-Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV, 13 из 13] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ко, подросток 14 лет, не понимает смыл романтических отношений, скучает по жизни и с недавних пор имеет проблемы со сном. Этой ночью он решил выйти на прогулку по ночному, пустынному городу и ищет чем бы интересным заняться и раз уж он решил делать что-то запретное в понимании нормального общества так почему бы для не купить что-то алкогольное в вендинговом автомате? (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: комедия, романтика, мистикаРежиссер: Итамура ТомоюкиЯзык озвучки: Японский, русский (AniLibria, AniDub, DreamCast, AniFilm)Субтитры: Русские (RuSubsDATTO)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E5E33E293782FC39274B3D05285F3052696B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577121   (207646) от 19.09.2022
-
-Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Истребитель демонов: Квартал красных фонарей [ТВ-2] [2021-2022, TV, 11 из 11] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Тандзиро и его неизменных спутников: сестры-демона Нэдзуко, вечно ноющего Дзэницу и сорвиголовы Иносукэ. На этот раз «столп звука» Тэнгэн Удзуи берёт их с собой на задание в Квартал красных фонарей, где в последнее время стали пропадать люди. Причиной этого скорее всего служат демоны. Так кто же стоит за всеми исчезновениями, и смогут ли наши (   Читать дальше...   )Производство: Япония, UfotableЖанр: Приключения, фэнтези, сёнэнРежиссер: Харуо СотодзакиЯзык озвучки: Русский, украинский, японскийПродолжительность: 9 x ~ 00:24:00, 2 x ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BAB592FB86CCB6AB16A0A1E9F1D3BD443B3CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578459   (207517) от 23.09.2022
-
-Не люблю боль, поэтому собираюсь вложить всё в защиту [ТВ-1] | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. [2020, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каэ́дэ Хо́нжо ужасно не любит боль. Поэтому, когда её подруга, Ри́са Ширами́нэ, пригласила её в ММО с полным погружением, героиня решила вкачать все очки характеристик в защиту. В результате её персонаж стал медленным и лишился возможности использовать магию, так что даже кролик запросто мог её одолеть. Но в замен она открыла навыки «Абсолютной (   Читать дальше...   )Производство: Япония / Студия Silver LinkЖанр: Приключения, комедия, фэнтезиРежиссер: Онума СинЯзык озвучки: Русский многоголосый закадровый, Японский
-- Amikiri, Kiyoko Koheiri, WhiteCroW (AniLibria.TV)
-- Евтягина И., Ртищева П., Кубасян С., Нокс А., Евтягин С., Портная А. (Wakanim)
-- Kazu, Amutyan, Акварелька (Onibaku)(   Читать дальше...   )Субтитры: Русские (софтсаб полные/надписи)
--  (полные) (AniLibria.TV)
--  (полные/надписи) (YakuSub Studio): Aero, MinamikazeПродолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D28D83FC966988A05E5A8172E9644BFC609FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578563   (207502) от 23.09.2022
-
-Roujin Z | Старик Зет [1991, Movie] HDRip HEVC 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старение населения - проблема, с которой столкнулся весь цивилизованный мир. Огромные деньги тратятся на всевозможные приспособления, которые помогают инвалидам и пожилым людям жить, а также на оплату услуг сиделок и медсестер.
-Престарелый инвалид Такарадзава становится "подопытным кроликом" для испытаний новой робосиделки. Кажется, что "Z-001" (   Читать дальше...   )Производство: Япония, A.P.P.P. (Another Push Pin Planning Company)Жанр: драма, комедия, меха, фантастикаРежиссер: Китакубо ХироюкиЯзык озвучки: Русский (Странное Местечко)Субтитры: ОтсутствуютПродолжительность: 80 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5100F8B86BC8D7132E908FB6ADD2E0581BADE9D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

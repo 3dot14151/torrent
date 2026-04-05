@@ -1,29 +1,3 @@
-###  Публикация: 613001   (983731) от 03.02.2013
-
-Подборка книг | Для детей от 3-х до ... (1533-2007) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка книг для чтения детям от 3 до 12 и более лет. Составлена из тех произведений, которые залпом проглатывали их родители (а для некоторых - уже и бабушки и дедушки, бежит время...). По возможности выбирались любимые поколениями переводы и иллюстрации. Чуковского, Крылова, Пушкина, Маршака, Барто и всяких Перо и Гримм нет в списке, потому они должны быть дома рядом с детьми по умолчанию. Если их нет, вам эта сборка не нужна. Это не "книги, обязательные к прочтению", а набор векторов, которые могут (   Читать дальше...   )Жанр: Детская литература.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206A018D480CED642C42AFD81BDED7837E3C097B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355453   (983624) от 26.01.2020
 
 Жорж Санд | Мастера мозаики (2018) [EPUB]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983624.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983601.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983599.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983514.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983505.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983436.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983351.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983293.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982170.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982168.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982082.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982076.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982075.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982074.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982065.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981723.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981111.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980915.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980833.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980324.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980297.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980296.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980293.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980290.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980288.jpg" />
 </div>
 
 
@@ -678,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9DDCD6A44D31F38AD0AEB2E36E92AE73ABB3A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973300   (980252) от 08.01.2016
+
+Гарриет Бичер-Стоу | Хижина дяди Тома (1960) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный роман Гарриет Бичер-Стоу, направленный против рабовладения в Америке. Роман оказал значительное влияние на отношение мировой общественности к афроамериканцам и рабству. Считается даже, что роман обострил один из местных конфликтов на почве рабства, что привело к Гражданской войне в США.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAA840CDB8A28D17EF82C5395A1E0BC1B38F29D
 ```
 
 https://mybot314.ru/tekegram_catalog/

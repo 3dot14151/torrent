@@ -6,7 +6,7 @@ Jojo Effect - Spreading Rhythm (2022) [FLAC|Lossless|WEB-DL|tracks] <Future Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170437.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Modern Jazz Quartet - Milestones Of A Legend (1953 - 1962) 10CD, 2016, The Inten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170407.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Charlie Parker - 3 Essential Albums (1948 - 1952) 3CD, 2017, Universal [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169998.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tsuyoshi Yamamoto Trio With Koji Moriyama - Hida-Takayama Jazz Session (XRCD24) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169984.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169890.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John Clark - I Will (1997) Postcards [FLAC|Lossless|image + .cue] <Post-Bop, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169881.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mel Torme - Sings For Lovers 1982 - 1996 (2008) Concord Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169877.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Della Reese - Voice Of An Angel 1959 - 1964 (1996) RCA [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169839.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Della Reese - Essential Della Reese 1950-e - 1960-e (2004) MasterSong [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169830.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Erroll Garner - 1944, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169678.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1953 - 1955) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169554.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Toshiyuki Miyama & The New Herd - Sunday Thing (1976) 2021, Three Blind Mice [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169542.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol. 1 (1953, 1954) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169533.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kazumi Tateishi Trio - Ghibli Meets Jazz: Memorable Songs (2011) Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169528.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ben Webster - The Soul Of Ben Webster (1954 - 1958) 2019, MatchBall [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169522.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Good Feeling Chilly Light Relaxing Jazz Playlist (2023) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169376.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Jazz Bar (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169271.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Andy Fusco - Vortex (2019) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169229.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Coleman Hawkins - In Europe 1934-1939 (1993) Timeless Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169170.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Peggy Lee - Trav'lin' Light 1946 - 1949 (2000) Capitol [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169143.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ McCoy Tyner & Freddie Hubbard Quartet - Live at Fabrik, Hamburg (1986) 2CD, 2022
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169087.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bucky & John Pizzarelli - Family Fugue (2011) Arbors Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168722.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Monty Alexander - The Montreux Years (1993 - 2016) 2022, BMG [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168426.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Red Nichols And His Five Pennies - The Jazz Collector Edition 1929 (1991) LaserL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168366.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Jeanne Lee & Ran Blake - The Newest Sound Around 1961 (2000) RCA Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168361.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Peggy Lee - That Old Feeling & You Go To My Head 1944 - 1953 (2001) 2CD, Past Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168336.jpg" />
 </div>
 
 

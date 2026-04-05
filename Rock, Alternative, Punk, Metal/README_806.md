@@ -1,3 +1,32 @@
+###  Публикация: 1608749   (245508) от 31.01.2023
+
+Рогатая Нога - Первая кровь (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Цепеш [00:03:52]
+02 - Распутин [00:02:56]
+03 - Царь [00:05:05]
+04 - Вдова [00:03:12]Жанр: RockПродолжительность: 00:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BF8DEDA34048728A579CCADD33E8929CB859F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624152   (245494) от 04.04.2023
 
 Diablation - Par Le Feu (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
@@ -6,7 +35,7 @@ Diablation - Par Le Feu (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245494.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245477.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Carnivored - Revival (2012) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245474.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Roxanne - Radio Silence (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245472.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Den Saakaldte - Kapittel II: Faen I Helvete (2014) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245464.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245449.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Kayser - IV: Веуоnd Тhе Rееf Оf Sаnitу (2016) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245445.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Ilya Hype - Только крылья берегите (2023) [MP3|320 Kbps] <In
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245444.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Fallen Prophets - No End In Sight (2021) Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245442.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Roxxcalibur - Gems Of The NWOBHM (2015) [FLAC|Lossless|image + .cue] <NWoBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245435.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245432.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Killus - Grotesk (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245425.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Withering Worlds - The Long Goodbye (2021) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245423.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245419.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Thirteen of everything - Time and Other Delusions (2023) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245417.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Persian Risk - Who Am I? - Once A King (2012-2014) 2xCD, Reissue, 2019, Escape M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245414.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Discreation - Iron Times (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245410.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Vanish - A Hint Of Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245407.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245404.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Classic Crime - GRIM AGE (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245399.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ High Spirits - Another Night (2011) [FLAC|Lossless|image + .cue] <NWoBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245390.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Austere - Corrosion of Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressive B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245389.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Sekta Core - En la Zona del Terror (En Vivo) (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245388.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Deathcode Society - Eschatonizer (2015) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245383.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Demonstealer - The Propaganda Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245378.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Demonstealer - The Propaganda Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6187A758D278A2A8E73140AA9D1A6345D653FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060844   (245372) от 08.10.2016
-
-Sedmina - Melita & Veno Dolenc (1980) Reissue,  2014,  Mellotron Records [FLAC|Lossless|tracks + .cue] <Folk Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sedmina - Pesem O Tanji (2:55)
-02. Sedmina - Jutro (2:36)
-03. Sedmina - Pesem (2:56)
-04. Sedmina - Magdalena (4:39)(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82204A80189259DA4480E4F1A28CF7109DF48AD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

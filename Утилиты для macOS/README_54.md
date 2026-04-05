@@ -1,3 +1,31 @@
+###  Публикация: 1691976   (122938) от 14.01.2024
+
+Speedio: Internet Speed Test 3.9 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122938.jpg" />
+</div>
+
+
+###  Подробнее
+
+«InternetSpeedTest» имеет уникальный алгоритм, который не может быть обманут PowerBoost или аналогичными инструментами повышения скорости.
+Таким образом, результаты, которые вы достигли, будут точными в соответствии со скоростью вашей системы.
+«InternetSpeedTest» - это однопоточный тест, в то время как большинство других (например, сеть тестирования скорости) многопоточно. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2016-2023 AppYogi SoftwareПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6132FE9A037249289CA03BFF214B7BEB91B2D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691987   (122909) от 14.01.2024
 
 Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
@@ -6,7 +34,7 @@ Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122909.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ MacPilot 15 v.15.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122907.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Little Snitch 5.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122871.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Disk Xray 4.1.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122749.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ Ethernet Status - LAN Status  5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122737.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ OnlySwitch 2.4.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122717.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ SpamSieve 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122703.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ Eon Timer 2.9.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122701.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ Battery Indicator for Mac 2.17.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122353.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ Wattagio 1.13.1 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122342.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ GM CHM Reader Pro for Mac 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122332.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ Disk Drill Enterprise 5.4.1426 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122264.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ WiFi Explorer 3 Pro 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122210.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Numi 3.32 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122193.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ Eassiy Data Recovery for Mac 5.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122186.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ Mac FoneLab Android Data Recovery 3.2.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122165.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ WiFi Explorer 3.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122149.jpg" />
 </div>
 
 
@@ -460,7 +488,7 @@ Aiseesoft Mac FoneLab for Android 5.0.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122146.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ Apeaksoft Android Toolkit 1.2.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122145.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ Beyond Compare 5 for Mac 5.0 beta [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122019.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ Desktop Aquarium Wallpapers 2.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121898.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ Weather Dock 5.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121876.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ FoneDog Toolkit for Android on Mac 2.1.12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121850.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ Finder Windows 1.5.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121710.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ TrashMe 3.5.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121437.jpg" />
 </div>
 
 
@@ -655,32 +683,6 @@ TrashMe — мощный деинсталлятор с другими замеч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:794ECF041FF71789BF664C3396ABACDFBCD7C87E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694011   (121353) от 23.01.2024
-
-Lunar Pro for Mac 6.5.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lunar управляет той же яркостью, которую вы можете изменить с помощью физических кнопок монитора, даже на M1. В отличие от другого программного обеспечения, которое только имитирует изменение яркости путем добавления черного наложения на ваш экран, Lunar использует DDC (канал данных дисплея) для отправки команд, таких как set brightness to 30% или switch input to (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.01.2024Разработчик: © 2024 LunarПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B188CD3D19D0664204B1A28C6406E653FC6DE72
 ```
 
 https://mybot314.ru/tekegram_catalog/

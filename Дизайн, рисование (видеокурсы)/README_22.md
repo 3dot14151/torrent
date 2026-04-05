@@ -1,3 +1,55 @@
+###  Публикация: 1497383   (864580) от 22.09.2021
+
+CGMA, Dmitrij Leppee | Character Facial Sculpting Week 5-6 (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864580.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе студенты изучат то, благодаря чему лицо выглядит так, как оно выглядит — внутренние структуры черепа, мышцы, жировая ткань и другие структуры, такие как железы, которые создают и влияют на формы лица. Без базового меша, начиная с начала, чтобы лучше понять все слои, которые накладываются друг на друга. Когда это знание будет достигнуто, мы углубимся (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2010939A4C506483418BF302A4950A619B5E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497380   (864570) от 22.09.2021
+
+CGMA, Dmitrij Leppee | Character Facial Sculpting Week 3-4 (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864570.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе студенты изучат то, благодаря чему лицо выглядит так, как оно выглядит — внутренние структуры черепа, мышцы, жировая ткань и другие структуры, такие как железы, которые создают и влияют на формы лица. Без базового меша, начиная с начала, чтобы лучше понять все слои, которые накладываются друг на друга. Когда это знание будет достигнуто, мы углубимся (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5521A7D33014A5DA3F6096C8048824E8CAFB01E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873768   (864476) от 02.03.2015
 
 Lynda.com | Photoshop CC Один-на-Один. Мастер (2013) PCRec [EN]
@@ -6,7 +58,7 @@ Lynda.com | Photoshop CC Один-на-Один. Мастер (2013) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864476.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 9-10 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864449.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 1-2 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864447.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ kalachevaschool, Калачева Вероника | Ла-Ла Курс (2017) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862749.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Profileschool | DaVinci Resolve 11 Lite. Базовый уровень (2015) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861842.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859345.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859300.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857635.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ XYZ School, Егор Гришин | Основы иллюстрации (2021) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857403.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Highlights | Основы веб-дизайна (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854464.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Lynda.com | Photoshop CC 2015 for Photographers Fundamentals (2016) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853616.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Lynda.com | Photoshop for Photographers 2015 Creative Cloud Updates (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853521.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ kalachevaschool, Анна Расторгуева | Экстрим-скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852625.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ kalachevaschool, Анна Эгида | Экстрим 5. Портрет горо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852624.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ kalachevaschool, Вероника Калачева и тд | Экстрим ск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852543.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ kalachevaschool, Анна Эгида | Летний экстрим-скетчи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852540.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ kalachevaschool, Анна Эгида | Онлайн-курс «Летний эк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852534.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ kalachevaschool, Анна Эгида | [Анна Эгида] Онлайн-кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852528.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Lynda.com | Photoshop CC один-на-один: Продвинутый (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852006.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Udemy, Neil Bettison | Создание средневековой катапу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851380.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ YanSculpts | Скульптинг для начинающих в Blender 2.79 и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851276.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ kalachevaschool, Анна Михеева | Стильные аксессуары
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849533.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ kalachevaschool, Анна Михеева | Вечерние платья (2018) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849530.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ kalachevaschool, Светлана Плакасова | Красный пион (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849528.jpg" />
 </div>
 
 
@@ -637,59 +689,6 @@ kalachevaschool, Светлана Плакасова | Красный пион (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2AC226DC0251AC33B0B00490878F50D9E0A98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499241   (849526) от 01.10.2021
-
-kalachevaschool, Светлана Плакасова | Синий ирис (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849526.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Китае ирис обозначает уважение, доверие и верность. Синий — цвет сосредоточенности, помогающей вершить великие дела. Цветок символизирует лето. Специалисты по фэншуй считают ирис символом жизни, не знающей старости, символом веры и надежды.Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61238F259DCEFFDF44097290355B2A1DFA2D59A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499244   (849425) от 01.10.2021
-
-kalachevaschool, Светлана Плакасова | Лиловая глициния (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849425.jpg" />
-</div>
-
-
-###  Подробнее
-
-В странах Востока глициния символизирует хрупкость, утонченность, нежность и чистоту.
-У китайцев есть красивая легенда об этом растении. В одном селении жила прекрасная девушка Гуй. Она была так красива, что люди забывали обо всем, глядя на ее лицо и удивительные длинные волосы. Днем они переливались яркими лилово-фиолетовыми красками, а вечером от них исходило нежное (   Читать дальше...   )Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74FA34F0C21E7A1376A7389F9C4770C10AF90BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Taylor Swift - Evermore (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024523.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vanessa Mai - Mai Tai (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024379.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thomas Anders - Cosmic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024377.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - 50s 60s and 70s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024066.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Thomas Anders - Cosmic (2021) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Pop, Eurodisco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023762.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Acoustic Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023124.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021324.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021002.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Wa
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020807.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Imelda May - 11 Past The Hour (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019980.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bonnie Tyler - Goodbye to the Island (1981) Reissue, 2010, 7T's Records [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019967.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Pop Ballads Greatest Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019946.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lory Bonnie Bianco - My Star 2.0 (2019) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019344.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tom Jones - Surrounded By Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019245.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018604.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Amy Shark - Cry Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018435.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dalida - Dans la ville endormie (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chans
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018261.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Ultimate Chillout (2017) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017915.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Emma Stevens - Light Year (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017246.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wilson Phillips - Wilson Phillips (2016) 2CD [FLAC|Lossless|image + .cue] <  Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017105.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bay City Rollers - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017097.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Greatest Covers Ever (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017077.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016738.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue (2014)
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016716.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016286.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Record
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015474.jpg" />
 </div>
 
 

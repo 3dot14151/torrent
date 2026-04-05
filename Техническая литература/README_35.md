@@ -1,3 +1,58 @@
+###  Публикация: 1698256   (118619) от 08.02.2024
+
+В.К. Захаров | Электронные элементы автоматики (1967) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118619.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены принципы работы и методы расчета схем усилителей низкой частоты и постоянного тока, модуляторов, усилителей среднего значения тока, фазочувствительных усилителей-выпрямителей, избирательных усилителей и генераторов синусоидальных колебаний низкой частоты. Анализируются ламповые и полупроводниковые варианты схем.
+Книга предназначена для студентов (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8066BA7A39AF10BBC67B9D078D62BD13E3D4C39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698635   (118300) от 10.02.2024
+
+Н. Коновалова и др. | От ЭР-200 до "Сапсана" (2023) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118300.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается история развития скоростного железнодорожного сообщения в СССР и России. Рассказывается о создании и развитии техники для высокоскоростного движения.
+И конечно о людях, которые рарабатывали ее, внедряли и обеспечивали ее эксплуатацию.
+Книга может быть использована как учебное пособие для дополнительного образования по истории железных дорог.Жанр: история техникиИздательство: Издательский дом "ОМ-Экспресс"Формат: DJVU, PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7E977DF9B40BC5DCB085F4AADF86DEBC244C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699146   (118160) от 11.02.2024
 
 Г.Б. Белоцерковский | Радиолокационные устройства (1961) [DJVU]
@@ -6,7 +61,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118160.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118157.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118151.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117992.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117753.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117500.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117431.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117422.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117296.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116780.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115596.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114872.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114387.jpg" />
 </div>
 
 
@@ -346,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109068.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ PHILEDS. Мощные светодиоды [2011] [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102403.jpg" />
 </div>
 
 
@@ -398,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101391.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100587.jpg" />
 </div>
 
 
@@ -453,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100566.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100565.jpg" />
 </div>
 
 
@@ -507,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88490.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87409.jpg" />
 </div>
 
 
@@ -563,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86168.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85614.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85576.jpg" />
 </div>
 
 
@@ -627,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F5BEEDF6D48C3EA7B8519DD177409CCD8D09B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466648   (81651) от 12.03.2012
-
-Л. Е. Новоселов | Транзисторные радиоприемники «Спидола», «ВЭФ», «Океан», «Меридиан». [1975] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит характеристики переносных транзисторных приемников II класса типа «Спидола», «ВЭФ», «Океан» и «Меридиан», описание схем и конструкций, карты режимов по постоянному и переменному току, монтажные и кинематические схемы, материалы по настройке и проверке основных параметров, отысканию и устранению характерных неисправностей, а также устройство и особенности эксплуатации интегральных микросхем серии К-237.1975Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1761629BD603E38709A3FF1156DD2251ACEE0C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463209   (80216) от 05.03.2012
-
-Л.В. Курмаз, А.Т. Скойбеда | Детали Машин. Проектирование [2002] [JPEG]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержит методики расчета основных видов механических передач, их составных элементов, а также методики и рекомендации по разработке их конструкции. Широко представлены образцы выполнения сборочных и рабочих чертежей. Взаимосвязанная последовательность изложения материала характеризует пособие как инструкцию по проектированию, что является важным для студентов, выполняющих первую в своей практике конструкторскую разработку. Кроме основного назначения книга может быть полезна при выполнении последующих курсовых и дипломных работ, на занятиях по инженерной графике.
- Для студентов технических вузов. Может быть полезно инженерно-техническим работникам,
-специализирующимся в области проектирования машин.2002Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82AA09F7781E84430F6AB7E9A354C54A2EBEDB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1151821   (191974) от 02.11.2022
+
+Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-Rock, Ambient, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191974.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Catscan
+A2 I'm Gonna Be Strong
+A3 Love You To
+A4 Odd Man Out(   Читать дальше...   )Жанр: Jazz-Rock, Ambient, ExperimentalПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657941   (191913) от 06.09.2023
 
 Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
@@ -6,7 +35,7 @@ Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191913.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191320.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191300.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191294.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191028.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190968.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190749.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ OSI - Дискография (4 releases) (2003-2012) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190636.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190478.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189703.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189666.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189404.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189373.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189035.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189034.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188800.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188658.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188589.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188563.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188544.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188279.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188255.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188193.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188101.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188078.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Seventh Wonder — прогрессив-метал группа, была соз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:434CC2B40B5BD6A7B47CC4DB3FA555D8965DB38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662856   (187530) от 19.09.2023
-
-Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-Rip]<Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187530.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Song For Eden
-A2 Jerusalem Is Falling
-A3 Design The Century
-A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
 ```
 
 https://mybot314.ru/tekegram_catalog/

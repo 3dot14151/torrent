@@ -1,3 +1,133 @@
+###  Публикация: 1037237   (615587) от 23.07.2016
+
+Журнал | Хозяин № 3 (934) (март 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный «Хозяин» — это современный массовый научно-производственный журнал с многотысячной читательской аудиторией, ведь его выписывают белорусы уже в четвертом поколении. «Хозяин» — это отвечающее требованиям времени полноцветное печатное издание на 48 страницах, выходящее тиражом около 35 тысяч экземпляров. Нас читают не только в Беларуси, но и в России, Украине, (   Читать дальше...   )Жанр: Сад, огород, цветы, дизайн участка, урожайФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BECF27C3AD1D6D9194AF54FC742BAAE2B06967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804288   (615572) от 12.07.2014
+
+Журнал | Золотые рецепты наших читателей №13 (113) (июль 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBBAC476DF0C84C751C302F528B336A1AD2C260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037064   (615479) от 23.07.2016
+
+Журнал | Народный лекарь. Спецвыпуск №159 (2016) [DJVU]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заболевания, которые вызываются присутствием паразита, его жизнедеятельностью, называют паразитозами. По данным Всемирной организации здравоохранения (ВОЗ), из 50 млн человек, ежегодно умирающих в мире, более чем у 16 млн причиной смерти служат инфекционные и паразитарные заболевания. До сих пор этот класс болезней занимает ведущее положение среди причин смертей (   Читать дальше...   )Жанр: МедицинаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A210109B279CE6077D9A0848A965AF6D62878C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037118   (615472) от 23.07.2016
+
+Подшивка журнала | Кухня. Лучшие рецепты [43 журнала] (2003-2012) [PDF, DJVU]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие и разнообразные рецепты от читателей журнала Кухня.Жанр: КулинарияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A504D1737BAE1013A2889BABD85F76FE246FD027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804299   (615437) от 12.07.2014
+
+Журнал | CQ Amateur Radio №7 (июль 2014) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский журнал, посвященный радиосвязи на КВ и УКВ. В каждом номере описания различной аппаратуры, радиолюбителские конструкции и антенны, результаты различных соревнований по радиосвязи на КВ и УКВ и самая последняя DX-info.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B3D193E8763D83934EAFC10E30406E12C9B63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230522   (615403) от 12.06.2018
 
 Журнал | Playboy [Россия] №3 (лето 2018) [PDF]
@@ -6,7 +136,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615403.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615296.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615107.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615075.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614819.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614785.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614765.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614736.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614675.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614658.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614650.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614647.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614467.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614465.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614404.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614388.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614239.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614237.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614232.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614229.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614141.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C232E804D36C14AD61E0EBC54B3F8E1F5302C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230545   (614113) от 13.06.2018
-
-Журнал | House Beautiful [UK] №7 (июль 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA2B934E068E3DF9AA0788A80D346D46E60EC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230548   (614112) от 13.06.2018
-
-Журнал | Elle Decoration [UK] №7 (июль 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108D3194AD2582D92E10CFA8583CD9783D7FD73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230549   (614111) от 13.06.2018
-
-Журнал | The World of Interiors №7 (июль 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользующееся большой популярностью издание из Великобритании о дизайне интерьера и оформлении прилегающей территории "The World of Interiors" в своих публикациях знакомит читателей с новейшими трендами интерьерной моды, сведениями об оригинальных новинках для дома, в т.ч. бытовых приборов, оборудования для кухни и ванной комнаты, оригинальных аксессуаров, (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7422BA41B85BD0F41E0D1EE096FD4AEDE19A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230544   (614110) от 13.06.2018
-
-Журнал | House Beautiful [UK] №6 (июнь 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01950C108F2AEAC1B881FB9679AECB7D8E414FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230542   (614108) от 13.06.2018
-
-Журнал | Дачный сезон №6 (июнь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD2029F4C03CD7894259B174E49B33F9F7540BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

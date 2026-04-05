@@ -1,175 +1,3 @@
-###  Публикация: 1379821   (837459) от 30.04.2020
-
-Филипп Киркоров - Романы, Часть 2 (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Цвет настроения синий
-2. Ты
-3. Никогда
-4. За горизонты(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5247AE8A5FBF6634E4E1A72516EB07F3D3DAEE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379650   (837385) от 30.04.2020
-
-Юрий Шатунов - Спасибо Тебе (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Спасибо ТебеЖанр: PopПродолжительность: 00:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33BCF198FC1AAF7E4C1CF64ED86AE6FB5DAC645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651813   (837262) от 03.05.2013
-
-VA - Кружатся диски - Популярные исполнители 70-х - 90-х годов [23 CD] (2013) [MP3|320 Kbps] <Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ю.Антонов - У берез и сосен
-02. Е.Мартынов - Лебединая верность
-03. Маленький принц - Голос в ночи
-04. О.Анофриев - Есть только миг(   Читать дальше...   )Жанр: RetroПродолжительность: 30:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D58F531EAA4DA05814A1DCB00810179A399413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004944   (836774) от 07.04.2016
-
-Винтаж - Light (2014) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Искренность (3:48)
-02. Деревья (3:49)
-03. Ева (Slow) (3:44)
-04. Запретный Мир (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAD53ADD511392A644292A2E39D331F8360DB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004731   (836772) от 07.04.2016
-
-Sarah Brightman - 5 Disco Singles & EPs (1978-1983) [MP3|320 кб/с] <Pop, Disco, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сара Брайтман (англ. Sarah Brightman; 14 августа 1960, Бёркамстед, Хартфордшир, Англия) — британская певица (сопрано) и актриса, исполнительница популярной музыки, а также одна из ведущих мировых исполнительниц в жанре классического кроссовера.
-В данной подборке синглов представлены ранние, весьма популярные и уже практически забытые  шаги Сары, начинающей свой творческий (   Читать дальше...   )Список миньонов:
-1978. I Lost My Heart To A Starship Trooper
-1979. The Adventures Of The Love Crusader
-1980. Love In A U.F.O(   Читать дальше...   )Жанр: Pop, Disco, ElectronicПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50E2C6FB13F8D2B19A675E8D2504AF7E402017E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004978   (836661) от 07.04.2016
-
-Винтаж - Light (2014) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Искренность
-02. Деревья
-03. Ева (Slow)
-04. Запретный Мир(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B969D340541FC59EA7F5EB1DF6B7C77BE6F09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501379   (836571) от 09.10.2021
 
 VA - DMC Producer Mixes Paul Dakeyne Volume 1 (2021) [MP3|320 Kbps] <House, Dance,  Italo-Disco, Jazzdance>
@@ -178,7 +6,7 @@ VA - DMC Producer Mixes Paul Dakeyne Volume 1 (2021) [MP3|320 Kbps] <House, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836571.jpg" />
 </div>
 
 
@@ -207,7 +35,7 @@ VA - Full Tilt Remix Vol. 99 (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836568.jpg" />
 </div>
 
 
@@ -236,7 +64,7 @@ Everything Everything - In Birdsong (2020) Single [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836529.jpg" />
 </div>
 
 
@@ -263,7 +91,7 @@ VA - This Is Berlin Disco, Vol. 3 (2017) [MP3|320 Kbps] <Disco, EuroDance, House
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836461.jpg" />
 </div>
 
 
@@ -292,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836458.jpg" />
 </div>
 
 
@@ -321,7 +149,7 @@ Bad Boys Blue - MP3 Play (2015) [MP3|320 Kbps] <Disco, EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836339.jpg" />
 </div>
 
 
@@ -350,7 +178,7 @@ Zivert - Vinyl #2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836283.jpg" />
 </div>
 
 
@@ -379,7 +207,7 @@ VA - DJ Beats Chart 94 (2021) [MP3|320 Kbps] <Pop, Dance, Dubstep, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835205.jpg" />
 </div>
 
 
@@ -405,7 +233,7 @@ Humphrey Robertson - Essentials (2021) [MP3|320 Kbps] <Eurodance, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835204.jpg" />
 </div>
 
 
@@ -434,7 +262,7 @@ Harmony Cats - Harmony Cats (1982) LP [MP3|320 Kbps] <Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835189.jpg" />
 </div>
 
 
@@ -463,7 +291,7 @@ Lisa Nemzo - Out of Desire (серия "Другие восьмидесятые"
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835186.jpg" />
 </div>
 
 
@@ -492,7 +320,7 @@ VA - Serious Beats 97 (2021) [MP3|320 Kbps] <Dance-pop, Techno, Disco, Progressi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835122.jpg" />
 </div>
 
 
@@ -521,7 +349,7 @@ VA - Party Dance Mix Vol.2 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835062.jpg" />
 </div>
 
 
@@ -550,7 +378,7 @@ VA - The Party Dance Mix Vol.1 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835055.jpg" />
 </div>
 
 
@@ -579,7 +407,7 @@ VA - The Party Dance Mix Vol.3 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835053.jpg" />
 </div>
 
 
@@ -608,7 +436,7 @@ VA - BRAVO Hits 115 (2021) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835038.jpg" />
 </div>
 
 
@@ -637,7 +465,7 @@ VA - О чём задумались, мадам... (2005) [FLAC|Lossless|tracks 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834902.jpg" />
 </div>
 
 
@@ -666,7 +494,7 @@ VA - Русские народные песни. выпуск 1 (2004) [FLAC|Los
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834804.jpg" />
 </div>
 
 
@@ -695,7 +523,7 @@ VA - Best Radio Tracks, Vol. 19 (2020) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834770.jpg" />
 </div>
 
 
@@ -724,7 +552,7 @@ Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834369.jpg" />
 </div>
 
 
@@ -738,6 +566,180 @@ Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2A6CFA40982484828D3DEDBFF9C4F1B01DB63D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005091   (834263) от 08.04.2016
+
+M83 - Junk (2016) [MP3|320 кб/с] <Indie-Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It, Try It (03:38)
+02. Go! (feat. Mai Lan) (03:56)
+03. Walkway Blues (feat. Jordan Lawlor) (04:50)
+04. Bibi the Dog (feat. Mai Lan) (03:55)(   Читать дальше...   )Жанр: Indie-Pop, ElectronicПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8405ACA5A8FFE6107D803F642933B9ED1034E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005092   (834161) от 08.04.2016
+
+M83 - Junk (2016) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It, Try It (03:38)
+02. Go! (03:56)
+03. Walkway Blues (04:50)
+04. Bibi The Dog (03:54)(   Читать дальше...   )Жанр: Indie-Pop, ElectronicПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD427C35ED402B2F7AF884A16CBEFD34D96B1699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501784   (833749) от 11.10.2021
+
+Alex - Handle With Care (1977) LP [MP3|320 Kbps] <Pop Rock, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen To The Music (4:31)
+02. Funky Donkey (4:39)
+03. Only You Can Make Me Stronger (4:32)
+04. I Won't Hold You Down (3:12)(   Читать дальше...   )Жанр: Pop Rock, Funk, DiscoПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C495F6365E360E7FF61C91DFEC945248A55CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114221   (833611) от 14.03.2017
+
+Steve McManus - First Kiss (2017) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caddo Lake
+02. Loves First Kiss
+03. In my time of dying
+04. I Dream(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E30F681536066296579B436FD97B36319594313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114470   (833602) от 14.03.2017
+
+Blush - Out Of This World (1978) Reissue, Private Records, 2013 [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shooting Star (6:19)
+02. I Can't Refuse (4:01)
+03. Lift Off (5:40)
+04. Gyspy Guitar (4:10)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42072F597F737508D6E0198CC1E5F15142FF356C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501756   (833546) от 11.10.2021
+
+VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как то давно на трекере не было выпусков от известной нидерландской радиостанции 538. Последний был 91-й аж почти два года назад. Между тем Sony Music с завидной периодичностью выпускает сборники хитов по итогам ротации на радиостанции. А Universal Music сборники лучших треков по итогам года (следите за анонсами трекера, скоро появиться лучшее за 2020).01. Coldplay - Higher Power  (3:30)
+02. Chef'Special - Afraid of the Dark  (3:08)
+03. Majestic X Boney M. - Rasputin  (3:06)
+04. Tom Grennan - Little Bit of Love  (3:45)(   Читать дальше...   )Тип издания: CD, CompilationРелиз состоялся: 2 июля 2021Жанр: Pop, Rock, DanceПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEE929A68319B5B04213D4CD22877B0BA20CF64
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 912195   (612385) от 25.06.2015
+
+Елена Тихомирова | Домашняя работа по русскому языку. 2 класс (2013) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое учебное пособие содержит образцы выполнения всех заданий и упражнений из учебника "Русский язык. 2 кл. В 2 ч.: учебник / Т.Г.Рамзаева. - 12- изд., дораб. - М.: Дрофа, 2011".
+Пособие адресовано родителям, которые смогут проконтролировать детей, а в случае необходимости помочь им в выполнении домашней работы по русскому языку.Жанр: Дополнительные учебные пособия, Русский язык, Правила и упражненияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C584BB9624424E4804F136CD3B958C4ABCF537E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912199   (612308) от 25.06.2015
+
+Т. Г. Рамзаева | Русский язык. 1 класс [+ Тетрадь для упражнений по  русскому языку и речи] (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для занятий в 1 классе после периода обучения грамоте. Он поможет подготовить учащихся к изучению курса русского языка, который представлен в учебниках для 2, 3 и 4 классов.
+В комплекте с учебником издаются "Тетрадь для упражнений по русскому языку и речи" (авторы Т.Г.Рамзаева, Л.П.Савинкина), справочник "Русский язык в начальной (   Читать дальше...   )Жанр: Учебная литература, Школьникам и абитуриентамФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98F34E3E9AE0AD679901FD6B7EA27313EFCBF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 804291   (612275) от 14.07.2014
 
 Борис Шатилов | Два друга (1928) [DJVU]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612275.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612217.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611984.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611793.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611540.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611534.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611203.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610888.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610884.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610882.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610760.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610619.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610549.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610510.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610325.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610298.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610129.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610025.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610020.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609738.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609737.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609732.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609730.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609619.jpg" />
 </div>
 
 
@@ -626,63 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E99F1C2562A149FC7FCD6BE49B633582D37B08AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147329   (609615) от 02.07.2017
-
-Людмила Уланова | Про маму и вишневые косточки (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семилетняя Лёлька — обычная девочка, с которой происходит столько всего интересного! Она запросто беседует с огуречным слоником, летает над лужайкой, учит русалку играть в прятки. И ненароком выясняет, что папа — чемпион мира по учёбе.
-
-А ещё Лёлька готова всем посочувствовать и помочь. Ей жалко и пожилую Мальвину, и легкомысленную принцессу Ветрянку. Она даже способна (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22D04834CEED8EC8AD0DFEEBA31F282C4B18251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147327   (609600) от 02.07.2017
-
-Валентин Постников | Верхом на портфеле (2011) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто не знает Карандаша и Самоделкина? Придумал их известный детский писатель Юрий Дружков. Его сын Валентин Постников тоже стал писателем.
-
-Он автор «Весёлого двоечника».
-(   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C296A40363668D9EE58F7167384FEFCE94644800
 ```
 
 https://mybot314.ru/tekegram_catalog/

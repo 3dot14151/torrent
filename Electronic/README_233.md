@@ -1,3 +1,119 @@
+###  Публикация: 909681   (624218) от 19.06.2015
+
+VA - Lounge Dimension (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brass - Last Day
+02. Frank Tayla - After Berlin
+03. Lisa Maroni - Bossa Linda
+04. Giacomo Bondi - Cool Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE55C35D54354FB471B36D8D276BDFEFE84149D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294909   (624111) от 10.04.2019
+
+VA - Asian House Music (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Carpet - Fire in Heart (Le Blanque Mix)
+02. Robert Panamera - Move and Dance Your Funky (Club Mix)
+03. Alpha Carpet - Electric (K Groove's Deep Mix)
+04. Amedeo Ardagna - Utopia (Deep House Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 03:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2AF25683E1D449DFE9137E0FAE22FC55A2DF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294986   (624105) от 10.04.2019
+
+November Group - November Group (серия "Другие восьмидесятые") (1982) Vinyl, LP [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624105.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Shake It Off
+A2. Flatland
+A3. Pictures Of The Homeland
+B1. We Dance(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A0B2B3E0864E2866D274F333C00E32B807E54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910226   (624078) от 19.06.2015
+
+VA - Palma De Disco (Balearic Beats Deluxe) (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microwave Monkeys - Sun Is Shining (04:51)
+02. Modern Talker - Dancing Queen (06:04)
+03. Ibiza Groove Squad - I Don't (Lounge Mix) (04:43)
+04. Erdinc Erdogdu - Enjoy the Silence (05:02)(   Читать дальше...   )Производство: Starlight RecordingsЖанр: Deep House, Chill HouseПродолжительность: 03:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB6E042F1EF7852512E495DC3BEC9FFB612A0E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910067   (624067) от 19.06.2015
 
 VA - Deep House For Your Body and Soul Vol 2 (2015) [MP3|320 кб/с]<House>
@@ -6,7 +122,7 @@ VA - Deep House For Your Body and Soul Vol 2 (2015) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624067.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Gridlock - Discography 12 Releases (1997-2004) Hymen Records, Unit [FLAC|Lossles
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624045.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Music For Mindfullness (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624030.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Synthwave Vol. 2 (2015) [MP3|320 Kbps] <Synthpop, Syntwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623985.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Deutsche DJ Charts Vol.21 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623914.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Arch Origin - Soul Castle (2017) EP [MP3|320 Kbps] <Deep Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623900.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623897.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ VA - Morning Sounds (The Best Of Extraordinary Chillout Lounge & Downbeat) (2017
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623896.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Chris van Buren - Дискография (2015-2018) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623804.jpg" />
 </div>
 
 
@@ -262,7 +378,7 @@ VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623798.jpg" />
 </div>
 
 
@@ -291,7 +407,7 @@ VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623685.jpg" />
 </div>
 
 
@@ -320,7 +436,7 @@ VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622819.jpg" />
 </div>
 
 
@@ -349,7 +465,7 @@ VA - A Place to Chill (2016) [MP3|320 Kbps] <Lounge, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622817.jpg" />
 </div>
 
 
@@ -378,7 +494,7 @@ VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622748.jpg" />
 </div>
 
 
@@ -407,7 +523,7 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour Hawai (2018) [MP3|320 Kbps
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622717.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622709.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ ScAnDroid Experiment's - Nature Reviving (Single) (2018) [MP3|320 Kbps] <Atmosph
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622614.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Robert Parker - Crystal City (2016) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622563.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ Above & Beyond - Common Ground Companion (2019) EP [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622486.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ VA - Future 80's Records Compilation Vol. II (2014) [FLAC 2.0|44.1/16, 24|tracks
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622370.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ VA - Future 80's Records Compilation Vol. III (2015) [FLAC 2.0|44.1/16, 24|track
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622356.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ GROUND a.k.a Gr◯un土 - WAKUSEI -惑星- (2018) Chill Mountain Rec [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622264.jpg" />
 </div>
 
 
@@ -624,122 +740,6 @@ GROUND a.k.a Gr◯un土 - WAKUSEI -惑星- (2018) Chill Mountain Rec [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9C69728E8F9F59EEEA99EB832F63F061C6C3298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544243   (622208) от 15.04.2022
-
-MORTEN - Miami Rooftop Sessions, Miami Music Week, United States (2022-03-23) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Öwnboss & Sevek - Move Your Body (Intro Edit) w/Wildchild - Renegade Master (Acappella) w/Usher ft. Ludacris & Lil Jon - Yeah!
-02. Swedish House Mafia ft. Sting - Redlight (Mark Roma Remix)
-03. David Guetta & MORTEN - Restless
-04. The Prodigy - No Good (Start The Dance) (MORTEN Edit)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99A01AE9B4B7CBDC4A09754792E2F18254DB216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294662   (622203) от 11.04.2019
-
-VA - Future 80's Records Compilation Vol. I (2013) [FLAC 2.0|44.1/16, 24|tracks|WEB-DL] <Synthpop, Synthwave, Retro Wave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream & Dive - Power Move (4:50)
-02. Station a3 - Cyberpunks vs Detroit Cops (4:32) (24Bit)
-03. Flash Track - The Legend of Billie Jean (3:08)
-04. John Sparxx - Lost In Universe (4:46)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retro WaveПродолжительность: 02:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D6AED76EF60010C156EC556CE6648B76FD441E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544314   (622193) от 15.04.2022
-
-Blutengel - Labyrinth (2007) Limited Edition, 2CD Box Set [FLAC|Lossless|image + .cue] <Electro, Synth-pop, Darkwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucifer (DubMixx By Jenne) (4:59)
-02. Born Again (5:28)
-03. Stormy Rivers (4:50)
-04. Victory Of Death (6:23)(   Читать дальше...   )Жанр: Electro, Synth-pop, DarkwaveПродолжительность: 2CD, 02:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703649BFCCA26699FD68F23CDBBE9CFF40F48E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295248   (622185) от 11.04.2019
-
-The Chemical Brothers - No Geography (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eve Of Destruction
-02. Bango
-03. No Geography
-04. Got To Keep On(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:674F5CDBB913EBB0C59F4F6CBF514B572C55F62E
 ```
 
 https://mybot314.ru/tekegram_catalog/

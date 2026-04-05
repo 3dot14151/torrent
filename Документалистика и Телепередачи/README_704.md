@@ -1,3 +1,163 @@
+###  Публикация: 1087505   (146955) от 27.12.2016
+
+Время покажет (27.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146955.jpg" />
+</div>
+
+
+###  Подробнее
+
+В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7DE4470717678E541CDFCE9FA2CA28E3E29861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413336   (146916) от 26.12.2020
+
+Битва экстрасенсов (2020) SATRip (сезон 21, выпуски 1-14 из 14)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146916.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ТНТ стартует 21-й сезон «Битвы экстрасенсов» – проекта, который навсегда изменил представление людей об экстрасенсорике и человеческих возможностях. Из-за пандемии в этом году кастинг в 21-й сезон «Битвы экстрасенсов» впервые был полностью дистанционный. Его можно было пройти по видеосвязи – не выходя из дома, из любой точки мира, из любой деревни или села, везде, (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: ~01:14:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC08E1CA50120F9720BF5DDB619BA1309B3E88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087220   (146889) от 27.12.2016
+
+Особая статья. Рейс мира. Прерванный полет  (26.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня, 26 декабря, в России – день траура. Вчера произошла страшная трагедия. ТУ-154 Минобороны России потерпел крушение в небе над Черным морем. Погибло 92 человека.
+Главы разных государств приносят соболезнования родственникам погибших в связи с катастрофой. Скорбит вся страна. Но находятся и те, кто в такие минуты "бросает камни" в адрес погибших людей. (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D7977A06B40D761349758342BD082157BE7B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969642   (146883) от 27.12.2015
+
+Воскресный вечер с Владимиром Соловьевым (2015.12.27) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146883.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаПродолжительность: ~ 02:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA6618C4C5DAD37844BBF6E49C1D26AE5756D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969544   (146876) от 27.12.2015
+
+Точь-в-точь. Сезон №3. Выпуск №11 (2015.12.27) SATRip (части 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу "Точь-в-точь" возвращается! Новые участники вновь примерят на себя образы легендарных музыкантов, меняясь до неузнаваемости.
+
+Двенадцать участников уже репетируют вокальные партии, отрабатывают движения, воссоздают атмосферу клипов и привыкают к костюмам своих героев.
+(   Читать дальше...   )Производство: РоссияТелекомпания: Первый каналЖанр: ТВ-шоуПродолжительность: 02::
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75054B758C295CD34F24F597B0623A85E527F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087463   (146874) от 27.12.2016
+
+Право голоса. 2016: итоги. (27.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146874.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: В программе "Право голоса" весь год обсуждали самые актуальные, острые и важные события, которые в 2016 произошли в России и в мире. Год завершается: каким он был? Чего ожидали эксперты, а что произошло в действительности? Подводим итоги и делаем прогнозы на 2017.Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC47F3A45401C4D358C416C424C579DE11B06312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087554   (146866) от 27.12.2016
 
 Осторожно, мошенники! Святой Славик (2016.12.27) SATRip
@@ -6,7 +166,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146866.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146820.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146777.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146749.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146718.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146604.jpg" />
 </div>
 
 
@@ -162,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146576.jpg" />
 </div>
 
 
@@ -188,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146553.jpg" />
 </div>
 
 
@@ -214,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146527.jpg" />
 </div>
 
 
@@ -240,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146519.jpg" />
 </div>
 
 
@@ -266,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146507.jpg" />
 </div>
 
 
@@ -292,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146498.jpg" />
 </div>
 
 
@@ -318,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146494.jpg" />
 </div>
 
 
@@ -344,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146371.jpg" />
 </div>
 
 
@@ -370,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146350.jpg" />
 </div>
 
 
@@ -396,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146184.jpg" />
 </div>
 
 
@@ -422,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146179.jpg" />
 </div>
 
 
@@ -448,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146162.jpg" />
 </div>
 
 
@@ -474,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146126.jpg" />
 </div>
 
 
@@ -500,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146093.jpg" />
 </div>
 
 
@@ -511,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:648850EA93715DCCCCA3484744746508DA7DBE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347874   (146075) от 26.12.2019
-
-Тайная жизнь сов / The Secret Life of Owls (2017) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запоминающиеся ночные крики великой рогатой совы, виргинского филина, вызывают восхищение у всех, кому довелось их слышать. От самых северных частей Аляски и Канады и вплоть до южного бассейна Амазонки вы найдете этих величественных птиц Америки. Тем не менее, их редко можно увидеть своими глазами. Авторы фильма позволяют взглянуть на этого удивительного хищника, (   Читать дальше...   )Производство: Канада / Make Believe MediaЖанр: Документальный, ФаунаРежиссер: Jeffery MoralesПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9E96E15FC26349F440DFC8B7B24759265D6021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348032   (146059) от 26.12.2019
-
-Невидимая Вселенная / Invisible Universe (2015) IPTVRip [H.264] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш мир - мир высоких скоростей, слишком быстрый для наших органов чувств. Из-за страха что-либо упустить мы постоянно стремимся вперед. Но нас не покидает тяга к волшебному. В спешке повседневной жизни мы стремимся остановить время так, как это удавалось нам в детские годы. Мы видим только часть происходящего, как будто в замедленной съёмке. То, что быстрее, ускользает (   Читать дальше...   )Производство: ZDFЖанр: ДокументальныйРежиссер: Luise Wagner, Andreas Geyer, Andreas OrthПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 4 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641DCFE4ADA355DFE4CE6B7BC0D567554D09F27F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498431   (146013) от 25.12.2021
-
-Битва экстрасенсов (2021) SATRip (сезон 22, выпуски 1-14 из 14)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146013.jpg" />
-</div>
-
-
-###  Подробнее
-
-В проекте «Битва экстрасенсов» участвуют люди, обладающими необычными способностями. Ведьмы и колдуны, эзотерики, маги, целители, гадатели и многие другие соревнуются за победу и звание лучшего экстрасенса сезона. «Битва экстрасенсов» – культовый проект и знаковое шоу в истории ТНТ. Каждый год люди, которые называют себя экстрасенсами, доказывают свои способности (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: ~01:30:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105D53EAE47D5993DB7E40D91CA5E4B7C00BDBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348084   (145994) от 26.12.2019
-
-Тайная история человеческой эволюции / The Secret History of our Evolution (2018) HDTVRip [H.264/1080p-LQ] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день мы пользуемся органами, которым сотни миллионов лет, но ничего не знаем об их истории… Новые технологии научной визуализации позволяют по новому взглянуть на нашу анатомию!Производство: Mona Lisa Production, La metonymieЖанр: ДокументальныйРежиссер: Pierre-Francois GaudryПеревод: Двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 2 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6EC307A72BB2806C0C597A8F752F3E9696F9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519994   (145822) от 26.12.2021
-
-Сто к одному (26.12.2021) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E721D075ABABBC297B3FE08429AA2F4B8EEBF405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 105671   (145802) от 27.12.2016
-
-Секреты инквизиции / The Secret Inquisition (2002) DVDRip (6 частей)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы приглашаем Вас в путешествие по средневековой Европе, ставшей местом действия кровавых и шокирующих своими масштабами расправ, а также узнаем историю ведьм, как явление, уходящее своими корнями в глубокую древность, всё это в цикле Секреты Инквизиции. Ещё до её появления, в XI веке, тёмный невежественный люд содрогался при одном упоминании о демонизме, колдовстве (   Читать дальше...   )Производство: Vision FilmЖанр: ДокументальныйРежиссер: Ян ПетерАктеры: Сильвестр Грот, Дитер Манн, Оливер СтернПеревод: ДублированныйПродолжительность: 6 x ~53 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769A11578B684D6ECA6E2D21F9BAA549F8DF8EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

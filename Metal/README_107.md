@@ -6,7 +6,7 @@ Legacy - Stand And Conquer (2003) [MP3|320 Kbps] <Progressive, Power Metal, Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142581.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sieges Even - The Art Of Navigating By The Stars (2005) [MP3|320kbps] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142575.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Heretic Brazil - Gilgamesh (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142268.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sons Of Apollo - MMXX (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141828.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Silvertomb - Edge of Existence (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141596.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ A Sound Of Thunder - Who Do You Think We Are (2016) [MP3|320 Kbps] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140715.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140590.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Crucial Fix - Crucial Fix (2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139746.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Rocka Rollas - The Road To Destruction (2014) [MP3|320 кб/с]<Speed Metal, Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139121.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Grotto - Smokonomicon (2016) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139096.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Grotto - Circle of Magi (2017) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139070.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kreator - Violence Unleashed (2016) EP [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138926.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Anthrax - For All Kings (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Metal, Sp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138245.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Antropomorphia - Evangelivm Nekromantia (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136550.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Memorial Day - Embark Hades (1995) [MP3|320 Kbps] <Gothic, Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135331.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Nova Skellis - Life Amongst the Damned (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134604.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Sacrifire - The Art of Decay (2023) [MP3|320 Kbps] <Gothic, Melodic, Doom Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133938.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132713.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ SideQuest - The Story of No One, Pt. 1-2 (2022-2023) [MP3|320kbps] <Symphonic Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132410.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Satanic Warmaster - Carelian Satanist Madness (2005) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132127.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Isospin - Aftermath Chronicles (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132116.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Satanic Warmaster - Strength and Honour (2001) Reissue, 2007, Northern Heritage 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131861.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Snail - Terminus (2012) [MP3|320 кб/с]<Psychedelic Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131641.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Deformed Slut - Stench Of Carnage (2011) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131633.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Validor - Dawn Of The Avenger (2012) [MP3|320 кб/с]<Folk / Heavу/ Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131626.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131533.jpg" />
 </div>
 
 

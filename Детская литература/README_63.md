@@ -1,31 +1,3 @@
-###  Публикация: 1395704   (753742) от 11.07.2020
-
-Владимир Железников | Чудак из пятого «Б» (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Железников Владимир Карпович (1925–2015) – писатель, кинодраматург, автор знаменитой повести «Чучело», по которой был снят одноимённый фильм.
-Повесть про непоседливого мальчугана Борю была написана в 1962 году. Позже по ней сняли фильм под названием «Чудак из пятого “Б”» (1972).
-Пятиклассник Боря Збандуто, главный герой, – плут и озорник. Однажды его назначают вожатым (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6300A93BC4A15BDCF0662026680C2A8ADD5B24E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395705   (753738) от 11.07.2020
 
 Лада Кутузова | Волк под кроватью. Человек-невидимка из седьмого «Б» [сборник] (2020) [EPUB]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753738.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753642.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753415.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753303.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752420.jpg" />
 </div>
 
 
@@ -166,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752418.jpg" />
 </div>
 
 
@@ -192,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752416.jpg" />
 </div>
 
 
@@ -218,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752413.jpg" />
 </div>
 
 
@@ -244,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752411.jpg" />
 </div>
 
 
@@ -272,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752342.jpg" />
 </div>
 
 
@@ -298,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752337.jpg" />
 </div>
 
 
@@ -324,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752333.jpg" />
 </div>
 
 
@@ -352,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752330.jpg" />
 </div>
 
 
@@ -378,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752327.jpg" />
 </div>
 
 
@@ -404,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752269.jpg" />
 </div>
 
 
@@ -430,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752264.jpg" />
 </div>
 
 
@@ -456,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752181.jpg" />
 </div>
 
 
@@ -482,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752069.jpg" />
 </div>
 
 
@@ -509,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751986.jpg" />
 </div>
 
 
@@ -536,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751974.jpg" />
 </div>
 
 
@@ -564,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751869.jpg" />
 </div>
 
 
@@ -592,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751855.jpg" />
 </div>
 
 
@@ -620,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751827.jpg" />
 </div>
 
 
@@ -647,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751742.jpg" />
 </div>
 
 
@@ -673,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751688.jpg" />
 </div>
 
 
@@ -686,6 +658,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:366621AECA4DC2C0B6BFB4992C9B1D80C5A4A2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317006   (750982) от 11.01.2022
+
+Дейзи Медоус | Собрание сочинений [41 книга] (2015-2021) [FB2, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под псевдонимом Дейзи Медоус пишут четыре английских автора: Сью Монгредиен, Линда Чапмен, Сью Бентли и Нариндер Дхами.
+
+Нариндер Дхами родилась 15 ноября 1958 года в городе Вулвергемптон. В 1980 году она получила ученую степень по английскому языку в Бирмингемском университете. После нескольких лет преподавательской деятельности в начальной и средней школе Нариндер (   Читать дальше...   )Жанр: Сказки народов мира, Приключения для детей и подростковПеревод: Анна Тихонова, Екатерина Олейникова, Е. А. Романенко, М. Н. МанчхашвилиФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8616B367300A1CA564D383A6E575CEBF562BEA69
 ```
 
 https://mybot314.ru/tekegram_catalog/

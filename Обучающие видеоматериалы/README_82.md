@@ -1,3 +1,29 @@
+###  Публикация: 1109217   (857052) от 28.02.2017
+
+Patrick Goudeau's | Extreme Calorie Burn (2011) DVDRip [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интервальная программа, в которой непрерывно чередуются сегменты чистой аэробики и аэробики с отягощением (акцент на кардио обеспечит высокий пульс). Аэробные интервалы отличает высокая ударность и интенсивность, но сами упражнения понятны и просты в выполнении. Отличительная черта программы - смешанные сегменты с силовым компонентом, в которых непрерывно чередуются (   Читать дальше...   )Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A09B21AD417A770EBD8C85BDC391D22AD27078B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000590   (856821) от 26.03.2016
 
 ProfIT | PHP. Уровень 2. Профессиональное программирование (2016) PCRec [H.264]
@@ -6,7 +32,7 @@ ProfIT | PHP. Уровень 2. Профессиональное програм�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856821.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856809.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ ITVDN | Database Developer (2015-2019) PCRec [H.264/1080p,720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856336.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855347.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855117.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Groove3 | iZotope Neutron 3 Explained (2019) PCRec [H.264] [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854799.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Groove3 | iZotope Exponential Audio NIMBUS Explained (2017) PCRec [H.264] [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854798.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Groove3 | iZotope Ozone 9 Explained (2019) PCRec [H.264] [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854703.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ Groove3 | KONTAKT 6 Explained (2019) PCRec [H.264] [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854702.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ English Club TV Ltd | Jack of All Trades [A1] (2019) HDTVRip [H.264/1080p-LQ] (�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854691.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Groove3 | iZotope Nectar 3 Explained (2019) PCRec [H.264] [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854603.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ Udemy | PHP OOP: Object Oriented Programming for beginners + Project Course Driv
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854602.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ English Club TV Ltd | City Grammar [A2,B1] (2014) HDTVRip [H.264/720/1080-LQ] (�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854586.jpg" />
 </div>
 
 
@@ -366,7 +392,7 @@ CONTENTED | VR-разработчик. Разработки VR-приложен�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854584.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ English Club TV Ltd | English in Focus [A1] (2019) HDTVRip [H.264/1080p-LQ] (у�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854483.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ Groove3 | Cubase 10 Explained (2019) PCRec [H.264] [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854479.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ Highlights | Основы веб-дизайна (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854464.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Lynda.com | Photoshop CC 2015 for Photographers Fundamentals (2016) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853616.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Lynda.com | Photoshop for Photographers 2015 Creative Cloud Updates (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853521.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ ProfIT | Дао программиста. Путь к деньгам, свобо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853516.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853512.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853362.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ ITVDN | PHP Developer (2015-2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852900.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ ITVDN | Коллекция видеокурсов (2015-2020) PCRec [H.264/720p-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852778.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ ITVDN | Python Developer (2015-2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852774.jpg" />
 </div>
 
 
@@ -677,32 +703,6 @@ Python - это высокоуровневый язык программиров
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12A52AA08255F72CF4F3D1460464910A5480C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498846   (852625) от 29.09.2021
-
-kalachevaschool, Анна Расторгуева | Экстрим-скетчинг 2 (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых популярных тем в скетчинге — зарисовки в кафе. Ведь там столько интересного! Натюрморты из чашек и десертов, уютные интерьеры, и разнообразные пейзажи из окна. Каждый, кто хоть раз доставал блокнот в кафе, знает, что пятиминутный скетч может вырасти в целую серию работ!Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C030DB90C72EBFF62872AA916BDAD8C43BA133
 ```
 
 https://mybot314.ru/tekegram_catalog/

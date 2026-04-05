@@ -1,3 +1,55 @@
+###  Публикация: 1787932   (23209) от 28.03.2025
+
+А.А. Ярославцев | Сборник задач и упражнений по аналитической химии (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник систематически подобранных задач и упражнений (около 1500) по основным разделам курса аналитической химии. Каждому разделу предшествует небольшое теоретическое введение и решение типовых задач. Третье издание вышло в 1973 г.Жанр: ХимияИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B0EE250DEE98B2F5AB9A7E8BB7D4180A036377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790291   (22093) от 08.04.2025
+
+Michel Lauricella | MORPHO - Anatomy for Artists - Books 1 - 10 [10 книг] (2018-2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22093.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этих книгах Michel Lauricella представляет как свои художественные, так и систематические методы рисования человеческого тела — с техниками рисования от ecorche (показ мускулатуры под кожей) до набросков моделей в действии. В более чем 1000 иллюстрациях человеческое тело показано с новой точки зрения — от структуры костей до мускулатуры, от анатомических деталей (   Читать дальше...   )Жанр: Учебная литератураЯзык: АнглийскийИздательство: РазличныеФормат: PDFКачество: Изначально электронное (ebook), Обработанный скан, Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F91F7E6B8A270EC4C322D788E786F6E3980604B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790366   (22055) от 08.04.2025
 
 О.Н. Цубербиллер | Задачи и упражнения по аналитической геометрии (1970) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22055.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22044.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21884.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21124.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21099.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21017.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20601.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19366.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19044.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18233.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17800.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17586.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15675.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15634.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15001.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14994.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ B.C. Вернодубенко, А.С. Новосёлов | Выживание л
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14637.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14325.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13697.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12348.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11620.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11588.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9863.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9345.jpg" />
 </div>
 
 
@@ -632,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49DE4945DB211847099EF99ABC3BC1BA88BDEFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810448   (9318) от 04.08.2025
-
-В.В. Прасолов | Дифференциальная геометрия (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие по дифференциальной геометрии.
-Дифференциальная геометрия - раздел математики, изучающий свойства гладких кривых, поверхностей и многообразий, используя методы дифференциального исчисления.
-Дифференциальная геометрия имеет широкое применение в математике и физике. Она является основой для общей теории относительности Эйнштейна и используется в квантовой (   Читать дальше...   )Жанр: МатематикаИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C280E7356C12B08006BAC2DBEF752F87C7B3C1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810412   (9315) от 04.08.2025
-
-J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) [PDF] [En]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решение задач и математическое моделирование вводятся на раннем этапе и укрепляются повсеместно, предоставляя студентам прочную основу в принципах математического мышления. Всесторонняя и равномерно развивающая, книга дает полное представление о концепции функций и включает в себя значительный объем материала об использовании графических калькуляторов, чтобы помочь (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
 ```
 
 https://mybot314.ru/tekegram_catalog/

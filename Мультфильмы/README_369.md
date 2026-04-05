@@ -1,3 +1,136 @@
+###  Публикация: 1712510   (112098) от 03.04.2024
+
+Отважный Бим и пернатые колокольчики / Bim (2023) WEB-DLRip [H.264/1080p] [звук с ТS] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед большим праздником колокольчики собираются вместе, чтобы состязаться в ловкости и отваге. Победителей ждет необыкновенно важная миссия - путешествие в Рим за магическим эликсиром, пробуждающим весну. Удача улыбается Биму и его друзьям. Прежде, чем доставить волшебный трофей, им предстоит схватка с грозной соперницей Авророй и бандой хулиганов.Производство: Бельгия / Fabrique FantastiqueЖанр: мультфильм, приключения, фэнтезиРежиссер: Том ван Гестель, Tom Van GestelАктеры: Линк Ван Гестель, Абдель Малик Фархуни, Лис Де Шеппер, Тине Эмбрехтс, Джойс Белленс, Янин Бишопс, Камилла Блеро, Мартен Босманс, Говер Деплуаж, Рокко ГранатаПеревод: Дублированный (СиПиАй Филмз / CPI Films, звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD1FCB5E97C8E55CC7ABD734597D0A4A2FB61C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713386   (111988) от 05.04.2024
+
+Спасатели / The Rescuers (1977) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111988.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мультфильме студии Уолта Диснея команда спасателей в составе двух храбрых мышей отправляется на поиски пропавшей сироты по имени Пенни. Все начинается, когда бутылочное письмо Пенни с просьбой о помощи выбрасывается на берег и попадает в руки осторожному и хитрому Бернарду и его обаятельной помощнице Мисс Бианке.
+
+Прочитав письмо спасатели не раздумывая отправились (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джон Лоунсбери, Вольфганг Райтерман, Арт СтивенсПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: русские (full, forced)Продолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B757E64A22B567836161F7F708A8249F1EC9D687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713857   (111854) от 07.04.2024
+
+Наруто: Ниндзя в стране снега / Gekijouban Naruto: Dai Katsugeki! Yuki Hime Ninpouchou Dattebayo! / Naruto the Movie - Ninja Clash in the Land of Snow (2004) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bi ...
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда №7 вместе с Какаши должны сопровождать актрису Фудзиказе Юкие в Страну Снега. Прибыв на место, они сталкиваются с сильнейшими шиноби, которые пытаются любыми способами завладеть предметом, принадлежащим актрисе.Производство: Япония / Studio PierrotЖанр: аниме, мультфильм, боевик, комедия, приключенияРежиссер: Тэнсаи ОкамураПеревод: Дублированный (Flarrow Films)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC54011E4BE37C42CC262BEBA46E488037D5211E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713977   (111850) от 07.04.2024
+
+Спасатели / The Rescuers (1977) BDRip [H.264/1080p-LQ] [handmade AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111850.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мультфильме студии Уолта Диснея команда спасателей в составе двух храбрых мышей отправляется на поиски пропавшей сироты по имени Пенни. Все начинается, когда бутылочное письмо Пенни с просьбой о помощи выбрасывается на берег и попадает в руки осторожному и хитрому Бернарду и его обаятельной помощнице Мисс Бианке.
+Прочитав письмо спасатели не раздумывая отправились (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Джон Лоунсбери, Вольфганг Райтерман, Арт СтивенсАктеры: Боб Ньюхарт, Ева Габор, Джеральдин Пейдж, Джо Флинн, Жанетт Нолан, Пэт Баттрем, Джим Джордан, Джон МакИнтайр, Мишель Стэйси, Бернард ФоксПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF48B6C5BB76E0BBFAA0C66D11B256E59D0984E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717555   (111197) от 20.04.2024
+
+Возвращение Джафара / The Return of Jafar (1994) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение волшебной сказки об Аладдине. Вторая часть захватывающей трилогии о храбром уличном воришке начинается прямо там, где закончился первый мультфильм. Уже казалось бы, что черному чародею и новоявленному джинну Джафару суждено навеки остаться пленником волшебной лампы, - но ему удается освободиться! И на уме у коварного злодея лишь одно: он жаждет отомстить (   Читать дальше...   )Производство: США, Япония, Австралия / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Тоби Шелтон, Тэд Стоунс, Алан ЗасловАктеры: Джейсон Александер, Джонатан Фриман, Джефф Беннетт, Гилберт Готтфрид, Вэл Бэттин, Брэд Кэйн, Лиз Колэуэй, Линда Ларкин, Дэн Кастелланета, Б.Дж. УордПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247389163C0F64789A5013C07129F48909CD1493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718773   (110881) от 26.04.2024
 
 Умка (2022-2023) WEBRip [H.264/1080p] (сезон 1, серии 1-52 из 52)
@@ -6,7 +139,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110881.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110687.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110539.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110538.jpg" />
 </div>
 
 
@@ -113,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110440.jpg" />
 </div>
 
 
@@ -139,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110201.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110197.jpg" />
 </div>
 
 
@@ -191,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110196.jpg" />
 </div>
 
 
@@ -217,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110194.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110188.jpg" />
 </div>
 
 
@@ -269,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110131.jpg" />
 </div>
 
 
@@ -295,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109926.jpg" />
 </div>
 
 
@@ -323,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109849.jpg" />
 </div>
 
 
@@ -349,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109833.jpg" />
 </div>
 
 
@@ -375,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108600.jpg" />
 </div>
 
 
@@ -403,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108087.jpg" />
 </div>
 
 
@@ -430,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108079.jpg" />
 </div>
 
 
@@ -458,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107361.jpg" />
 </div>
 
 
@@ -484,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106614.jpg" />
 </div>
 
 
@@ -513,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106607.jpg" />
 </div>
 
 
@@ -539,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106473.jpg" />
 </div>
 
 
@@ -550,138 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6079267C2006F9E8EFD7CBFD5C86A0359DB4F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737830   (106468) от 20.07.2024
-
-Не бей копытом / Home on the Range (2004) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь на ферме проста и привольна. Хозяева и питомцы живут душа в душу, поют песни и веселятся. Но внезапно этой идиллии приходит конец. На смену обанкротившимся владельцам фермы приходит безжалостный делец, желающий продать землю и избавиться от животных.
-
-Естественно, это не устраивает привыкших к сладкой жизни четвероногих и пернатых обитателей. Начинается потрясающе (   Читать дальше...   )Производство: США, Япония / Walt Disney Pictures, Walt Disney Feature AnimationЖанр: мультфильм, мюзикл, комедия, приключения, семейный, вестернРежиссер: Уилл Финн, Джон СанфордАктеры: Дж. У. Бейли, Розанна Барр, Бобби Блок, Стив Бушеми, Кэрол Кук, Чарли Делл, Джуди Денч, Чарльз Дэннис, Маршалл Эфрон, Джо ФлаэртиПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF4F43864269B56A8242505F587A757C61A05D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738478   (106336) от 22.07.2024
-
-Микки: И снова под Рождество / Mickey's Twice Upon a Christmas (2004) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходите в гости к Санта Клаусу, Микки Маусу и другим диснеевским героям на праздник и узнайте, как они встречают Рождество. Старина Дональд всеми силами пытается противостоять празднику, в то время как Микки и Плуто веселятся от души.Производство: США, Австралия / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Тереза Петтенджилл, Кэрол Холлидэй, Пегги ХолмсАктеры: Уэйн Оллвэйн, Тони Ансельмо, Джефф Беннетт, Джим Каммингс, Билл Фармер, Тресс МакНилл, Джейсон Мэрсден, Чак МакКанн, Клайв Ревилл, Расси ТейлорПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8890D3D613FE50A284C8A47F8B080DD85823A4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739406   (106137) от 27.07.2024
-
-Гарфилд / The Garfield Movie (2024) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106137.jpg" />
-</div>
-
-
-###  Подробнее
-
-После неожиданного воссоединения со своим давно потерянным отцом — уличным котом Виком — Гарфилд вместе с другом-псом Оди вынужден отказаться от своей идеально тепличной жизни и присоединиться к весёлому и опасному приключению.Производство: США, Великобритания, Гонконг / Columbia Pictures, Alcon EntertainmentЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Марк ДиндалАктеры: Крис Пратт, Сэмюэл Л. Джексон, Ханна Уэддингхэм, Винг Реймз, Николас Холт, Сесили Стронг, Харви Гильен, Бретт Голдстин, Бовэнь Ян, Снуп ДоггПеревод: Дублированный, Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, АнглийскиеПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D037C6706FC84B92DB077FC3603010E44C118945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739443   (106053) от 28.07.2024
-
-Винни Пух и Слонотоп: Хэллоуин / Pooh's Heffalump Halloween Movie (2005) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои празднуют веселый Хэллоуин в Сказочном Лесу с новыми приятелями Кенгуру и Слонотопом. Но веселье продолжается до тех пор, пока Тигра не предупредит их о страшном злом волшебнике, если он поймает их, то превратит во что-нибудь странное. Но если они найдут его первым, то смогут загадать желания.Производство: США, Филиппины, Таиланд / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, мюзикл, фэнтези, комедия, семейныйРежиссер: Сауль Эндрю Блинкофф, Эллиот М. БурАктеры: Джимми Беннетт, Питер Каллен, Джим Каммингс, Джон Фидлер, Кен Сэнсом, Кэт Суси, Кайл Стэнджер, Дэвид Огден Стайерз, Трэвис Оутс, Брайан КаммингсПеревод: Дублированный (ZeroVoice)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707C3D851B117333BE22D6A4A49C0229E5B54F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740438   (105878) от 02.08.2024
-
-Двенадцать месяцев (1956) BDRip [H.264/720p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снежной холодной зимой, в январе, под вечер, когда люди сидят в домах, прислушиваясь к треску поленьев в печках, злая мачеха отправила свою падчерицу в лес, чтобы та набрала корзину подснежников. Бедной девочке ничего не оставалось делать, как исполнить прихоть мачехи… По одноименной сказке Самуила Яковлевича Маршака.Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, детский, семейныйРежиссер: Иван Иванов-Вано, Михаил БотовАктеры: Татьяна Барышева, Юлия Юльская, Людмила Касаткина, Галина Новожилова, Эраст Гарин, Григорий Шпигель, Георгий Вицин, Алексей Грибов, Владимир Володин, Геннадий Малышев и другиеСубтитры: отсутствуютПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F94C18E33053C3D3B190EA7A0D3B3EE8902D627
 ```
 
 https://mybot314.ru/tekegram_catalog/

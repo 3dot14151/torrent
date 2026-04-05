@@ -1,3 +1,58 @@
+###  Публикация: 1417309   (359979) от 19.10.2020
+
+Рената Кирилина, Любовь Стрекаловская | Красивый почерк от А до Я. Обучение с удовольствием (2018) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга актуальна как для родителей младших школьников, так и для родителей учащихся средних классов, имеющих неразборчивый почерк. Ведь почерк влияет на успеваемость ребёнка. В книге очень много правил и алгоритмов для создания красивого и аккуратного почерка. Информация о том, как писать каждую букву и цифру в деталях Увлекательные упражнения и тексты для (   Читать дальше...   )Жанр: Обучение и развитие детейФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8C136FA548CC9D3D3F5BA429C0B883406DEDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308783   (359726) от 19.10.2020
+
+Б.С.Волков, Н.В.Волкова | Подготовить ребенка к школе... Как? (2006) [MP3]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Мультимедийные материалы для родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практикум содержит изложенные в доступной форме рекомендации и комментарии специалистов-психологов.
+Даются упражнения по развитию готовности Вашего ребенка к будущим школьным занятиям.
+В приложении Вы найдете методы диагностики готовности ребенка к школе.
+Постоянное совершенствование своих знаний о Вашем ребенке - залог успешного воспитания!(   Читать дальше...   )Жанр: Воспитание детей, ПрактикумФормат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04516775A06101A010D35C087A07996C3F72629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577090   (359607) от 17.09.2022
 
 Владимир Одоевский | Городок в Табакерке (1947) [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359607.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359521.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359443.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359275.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359137.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359038.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358520.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358410.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358313.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358274.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358253.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358123.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358094.jpg" />
 </div>
 
 
@@ -349,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357828.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357819.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357796.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357691.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357349.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357339.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357239.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357237.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357229.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357027.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356888.jpg" />
 </div>
 
 
@@ -629,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9717573D2384D101D0146CCA9447CD87414B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255292   (356801) от 07.11.2010
-
-О. Н. Пупышева | Задания школьных олимпиад. 1-4 классы (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее пособие содержит задания для школьных олимпиад в начальной школе по математике, русскому языку и курсу "Окружающий мир". Оригинальные познавательные и интеллектуальные задания позволят раскрыть способности младших школьников, повысить их интерес к различным наукам, развить творческую инициативу. Приводятся полные, подробные ответы.
-Издание адресовано (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256252   (356685) от 21.10.2018
-
-Олеся Лихунова | Хочешь я буду твоей мамой (2017) [FB2, EPUB, PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356685.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хочешь, я буду твоей мамой?» – дневник Олеси Лихуновой, мамы семерых детей, пятеро из которых – приёмные. Её уверенность в том, что нет нерешаемых задач, и умение найти простые и логичные ответы на сложные вопросы, способность виртуозно организовать жизнь и обучение детей оказались полезными и вдохновили тысячи читателей, и не только родителей. Эта книга – о том, (   Читать дальше...   )Жанр: Воспитание детейФормат: FB2, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C2BFC67A1AF905BB3D03F80FC6FFDD6FA1275F
 ```
 
 https://mybot314.ru/tekegram_catalog/

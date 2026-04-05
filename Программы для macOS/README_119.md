@@ -1,3 +1,56 @@
+###  Публикация: 1341383   (262292) от 28.11.2019
+
+Kodak Preps 8 v8.4.0 (build 128) [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preps — это лидирующее в отрасли программное обеспечение для безошибочного создания спуска полос. Оно поддерживает сложные задания для цифровой и традиционной печати, принимая элементы контента и данные, поступающие из различных источников, включая сторонние решениями. Как часть унифицированных рабочих потоков KODAK, ПО Preps может обеспечить полностью автоматизированный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Eastman Kodak CompanyПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923220C9AE5C599F454FEF882835B017DA8CE791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193087   (262232) от 20.12.2017
+
+Romanysoft SpeedTest 7.0.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Romanysoft Speed Test -  проверить скорость интернет. Тест скорости Интернет без Flash.
+У любого человека подключенного к глобальной сети (а таких в наше время большинство) рано или поздно возникает вопрос — как проверить скорость Интернета ? Кто-то хочет протестировать новый тариф своего провайдера – не обманывает ли? Соответствует ли завяленная скорость фактической? (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2017Разработчик: Romanysoft LAB.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222C621ADDBADF338BAA5200BDCDA68B60340126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193458   (262092) от 21.12.2017
 
 CalcTape Paper Tape Calculator 1.4.0 [Multi/Ru]
@@ -6,7 +59,7 @@ CalcTape Paper Tape Calculator 1.4.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262092.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Day One 2.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262063.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Complete Anatomy 2018 + Courses 3.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262045.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Disk Space Analyzer 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261738.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257719.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Autodesk AutoCAD 2026 for Mac W.119.M.325 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256691.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Screen Recorder HD Pro 3.1.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255546.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ NCH Switch Plus 11.09 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255511.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Autodesk Maya 2024 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255145.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ Picture Instruments Preset Converter Pro 1.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254843.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ SyncTime 4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254805.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ Adobe Illustrator 2026 30.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252417.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ Vectorworks 2025 Update 7 (Build 828783) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251813.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ HD Video Converter Movavi 22.1.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250086.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ IP Scanner Pro 4.06 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249661.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ Nikon Camera Control Pro 2.34.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249627.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ Microsoft NTFS for Mac by Tuxera 2023.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249045.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ OnOne Perfect Photo Suite 6.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248643.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ Adobe InDesign 2023 18.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247407.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246153.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246151.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ iFastZip - Extract RAR & ZIP & 7Z 9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246105.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ Bigasoft QuickTime Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246045.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ MediaHuman Video Converter азк Mac 2.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246011.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ MediaHuman Video Converter разработан, чтобы сделать ва�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F3E845A5C7DC37CF5D14EFCA79553EDD5A34E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448474   (245951) от 17.02.2021
-
-SizeMyPics 1.7.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245951.jpg" />
-</div>
-
-
-###  Подробнее
-
-SizeMyPics может помочь вам в преобразовании большого количества изображений. Узнайте все о возможностях, которые предлагает SizeMyPics, и о том, как он может облегчить вашу работу.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2021Разработчик: Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4A2F7C27FB675B20CD7B1F9D30F05C5C43F185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511537   (245928) от 21.11.2021
-
-Living Earth - Weather & Clock 1.29 fix [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Radiantlabs представляет лучшие и самые красивые часы мира и программа погоды для вашего Mac. Отмеченное наградами приложение для iPhone и IPad теперь и на вашем Mac. C помощью одного клика в строке меню вам станут доступны все страны и погода для миллионов городов по всему миру. Все это происходит в режиме реального времени. Глобальная облачность, живые обои и заставки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: © 2021 Radiantlabs, LLC.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8583C4152BB6C5C24AD9EB6AD8738177088CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

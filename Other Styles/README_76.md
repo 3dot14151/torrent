@@ -1,3 +1,58 @@
+###  Публикация: 517024   (646868) от 01.07.2012
+
+VA - 599 фраз из нашего кино и мультфильмов (2009) [MP3|32-64 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E720A56E93C50D5DF44F2CFA24AE188A00927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292148   (646812) от 29.03.2019
+
+Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Indie-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisyphus (04:06)
+02. Bloodless (06:29)
+03. Olympians (04:00)
+04. Cracking Codes (03:12)(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2AF44E579ABC6D8A0009E27A2DB009B3B5765A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292486   (646807) от 29.03.2019
 
 Reggie Young - Session Guitar Star (2019) [FLAC|Lossless|tracks + .cue] <Eclectic, Guitar Rock>
@@ -6,7 +61,7 @@ Reggie Young - Session Guitar Star (2019) [FLAC|Lossless|tracks + .cue] <Eclecti
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646807.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Anne Trenning - Beautiful Song (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646708.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646588.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646417.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ The New Paul Mauriat Grand Orchestra - Still Blue (Best Collection Dedicated to 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646156.jpg" />
 </div>
 
 
@@ -152,7 +207,7 @@ Enigma - Enigma 4 - Metamorphosis (2013) Reworked Bootleg [FLAC|Lossless|image +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645610.jpg" />
 </div>
 
 
@@ -181,7 +236,7 @@ Henry Mancini - Trail Of The Pink Panther / След Розовой Пантер
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645454.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645428.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645424.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|ima
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644712.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Too
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644706.jpg" />
 </div>
 
 
@@ -332,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644260.jpg" />
 </div>
 
 
@@ -361,7 +416,7 @@ John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644034.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644027.jpg" />
 </div>
 
 
@@ -419,7 +474,7 @@ Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643987.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ Jacob Pavek - Illume (2015) [FLAC|Lossless|tracks] <Modern Classical, Ambient, P
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643795.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ VA - The Melodic Relaxing Piano Collection Vol. 1 (2014) [MP3|320 Kbps] <Instrum
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643658.jpg" />
 </div>
 
 
@@ -512,7 +567,7 @@ VA - E-Scape 2015 (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643578.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ Jorgen Ingmann - Guitar Romantic Collection, vol. 3 (1990) [MP3|320 кб/с]<Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643508.jpg" />
 </div>
 
 
@@ -576,7 +631,7 @@ VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classica
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643320.jpg" />
 </div>
 
 
@@ -611,7 +666,7 @@ VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Cla
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643313.jpg" />
 </div>
 
 
@@ -645,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643184.jpg" />
 </div>
 
 
@@ -674,7 +729,7 @@ Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642902.jpg" />
 </div>
 
 
@@ -703,7 +758,7 @@ VA - Золотые Хиты Советского Кино - 2 Альбома (2
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642881.jpg" />
 </div>
 
 
@@ -723,64 +778,6 @@ VA - Золотые Хиты Советского Кино - 2 Альбома (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4988B1C8155DF6751FDF9C72B712AC20DE6968E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142580   (642704) от 14.06.2017
-
-Johnny Cash - The Real... Johnny Cash (2011) 3CD [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-The Fabulous Johnny Cash
-01. Run Softly, Blue River
-02. Frankie's Man, Johnny(   Читать дальше...   )Жанр: CountryПродолжительность: 03:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA35FB8CDE25DDF7CD0951908836C7E94641CE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541659   (642606) от 04.04.2022
-
-Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 RimWorld Trailer Music.mp3 - 1:47
-02 Entry Screen.mp3 - 3:48
-03 Terraformer.mp3 - 3:03
-04 Moving On.mp3 - 4:45(   Читать дальше...   )Жанр: light guitar instrumentalПродолжительность: 02:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3BA866691D3606E91E145AD1AE0E3482EAEC7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

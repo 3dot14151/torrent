@@ -1,32 +1,3 @@
-###  Публикация: 1786589   (23948) от 21.03.2025
-
-Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Black Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Live Deliciously [5:33]
-02 - Demagoguery [6:17]
-03 - The Trinity Of Shadows [6:23]
-04 - Non Omnis Moriar [5:06](   Читать дальше...   )Жанр: Gothic Metal, Black Metal, Symphonic MetalПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634BBEE815A61160A58D7D25E5C50018BBB0A410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786929   (23851) от 22.03.2025
 
 Whitney Houston - Whitney (2023) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop>
@@ -35,7 +6,7 @@ Whitney Houston - Whitney (2023) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23851.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Adriano Celentano - Mr. Celentano (2025) Remaster [FLAC 24/44.1|Lossless|image +
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23729.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23632.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Helloween - March of Time (The Best of 40 Years) (2025) Remastered, Compilation 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23216.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ W.E.T. - Studio Albums (5 releases) (2010-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22937.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Magic Kingdom - Studio Albums (6 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22898.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22656.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Benediction - Studio Albums (10 releases) (1990-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22601.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22347.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22308.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ polnalyubvi - Прощай и люби меня (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22285.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22281.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Primal Scream - Come Ahead: The Remixes Vol 1 (2024) Vocals, 2025, BMG[FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22268.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Haddaway - The Album (1993) Remastered, 2025, Craft Recordings [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22262.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Elton John, Brandi Carlile - Who Believes In Angels? (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22258.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22104.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21968.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21866.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21792.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ The Darkness - Dreams on Toast (2025) Members' Edition, 2025, Cooking Vinyl Limi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21239.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ OK Go - And the Adjacent Possible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21216.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Nightsteel - Nightsteel (2024) Remastered, 2025, Cosmic Fire Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21212.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21109.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20958.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Donna Summer - Cats Without Claws (1984) 40th Anniversary Edition, 2025, Driven 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20803.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Donna Summer - Cats Without Claws (1984) 40th Anniversary Edition, 2025, Driven 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE3603A513220CB671C9F5056059B627B8C0FECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603407   (20464) от 24.04.2025
+
+Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
+1996 - Dusk And Her Embrace
+1998 - Cruelty And The Beast
+2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
 ```
 
 https://mybot314.ru/tekegram_catalog/

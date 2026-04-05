@@ -1,135 +1,3 @@
-###  Публикация: 1326367   (386842) от 19.09.2019
-
-Александр Марков, Елена Наймарк | Перспективы отбора (2019) [FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386842.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Главный герой» этой книги – естественный отбор. Способен ли он ещё удивлять биологов? Какие эволюционные процессы идут в современных человеческих популяциях? Угроза интеллектуальной деградации человечества – это страшилка или научный факт? Об интереснейших открытиях в эволюционной биологии продолжают рассказывать известные учёные и популяризаторы науки Александр (   Читать дальше...   )Жанр: БиологияФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2280C575E8F8DD0FA5EEBD0E47E4DF4FA0A3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066393   (386839) от 29.10.2016
-
-Коллектив авторов | Школа изобразительного искусства [10 книг] (1964-1968) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическое руководство для начинающих и самодеятельных художниковЖанр: Изобразительное искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF51084219A6159F2008CF408D81F637FC6C2CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174383   (386801) от 14.10.2017
-
-Н.А. Кун | Легенды и мифы Древней Греции и Древнего Рима (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386801.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Легенды и мифы Древней Греции» в изложении знаменитого исследователя античности Н.А. Куна уже давно стали классикой, без которой трудно представить себе детство или юность образованного человека.
-Данное издание подарит вам уникальную возможность познакомиться с работами Н.А. Куна в том виде, в каком они вышли в свет в 1914 г. «для учениц и учеников старших классов (   Читать дальше...   )Жанр: Мифы, Легенды, ЭпосФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6EEB02AEAA13102CBB8B84E20A1FCA339787C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174396   (386796) от 14.10.2017
-
-Мэри Бирд | SPQR. История Древнего Рима (2017) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы встречаемся с образами и историей Древнего Рима в науке, литературе, искусстве. Но насколько близки к реальности наши представления об эпохе, на которую опирается вся западная цивилизация? Ведущий мировой специалист по древней истории Мэри Бирд в своей книге «SPQR: История Древнего Рима» объясняет, почему нам так важна римская история, каким образом маленький, (   Читать дальше...   )Жанр: Античная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF9644C1C3C3DB4FBF5437038B00DDD67D3E008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067056   (386745) от 29.10.2016
-
-ICAO - IAMSAR | ИКАО - МАМПС 2013 (Том I,II,III) [3 книги] (2013) [PDF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386745.jpg" />
-</div>
-
-
-###  Подробнее
-
-МАМПС - Руководство по международному авиационному и морскому поиску и спасанию.
-Целью данного пособия является обеспечение руководства для тех, кто во время бедствия на море запрашивает помощь или кто сам может оказать такую помощь. В частности, оно предназначено для капитанов и помощников всех судов. Основная цель трех томов Руководства по международному авиационному (   Читать дальше...   )Жанр: РуководствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DE97D6DD9EC83063C45DD3F9E73DA7C86A478D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066764   (386735) от 29.10.2016
 
 А.В. Ситников | Электротехнические основы источников питания (2014) [PDF, DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386735.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386728.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386713.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386614.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386486.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385424.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385374.jpg" />
 </div>
 
 
@@ -322,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385350.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385316.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385203.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385153.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385057.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385005.jpg" />
 </div>
 
 
@@ -480,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384987.jpg" />
 </div>
 
 
@@ -506,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384982.jpg" />
 </div>
 
 
@@ -532,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384956.jpg" />
 </div>
 
 
@@ -558,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384916.jpg" />
 </div>
 
 
@@ -584,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384836.jpg" />
 </div>
 
 
@@ -611,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384827.jpg" />
 </div>
 
 
@@ -638,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384664.jpg" />
 </div>
 
 
@@ -664,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384656.jpg" />
 </div>
 
 
@@ -676,6 +544,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8D897A9A7D9EE45C5CE60C1675658602B87C9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 195911   (384511) от 20.09.2019
+
+Яковлев Р.Н. | Универсальный фундамент. Технология ТИСЭ [2008] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384511.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге приведена обзорная информация о грунтах,основаниях и фундаментах, возводимых в условиях индивидуального строительства. Анализ наиболее распространённых типовых фундаментов дается с простой и доступной форме, понятной застройщикам, не имеющим специального образования. В книге представлено подробное описание технологии ТИСЭ: возведения заглубленного фундамента (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022B42E26BCA4C12E8114DFEB6A0A60D6E4C03CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068075   (384479) от 30.10.2016
+
+Виктор Суворов | Кузькина мать. Хроника великого десятилетия (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384479.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Складывая известные и малоизвестные факты и события тех лет в единую мозаику, автор рассказывает об истинных причинах Берлинского и Карибского кризисов, о которых умалчивают официальная пропаганда, политики и историки в России и за рубежом. Эти события стали кульминацией второй половины XX столетия, поворотным пунктом и предопределили историческую судьбу (   Читать дальше...   )Жанр: историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C4F083BAF2284E4AF806951A9F7FE5B56459E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744471   (384476) от 30.10.2016
+
+Николай Якубович | Первый реактивный бомбардировщик Ил-28. Aтомный "мясник" Сталина (2014) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот легендарный самолет стал первым реактивным фронтовым бомбардировщиком, а затем и носителем первой советской серийной атомной бомбы, приняв участие в ядерных испытаниях под Семипалатинском. После первого публичного показа Ил-28 на майском параде 1950 года натовское командование присвоило этому самолету кодовое имя Butcher ("Мясник", "Палач"). (   Читать дальше...   )Жанр: военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CF7AC8BDF108848E24AE1E8776299B167A1DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068132   (384364) от 30.10.2016
+
+Виктор Суворов | Рассказы освободителя (2016) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384364.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: "Рассказы освободителя" - самая первая книга Виктора Суворова, вышедшая в свет в 1981 году на английском языке под названием "The Liberators" ("Освободители"). Эта книга стала настоящей сенсацией: никто и никогда прежде не писал о повседневной жизни Советской Армии так откровенно и ярко. За 35 лет книга выдержала более ста (   Читать дальше...   )Жанр: историяФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D99C4EA6057BE5439F51CC4F063F8326E5E8A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414617   (383513) от 09.10.2020
+
+А. А. Аузан и др. | Молодежи о политической экономии (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383513.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в научно-популярной форме излагаются ключевые вопросы марксистско-ленинской политической экономии для формирования современного экономического мышления, политэкономического видения явлений и процессов у рабочей и учащейся молодежи. Раскрытие предмета и метода науки, категорий и экономических законов, противоречий экономического развития и практической функции (   Читать дальше...   )Жанр: История, политология, экономика, социология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448829F5424F19480330BD67801D8C89680723AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

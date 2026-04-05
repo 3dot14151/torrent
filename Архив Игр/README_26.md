@@ -1,3 +1,30 @@
+###  Публикация: 508856   (674004) от 12.06.2012
+
+The Walking Dead: Episode 1 (RePack) [Ru/En] 2012 l VANSIK
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674004.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Walking Dead: The Game – адвенчура с элементами «хоррора».
+Cюжет освещает приключения новой группы «выживших», которые резонно вознамерились сбежать из Атланты в свете нашествия зомби.Посмотрите на то, что творилось в первые дни неожиданно нагрянувшего апокалипсиса, и примите участие в событиях, которые так или иначе пересекаются с похождениями шерифа Рика Граймса.(   Читать дальше...   )Тип издания: RePackЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Внглийский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C95EFC1C6D927620D901BCEC8BA38C9CB30F7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509354   (673749) от 12.06.2012
 
 Max Payne 3 (Repack/1.0.0.22) [Multi8/+] 2012 l kuha
@@ -6,7 +33,7 @@ Max Payne 3 (Repack/1.0.0.22) [Multi8/+] 2012 l kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673749.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ American Truck Simulator (2016) [Ru/En] (1.3.1.1s/dlc) SteamRip R.G. ORiGiNS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673595.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Layers of Fear (2016) [Ru/Multi] (1.0.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673581.jpg" />
 </div>
 
 
@@ -79,6 +106,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214966   (673156) от 01.07.2010
+
+Atom Fishing (L) [Ru] 2010 {v1.0.10.144}
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_673156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: лицензияРазработчик: R-Age creative labsЖанр: RPG / Simulation (симулятор рыбалки) / On-lineЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291089   (671916) от 23.03.2019
 
 Europa Universalis IV / Europa Universalis 4 (2013) [Ru/Multi] (1.28/dlc) Repack xatab
@@ -87,7 +140,7 @@ Europa Universalis IV / Europa Universalis 4 (2013) [Ru/Multi] (1.28/dlc) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671916.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671867.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Overfall (2016) [En] (6/28/2016) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671565.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_669939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669939.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669863.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ MONSTER HUNTER: WORLD (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668400.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_668347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668347.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_668345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668345.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru/En] (RePack) 2002 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_668257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668257.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_667025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667025.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.5) Repack D!akov
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665180.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ The Incredible Adventures of Van Helsing III (2015) [En] (1.0.0.1) RePack SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664993.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ B-Hunter (Rip) [En] 1999
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_664804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664804.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ Dominium (RePack) [En] 1992 | RG games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_664797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664797.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ Ghostbusters​: Sanctum of Slime [Ru] 2011 | Zerstoren [RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664605.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_664422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664422.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_663387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_663387.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ Terraria (2011) [Ru/En] (1.2.4.1) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662855.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ Dark Half [En] (RePack) 1992 | RG games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_662733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_662733.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_662236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_662236.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ DiRT 3 [Multi5\-] (L) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_662166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_662166.jpg" />
 </div>
 
 
@@ -628,61 +681,6 @@ DiRT 3 - гоночный автосимулятор от студии Codemaste
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341458   (661145) от 25.05.2011
-
-[Repack] DiRT 3 [En] 2011 | R.G. Packers
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_661145.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiRT 3 - гоночный автосимулятор от студии Codemasters. Colin McRae: DiRT 3 похвастается более, чем пятью десятками автомобилей разных лет, охватывающих пятьдесят последних лет автоспорта. В игре будут присутствовать знаменитые модели прошлых лет и настоящего времени. В DiRT 3 представлено больше машин, территорий, трасс и соревнований, чем в предыдущих играх серии. Более пяти десятков лучших раллийных автомобилей, участвовавших в гонках за последние пятьдесят лет; вдвое больше треков, чем в проекте 2009 года; соревнования на любой вкус; рейтинги, награды и достижения — в DiRT 3 каждый может стать настоящим профессионалом виртуального ралли и сделать блестящую карьеру гонщика.(   Читать дальше...)Тип издания: RepackЖанр: Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513561   (661016) от 21.06.2012
-
-Magicka. Ну очень эпическая игра / Magicka (RePack/1.4.7.0) [Ru/En] 2011 | VANSIK
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magicka — сатирическая приключенческая игра, действие которой происходит в богатом фэнтези-мире, придуманном на основе германо-скандинавской мифологии. Игрок возьмет под свой контроль мага из таинственного ордена и отправится в путешествие с целью остановить злого волшебника, превратившего мир в одну большую неразбериху, и чьи злые создания пытаются одержать победу над добрыми жителями этого мира.
-Игроки смогут объединять волшебные элементы, чтобы использовать заклинания, сея хаос и разрушения в сердцах приспешников тьмы. Кроме того, можно сыграть и с друзьями, проходя через жестокие дебри кампании, или же проверить свои навыки создания заклинаний с помощью других режимов игры.
-До четырех игроков могут отправиться в Magicka ради спасения своего мира, используя полностью динамическую систему заклинаний. Приключенческий режим отправит игроков в три разных уровня, в котором им встретятся как пышные леса, так и горные аллеи, ведущие к замороженным залам Горного короля, где нужно будет применить весь свой ум и проворность для того, чтобы победить врага.
-В разблокируемом игровом режиме повышенной сложности игрокам предстоит сражаться с волнами врагов, соревнуясь за первые места в таблице лучших. (   Читать дальше...   )Тип издания: RepackЖанр: Arcade / 3D / IsometricЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488A2849E89C3370CCA45C3E860AA7FCC67A57CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

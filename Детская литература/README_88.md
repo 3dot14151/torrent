@@ -1,30 +1,3 @@
-###  Публикация: 1542780   (635161) от 08.04.2022
-
-Русская народная сказка | Кочеток и курочка (1982) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сказка расскажет про то, как одно незаурядное событие в прошлом может привести к совершенно неожиданным последствиям в будущем. В XXI веке имеет свой термин: эффект бабочки.
-В обработке А.Толстого. Для детей дошкольного возраста. Иллюстрации А.Демыкина.Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB630022FBAAB92826ECB69BB84E28B43B565FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034656   (634361) от 13.07.2016
 
 А.П. Зорин | Мудьюг (1934) [FB2]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634361.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634234.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634196.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634184.jpg" />
 </div>
 
 
@@ -140,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634175.jpg" />
 </div>
 
 
@@ -167,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633986.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633829.jpg" />
 </div>
 
 
@@ -220,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633816.jpg" />
 </div>
 
 
@@ -247,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633739.jpg" />
 </div>
 
 
@@ -273,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633734.jpg" />
 </div>
 
 
@@ -299,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633687.jpg" />
 </div>
 
 
@@ -326,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633621.jpg" />
 </div>
 
 
@@ -352,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633373.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633361.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633278.jpg" />
 </div>
 
 
@@ -430,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632360.jpg" />
 </div>
 
 
@@ -456,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632333.jpg" />
 </div>
 
 
@@ -484,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632260.jpg" />
 </div>
 
 
@@ -513,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632237.jpg" />
 </div>
 
 
@@ -540,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632234.jpg" />
 </div>
 
 
@@ -566,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631999.jpg" />
 </div>
 
 
@@ -592,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631992.jpg" />
 </div>
 
 
@@ -620,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631854.jpg" />
 </div>
 
 
@@ -647,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631852.jpg" />
 </div>
 
 
@@ -675,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631847.jpg" />
 </div>
 
 
@@ -687,6 +660,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A941715230AEB7750A52403D27F7533FD27A121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908556   (631261) от 15.06.2015
+
+Серия "Школьная библиотека" [110 книг] (2001-2015) [PDF, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьная библиотека - серия, которая издавалась с момента образования СССР. В современном оформлении серия выходит с 2001 года и включает в себя, кажется, чуть ли не все книги, когда-либо изданные на русском языке.Жанр: Детская литератураФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADB5C13368EADBDAFA429CA946023D872266523
 ```
 
 https://mybot314.ru/tekegram_catalog/

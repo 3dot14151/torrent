@@ -6,7 +6,7 @@ Clipboard Manager 2.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352432.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352322.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ SponsorBlock for YouTube 5.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352317.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ rcmd • App Switcher 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352315.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ iToolab FixGo 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352308.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Vectoraster 7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352283.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ JustStream PRO 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352201.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Beyond Compare 4 v.4.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352194.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ IconJar 1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352108.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Path Finder 8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351998.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ QuickRes 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351992.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tweak Photos 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351991.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ iVI Video Converter 4 v4.620 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351990.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ ProPresenter 6 v6.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351988.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Grids for Instagram 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351890.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Things 3.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351882.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Mirror for LG TV 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351815.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VueScan Pro 9.6.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351810.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Doo - Get Things Done 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351524.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Downie 3.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351517.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ ProFind 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351490.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Coherence X 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351489.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Loopback 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351487.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ FigrCollage 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351486.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BlueHarvest 8 v8.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351485.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Cisdem Duplicate Finder 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351484.jpg" />
 </div>
 
 

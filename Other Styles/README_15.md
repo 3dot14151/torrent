@@ -1,3 +1,61 @@
+###  Публикация: 1360048   (961885) от 14.02.2020
+
+Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961885.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:38| 01. You Are One of My Guests
+|03:46| 02. Arrival
+|02:26| 03. Regret is a Disease
+|05:47| 04. Your Fantasy Begins Now(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E52BB748314627E9E9259BEE841BDD7B1121803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864449   (961826) от 24.01.2016
+
+Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Indie, Alternative Rock, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Paws (04:26)
+02. King and Lionheart (04:35)
+03. Numb Bears (02:45)
+04. Sloom (04:42)(   Читать дальше...   )Жанр: Indie, Alternative Rock, FolkПродолжительность: 03:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298A5602832D008461627A5F28FFFF93504DAF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360045   (961806) от 14.02.2020
 
 Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
@@ -6,7 +64,7 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961806.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Mot
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961792.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Mot
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961788.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960908.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Ultrasone - S-Logic Demo-CD (2008) [FLAC|Lossless|tracks + .cue] <Audiofile, Tes
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960766.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ David Arkenstone - Celtic Spa (2020) [FLAC|Lossless|WEB-DL|tracks] <New age, Fol
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960739.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960591.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ David Wahler - Secret Dream (2012) [MP3|320 кб/с] <New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959885.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Arash Behzadi - With Closed Eyes (2015) [MP3|320 кб/с] <New Age, Solo Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959786.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959460.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Portal - Soundtrack (2014) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959446.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Portal - Soundtrack (2014) [FLAC|Lossless|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959404.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Portal 2 - Soundtrack (2011) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959330.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Portal 2 - Soundtrack (2011) [FLAC|Lossless|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959329.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959290.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959252.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Japan Romantic SAX Classics (2014) [FLAC|Lossless]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958252.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Frost Orb - Dead Bits Soundtrack (2013) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958133.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Nathan Johnson - Knives Out / Достать ножи (Original Motion Picture S
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957073.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Nathan Johnson - Knives Out / Достать ножи (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956605.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956549.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ Yanni - Sensuous Chill (2016) [MP3|320 кб/с] <New Age, Electronic, Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955931.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ Andrew Lockington - The Kindness of Strangers / Реальная любовь в
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955811.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ Andrew Lockington - The Kindness of Strangers / Реальная любовь в
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955810.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ Andrew Lockington - The Kindness of Strangers / Реальная любовь в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C157CEFAFE70203CA54BA3219542C7E06F7110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361024   (955629) от 19.02.2020
-
-Sergio Santini - Love to the Piano (2017) [MP3|320 Kbps] <Instrumental, Classical, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (5:19)
-02. Love to the Piano (4:22)
-03. Feeling (4:48)
-04. Last Hope (7:02)(   Читать дальше...   )Жанр: Instrumental, Classical, PianoПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8155E48AD8B0EA739E926CE28D74ABBF13C64B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361026   (955601) от 19.02.2020
-
-Carl Davis & Philharmonia Orchestra - Abba for Orchestra (2014) [MP3|320 Kbps] <Instrumental, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:50)
-02. Voulez-vous (4:35)
-03. Super Trouper (4:34)
-04. Money, Money, Money (3:10)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0AC9AF06FE61081FB89A938814C5EC3DDFCA47
 ```
 
 https://mybot314.ru/tekegram_catalog/

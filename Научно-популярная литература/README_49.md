@@ -1,29 +1,3 @@
-###  Публикация: 1348852   (141446) от 29.12.2019
-
-Г. А. Гурев | Системы мира. От древнейших времен до наших дней (1950) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141446.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книге мы увидим, как сложилось геоцентрическое представление о мире, какие попытки были сделаны с целью сохранить это старое воззрение, как возникло и утвердилось новое учение о мире и какой сокрушительный удар это учение нанесло религиозному мировоззрению. Некоторое внимание уделим мы и тем замечательным успехам астрономии последнего времени, на основе (   Читать дальше...   )Жанр: История, науковедение, астрономияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE44E31022752FAD4D220684BAC53DB25787967F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970170   (140609) от 30.12.2015
 
 Николай Андреев и др. | Математическая составляющая (2015) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140609.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140293.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140013.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139908.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139788.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139431.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139384.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139346.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138662.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138421.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138213.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136116.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135894.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134484.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131464.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130427.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129850.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129837.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129415.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129393.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129312.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127132.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124496.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122833.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120705.jpg" />
 </div>
 
 
@@ -680,6 +654,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5887B344B1AD29740487C16FA5E0F9DF443850FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695040   (120661) от 27.01.2024
+
+Майя Гёпель | Мир после нас. Как не дать планете погибнуть (2021) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Способны ли мы, живя в эпоху глобального потепления и глобализации, политических и экономических кризисов, представить, какое будущее нас ждёт уже очень скоро? Майя Гёпель, доктор экономических наук и общественный деятель, в своей книге касается болевых точек человеческой цивилизации начала XXI века — массового вымирания, сверхпотребления, пропасти между богатыми (   Читать дальше...   )Жанр: зарубежная публицистика, научно-популярная литература, экологияПеревод: Тамара ЭйдельманЯзык: русскийИздательство: Альпина ДиджиталФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B814F786759863FA4F68EE3E9292D96DDAB5911
 ```
 
 https://mybot314.ru/tekegram_catalog/

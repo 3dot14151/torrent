@@ -1,3 +1,162 @@
+###  Публикация: 994947   (885514) от 10.03.2016
+
+Песок / The Sand (2015) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885514.jpg" />
+</div>
+
+
+###  Подробнее
+
+После ночной вечеринки, студентики просыпаются утром на пляже, песок которого начинает их засасывать.Производство: США / Allegra Pictures, Scatena & Rosener FilmsЖанр: Ужасы, ФантастикаРежиссер: Исаак ГабаеффАктеры: Брук Батлер, Джейми Кеннеди, Митчел Муссо, Дин Гейер, Мэган Холдер, Клео Берри, Синтия Марелл, Гектор Дэвид мл., Никки Ли, Брайан БунПеревод: Двуголосый закадровый, любительский (den904 & DeadSno)Субтитры: отсутствуютПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC3C05BB7ADC703C2C532D9F530E5B37BC563DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994925   (885512) от 10.03.2016
+
+На гребне волны / Point Break (2015) WEBRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонни — молодой агент ФБР, специализирующийся на работе под прикрытием. Он не раз выходил из самых сложных ситуаций, всегда доделывая свою работу до конца. Его очередным заданием становится проникновение в банду воров. Однако эти люди не обычные грабители: их главным отличием от остальных является увлечение экстремальными видами спорта. Свои умения они используют (   Читать дальше...   )Производство: США, Германия, Китай, Alcon Entertainment, DMG Entertainment, Ehman Productions, Studio Babelsberg, Warner Bros. PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Эриксон КорАктеры: Люк Брейси, Эдгар Рамирес, Тереза Палмер, Макс Тириот, Рэй Уинстон, Тобиас Зантельман, Джеймс ЛеГрос, Делрой Линдо, Боджесси Кристофер, Клеменс ШикПеревод: Дублированный (Чистый звук)Продолжительность: 01:49:37Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B84F5C00D8509A69B66392FCA443557B6EB1BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995021   (885503) от 10.03.2016
+
+На гребне волны / Point Break (2015) WEBRip [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонни — молодой агент ФБР, специализирующийся на работе под прикрытием. Он не раз выходил из самых сложных ситуаций, всегда доделывая свою работу до конца. Его очередным заданием становится проникновение в банду воров. Однако эти люди не обычные грабители: их главным отличием от остальных является увлечение экстремальными видами спорта. Свои умения они используют (   Читать дальше...   )Производство: США, Германия, Китай, Alcon Entertainment, DMG Entertainment, Ehman Productions, Studio Babelsberg, Warner Bros. PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Эриксон КорАктеры: Люк Брейси, Эдгар Рамирес, Тереза Палмер, Макс Тириот, Рэй Уинстон, Тобиас Зантельман, Джеймс ЛеГрос, Делрой Линдо, Боджесси Кристофер, Клеменс ШикПеревод: Дублированный (Чистый звук)Продолжительность: 01:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB32C3E0826EB367431B89D34067E74D08E24E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995178   (885502) от 10.03.2016
+
+Омерзительная восьмерка / The Hateful Eight (2015) BDRip [H.264/720p-LQ] [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885502.jpg" />
+</div>
+
+
+###  Подробнее
+
+США после Гражданской войны. Легендарный охотник за головами Джон Рут по кличке Вешатель конвоирует заключенную. По пути к ним прибивается еще один охотник. Снежная буря вынуждает всех троих искать укрытие в лавке на отшибе, где уже расположилась весьма пестрая компания: генерал, шериф, мексиканец, француз и ковбой… И один из них — не тот, за кого себя выдает.Производство: США, The Weinstein CompanyЖанр: ВестернРежиссер: Квентин ТарантиноАктеры: Курт Рассел, Сэмюэл Л. Джексон, Тим Рот, Майкл Мэдсен, Дженнифер Джейсон Ли, Ченнинг Татум, Уолтон Гоггинс, Зои БеллПеревод: Дубляж (чистый звук)Субтитры: Русский (ненорматив), АнглийскийПродолжительность: 02:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D7A46C53DCECA4A3E2BAD01047730A21B71649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994883   (885500) от 10.03.2016
+
+Windows 7 Professional SP1 IDimm Edition х86/x64 v.22.16 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885500.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Сборки представлены в виде двух отдельных образов: х86 и х64.
+• Сборки основаны на официальных образах MICROSOFT MSDN:
+ru_windows_7_professional_with_sp1_x86_dvd_u_677084.iso
+ru_windows_7_professional_with_sp1_x64_dvd_u_677024.iso(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE498886C6B92ADEF08745AE12631763685F9E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959602   (885498) от 10.03.2016
+
+StarCraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219) Repack xatab
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885498.jpg" />
+</div>
+
+
+###  Подробнее
+
+StarCraft 2: Legacy of the Void - это третья, и заключительная часть культовой стратегии в реальном времени, события которой разворачиваются параллельно с Heart of the Swarm и после его окончания. Главным героем этой части вновь станет Зератул, однако игрокам предстоит взять на себя роль не лидера Темных Тамплиеров Протоссов, а Артаниса, командира протоссов, который (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D896B969827B8894F7155DEFC88B52058F669341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494333   (885322) от 09.09.2021
 
 ИИ-алгоритм FaceBook принял чернокожих мужчин за приматов
@@ -6,7 +165,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885322.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.41.1.66s/dlc) SteamRip =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885308.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884575.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884559.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ Pinnacle Studio Ultimate 23.1.1.242 + Сontent + Plugins + Tool [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884556.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884554.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884552.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884550.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_884347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884347.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ USB Flash Drive Format Tool Pro 1.0.0.320 Retail [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884305.jpg" />
 </div>
 
 
@@ -266,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884303.jpg" />
 </div>
 
 
@@ -292,7 +451,7 @@ Shrek 2: The Game / Шрек 2 [Ru] (L) 2004
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884293.jpg" />
 </div>
 
 
@@ -318,7 +477,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884283.jpg" />
 </div>
 
 
@@ -344,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884279.jpg" />
 </div>
 
 
@@ -370,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884275.jpg" />
 </div>
 
 
@@ -396,7 +555,7 @@ Pinnacle Studio 15 HD Ultimate Collection 15.0.0.7593 [Multi/Rus]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_884267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884267.jpg" />
 </div>
 
 
@@ -422,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884224.jpg" />
 </div>
 
 
@@ -448,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884034.jpg" />
 </div>
 
 
@@ -474,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883969.jpg" />
 </div>
 
 
@@ -501,7 +660,7 @@ Dead or Alive 5: Last Round (2015) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883968.jpg" />
 </div>
 
 
@@ -512,166 +671,6 @@ Dead or Alive 5: Last Round — это доработанная версия з�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3483C711AFC688A0FA77E8ABB533D8EF68E7C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995338   (883837) от 11.03.2016
-
-NVIDIA GeForce Desktop 364.51 WHQL + For Notebooks [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883837.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41641BF11EFF2D68B250874EEA54CEF7AF454358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995475   (883829) от 11.03.2016
-
-Мощные лазеры позволят космическим кораблям добираться до Марса за три дня
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это весьма и весьма походит на научную фантастику. Однако, согласно результатам последних исследований, проведенных учеными из Калифорнийского университета в Санта-Барбаре, все это может быть воплощено в реальности, и небольшой автоматический космический корабль будет добираться до Марса всего за трое суток полета. Ключом к этому является так называемая фотонная (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902084   (883813) от 11.03.2016
-
-[BMW] (Все модели с CIC) Обновления карт навигации для CIC BMW PREMIUM EUROPE 2016-2 EAST ВОСТОК
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883813.jpg" />
-</div>
-
-
-###  Подробнее
-
-EAST ВОСТОК Рекомендуется, если вы в основном ездите по России
-Если в основном ездите по Европе - ищите такую-же раздачу, но WEST ЗАПАД
-
-2016-2 BMW ROAD MAP EUROPE PREMIUM EAST(   Читать дальше...   )Формат: ISO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCC1F1F62C70757E6DA780BEA2BBAB63E87BFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994641   (883804) от 11.03.2016
-
-BELOFF 2016.3 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. В сборник дополнительно добавлены портативные приложения, которые можно будет легко использовать как с диска и виртуального привода, так и с USB-накопителей, включая установку WPI и MInstAll. Для большего удобства использования сборника добавлено (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6739FCA86D3E50FC67004890DDD3946C0896A2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995217   (883802) от 11.03.2016
-
-Rescue USB (All-In-One Edition) 1.0 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rescue USB (All-In-One Edition) 1.0 основана на сборках m0nkrus (Windows AIO), adguard, puhpol, conty9 и Sergei Strelec.
-Загрузка в UEFI и через USB 3.0.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D95D415E03C1477A5A975FAAFDAF40C70B32A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995370   (883801) от 11.03.2016
-
-Мы уроды / We Are Monsters (2015) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка по имени Эмма подвергается нападению таксиста, получает дозу наркоты и вырубается. Очнувшись в какой-то грязной хибаре, Эмма узнаёт, что теперь она на вечеринке, организованной тремя садистами-психопатами. К сожалению или нет, но психопаты не знают, что Эмма чрезвычайно стойкая и целеустремлённая девушка...Производство: ШвецияЖанр: Ужасы, триллер, драмаРежиссер: Сонни Лагуна, Томмю ВиклундАктеры: Ханна Ольденбург, Ральф Бек, Ники Норденшёльд, Торбьёрн Андерссон, Лина Холл, Стефан Исакссон ...Перевод: Любительский двухголосый (den904 & DeadSno)Субтитры: ОтсутствуютПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323D451B53C056984A6515466D98C9756E6D3F92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1422561   (308695) от 09.11.2020
+
+S.O.T.O. - Origami (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HyperMania
+02. Origami
+03. BeLie
+04. World Gone Colder(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A18D9FEE837EF20CB13647925CB81EF063EEE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422516   (308693) от 09.11.2020
 
 Shortino - Make A Wish (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +35,7 @@ Shortino - Make A Wish (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308693.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308691.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Smokie - Early Successes (2016) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308498.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ AC/DC - Rock Or Bust (2014) [FLAC|Lossless]<Hard Rock, Aussie Rock, Heavy Metal,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308359.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Black Stone Cherry - The Human Condition (2020) [MP3|320 Kbps] <Hard Rock, South
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308342.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Creedence Clearwater Revived - Creedence Clearwater Revived (2020) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308336.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308304.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Mago De Oz - Hechizos, Pocimas Y Brujeria (2012) [MP3|320 кб/с]<Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308270.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Uni_Form - 1984 (2012) [MP3|192 kbps] <Post-Punk / Indie Rock / Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308269.jpg" />
 </div>
 
 
@@ -285,7 +314,7 @@ Saturnus - Saturn In Ascension (2012) [MP3|320 кб/с]<Melodic Death, Doom Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307990.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Juicy Lucy - Do That And You'll Lose It (2006) [MP3|320 кб/с]<Rock, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307971.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Bill Nelson - Northern Dream (1971) Reissue, Remastered, 2011, Esoteric [FLAC|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307892.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Jet - Get Born (2003) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307888.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Rush - R40 Live (2015) 3CD [FLAC|image + .cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307882.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Ram - Rod (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307872.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Asia - Classic Asia - The Universal Masters Collection (2001) [FLAC|tracks+.cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307835.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307793.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307787.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307783.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Michael Rother - 9 Studio Albums (1977-2004) CD [MP3|320 Kbps] <Electronic, Krau
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307774.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Kraan - 13 CD (1972 - 2007) [FLAC|Lossless]<Progressive Rock, Kraut Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307757.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Guns N’ Roses - Appetite for Destruction (1987) [FLAC|tracks+.cue]<Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307726.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Decembre Noir - Autumn Kings (2018) [MP3|320 Kbps] <Doom-Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307699.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307697.jpg" />
 </div>
 
 
@@ -731,7 +760,7 @@ Mikal Cronin - Seeker (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307661.jpg" />
 </div>
 
 
@@ -745,35 +774,6 @@ Mikal Cronin - Seeker (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC3D11C5B907827D0B04426BA8F5FFDEBCFD377E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333193   (307644) от 23.10.2019
-
-Jimmy Eat World - Surviving (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surviving (03:05)
-02. Criminal Energy (03:11)
-03. Delivery (03:13)
-04. 555 (03:41)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581ED7AF7BEA144D85E2D2B68445C3653EB358BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,136 @@
+###  Публикация: 303572   (823974) от 19.03.2017
+
+Белый клык / White Fang (1991) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм «Белый Клык» рассказывает о выращенном в неволе волке. Он живет в доме дрессировщика собак и его сына, к которому лесной зверь очень привязан. Однажды в схватке Белый Клык убивает соседскую собаку-боксера. Хозяин убитого животного настаивает на уничтожении Белого Клыка. Тогда мальчик решает спасти своего четвероногого любимца и отвозит его за 200 миль (   Читать дальше...   )Производство: АвстралияЖанр: Детский, Рисованая анимацияРежиссер: Ричард СлапчинскиПеревод: Двуголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8FE25FB44E683270CBCFA43C77CCB4A191CB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115897   (823966) от 19.03.2017
+
+Зверопой / Sing (2016) BDrip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [VO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое животное мечтает стать звездой. Слониха, баран, бык, и даже хрюшка, буквально все рвутся к славе. Кто знает, кому улыбнется капризная фортуна и чей портрет украсит завтра обложки глянцевых журналов. Все как у людей…Производство: США, Dentsu, Fuji Television Network, Illumination Entertainment, Universal PicturesЖанр: Мультфильм, Драма, Комедия, Семейный, МузыкаРежиссер: Кристоф Лоурде, Гарт ДженнингсПерсонажи: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: одноголосый любительский (от Ash61)Субтитры: Английские (полные)Продолжительность: 01:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E7791B5AF17133BD75CB83D1311609D96D7C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116197   (823956) от 19.03.2017
+
+Зверопой / Sing (2016) HDRip [VO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое животное мечтает стать звездой. Слониха, баран, бык, и даже хрюшка, буквально все рвутся к славе. Кто знает, кому улыбнется капризная фортуна и чей портрет украсит завтра обложки глянцевых журналов. Все как у людей…Производство: США, Dentsu, Fuji Television Network, Illumination Entertainment, Universal PicturesЖанр: Мультфильм, Драма, Комедия, Семейный, МузыкаРежиссер: Кристоф Лоурде, Гарт ДженнингсПерсонажи: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт Дженнингс ...Перевод: Любительский одноголосый закадровый (от Ash61)Субтитры: ОтсутствуютПродолжительность: 01:47:53Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA6CE11CB0CB8E9E01A2150D4AD2283FCC489E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881400   (823950) от 25.03.2015
+
+Песнь моря / Song of the Sea (2014) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Море всегда чарует своей природой. О морях сложено немало легенд.
+Некоторые из них мама рассказывает своим сыну и дочери.
+Эти легенды передаются из поколения в поколение:
+в морских водах живут удивительные существа - селки.(   Читать дальше...   )Производство: Ирландия, Дания, Бельгия, Люксембург, Франция |  Big Farm, Cartoon Saloon, Digital GraphicsЖанр: мультфильм, фэнтези, семейныйРежиссер: Томм МурПеревод: многоголосый закадровый CatBug TVЯзык субтитров: Русский, английскийПродолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B8D877936860D48A884163BAEEA0EAA5ABD495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116219   (823811) от 19.03.2017
+
+Зверопой / Sing (2016) BDRip [H.264/720p-LQ] [VO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое животное мечтает стать звездой. Слониха, баран, бык, и даже хрюшка, буквально все рвутся к славе. Кто знает, кому улыбнется капризная фортуна и чей портрет украсит завтра обложки глянцевых журналов. Все как у людей…Производство: США | Dentsu, Fuji Television Network, Illumination Entertainment, Universal PicturesЖанр: Мультфильм, Драма, Комедия, Семейный, МузыкаРежиссер: Кристоф Лоурде, Гарт ДженнингсПеревод: Любительский одноголосый закадровый (от Ash61)Субтитры: ОтсутствуютПродолжительность: 01:47:53Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1951E9F41F1EACB66BDE267C4D2D3434ACECE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 775278   (823460) от 09.04.2014
 
 Скуби-Ду! Тайна рестлмании / Scooby-Doo! WrestleMania Mystery (2014) [1080p] WEB-DL
@@ -6,7 +139,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823460.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823288.jpg" />
 </div>
 
 
@@ -60,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823279.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823208.jpg" />
 </div>
 
 
@@ -113,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823148.jpg" />
 </div>
 
 
@@ -142,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823146.jpg" />
 </div>
 
 
@@ -168,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822910.jpg" />
 </div>
 
 
@@ -194,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822813.jpg" />
 </div>
 
 
@@ -220,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822704.jpg" />
 </div>
 
 
@@ -246,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822490.jpg" />
 </div>
 
 
@@ -272,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822488.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822462.jpg" />
 </div>
 
 
@@ -324,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822334.jpg" />
 </div>
 
 
@@ -350,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822327.jpg" />
 </div>
 
 
@@ -376,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822245.jpg" />
 </div>
 
 
@@ -402,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822164.jpg" />
 </div>
 
 
@@ -428,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822148.jpg" />
 </div>
 
 
@@ -454,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822121.jpg" />
 </div>
 
 
@@ -480,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822054.jpg" />
 </div>
 
 
@@ -508,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822040.jpg" />
 </div>
 
 
@@ -534,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821582.jpg" />
 </div>
 
 
@@ -549,136 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21D6CC24FC2C8D12B1698F75DFCE8F462DA9EC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503373   (821343) от 18.10.2021
-
-Алиса в джунглях / Alice in the Jungle (1925) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алиса и ее котейко Джулиус путешествуют в джунглях. Встречают различных животных и приключения.Производство: США, Walt Disney ProductionsЖанр: Рисованная анимация, детскийРежиссер: Уолт ДиснейПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D045644268FDFE56BACA7CF5DAB7D3C60504E19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503170   (821332) от 18.10.2021
-
-Клоун Коко. Крепкие орешки / Koko Nuts (1925) DVBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коко и Фитц попадают в психбольницу. Что ж... бывает. Но наша парочка не унывает и старается и там все взять под свой контроль.Производство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74668012EDFDCADB18EDE6F7B1365B86E1CA0F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502905   (821224) от 18.10.2021
-
-Земля до начала времен 4: Путешествие в Землю Туманов / The Land Before Time IV: Journey Through the Mists (1996) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обитателей Великой Долины ждут новости! Бродячая стая Длинношеих поведала о том, что погода за пределами долины испортилась: далекая область, что некогда именовалась Сухой Землей, теперь превратилась в Землю Туманов. Там стали появляться странные, неизвестные существа; и поговаривают, что посещение дождливых мест стало делом небезопасным. Впрочем, никто из беспечных (   Читать дальше...   )Производство: США, Universal Cartoon StudiosЖанр: Рисованная анимация, Музыкальный, Приключения, ДетскийРежиссер: Рой Аллен СмитАктеры: Джон Ингл, Кендес Хатсон, Хезер Хоган, Роб Полсен, Джефф Беннетт, Скотт МакЭфи, Кеннет Марс, Линда Гэри, Кэрол Брюс, Джулиана ХансенПеревод: Многоголосый профессиональный (Премьер Видео Фильм), Дублированный (UPR)Субтитры: отсутствуютПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD60C83740F8E6C012796DCC2E2439947CE5E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655322   (821207) от 12.05.2013
-
-Вольт / Bolt (2008) BDRip [UKR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пес по кличке «Вольт» всю жизнь снимается в телевизионном сериале, где его герой — суперпес — спасает человечество, используя свои необычайные способности. Сам Вольт свято верит в собственную неуязвимость, невероятную силу, и умение летать. Когда же судьба забрасывает его в полный опасностей Большой Город, он все еще думает, что это — лишь очередной эпизод телесериала…Жанр: комедия, мультфильм, семейный, фэнтезиРежиссер: Байрон Ховард, Крис УильямсПерсонажи: Хлоя Грейс Морец, Джон Траволта, Дидрих Бейдер, Майли Сайрус, Шон Доннеллан, Сьюзи Эссман, Джеймс Липтон, Дж.П. Мано, Малкольм Макдауэлл, Ронн МоссПеревод: Дублированный (украинский)Продолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDE8C4DAA62FF06C0CAF8FE34D8E2F9DA6CC8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655463   (821088) от 12.05.2013
-
-Топ Кэт 3D / Don gato y su pandilla (2011) BDRip 3D [1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супер Кот и его озорная шайка бродячих котов сталкиваются с новым шефом полиции и своим старым заклятым врагом — офицером Дибблом. Полиция полна решимости помешать проделкам Кота и надеется выдворить его из любимого переулка. Но как бы они не старались, команде Супер Кота всегда удается обвести блюстителей закона вокруг пальца.Жанр: Детский, Приключения, КомедияРежиссер: Альберто МарПерсонажи: Джейсон Харрис, Крис Эджерли, Билл Лобли, Бен Дискин, Мэттью Пьяцци, Мелисса Дисней, Боб Калибан, Брайан МакФедден, Фред Татаскьор, Крис ФиллипсПеревод: ДублированныйПродолжительность: 01:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D35D8A0A16514217004D3624D3520D34A98AAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

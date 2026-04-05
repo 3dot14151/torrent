@@ -6,7 +6,7 @@ Creative Convert 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245173.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DSLR Assistant 3.9.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244964.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Home Business Card 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244562.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ CD DVD Label Maker 2.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244536.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Zoommy 3.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243742.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ WaterMark+ 3.00 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242930.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ batchRESIZE 1.76 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241714.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Image Plus - Easy Photo Editor 1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241650.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ JPEG Jackal PRO 2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240378.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Circular Studio 2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239790.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ References.Design 2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239748.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Photo Size Changer Premium 1.1.1 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239233.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ DxO ViewPoint 4 v4.7.0 (build 222) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_239157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_239157.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ batchGIF 1.92 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238504.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ photo2movie 2.81 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238482.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Perfect Face - Pimple Remover 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238292.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Inboard - Image Organizer 1.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237535.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ WebToLayers 1.2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237456.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ HDRsoft Photomatix Pro 7.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237038.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ PicFindr 1.4.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236782.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Super Vectorizer Pro for Mac 2.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236699.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Photo Effects Pro 6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236430.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Image Enhance Pro 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236341.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ EXIF App 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236274.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Bulk Photo Watermark 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236115.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Chaotica 2.2.3 Beta [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235476.jpg" />
 </div>
 
 

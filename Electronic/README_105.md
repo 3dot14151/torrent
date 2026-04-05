@@ -1,3 +1,61 @@
+###  Публикация: 1110403   (852034) от 03.03.2017
+
+VA - Selected Edm Compilation 17 (2017) [MP3|320 Kbps] <Club House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852034.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pumping Guys - Everybody in the Place (Original Mix) 4:38
+002. DJ Favorite - Drop That Bass (Big Room Mix) 5:37
+003. Brasslover - This Is the Drop (Original Mix) 3:38
+004. DJ Swagygy - Back Ones Again (Original Mix) 4:23(   Читать дальше...   )Жанр: Club House, Electro HouseПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F1F7118CBEEC1172B58CB21EEC50029CF2A0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110168   (852022) от 03.03.2017
+
+VA - Vocal Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  4 Strings & Fenna Day - Enough (Radio Edit)  3:28
+02.  Davey Asprey & Ellie Lawson - Bridge The Divide (Radio Edit)  3:23
+03.  Nitrous Oxide & Katty Heath - Neverending Dawn Of You (Cold Rush Edit)  4:15
+04.  Kaimo K & Sarah Lynn - Hearts Unite (Radio Edit)  3:16(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7681815CF4E7E5FC515A2DCEC0038853180992CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110696   (851952) от 03.03.2017
 
 VA - Armada Acoustic (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Vocal>
@@ -6,7 +64,7 @@ VA - Armada Acoustic (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Vocal>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851952.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mark Hartman - Synthesizer Instrumental Popsongs (1993) [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851894.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Mark Hartman - Synthesizer Classics (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851891.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Mark Hartman - Synthesizer Themes (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851890.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Flavio Paulin - Paulin (1979) LP [MP3|320 Kbps] <Electronic, New Wave, Abstract,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851271.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Relaxing Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851137.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Apollo 440 - 4 Albums (1994 - 2003) [MP3|320 Kbps]<Drum & Bass, Electronic Rock,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850737.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Supermayer (Superpitcher & Michael Mayer) - Save The World (2007) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850564.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Chillout March 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850435.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - This Is My Church Vol.2 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850434.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Sound Of Serenity Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850377.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Pet Shop Boys - Super (2016) [MP3|320 кб/с] <Electronic, New Wave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850208.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Synergic - A World Beyond (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850090.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Sex On The Beach Summer 2020 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850002.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Liquid Viking - Spiritual Awakening (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Go
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849897.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Blank & Jones - Milchbar - Seaside Season 12 (2020) DJ Mix [FLAC 2.0|44.1/24|tra
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849825.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Pet Shop Boys - My Beautiful Laundrette (2020) EP [FLAC|Lossless|tracks + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849815.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Phisonsoid - Discography 18 Releases (2009-2015) [FLAC|Lossless|WEB-DL]<Downtemp
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849448.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848874.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Easy Listening Lounge Affairs Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848853.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ VA - A Kind of Relax (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848846.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - Ibiza Electronic House Mecca Music Del Mar Club Deluxe (2017) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848844.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - Summer Bodies Are Made In Winter: Techno Edition (2017) [MP3|320 Kbps] <Min
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848843.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Moderat - III (Deluxe Edition) (2016) [FLAC|Lossless|tracks + .cue] <Techno, IDM
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848783.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D25CE27DA6B91DEF89B342149966ED722AD8E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111239   (848781) от 05.03.2017
-
-VA - Exotic Wellness Lounge and Chill Out Vol.3: Relaxing Selection of Erotic Lounge Grooves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inventors Of The Sun - Agua Of Life
-02. 351 Lake Shore Drive - All Around Me
-03. Velvet Dreamer - The Fall
-04. Fous De La Mer - Good Bye Lawrence(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D715C41179C57FE1E6DD5A4518D92C5A75F13319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111346   (848765) от 05.03.2017
-
-VA - Getting Ready For Some Nightclub Action: Club & Dance Music Collection (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Goldberg – Simon [03:45]
-02. Manast – Namm [03:07]
-03. Laura Nes – Dave [04:26]
-04. Leed – Point Blank [04:26](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DCD2616007F173DC2A7DC19F1F98EFB365B8B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

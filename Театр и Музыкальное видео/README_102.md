@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314866.jpg" />
 </div>
 
 
@@ -46,7 +46,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314633.jpg" />
 </div>
 
 
@@ -75,7 +75,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314216.jpg" />
 </div>
 
 
@@ -101,7 +101,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314087.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314045.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313894.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Delain - Live At Paradiso (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313822.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Status Quo: Pictures - Live At Montreux (2009) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313252.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313214.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313038.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312868.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312726.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Overkill - The Grinding Wheel (Bonus DVD) (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312470.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312197.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Andrea Bocelli (Андреа Бочелли) & David Foster (Дэвид Фост
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312093.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Destruction - A Savage Symphony - The History Of Annihilation (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312051.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Selena Gomez - Good For You (2015) HDTVRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311924.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Осенний марафон № 207: Коктейль Хит Новино
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311754.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311497.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311309.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Best of...(vol.2) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310183.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Iced Earth - Festivals Of The Wicked (2011) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309951.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Lacrimosa - Live in Moscow 19.11.2015 (2015) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309827.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Peter Gabriel - Secret World Live (2012) BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_309764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_309764.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309479.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308942.jpg" />
 </div>
 
 

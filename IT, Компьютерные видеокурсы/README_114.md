@@ -1,31 +1,3 @@
-###  Публикация: 1780795   (27072) от 20.02.2025
-
-PurpleSchool, Антон Ларичев | Основы тестирования ПО (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предназначен для тех, кто стремится освоить основные знания в области тестирования и хочет углубиться в практическое использование разнообразных тестовых методов и артефактов.
-
-На курсе мы рассмотрим ключевые концепции тестирования, а также через практические примеры научим вас работать с различными инструментами тестирования и овладевать базовыми техниками (   Читать дальше...   )Производство: PurpleSchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5013E3E3FE81CA10FBA1EDD1C78707CB25F71C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780976   (27041) от 20.02.2025
 
 Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025) WEB-DL [EN]
@@ -34,7 +6,7 @@ Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27041.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ ProfIT | Ликбез будущего программиста (2018) PCRec [H.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26857.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ Pluralsight | Penetration Testing in Action / Тестирование на пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26856.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ SmartMe University | Разработка API с Node.js (2015) PCRec [H.264/720
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26756.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ Seelentera | Ajax vs Node.JS (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26755.jpg" />
 </div>
 
 
@@ -166,7 +138,7 @@ Serberg | Видеоурок "Восстановление Windows в счита
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26748.jpg" />
 </div>
 
 
@@ -192,7 +164,7 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26728.jpg" />
 </div>
 
 
@@ -220,7 +192,7 @@ Udemy | Игры со словами на C# (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26653.jpg" />
 </div>
 
 
@@ -246,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26640.jpg" />
 </div>
 
 
@@ -272,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26621.jpg" />
 </div>
 
 
@@ -299,7 +271,7 @@ Color Grading Central | Davinci Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26226.jpg" />
 </div>
 
 
@@ -325,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26222.jpg" />
 </div>
 
 
@@ -351,7 +323,7 @@ PurpleSchool, Udemy, Антон Ларичев | Next.js 15 - с нуля, React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26217.jpg" />
 </div>
 
 
@@ -380,7 +352,7 @@ OTUS | Java Developer. Advanced (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26018.jpg" />
 </div>
 
 
@@ -406,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26016.jpg" />
 </div>
 
 
@@ -432,7 +404,7 @@ Warren Eagles | FF201 Advanced Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25999.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ JetBrains | PHPStorm - полный двухчасовой курс (2013) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25903.jpg" />
 </div>
 
 
@@ -484,7 +456,7 @@ Sorax | Курс по Coffeescript (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25705.jpg" />
 </div>
 
 
@@ -510,7 +482,7 @@ javascript.ru | Интенсив по RxJS (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25698.jpg" />
 </div>
 
 
@@ -538,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25696.jpg" />
 </div>
 
 
@@ -566,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25594.jpg" />
 </div>
 
 
@@ -592,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25590.jpg" />
 </div>
 
 
@@ -619,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25486.jpg" />
 </div>
 
 
@@ -645,7 +617,7 @@ Codeby | Paranoid Rebirth — курс по анонимности и безоп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25174.jpg" />
 </div>
 
 
@@ -674,7 +646,7 @@ Udemy, Антон Ларичев | Node.js - с нуля, основы и пос
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25065.jpg" />
 </div>
 
 
@@ -685,6 +657,33 @@ Node.js - это среда выполнения JavaScript на backend, спр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0787894505C363FE36931940A5FA71397022BF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 732850   (24854) от 13.03.2025
+
+Дмитрий Охрименко | Обучение программированию на C# с нуля! Видео урок - Машинная математика и системы исчисления (2013) [DVDRip]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кyрс С# Starter - этo yникальный видеo кyрс для тех, ктo хoчет пoзнакoмиться с oснoвами прoграммирoвания и языкoм C# без какoй либo пoдгoтoвки.
+Все чтo нyжнo yметь - базoвые навыки рабoты с кoмпьютерoм. С пoмoщью наших видеo yрoкoв и yчебных материалoв Вы смoжете систематизирoваннo изyчать сoвременный язык прoграммирoвания y себя дoма пoд пoнятные инстрyкции нашегo (   Читать дальше...   )Жанр: Видео урок, образованиеПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2285B51EFCEFB7D92D6E870115A59C06BE2E2719
 ```
 
 https://mybot314.ru/tekegram_catalog/

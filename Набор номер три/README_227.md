@@ -1,3 +1,166 @@
+###  Публикация: 303671   (748161) от 14.04.2011
+
+Антинаркотический транснациональный интернет-конкурс "Майя" (Maya)
+
+>>3
+>>20
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_748161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выйди из иллюзии и выиграй 15 000 долларов!
+
+Транснациональный антинаркотический интернет-конкурс «Майя»
+Каждую минуту из-за наркотиков в мире обрывается человеческая жизнь. Наш мир на пороге наркотической катастрофы. Рушатся судьбы. Распадаются семьи.  Матери хоронят своих детей. Количество зависимых от наркотических иллюзий достигает критической массы.(   Читать дальше...   )Формат: Социальный (некоммерческий).
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394567   (748020) от 14.07.2020
+
+BELOFF 2020.07 (Авторская раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой в Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также автоматическую установку драйверов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0E3D362F4E57C8F8C152DEDCB7DB0B25635A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281759   (747821) от 10.02.2019
+
+Российские космонавты высадятся на Луну в 2031 году
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая российская пилотируемая экспедиция должна отправиться на Луну в 2031 году, а затем такие полеты планируется сделать ежегодными, говорится в документе головного научного института "Роскосмоса" ЦНИИмаш, имеющемся в распоряжении РИА Новости.В пояснении указывается, что экипаж первой экспедиции должен будет отработать некие "операции деятельности (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282018   (747820) от 10.02.2019
+
+Windows 10 (v1809) x64 5in1 by kuloymin v18 (esd) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальных образах от MDSN: ru_windows_10_consumer_editions_version_1809_updated_jan_2019_ x64_dvd_b0988fe0, Microsoft Windows 10.0.17763.107 Enterprise LTSC Version 1809 (October 2018 Updated).
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол Samba.
+Удалена папка PerfLogs.
+Очищена папка WinSxS\Backup.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739E338BB67D3FB04E9148208B394DA68F17E238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019492   (747729) от 24.05.2016
+
+Очередное достижение: 4000 релизов от kat@kat!
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 4000 релизов от kat@kat!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашу "боевую подругу" с 4000 релизом!От всей души поздравляем kat@kat с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NNM-Club.me!:romashka: Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281609   (747703) от 10.02.2019
+
+В России собран самый мощный ракетный двигатель
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый двигатель РД-171МВ для создаваемой российской ракеты среднего класса «Союз-5»  собран на «Энергомаше». Тяга двигателя должна превысить 800 тонн. Это самый мощный ракетный двигатель в мире. Сейчас РД-171МВ готовят к огневым испытаниям.При создании двигателя РД-171МВ впервые в отрасли используется цифровое проектирование и производство.
+Об этом сообщил глава (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281659   (747697) от 10.02.2019
 
 Водителей будут штрафовать "народные инспекторы"
@@ -6,7 +169,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_747697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747697.jpg" />
 </div>
 
 
@@ -33,7 +196,7 @@ F.E.A.R. 3 (2011) [Ru/En] (16.00.20.1060/dlc) Repack Mizantrop1337
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747684.jpg" />
 </div>
 
 
@@ -59,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747682.jpg" />
 </div>
 
 
@@ -85,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747681.jpg" />
 </div>
 
 
@@ -111,7 +274,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.434]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747632.jpg" />
 </div>
 
 
@@ -140,7 +303,7 @@ CCleaner 5.18.5607 Free | Professional | Business | Technician Edition RePack (&
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747586.jpg" />
 </div>
 
 
@@ -166,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747418.jpg" />
 </div>
 
 
@@ -192,7 +355,7 @@ KMSAuto Lite 1.1.7 Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747297.jpg" />
 </div>
 
 
@@ -218,7 +381,7 @@ Autodesk Maya 2016 (x64) [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747295.jpg" />
 </div>
 
 
@@ -244,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747294.jpg" />
 </div>
 
 
@@ -270,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747293.jpg" />
 </div>
 
 
@@ -296,7 +459,7 @@ Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated v4 (AIO)
 >>80
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747292.jpg" />
 </div>
 
 
@@ -324,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_747265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747265.jpg" />
 </div>
 
 
@@ -350,7 +513,7 @@ JetBrains WebStorm 2018.1 Build #WS-181.4203.535 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747258.jpg" />
 </div>
 
 
@@ -377,7 +540,7 @@ Dying Light: The Following (2015) [Ru/En] (1.16.0/dlc) Repack Mizantrop1337 [Enh
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747249.jpg" />
 </div>
 
 
@@ -403,7 +566,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 14.03.18 [Ru
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747247.jpg" />
 </div>
 
 
@@ -430,7 +593,7 @@ Windows 7 7600 BLACK EDITION [8in1] v. 16385.10.06.1 7600.16385 [x86&x64]
 >>22
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_747159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747159.jpg" />
 </div>
 
 
@@ -464,7 +627,7 @@ BBC: Недостающее звено (В поисках наших далек�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746795.jpg" />
 </div>
 
 
@@ -490,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746463.jpg" />
 </div>
 
 
@@ -516,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746462.jpg" />
 </div>
 
 
@@ -527,165 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC45C3D9B87722CD07263294F637F5A5D9288FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761790   (746461) от 03.05.2014
-
-Викинги / Vikings (2014) WEB-DLRip (Сезон 2 полный (10 серий)) (NewStudio)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746461.jpg" />
-</div>
-
-
-###  Подробнее
-
-История повествует о приключениях величайшего героя своего времени – Рагнара Лодброка. В сериале показан Рагнар со своим племенем братьев-викингов и его семьёй в процессе становления королём всех племён викингов. Рагнар – бесстрашный воин, и религиозный викинг, который объединяет все племена и распространяет среди них поклонение скандинавским богам. Согласно легенде, (   Читать дальше...   )Жанр: Боевик, драма, историяРежиссер: Йохан Ренк, Киаран Доннелли, Кен ДжироттиАктеры: Трэвис Фиммел, Клайв Стэнден, Гэбриел Бирн, Кэтрин Уинник, Джессалин Гилсиг, Джордж Благден, Густаф Скарсгард, Торбьорн Харр, Владимир Кулих, Донал Лог, Айван Кэй, Мод Хирст, Эрик Хиггинс, Герард Маккарти, Юко Ахола, Эми Де Брюн, Сэм Смит, Билл Гибсон, Кевин Мюррэй и др.Перевод: Профессиональный многоголосый закадровый - NewStudioОзвучка: Петр Иващенко (Гланц), Константин Погодаев, Анна ТухФормат: AVIПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8480B3DDCF43F0D8888C3780E0CF8B362D73AB42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396473   (746401) от 15.07.2020
-
-Windows 10 Enterprise 2004 x64 Rus by OneSmiLe [19041.388]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-19041.388.200707-0737.VB_RELEASE_SVC_PROD1_CLIENTMULTICOMBINED_UUP_X64FRE_RU-RU
-Удалены все модерн приложения, вместе с магазином
-Поиск работает (значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28689A199B5F1044D3911BCE5063DC7B73525318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395937   (746396) от 15.07.2020
-
-Генпрокуратура назвала причину гибели туристов на перевале Дятлова в 1959 году
-
->>3
->>18
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_746396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Причиной гибели туристов на перевале Дятлова на Северном Урале в 1959 году является снежная лавина и то, что молодые люди из-за плохой видимости не смогли вернуться в палатку, заявил заместитель начальника управления Генпрокуратуры в УрФО Андрей Курьяков.Курьяков заявил, что «версия о лавине нашла свое полное подтверждение, но причиной гибели является не только она», (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396566   (746395) от 15.07.2020
-
-Malwarebytes Premium 4.1.2.73 RePack by Emir Candan (64-bit) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes Premium предлагает защиту в режиме реального времени от вредоносных программ и веб-сайтов, шифровальщиков, эксплойтов, фишинга. Использование проактивной защиты позволяет блокировать неизвестные угрозы "нулевого дня". Новая версия совмещает функции Anti-Malware, Anti-Exploit, Anti-Ransomware, веб-защиту и технологии очистки и восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD80C35B2E89EFF66694E29A7B9F78F2106CAA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019710   (746351) от 25.05.2016
-
-Компания Google планирует научить искусственный интеллект творить произведения искусства
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_746351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если искусственный интеллект уже может воплощать в виде рисунков свои "мысли и мечты", то почему бы ему не начать творить настоящие произведения искусства? Эта идея легла в основу программы компании Google под названием Magenta, которая начинает реализовываться группой Google Brain с 1 июня этого года. Исследовательские работы в рамках этой программы будут (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020072   (746240) от 25.05.2016
-
-Индия осуществляет первый успешный запуск прототипа собственного многоразового космического корабля
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_746240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Буквально на днях Индия вступила в "клуб" стран, имеющих в своем распоряжении космические корабли многоразового использования. Это случилось после того, как 23 мая 2016 года индийская Организация космических исследований (Indian Space Research Organisation, ISRO) осуществила запуск прототипа многоразового космического корабля Reusable Launch Vehicle-Technology (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

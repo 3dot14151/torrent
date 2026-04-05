@@ -6,7 +6,7 @@ Shu-xiong Zhou - Cha Tao The Way Of Tea (1995) [MP3|320 kbps]<New Age>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857937.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ GYRO MiX - 3 альбома (2008-2009) Touhou Instrumental /Doujin/ [FLAC|Lossl
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857889.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ ALSTROeMERIA - 3 альбома (2011-2014) /Doujin/ [FLAC|Lossless] <J-Pop, Ele
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857888.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ gunter10 UNITED Records - 2 альбома (2010) Touhou Instrumental /Doujin/ [
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857882.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Fluid Stance - 2 альбомав (2008-2009) Touhou Instrumental /Doujin/ [FLAC
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857881.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Night Tempo - Showa Idol's Groove 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856667.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ efs - 14 альбомов (2006-2013) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-P
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856352.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Khun Narin Electric Phin Band - II (2016) [MP3|320 кб/с] <World, Thai Psyched
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855411.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Wu Na - Empty Flowers and Brahmacariya (2014) [MP3|320 кб/с] <Chinese Buddhis
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855341.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Babymetal - Metal Resistance (2016) [MP3|320 кб/с] <Kawai Metal, Electronic, 
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850119.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Yoshio Kimura - DENON Best Collection - Hi-Fi Acoustic Guitar (2007) [FLAC|Lossl
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846899.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Pure Wrath - Ascetic Eventide (2017) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846468.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Quintet - 6 альбомов (2010-2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842160.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Anoushka Shankar - Land Of Gold (2016) [MP3|320 кб/с] <Indian Classical, Cros
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841274.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Babymetal - Metal Resistance (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal,
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840911.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Missa Johnouchi - Дискография /8 альбомов/ (2000 - 2009) [MP3
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840128.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ MAIKAZE — A Summer Day's Dream (2016) Touhou Vocal /Doujin/ [FLAC|Lossless|ima
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839774.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Lapis moss — 13 альбомов (2009-2016) Touhou Vocal /Doujin/ [FLAC|Lossl
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838205.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Maki Goto - 4 albums + 3 Eps (2003-2011) [FLAC|Lossless]<JPop,dance,hello projec
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_832102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_832102.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Create Box vol. 1 (2013) Vocaloid /Doujin/ [FLAC|Lossless|image+.cue] <Pop-Rock,
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831602.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cally Kwong - 4 albums[selected] (1986-1993) [FLAC|Lossless]<Chinese,Hongkong,di
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_821391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_821391.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rie Kugimiya - 3 альбома, 20 компиляций, 12 синглов (200
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821210.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Serenity in Murder - The Eclipse (2017) [FLAC|Lossless|image + .cue] <Melodic De
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820545.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Gus Dharma - Bali Meets China (2016) [MP3|320 кб/с] <World Music, Relax, Ethn
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817307.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-ho
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_811999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_811999.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Buddhist Monks Of Maitri Vihar Monastery - Sartori: Tibetan Mantras & Chants (19
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_811384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_811384.jpg" />
 </div>
 
 

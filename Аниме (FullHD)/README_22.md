@@ -6,7 +6,7 @@ Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728982.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mahou Shoujo Lyrical Nanoha Vivid | Magical Girl Lyrical Nanoha Vivid | Лири
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728552.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ensemble Stars! | Звёзды ансамбля! [2019, TV, 24 эп.] WEBRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725997.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kidou Senshi Gundam 00 | Mobile Suit Gundam 00 | Мобильный воин Г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725871.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724706.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Angelic Layer / Арена Ангелов [2001, 26 эпизодов] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722634.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722610.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tantei wa Mou, Shindeiru. | The Detective Is Already Dead | Детектив у�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722607.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Comet Lucifer | Комета Люцифера [2015, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722596.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ M3: Sono Kuroki Hagane | M3 The Dark Metal | M3: Чёрная сталь [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720434.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jinsei Soudan TV Animation / Jinsei / La Bonne Vie / Советы по жизн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720432.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Valkyrie Drive: Mermaid | Сила Валькирии: Русалочка [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717354.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Gangsta. | Бандиты [2015, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716858.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Hakubo | Twilight | Сумерки [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716857.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716589.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ore Monogatari!! | My Love Story!! | Моя история! [2015, TV, 24] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716410.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Ookami Shoujo to Kuro Ouji | Wolf Girl and Black Prince | Волчица и Чё
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716332.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика зака�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714217.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Girls' Frontline | Shaonu Qianxian: Renxing Xiao Juchang | Девушки на �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713189.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712877.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Beatless | Без пульса | Слабый удар [2018, TV, 24 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712858.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712786.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 + 4sp] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712463.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Aku no Hana / Flowers of Evil / Цветы зла [2013, TV, 13] BDrip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712027.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Rakudai Kishi no Cavalry | Rakudai Kishi no Eiyuutan | Chivalry of a Failed Knig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711341.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Eromanga-sensei (2019) | Эроманга-сэнсэй OVA [2019, OVA, 2 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711005.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1648004   (231065) от 21.07.2023
+
+В.В. Коршак, В.А. Замятина, Н.И. Бекасова | Борорганические полимеры (1975) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена сравнительно новому классу высокомолекулярных соединений - борорганическим полимерам. В книге рассмотрена история и обсуждены общие вопросы химии борорганических полимеров, описаны гомоцепные полимеры с цепями из атомов бора, а также гетероцепные полимеры со связями бор-углерод, бор-азот, бор-кислород, бор-фосфор, бор-сера и бор-мышьяк.
+Монография (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1953F7DBFA549F67001369CB84E3A50C8DFBA554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582070   (230932) от 07.10.2022
+
+Джутон Энтони и др. | Электромобиль. Устройство, принцип работы, инфраструктура (2022) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - результат работы большой группы исследователей, преподавателей и инженеров. В ней детально описаны компоненты силовой установки электромобиля - двигатели, силовая электроника, аккумуляторы, зарядные станции, - а также взаимодействие с энергосистемой и технология водородных топливных элементов. Книга формирует у читателя знания и навыки, необходимые для (   Читать дальше...   )Жанр: ТранспортПеревод: В.И. ПетровичевФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13128BE26BD0E25EEC18DB17ADF66F18E9E5243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582072   (230901) от 07.10.2022
 
 Крис Макдональд | Крис Макдональд: История реле. Как компьютер появился из радио, телефона и телеграфа (2022) [PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230901.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228490.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227801.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227508.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226006.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224983.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224629.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224586.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222256.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ J. Albahari | C# 10 in a Nutshell: The Definitive Reference (2022) [PDF, EPUB] [
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222085.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220633.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220318.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218843.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216836.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215779.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214064.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212096.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212071.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211237.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211134.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211131.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210390.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210147.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209741.jpg" />
 </div>
 
 
@@ -630,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A5F75DA62BFFBD196FABD87CEBAB66FCEDF82D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644830   (209576) от 06.07.2023
-
-И.Ф. Шаповалов | Справочник по расчету электрических сетей (1986) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Систематизированы данные по разработке электроснабжения и расчету электрических нагрузок для жилых и общественных зданий, а также промышленных предприятий. Содержатся сведения о способах прокладки проводов, кабелей, троллеев, шинопроводов, по выбору силовых трансформаторов, комплектных электротехнических устройств, электрооборудования.
-Дополнен схемами электроснабжения (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: БудiвельникФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4634294887CA9B3CA8B34B1D2436B8C3FFAE3C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644934   (209500) от 07.07.2023
-
-Н.М. Эмануэль, А.Л. Бучаченко | Химическая физика молекулярного разрушения и стабилизация полимеров (1988) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209500.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии рассмотрена теория процессов молекулярного разрушения полимеров под действием тепла, кислорода, света, механических напряжении, электрических полей, обсуждены химические и структурно-физические принципы стабилизации твердых полимеров, полимерных расплавов и растворов, сформулированы принципы выбора стабилизаторов и прогнозирования сроков службы полимерных (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC477B144FA462AF39983BE45F6F2EB34A04BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

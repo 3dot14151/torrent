@@ -1,3 +1,135 @@
+###  Публикация: 1745636   (45494) от 27.08.2024
+
+Бэтмен: Тихо / Batman: Hush (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный суперзлодей Тихо начинает шахматную партию против тёмного рыцаря, используя в качестве пешек старых знакомых Бэтмена.Производство: США / StarReel Entertainment, Warner Bros. AnimationЖанр: мультфильм, фантастика, боевик, триллер, драма, мелодрама, криминал, детектив, приключенияРежиссер: Джастин КоуплэндАктеры: Джейсон О’Мара, Дженнифер Моррисон, Стюарт Аллан, Сачие Алессио, Джеффри Аренд, Крис Кокс, Джеймс Гаррет, Адам Гиффорд, Пейтон ЛистПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A443B9EFA80B76D4A48F9061C7FE7DF64D448C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745585   (45469) от 27.08.2024
+
+Армитаж III / Amiteiji za saado / Armitage III (1995) BDRip (1-4 серии из 4) MC Entertainment [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45469.jpg" />
+</div>
+
+
+###  Подробнее
+
+2046 год. Полицейского Росса Сайлибуса переводят на Марс. Прилетев на место, прямо в аэропорту он становится свидетелем убийства известной певицы, которая оказывается запрещённым биороботом третьего поколения. Местная женщина-полицейский Наоми Армитаж решает подключиться к расследованию.Производство: Япония / AICЖанр: аниме, мультфильм, фантастика, детектив, боевикРежиссер: Хироюки Оти, Сатоси Сага, Юкио ОкамотоАктеры: Хироко Касахара, Ясунори Масутани, Рюсэй Накао, Хирохико Какэгава, Масахару Сато, Нобутоси Канна, Ватару Такаги, Мэгуми Огата, Хидэюки Танака, Юко КобаясиПеревод: Двухголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:33:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF49AD56EDF5EF4F7EF087557ABD6289183F90B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744716   (45377) от 28.08.2024
+
+Заветное желание / Wish (2023) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аша загадывает настолько сильное желание, что на него отвечает космическая сила — маленький шарик безграничной энергии по имени Звезда. Вместе они противостоят самому грозному правителю Росаса, королю Магнифико.Производство: США / Walt Disney Pictures, Walt Disney Animation StudiosЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Крис БакАктеры: Ариана Дебоуз, Крис Пайн, Алан Тьюдик, Анжелика Кебрал, Виктор Гарбер, Наташа Ротуэлл, Дженнифер Кумияма, Харви Гильен, Нико Варгас, Эван Питерс, Рами ЮссефПеревод: Дублированный (MovieDalen), Профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E3AE0020490EC34B1ACD55BD26A4AD08C1EAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745996   (45303) от 29.08.2024
+
+Армитаж: Двойная матрица / Amiteiji za Saado: Dyuaru Matorikkusu / Armitage III: Dual Matrix (2001) DVDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наоми Армитаж и Росс Силибус укрылись под вымышленными фамилиями на Марсе и тихо растят дочку Йоко. Однако спокойной семейной жизни проходит конец, когда одном из земных предприятий по производству антиматерии происходит бунт роботов. Армитаж узнает, что восстание - лишь повод для сокрытия информации о разработке новых роботов «третьего типа».
+
+Наоми отправляется (   Читать дальше...   )Производство: Япония / AICЖанр: аниме, мультфильм, фантастика, боевик, триллер, приключенияРежиссер: Кацухито Акияма, Кевин СеймурАктеры: Рёка Юдзуки, Хикару Ханада, Юка Имаи, Кадзухиро Ямадзи, Даики Накамура, Дзёдзи Наката, Мицуки Саига, Такуми Ямадзаки, Хироаки Исикава, Иэмаса КаюмиПеревод: Дублированный (Первый канал)Язык озвучки: Русский, Японский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E815EB55E738C6FD859137C723C6DF516665E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746183   (45175) от 30.08.2024
+
+Жестокий Джек / Baiorensu Jakku / Violence Jack (1986 – 1990) BDRip (1-3 серии из 3) Kallaider, Ranmaru [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45175.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце ХХ века на Землю упал метеорит, вызвав многочисленные землетрясения, цунами и прочие стихийные бедствия. Большинство крупных городов Японии оказалось в руинах, в уцелевших населенных пунктах хозяйничают мародеры и стихийные воинские образования. Человек, именующий себя «Слам Кинг», претендует на единовластное правление в Канто. Однако, есть некто (или, быть (   Читать дальше...   )Производство: Япония / Ashi Productions, Anime R, Studio 88, DAST Corporation, AICЖанр: аниме, мультфильм, боевик, ужасыРежиссер: Осаму Камидзё, Итиро Итано, Акихико НисиямаАктеры: Унсё Исидзука, Иссэи Футамата, Киёси Кобаяси, Кэнъю Хориути, Кэн Ямагути, Масаси Хиросэ, Тэссё Гэнда, Сигэдзо Сасаока, Каппэи Ямагути, Норио ВакамотоПеревод: Одноголосый любительский (Kallaider, Ranmaru)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1553C106D7534516A9E705671227AC045C97A570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740731   (45116) от 31.08.2024
 
 Бэтмен: Крестоносец в плаще / Batman: Caped Crusader (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) HDrezka Studio, LostFilm, TVShows
@@ -6,7 +138,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45116.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45051.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45047.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45000.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44993.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44975.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44954.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44889.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44888.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44872.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44748.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44515.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44462.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44440.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44428.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44385.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44358.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44347.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44342.jpg" />
 </div>
 
 
@@ -504,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44264.jpg" />
 </div>
 
 
@@ -530,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44243.jpg" />
 </div>
 
 
@@ -541,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59976ACAAC864201DA400AA9F75264A6B38A2BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748108   (44216) от 08.09.2024
-
-Дом-монстр / Monster House (2006) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три приятеля ДиДжей, Чёдер и Дженни обнаруживают, что соседний дом — самое настоящее чудовище. Никто из взрослых им не верит: мало ли, что выдумают дети. Поэтому когда начинаются неприятности, друзьям приходится самим противостоять этому монстру.Производство: США, Канада / Columbia Pictures, Relativity Media, ImageMoversЖанр: мультфильм, фэнтези, комедия, детектив, семейныйРежиссер: Гил КинанАктеры: Райан Ньюман, Стив Бушеми, Митчел Муссо, Кэтрин О’Хара, Фред Уиллард, Сэм Лернер, Вуди Шульц, Йен МакКоннел, Мэгги Джилленхол, Джейсон ЛиПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4FAEBD3BE5687B09CDD49459795E5A36433FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748104   (44199) от 08.09.2024
-
-Дом-монстр / Monster House (2006) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три приятеля ДиДжей, Чёдер и Дженни обнаруживают, что соседний дом — самое настоящее чудовище. Никто из взрослых им не верит: мало ли, что выдумают дети. Поэтому когда начинаются неприятности, друзьям приходится самим противостоять этому монстру.Производство: США, Канада / Columbia Pictures, Relativity Media, ImageMoversЖанр: мультфильм, фэнтези, комедия, детектив, семейныйРежиссер: Гил КинанАктеры: Райан Ньюман, Стив Бушеми, Митчел Муссо, Кэтрин О’Хара, Фред Уиллард, Сэм Лернер, Вуди Шульц, Йен МакКоннел, Мэгги Джилленхол, Джейсон ЛиПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C0FAEAEC8C19D4A6D89C1D06E87391D303BC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748105   (44188) от 08.09.2024
-
-Дом-монстр / Monster House (2006) BDRemux [MPEG-2/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три приятеля ДиДжей, Чёдер и Дженни обнаруживают, что соседний дом — самое настоящее чудовище. Никто из взрослых им не верит: мало ли, что выдумают дети. Поэтому когда начинаются неприятности, друзьям приходится самим противостоять этому монстру.Производство: США, Канада / Columbia Pictures, Relativity Media, ImageMoversЖанр: мультфильм, фэнтези, комедия, детектив, семейныйРежиссер: Гил КинанАктеры: Райан Ньюман, Стив Бушеми, Митчел Муссо, Кэтрин О’Хара, Фред Уиллард, Сэм Лернер, Вуди Шульц, Йен МакКоннел, Мэгги Джилленхол, Джейсон ЛиПеревод: дублированный, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C8AFB7A0DCEA020D7DE9D452C832D3268651A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748262   (44154) от 09.09.2024
-
-Этот дом / The House (2022) WEB-DLRip [AV1/2160p-LQ] [4K, HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44154.jpg" />
-</div>
-
-
-###  Подробнее
-
-История дома, в который в разные периоды заезжают новые обитатели и сталкиваются со сверхъестественными существами, сводящими их с ума.Производство: Великобритания, США / Nexus StudiosЖанр: мультфильм, драма, комедия, фэнтезиРежиссер: Палома Баэза, Эмма де Свааф, Ники Линдрот фон БарАктеры: Миа Гот, Мэттью Гуд, Клоди Блейкли, Eleanor De Swaef-Roels, Марк Хип, Джош МакГуайр, Стефани Коул, Миранда Ричардсон, Дэвид Пикок, Барнеби ПиллингПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английские (full, SDH)Продолжительность: 01:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08426D4C39046970C12753D5E33C429E6854FA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748347   (44149) от 09.09.2024
-
-Головоломка 2 / Inside Out 2 (2024) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Головной отдел мозга Райли внезапно подвергается капитальному ремонту в тот момент, когда необходимо освободить место для чего-то совершенно неожиданного: новых эмоций. Радость, Печаль, Гнев, Страх и Брезгливость, которые уже давно успешно руководят эмоциональными процессами, не знают, что и чувствовать, когда появляется некая… Тревожность. И похоже, не только она.Производство: США / Pixar Animation Studios, Walt Disney Studios Motion PicturesЖанр: мультфильм, комедия, семейный, фэнтезиРежиссер: Келси МаннАктеры: Эми Полер, Майя Хоук, Кенсингтон Таллман, Лиза Лапира, Тони Хейл, Льюис Блэк, Филлис Смит, Айо Эдебири, Лилимар, Грэйс ЛуПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (forced, full), Английские (Full, SDH)Продолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435119F2B341C688717D889D8EC24D2FADFA7EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

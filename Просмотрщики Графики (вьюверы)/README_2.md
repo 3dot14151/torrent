@@ -1,3 +1,134 @@
+###  Публикация: 1824717   (136958) от 15.10.2025
+
+Photo Supreme 2025.3.3.8115 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00B02CF7C25CA87567145DE582E7C08166F266B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823981   (126037) от 13.10.2025
+
+XnView MP 1.9.5 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126037.jpg" />
+</div>
+
+
+###  Подробнее
+
+XnView MP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnViewMP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513C7A5C24FC8980BC4D99CDA1359C4A97268AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822873   (104503) от 08.10.2025
+
+Photo Supreme 2025.3.3.8106 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9325F10B0D4085A0783243D87D7D79B9D7ED8180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721386   (57352) от 07.05.2024
+
+FastStone MaxView 3.4 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57352.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone MaxView - быстрый и компактный просмотрщик изображений, работающий со всеми основными графическими форматами. Его интуитивный алгоритм позволяет пользователю просматривать изображения различными способами, включая просмотр в защищенных паролем ZIP и RAR-архивах. MaxView служит прекрасным средством для быстрого просмотра, редактирования, изменения размеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32AD206AF59D8F61279F3F5DA2E1C0E4E615925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731520   (52641) от 21.06.2024
+
+Honeyview 5.53 Build 6273 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Honeyview - быстрый и удобный просмотрщик графических изображений с поддержкой множества различных форматов. Программа работает как с самыми популярными типами файлов, так и достаточно редкими: BMP, JPG, GIF, PNG, PSD, DDS, JXR, WebP, J2K, JP2, TGA, TIFF, PCX, PNM, PPM и многие другие.
+Кроме того, это приложение способно показать картинки, находящиеся в сжатом виде (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306F12DEFC317000D459AA872C8C5B69764F5E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745416   (45574) от 26.08.2024
 
 Adobe Bridge 2024 14.1.2.300 (x64) Portable by 7997 [Multi/Ru]
@@ -6,7 +137,7 @@ Adobe Bridge 2024 14.1.2.300 (x64) Portable by 7997 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45574.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ Photo Supreme 2024.2.2.6636 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44612.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ Exif Pilot 6.27.2 + Batchplugin [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27712.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ IrfanView 4.72 + Plugins [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18563.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ XnView Shell Extension 4.2.0  + Standalone  [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11560.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ Photo Supreme 2025.3.0.7956 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10367.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ FastStone Image Viewer 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9563.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ FastStone Image Viewer 8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9542.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ FastStone Photo Resizer 4.4 + Portable [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7753.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ XnView Classic 2.52.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5412.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ FastStone Image Viewer 8.1 Corporate + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2703.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ Adobe Bridge 2025 15.1.2.737 RePack by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2668.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ Imagine 2.2.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1166.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ XnView MP 1.9.4 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65.jpg" />
 </div>
 
 

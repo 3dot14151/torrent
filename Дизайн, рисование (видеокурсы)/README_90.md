@@ -1,3 +1,59 @@
+###  Публикация: 1683254   (129616) от 10.12.2023
+
+Вольница, Андрей Шкиль, Захар Башта, Никита Петрухин | Neuromancer v.2 (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья, мы подготовили курс по нейросеткам, но пока писали его уже так много вещей поменялось, что стало понятно — не выйдет записать уроки даже по основным темам курса так, чтобы они не утратили части своей актуальности к запуску.
+Скорость изменений в работе с нейросетями просто невероятная и мы должны подстраиваться — формат курса будет чуть отличаться от привычного. (   Читать дальше...   )Производство: ВольницаЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 14:47:41Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369BF779A0FCEA60191B045C69C9C9744908FAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525963   (128983) от 22.01.2022
+
+Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Learning Basics (2021) PCRec [KR / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128983.jpg" />
+</div>
+
+
+###  Подробнее
+
+В продвинутом классе будет обзор основных навыков. Мы будем анализировать анатомию человека и мышц, пропорции и симметрию.
+Вы будете практиковаться в изображении различных форм тела, стилей освещения и работать над преобразованием цвета. Вы научитесь рисовать естественные формы тела, выражения лица, разные позы и детали одежды.
+
+С этого момента вы сможете рисовать (   Читать дальше...   )Производство: Class101Жанр: РисованиеЯзык озвучки: КорейскийСубтитры: Английские (отдельными файлами)Продолжительность: 35:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E81E82ECE817642CE852879C0CC4CC7869EF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525962   (128976) от 22.01.2022
 
 Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Intermediate (2021) PCRec [KR / EN Sub]
@@ -6,7 +62,7 @@ Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Int
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128976.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128878.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ Domestika, David Drazil | Architectural Drawing: From Paper to Photoshop (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128785.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ Enterclass, Сергей Курбатов | Осенний Павловск (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128720.jpg" />
 </div>
 
 
@@ -120,7 +176,7 @@ Domestika, Luke Adam Hawker | Artistic Architectural Drawing with Ink (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128457.jpg" />
 </div>
 
 
@@ -149,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128334.jpg" />
 </div>
 
 
@@ -178,7 +234,7 @@ Ben Marriott | Motion Foundation (2023) WEB-DL [AD] [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128311.jpg" />
 </div>
 
 
@@ -207,7 +263,7 @@ Motion Science, Cameron Pierron | AE Volume I: The Fundamentals (2019) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128274.jpg" />
 </div>
 
 
@@ -235,7 +291,7 @@ Artefactoschool, Константин Стерхов | Пора цветения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128263.jpg" />
 </div>
 
 
@@ -264,7 +320,7 @@ Motion Science, Cameron Pierron | AE Volume II: Intermediate Techniques (2019) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128252.jpg" />
 </div>
 
 
@@ -293,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128248.jpg" />
 </div>
 
 
@@ -322,7 +378,7 @@ Alexunder Hess | Figma Pro Secrets (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128175.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128167.jpg" />
 </div>
 
 
@@ -380,7 +436,7 @@ Hudozhnik Online, Дарья Куцаева | Акварельный портр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128136.jpg" />
 </div>
 
 
@@ -408,7 +464,7 @@ Hudozhnik Online, Роман Круглов | Графические зарис�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128038.jpg" />
 </div>
 
 
@@ -437,7 +493,7 @@ Motion Science, Cameron Pierron | Typography 101 (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128017.jpg" />
 </div>
 
 
@@ -465,7 +521,7 @@ Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127935.jpg" />
 </div>
 
 
@@ -491,7 +547,7 @@ Videosmile, Михаил Бычков | Супер Cinema 4D (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127920.jpg" />
 </div>
 
 
@@ -520,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127857.jpg" />
 </div>
 
 
@@ -549,7 +605,7 @@ Motion Science, Cameron Pierron | Master Main Titles (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127850.jpg" />
 </div>
 
 
@@ -576,7 +632,7 @@ Andreas Ezelius | Designing, Modeling, and Texturing an Aircraft (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127759.jpg" />
 </div>
 
 
@@ -603,7 +659,7 @@ Udemy, Auripher Aetas Aurea | Journey to After Effects Mastery: Unleash Your Cre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127720.jpg" />
 </div>
 
 
@@ -631,7 +687,7 @@ Motion Science, Cameron Pierron | Beyond The Parallax Effect (2020) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127676.jpg" />
 </div>
 
 
@@ -659,7 +715,7 @@ Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127641.jpg" />
 </div>
 
 
@@ -670,63 +726,6 @@ Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7487A7228B42D6042B3B9AC19EC3122A8E99F0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684679   (127630) от 16.12.2023
-
-Арт-Студия Антипина Виталия, Виталий Антипин | Цветы маслом (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый базовый курс "Цветы маслом"
-
-Подойдёт для тех, кто ни разу не рисовал цветы, но хочет детально научиться писать цветы.
-Вам понадобится 5 основных цветов,5 кистей,мастихин,6 грунтованных картонов или холстов, льняное масло (подробнее на курсе)(   Читать дальше...   )Производство: Арт-Студия Антипина ВиталияЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 14:34:28Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F49D441BCCA0454D32B46E54496FAF9E83CB1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684952   (127466) от 17.12.2023
-
-Marker School, Юлия Максимова | Цифровая ботаническая иллюстрация (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс для всех любителей цветов! Для всех тех, кто хочет в цифровом варианте научиться рисовать выразительно такую популярную тему как ботаническая иллюстрация.
-Она может быть очень разной по стилю и подаче: свежие этюды, детальные реалистичные иллюстрации и плюс имитация традиционных техник - это один из плюсов цифрового формата.
-Всегда неограниченная палитра (   Читать дальше...   )Производство: Marker SchoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 18:37:54Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E49A996627CD866343AD5236ABD05A6820EA1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

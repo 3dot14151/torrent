@@ -1,3 +1,32 @@
+###  Публикация: 1513217   (225385) от 28.11.2021
+
+CGEvent | Подборка мастерклассов по трехмерке Киев 2017 (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка мастерклассов по трехмерке.
+Low Poly Персонажи Allods Online. НЕ набиваем шишки
+Анимация - инструмент реализации
+Анимация Завтра(   Читать дальше...   )Производство: CGEventЖанр: МастерклассПродолжительность: 04:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E01B3A735D34BABDFBCF680142469D88983F911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513219   (225377) от 28.11.2021
 
 CGEvent | Подборка мастерклассов по трехмерке Москва 2017 (2017) PCRec
@@ -6,7 +35,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225377.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Udemy, Tarkan Aguner | Python Real World Data Science Mega Project: Car Buyer Ap
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225325.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225212.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ CGEvent | Подборка мастерклассов по трехмерке П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225185.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225168.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Lynda.com | Изучение HTML Canvas / Learning HTML Canvas (2018) PCRec [H.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224955.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ Udemy, Charlie Grubel | 3D Animation Basics To Full Body and Creature Mechanics 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224786.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ Digital Tutors, Floyd Bishop | Creating Animal Animations in Maya 2016 (2015) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224764.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224754.jpg" />
 </div>
 
 
@@ -257,7 +286,7 @@ Udemy, Дмитрий Безуглый | React + Redux 2020, с нуля до п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224722.jpg" />
 </div>
 
 
@@ -286,7 +315,7 @@ TeachMeSkills | iOS разработчик (2021) WEB-DL [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224402.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ CG Cookie, Kent Trammell | HUMAN: Realistic Portrait Creation with Blender (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224382.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ Udemy, Никита Хохлов | Разработка Telegram ботов на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224329.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ Udemy, Исмаил Усеинов | Frontend разработчик на HTML, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224279.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ Skillshare, David Jaasma | Мастер-класс по системе част�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223803.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ MonsterLessons, Александр Кочергин | Vue и Vuex - пишем �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223159.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ Javabegin | Микросервисы на Spring Cloud (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223128.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Kubernetes: Мега 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223084.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Creative Shrimp, Luca Rood | Procedural Texturing: Blender Master Class (2021) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223080.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Skillbox, В. Устименко и др. | Профессия Финансов�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223006.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222151.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ MachDigital, Тимур Магомедов | MachDigital - Моделирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222081.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Parker Walbeck | Become a Full Time Filmmaker (2016) PCRec [H.264/1080p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222017.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Lynda.com | Dreamweaver and WordPress: Building Sites (Dreamweaver и WordPress:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221971.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Lynda.com | Dreamweaver and WordPress: Building Themes (Dreamweaver и WordPress
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221962.jpg" />
 </div>
 
 
@@ -681,32 +710,6 @@ Lynda.com | Dreamweaver and WordPress: Building Themes (Dreamweaver и WordPress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:216F51FC4E5C34FEDD681300A3EC76C84FF71C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425276   (221412) от 20.11.2020
-
-OTUS, Владислав Родин | Супер-интенсив «СУБД в высоконагруженных системах» (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ни для кого не секрет, что база данных является узким горлышком высоконагруженной системы. Поэтому большое внимание при проектировании следует уделить именно этой части системы, ведь известно - если вы хотите ускорить эскадру, необходимо ускорить самый медленный корабль. Более того, поскольку база данных является stateful-системой, именно с ее горизонтальным масштабированием (   Читать дальше...   )Производство: OTUSЖанр: Программирование, базы данныхПродолжительность: 17:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C346B12DB2F1BE7B38F8030E78FBC8F482D5CB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

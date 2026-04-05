@@ -1,3 +1,148 @@
+###  Публикация: 1035849   (624654) от 18.07.2016
+
+Cradle Of Filth - Dusk... And Her Embrace: The Original Sin (2016) [FLAC|Lossless|image + .cue] <Symphonic Black Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macabre, This Banquet
+02. Nocturnal Supremacy
+03. Heaven Torn Asunder
+04. Dusk and Her Embrace(   Читать дальше...   )Жанр: Symphonic Black Metal, Gothic MetalПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ACD5C4896EC67E4CAF2BDCD7760CA74BDD2DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035766   (624650) от 18.07.2016
+
+Сергей Скачков - Половина пути (2014) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мужчины
+02. Артист
+03. Хулиган
+04. Вороньё(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F18E4F43B38548DA2585A2019E320CA0972210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229583   (624447) от 07.06.2018
+
+Trooper - Two For The Show (1976) Reissue, MCA Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624447.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Two For The Show
+2. Gypsy Wheeler
+3. Santa Maria
+4. Loretta(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28115C4166D98BDB02CE07E849049E45C15F4530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229702   (624367) от 07.06.2018
+
+Tremonti - A Dying Machine (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bringer Of War
+02. From The Sky
+03. A Dying Machine
+04. Trust(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EFD5A3A033554553D4D603F130E84A0777F2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683734   (624339) от 26.07.2013
+
+Editors - The Weight of Your Love (2013) Japan Bonus Tracks [FLAC|tracks + .cue]<Alternative Rock, Indie Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weight (4:33)
+02. Sugar (4:17)
+03. A Ton Of Love (3:58)
+04. What Is Thing Called Love (4:12)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722977A9D40081F4684603BB9E6605ECC3EB1CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910054   (624333) от 19.06.2015
 
 Rosetta - Quintessential Ephemera (2015) [MP3|256 кб/с]<Post-Metal, Sludge Metal, Post-Rock>
@@ -6,7 +151,7 @@ Rosetta - Quintessential Ephemera (2015) [MP3|256 кб/с]<Post-Metal, Sludge Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624333.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Krayenzeit - Auf Dunklen Schwingen (2015) [MP3|320 кб/с]<Medieval Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624326.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Demon Lung - A Dracula (2015) [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624322.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ AC/DC - Rarities (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624298.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624290.jpg" />
 </div>
 
 
@@ -157,7 +302,7 @@ Telergy - Hypatia (2015) [MP3|320 кб/с]<Epic / Symphonic / Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624213.jpg" />
 </div>
 
 
@@ -186,7 +331,7 @@ Gabriel and The Apocalypse - Alpha Bionic (2019) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624121.jpg" />
 </div>
 
 
@@ -215,7 +360,7 @@ Brymir - Wings of Fire (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624120.jpg" />
 </div>
 
 
@@ -244,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624112.jpg" />
 </div>
 
 
@@ -273,7 +418,7 @@ Audio Adrenaline - Sound of the Saints (2015) [MP3|320 кб/с]<Alternative, Chr
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624076.jpg" />
 </div>
 
 
@@ -302,7 +447,7 @@ Savatage - Return To Wacken (2015) [MP3|320 кб/с]<Progressive / Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624068.jpg" />
 </div>
 
 
@@ -331,7 +476,7 @@ Depression - Die Dunkle Dimension (2015) [FLAC|Lossless|image + .cue] <Grindcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624037.jpg" />
 </div>
 
 
@@ -360,7 +505,7 @@ Rammstein - Live Aus Berlin (1999) Reissue, 2014, ООО «Юниверсал М
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623972.jpg" />
 </div>
 
 
@@ -389,7 +534,7 @@ Chappo - Moonwater (2012) Deluxe Edition [MP3|320 кб/с]<Alternative, Indie Sp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623928.jpg" />
 </div>
 
 
@@ -418,7 +563,7 @@ Mr. Mephisto - Abducted... They Come From Uranus (2021) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623925.jpg" />
 </div>
 
 
@@ -447,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623922.jpg" />
 </div>
 
 
@@ -476,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623921.jpg" />
 </div>
 
 
@@ -505,7 +650,7 @@ Kreator - Endorama (1999) 2CD, 2021, Ultimate Edition, Remastered, AFM Records [
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623916.jpg" />
 </div>
 
 
@@ -534,7 +679,7 @@ Old Season - Beyond the Black (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623912.jpg" />
 </div>
 
 
@@ -563,7 +708,7 @@ Odroerir - Das Erbe Unserer Ahnen (Limited Edition) (2017) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623910.jpg" />
 </div>
 
 
@@ -592,7 +737,7 @@ DeVicious - Black Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623819.jpg" />
 </div>
 
 
@@ -606,151 +751,6 @@ DeVicious - Black Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4BF1CEE7E94D1B04EFC0F0B5179DAD91F10F422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683582   (623818) от 26.07.2013
-
-Apocalyptica - 7th Symphony (2010) Japanese Edition [FLAC|Lossless]<Symphonic Metal / Cello Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Gates Of Manala
-02. End Of Me (feat. Gavin Rossdale)
-03. Not Strong Enough (feat. Brent Smith of Shinedown)
-04. 2010 (feat. Dave Lombardo)(   Читать дальше...   )Жанр: Cello Metal / Symphonic MetalПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B9CD9831E05F0795A7206EE6B62E151D7E8310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544204   (623816) от 14.04.2022
-
-Poison Rose - Little Bang Theory (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Wolf (3:21)
-02. Your Eyes Again (3:50)
-03. Devil (Knock on My Door) (3:52)
-04. Hearts Beat Loud (3:52)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0FA9FE3BE6BE890E2CF4147167ED9C97460216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544008   (623812) от 14.04.2022
-
-Атлас (Земляне, XX Век) - Атлас & Концерт на Старой Земле (2011) Compilation [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атлас (2011)
-01 - Космос
-02 - Колесо
-03 - Охотник(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1B6DB7A880B91B09D967535466D655BE213ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544188   (623799) от 14.04.2022
-
-Nazareth - Surviving The Law (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Days [00:03:22]
-02. You Gotta Pass It Around [00:03:21]
-03. Runaway [00:03:33]
-04. Better Leave It Out [00:03:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D802157A63EE09C7D02C0A21A4750D9C7453F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144848   (623793) от 24.06.2017
-
-Primal Fear - Angels Of Mercy: Live In Germany (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown to Insanity
-02. Final Embrace
-03. In Metal We Trust
-04. Angel In Black(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97789184288F916309C9A519C3BDCA1BBC05BE30
 ```
 
 https://mybot314.ru/tekegram_catalog/

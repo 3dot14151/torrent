@@ -6,7 +6,7 @@ Autodesk AutoCAD 2013 LT SP1.1 x64 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468537.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Multisim & Ultiboard (Circuit Design Suite) PowerPro 12.0.1 [Английски�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459244.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ solidThinking Inspire and Evolve Suite 2016.1 Build 5559 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441621.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Home Plan Pro 5.5.1.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434208.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ CorelCAD 2016 Build 16.0.0.1079 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408975.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Global Mapper 14.0.2 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379699.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ CorelCAD 2017.0 Build 17.0.0.1310 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349232.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ CSoft Project StudioCS R6.0.028 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290427.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ COMSOL Multiphysics 6.4 Build 293 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261534.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Pythagoras CAD + GIS 12.26 [ENG + RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256530.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Realtime Landscaping Architect 2023 v23.02 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255465.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254459.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Trimble Tekla Structures 2023 SP3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252229.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Wing Helper 1.50 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249660.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Altair Compose 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244956.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Altair SimSolid 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244873.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Altair Flux & FluxMotor 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244817.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Altair Activate 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244740.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Altair SimLab 2022.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236468.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231260.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Geomagic Control X 2020.1.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230450.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219587.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ CSoft WiseImage Pro Standalone 22.0.1741 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214346.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Cabinet Vision 2021.1.0.571 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211397.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Infolytica MagNet 7.4.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209671.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Siemens HyperLynx VX2.10 Build 19246144 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208636.jpg" />
 </div>
 
 

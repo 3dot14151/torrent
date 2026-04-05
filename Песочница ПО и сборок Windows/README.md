@@ -7,7 +7,7 @@ Windows 10 22h2 (build 19045.6937) (20in1) (x64) by Izual Soft [v12.02.26] [Ru/E
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057040.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Windows 11 25h2 (build 26200.7840) (24in1) (x64) by Izual Soft [v14.02.26] [Ru_E
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056999.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Den Launcher RePack by BlueScreen 1.1 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056388.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Task Explorer v1.6.6 [Multi]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056361.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Den Launcher 1.0 RePack by Egorчик [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055199.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Microsoft Windows 11 Pro 25H2 [10.0.26200.6584] by Yogi [UKR]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054494.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ JGSoft RegexBuddy 4.14.1 Repack [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053977.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp NoDefender by Izu
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053288.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp by Izual Soft [v1
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052997.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) Store NoApp by Izual Soft [v16.
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052996.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp Nodefender by Izu
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052995.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp by Izual Soft [v1
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052994.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) Store NoApp by Izual Soft [v15.
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052993.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Windows 11 24h2 (build 26100.7623) Enterprise LTSC 2024 by Izual Soft [v14.01.26
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052743.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Microsoft Office LTSC Professional Plus 2024 v.16.0.17932.20620 (Win10/11) Repac
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049164.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Office 2021 VL Professional Plus / Standard 16.0.16130.20218 RePack by
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034985.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.11.11) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255944.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.11.11) [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255636.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Windows 10 22H2 19044.6575/19045.6575 by SURASOFT (v25.11.11) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255635.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Windows 7 SP1 with Update [7601.27974] AIO (x64) by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202444.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Windows 11 25H2 Pro by KDFX (Clear) X64 26200.6901 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202385.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Windows 10 22H2 19044.6456/19045.6456 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202218.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ BananaUpdateBlocker 1.0.0.1 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193739.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186110.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133987.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ TweakTimeSaver 1.1.0 [Ru/En] (Авторская раздача)
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123885.jpg" />
 </div>
 
 

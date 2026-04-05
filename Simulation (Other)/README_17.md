@@ -1,3 +1,29 @@
+###  Публикация: 1668058   (174930) от 10.10.2023
+
+Thief Simulator 2 (2023) [Ru/Multi] (1.0) Repack DjDI
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дверь в Вашу карьеру грабителя уже ждет! Просто сбейте ломом замок и силой переступите порог. Изучайте навыки, собирайте инструменты и становитесь мастером воровского дела! Thief Simulator 2 перенесет Вас в мир, полный ценностей, дорогих автомобилей и шуршащих банкнот. До тех пор, пока Вы не найдете способ их украсть. Знайте, что профессия вора - это не кусок пирога. (   Читать дальше...   )Тип издания: RepackРазработчик: CookieDev, Ultimate Games S.A.Жанр: Экшены, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1515CD6D9914C73E0A1B1A38F55947A192E8111F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668071   (174362) от 11.10.2023
 
 Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
@@ -6,7 +32,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174362.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173432.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.3.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173286.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Garden In! (2023) [Multi] (1.0.8) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172753.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Ocean Pressure (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172726.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170782.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.09) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170623.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Urbek City Builder (2022) [Ru/Multi] (1.0.22.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168570.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ AirportSim (2023) [Multi] (1.0.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163889.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Slay the Spire (2019) [Ru/Multi] (2.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162489.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Unpacking (2021) [Ru/Multi] (1.41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162244.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161863.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Parking Tycoon: Business Simulator (2023) [Ru/Multi] (2021.3.16.5719) Scene Teno
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160727.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Secret Government (2020) [Ru/Multi] (1.0.6.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156559.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154770.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.5.766.8713/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153711.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Autonauts (2019) [Ru/Multi] (140.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153673.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Next Space Rebels (2021) [Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151887.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151113.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146547.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.47) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146339.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142953.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138133.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136781.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Operation Steel Tide (2002) [Ru] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134668.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Operation Steel Tide - аркадный симулятор подводной л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E97EFC138F687A7D6A0D090BC202C5A4EEBA5AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680783   (133633) от 30.11.2023
-
-Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.32/dlc) Repack dixen18
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Car Mechanic Simulator 2021 - симулятор механика, позволяющий в собственном гараже собрать транспорт любого типа. Это может быть спорткар или обычный легковой автомобиль. Можно покупать детали в специализированных магазинах, посещать аукционы, либо обзаводиться поддержанным транспортом, чтобы привести его в должный вид для дальнейшей эксплуатации или перепродажи. (   Читать дальше...   )Тип издания: RepackРазработчик: Red Dot GamesЖанр: Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773056ABDB85F6DF9D9DD020AD3D22AC3F13CEC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1404845   (208560) от 19.07.2023
+
+Haken - 8 Studio Albums (2010-2023) 12xCD [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haken - является английской прогрессивной метал - группой , образованной в 2007 году мульти-инструменталистом Ричард Хеншолл , гитаристом Мэтью Маршалл и вокалистом Росс Дженнингс. В то время как Хеншолл, Маршалл, и Дженнингс первой была идея формирования Haken в 2004 году, они решили продолжать  использовать свои инструменты и написание песен первыми. Позднее были (   Читать дальше...   )Альбомы :
+2010 - Aquarius
+2011 - Visions
+2013 - The Mountain(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 11:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15BC4F587F1C50EF116B410C8650E34F3339B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608911   (208496) от 01.02.2023
 
 Юрий Шевчук и группа ДДТ - Сборник песен (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208496.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tool - Lollapalooza In Texas (2020) [MP3|320 Kbps] <Alternative & Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208359.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208303.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - 100% ROCK: The Greatest Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208294.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Blur - The Ballad Of Darren (2023) Deluxe Edition [FLAC|Lossless| tracks+.cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208281.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Saint Agnes - Bloodsuckers (2023) [MP3|320 Kbps] <Nu-Metal, Rapcore, Female Voca
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208267.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Rock Retro Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208235.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Coventrate - Roots of all Evil (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208186.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Elvis Presley - Integral 1954-1962 (2023) 6CD, Diggers Factory [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208108.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208015.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ H.E.A.T - 9 Studio Albums (2008-2022) 14xCD, Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207882.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Ozric Tentacles - 3 Double CD Set / 6 Albums (2000, 2002, 2004) [WavPack|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207874.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207839.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Marius Danielsen - War of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207763.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Blur - The Ballad Of Darren (2023) [FLAC|24/44.1|tracks|WEB-DL] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207711.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Eagles - Beacon Theatre, New York 1974 (2016) Reissue, 2023, Zip City [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207684.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Eric Clapton - Rarities 1983-2022 (2023) [FLAC|Lossless|image + .cue] <Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207544.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Rush - Pinkpop (live) (1979) Reissue, 2023, Cult Legends [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207514.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207512.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207509.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Bitter Velvet - Unleashed Fears (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207432.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Greta Van Fleet - Starcatcher (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207327.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ The Animals - Live In The Sixties (1966-1967) Reissue, 2023, London Calling [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207147.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207077.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ The Move & Roy Wood - 16 albums, 4 Box-set, 47 CD (1968-2014) [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207021.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ The Move — британская рок-группа, созданная в к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E290793B9A27D2C74C8B8ACED8E21314B89265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613736   (206980) от 19.02.2023
-
-Mark Knopfler - True Love (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Heart
-02. Wherever I Go (feat. Ruth Moody)
-03. True Love Will Never Fade (Remastered 2021)
-04. This Is Us (feat. Emmylou Harris)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB5360689A8C43E14D3A3878EDDE8D41A881D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

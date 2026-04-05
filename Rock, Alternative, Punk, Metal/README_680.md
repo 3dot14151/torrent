@@ -1,3 +1,32 @@
+###  Публикация: 1575157   (377108) от 09.09.2022
+
+Allen/Olzon - Army Of Dreamers (2022) [MP3|320 Kbps] <Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Army of Dreamers 04:30
+02. So Quiet Here 04:47
+03. Out of Nowhere 04:31
+04. A Million Skies 05:19(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B47CE87469FFC0D141B469FF80E04381DFC5244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575263   (377107) от 09.09.2022
 
 Ермен Анти & Art Chaos Community - Груз 2022 (2022) [MP3|320 Kbps] <Punk Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377107.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377099.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Parkway Drive - Darker Still (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377097.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dream Theater - Lost Not Forgotten Archives: Images and Words Demos (1989-1991) 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377093.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377054.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377007.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Skid Row - The Gang's All Here (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377003.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ KMFDM - Hyena (2022) [MP3|320 Kbps] <Progressive Rock, Industrial Rock, Electro-
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377002.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Weddings - Book of Spells (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376997.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Abrams - In The Dark (2022) [MP3|320 Kbps] <Stoner Rock, Heavy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376992.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Drew Charron - Spring Moons (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376987.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Napalm Death - Throes Of Joy In The Jaws Of Defeatism (2020) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376984.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Emma Ruth Rundle & Thou - May Our Chambers Be Full (2020) [MP3|320 Kbps] <Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376976.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Scream Of The Butterfly - 2 Albums (2020-2022) [MP3|320 Kbps] <Heavy Stoner Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376916.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376903.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Kingdom Of Giants - Passenger (2020) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376856.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ One True Pairing - One True Pairing (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376851.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Hatchie - Keepsake (2019) [FLAC|Lossless|tracks + .cue] <Dream Pop, Shoegaze, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376850.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Chastity Belt - Chastity Belt (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376849.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Jimi Anderson Group - I Belong (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376845.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Roadrunner United - The All-Star Sessions (2005) [WavPack|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376728.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Triosphere - 3 альбома (2006-2014) [MP3|320 кб/с]<Power/Progressive Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376637.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ The New Pornographers - In the Morse Code of Brake Lights (2019) Scene [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376613.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Until the Uprising - Out of Time (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376442.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Exiled On Earth - Forces Of Denial (2016) [MP3|320 Kbps] <Progressive Metal, Thr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376437.jpg" />
 </div>
 
 
@@ -715,36 +744,6 @@ Exiled On Earth - Forces Of Denial (2016) [MP3|320 Kbps] <Progressive Metal, Thr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96F2B34246C9E5C9EF7D9056406565CE6F5DC16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574198   (376410) от 12.11.2012
-
-Red Moon Architect - Concealed Silence (2012) [MP3|320]<Melodic Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Abscond
-2. Funeral
-3. Death Rank
-4. Black Butterflies
-5. RealmЖанр: Melodic Doom/Death MetalПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43FD207D000E95ABA3A2270309B3BBCCB6C8E45
 ```
 
 https://mybot314.ru/tekegram_catalog/

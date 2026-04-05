@@ -1,3 +1,61 @@
+###  Публикация: 1317985   (497809) от 04.08.2019
+
+Jean Leloup - 1985-2003: Je joue de la guitare (2005) [FLAC|Lossless|tracks + .cue] <French Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alger (3:29)
+02. Printemps ete (2:25)
+03. Isabelle (2:50)
+04. L'amour est sans pitie (version inedite) (3:27)(   Читать дальше...   )Жанр: French RockПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9CE2BD275DD7AA6FD8CF23E4D041704B1BBC9CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317926   (497797) от 04.08.2019
+
+Desert - Fortune Favors the Brave (2019) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fix Bayonets! [4:26]
+ 03. Operation Thunderbolt [4:09]
+ 07. I Gave You a Kingdome (feat. Georg Neuhauser & Fabio D'amore) [4:31]
+ 04. Fortune Favors the Brave [3:56](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A9D8F8FD0CCF7415A7FF2D4F6FE3D4FC4D9783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564760   (497795) от 21.07.2022
 
 Besatt - Triumph of Antichrist (2007) [APE|Lossless|image + .cue] <Black Metal>
@@ -6,7 +64,7 @@ Besatt - Triumph of Antichrist (2007) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497795.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Black Capricorn - Cult Of Blood (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497792.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Lucid Grave - Cosmic Mountain (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497791.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Supasonic Fuzz - Cobracadabra (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497789.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Sons of Arrakis - Volume I (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497788.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Malicious Onslaught - Rebellious Mayhem (1992) [FLAC|Lossless|tracks] <Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497781.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Maul - Seraphic Punishment (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497780.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Santana - Supernatural-Legacy Edition (2010) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497770.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497755.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Narnia - From Darkness to Light (2019) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497752.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Molder - Engrossed In Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497738.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Glass Tides - Wake Me Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497734.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Blackslash - No Steel No Future (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497730.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Threar - You Live With What You Create (2022) [MP3|320 Kbps] <Melodic Hardcore, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497728.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ October Burns Black - Two Worlds Collide (2022) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497727.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Oceans of Slumber - Starlight and Ash (2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497726.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Highway Sentinels - The Waiting Fire (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497724.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Miss Crazy - Clones (2022) [MP3|320 Kbps] <Hard Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497719.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ The New Roses - Nothing But Wild (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497679.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ V.A. - The Many Faces Of Queen: A Journey Throught The Inner World Of Queen (201
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497669.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ White Palms - Хейтспич (2022) [MP3|320 Kbps] <Post Punk, Gothic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497653.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Lessmann/Voss - Rock Is Our Religion (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497652.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Sleeper Agent - Celabrasion (2011) [OGG| 456-521 кб/с]<Alternative Rock, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497559.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Sleeper Agent - About Last Night (2014) [OGG| 458-516 кб/с]<Alternative, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497555.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Sleeper Agent - About Last Night (2014) [OGG| 458-516 кб/с]<Alternative, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDDB0C1823822CD7F63B0048FBF82FFFBB62302D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935733   (497523) от 10.09.2015
-
-Lebowski - Cinematic (2010) [FLAC|Lossless]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trip To Doha 5:42
-02. 137 Sec. 7:13
-03. Cinematic 7:43
-04. Old British Spy Movie 5:11(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACBC507C680CA65F0463C7B51186B9A814AAA6BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935706   (497511) от 10.09.2015
-
-Lunatic Soul - Walking on a Flashlight Beam (2014) Special Edition CD+DVD [FLAC|Lossless]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shutting Out The Sun 8:40
-02. Cold 6:58
-03. Gutter 8:42
-04. Stars Sellotaped 1:34(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B27FDC1A48879986523EAD88A96EEC7B8095F68
 ```
 
 https://mybot314.ru/tekegram_catalog/

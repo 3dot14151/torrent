@@ -1,3 +1,188 @@
+###  Публикация: 1528348   (734945) от 01.02.2022
+
+Sinevibes Collection 2022.1 VST, AAX (x64) RePack by VR [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор эффект плагинов от Sinevibes для придания разнообразия в звучании ваших инструментов в миксах.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C40E286D93BD157ED53473CAE048D4B70207E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284252   (729946) от 20.02.2019
+
+Rob Papen - Vecto 1.0.0 VSTi, AAX (x86/x64) Repack by VR [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rob Papen Vecto — векторный синтезатор с 4 осцилляторами с большим количеством генерируемых и сэмплированных форм звуковой волны (аналоговые, аддитивные, спектральные). Главная фишка инструмента — возможность рисовать векторные пути, которые формируют звук, что значительно расширяет палитру воспроизводимых синтезатором сигналов. Чтобы рисовать векторы было проще, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5ED3ED919C88FFC287718BD6EFEBBAD334F3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530870   (727159) от 12.02.2022
+
+Sidify Music Converter 2.5.0 RePack (& portable) by elchupacabra (для Spotify) [Multi/Ru]
+
+>>След.
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sidify Music Converter - программа поможет без особых проблем снять защиту DRM с ваших любимых треков и плейлистов из Spotify. Говоря проще, вы теперь сможете скачивать любую музыку  из данного сервиса при этом преодолевая ограничения накладываемые защитой типа DRM (digital rights management). Установка проходит быстро, тут проблем нет, однако не стоит забывать, что (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FFB47B86A6111F23406DEAA5353B1DC3CABC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129311   (722131) от 28.04.2017
+
+MP3 Karaoke 6.1.9 RePack by вовава [Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722131.jpg" />
+</div>
+
+
+###  Подробнее
+
+MP3 Karaoke - бесплатная программа для создания караоке mp3-песен из ваших музыкальных коллекций mp3. MP3 Karaoke способен исключить и удалить человеческий вокальный голос из mp3-файлов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3567EAFAC06A548923681CC222B39C35CFA528E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219071   (716901) от 12.04.2018
+
+Avid Sibelius Ultimate 2018.4 Build 1696 (x64) [Multi/Ru]
+
+>>След.
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытайте самый быстрый, самый умный и простой способ писать музыку с помощью Sibelius - лучшего в мире программного обеспечения для нот музыки. Это популярный редактор нотных партитур для Microsoft Windows, Mac OS, Mac OS X и RISC OS от компании Sibelius Software
+(теперь часть Avid Technology). Этой программой пользуются композиторы, аранжировщики, исполнители, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DF05A186960958CB4EFD07862BDA2C0245F9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286714   (710809) от 03.03.2019
+
+Boom Library - Enforcer 1.2.0 VST, VST3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enforcer от Boom Library — басовый плагин, который насытит низкие частоты, добавит панча и мощности в ваш микс.
+
+Звук зависит от поступающего в прибор сигнала, и у вас есть достаточно много возможностей по его настройке. Вы можете подстроить бас под тон бочки или снейра, поджать некоторые частоты исходного материала или полностью заменить его, хотите ли вы добавить (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230C5A9A912E8DFA4574CC78D0653345D34AF2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533020   (708735) от 22.02.2022
+
+MAGIX Sequoia 15.5.0.681 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sequoia — это рабочая станция обработки цифрового аудио (DAW) для компьютеров с операционной системой Windows. Может применяться во многих областях: СМИ, пост-производство, радиовещание, производство музыки, реставрация архивов, мастеринг. Sequoia может справиться абсолютно со всеми задачами, какие только могут быть в музыкальной индустрии. В ней можно делать все: (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9DA7A16FCCFEE25599A659404AADB8C6CB530F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533408   (705178) от 24.02.2022
 
 ADPTR Audio Sculpt 1.0.5 VST, VST3, AAX (x64) [En]
@@ -6,7 +191,7 @@ ADPTR Audio Sculpt 1.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705178.jpg" />
 </div>
 
 
@@ -32,7 +217,7 @@ Tone2 - Gladiator 2 2.6 VSTi (x64) [En] (No install)
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702194.jpg" />
 </div>
 
 
@@ -58,7 +243,7 @@ Roland - VS SYSTEM-1 1.1.0 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699756.jpg" />
 </div>
 
 
@@ -85,7 +270,7 @@ Roland - VS PROMARS 1.0.9 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699638.jpg" />
 </div>
 
 
@@ -111,7 +296,7 @@ Roland - VS SH-2 1.1.1 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699627.jpg" />
 </div>
 
 
@@ -138,7 +323,7 @@ Roland - VS SYSTEM-8 1.3.1 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699623.jpg" />
 </div>
 
 
@@ -164,7 +349,7 @@ Roland - VS SYSTEM-100 1.0.8 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699511.jpg" />
 </div>
 
 
@@ -191,7 +376,7 @@ Roland - VS JUPITER-8 1.0.6 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699507.jpg" />
 </div>
 
 
@@ -217,7 +402,7 @@ NUGEN Audio - Monofilter 4.1.15 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699502.jpg" />
 </div>
 
 
@@ -244,7 +429,7 @@ Ample Sound - Ample Bass Yinyang III v3.1.0  [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699449.jpg" />
 </div>
 
 
@@ -270,7 +455,7 @@ Roland - VS D-50 1.6.0 VSTi, VSTi3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699364.jpg" />
 </div>
 
 
@@ -297,7 +482,7 @@ EZ CD Audio Converter 10.0.3.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697407.jpg" />
 </div>
 
 
@@ -323,7 +508,7 @@ HY-Plugins - HY-MBMFX2 1.0.67 VST, VST3 (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695553.jpg" />
 </div>
 
 
@@ -349,7 +534,7 @@ Sound Particles - 4FX Bundle 02.2022 VST, VST3, AAX (x64) RePack by Zom [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694136.jpg" />
 </div>
 
 
@@ -376,7 +561,7 @@ FabFilter All Plug-Ins 2022.02.15 + Legacy VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690364.jpg" />
 </div>
 
 
@@ -402,7 +587,7 @@ Boom Library - ReCenter 1.0.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686340.jpg" />
 </div>
 
 
@@ -429,7 +614,7 @@ AoA Audio Extractor Platinum v2.2.9 [Английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_667143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667143.jpg" />
 </div>
 
 
@@ -455,7 +640,7 @@ Cakewalk SONAR Platinum 23.5.0 Build 29 (2017.05) [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665028.jpg" />
 </div>
 
 
@@ -481,7 +666,7 @@ Text to Speech Converter 1.26.05 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657349.jpg" />
 </div>
 
 
@@ -493,198 +678,6 @@ Pistonsoft Text to Speech Converter вы можете конвертироват
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6B3EF232E92E68264F731D3E7EBF52A077DFA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540310   (653967) от 29.03.2022
-
-Futurephonic - Rhythmizer 2.1.1 VST [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhythmizer 2.1 - это новаторское устройство Max4Live от исполнителя Раффаэля Вилли (Jumpstreet), которое сочетает в себе мощный ритмический потенциал Rhythmizer One с невероятным новым диапазоном мелодических возможностей.
-Нет ничего проще, чем использовать этого маленького монстра - подключите его перед любым синтезатором или барабанной стойкой и нарисуйте одну (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7FA85841B3F1939F8BFBD20A010DD7C5609C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540301   (653966) от 29.03.2022
-
-Black Salt Audio All Plug-Ins 03.2022 VST, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Escalator проходит сложный процесс насыщения и сводит его всего к одной ручке. Он отлично звучит на барабанах, вокале, струнных, гитарах и на всем остальном, что вы хотите выделить в миксе. Зарядите свои треки одним поворотом ручки.
-
-Low Control был разработан, чтобы дать вам максимальный контроль с помощью одного плагина. Легко наберите идеальные низкие частоты (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E32A346809D18917C000A97E09599B44E4580A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516755   (650958) от 29.06.2012
-
-Arturia - Prophet V v2.0 Incl Keygen by AiR[английский]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_650958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виртуальный синтезатор Arturia Prophet V является гибридом из двух известных синтезаторов от Sequential Circuits: цифровой Prophet VS и аналоговый Prophet 5 . Этакий замечательный, два в одном! Имеется режим Prophet Hybrid, который сочетает в себе все возможности двух синтезаторов. Полифония от 1-го, до 32-х голосов.Темп хост-программы синхронизируются с LFO . Есть стереофонический синхронизируемый дилей и хорус . Вы также можете импортировать патчи из оригинальных инструментов. В комплекте прилагается более четырёхсот пресетов.
-
-•Название программы: Arturia - Prophet V v2.0Язык интерфейса: английскийФормат: Standalone,VSTi,RTAS
-•
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540756   (650579) от 31.03.2022
-
-Hotone - VStomp Amp 1.2.1 Standalone, VST, VST3, AAX (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650579.jpg" />
-</div>
-
-
-###  Подробнее
-
-VStomp Amp — это новый прорыв в программном обеспечении виртуальных усилителей. После разработки мощной и универсальной педали XTOMP от Hotone и на основе нашей запатентованной системы CDCM, VStomp Amp обеспечивает органичное качество звука студийного уровня и точный характер легендарных усилителей.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B339E198C3EF6EED9CC4E2849E225719919D8ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905716   (649155) от 06.06.2015
-
-Aimersoft Music Recorder 1.0.1 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нравится слушать музыку онлайн, то было бы прекрасно иметь возможность записывать понравившиеся мелодии. Aimersoft поможет вам в этом. С этой программой вы сможете сделать запись в высоком качестве M4A/MP3 буквально в одно нажатие мышки.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B15303C58C7D5C0862A5807821FC2CF67FF82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540999   (648650) от 01.04.2022
-
-Martinic - AX73 1.1.0 VSTi (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648650.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1986 году поле синтезаторов было усеяно цифровыми технологиями. Вот почему оригинальный AX73 с его полностью аналоговым сигнальным трактом остался в гордом одиночестве незамеченным. Martinic взяли все, что было ценно в оригинальном AX73, и превратили его в мощный, гибкий программный инструмент, который отлично вписывается в модельный ряд современных синтезаторов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7088BD6B8DBE86FBBD621EDFB9985570CC2BB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517594   (647265) от 01.07.2012
-
-PSPaudioware - PSP BussPressor v.1.0 x86 x64 [английский]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_647265.jpg" />
-</div>
-
-
-###  Подробнее
-
-PSPaudioware PSP BussPressor 1.0 (Компрессор) - оптимизированный специально под групповую обработку каналов также для обработки на мастер шине. Это отличный классический звук VCA компрессии с широчайшими возможностями в подстройке. Управление было непосредственно реализованное в PSP BussPressor таким образом чтоб вы могли точно регулировать всю боковую цепочку высокочастотного фильтра или же применять параллельную компрессию.
-
-- Производитель: PSPaudioware
-- Год выпуска: 2012
-- Формат: VST, RTASНазвание программы: PSPaudioware - PSP BussPressor v.1.0Язык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

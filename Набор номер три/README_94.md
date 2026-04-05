@@ -1,3 +1,164 @@
+###  Публикация: 862368   (929578) от 23.01.2015
+
+Profileschool | Творческая Ретушь Vol.2 (2014) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творческая ретушь – очень сложный и интересный онлайн курс, который весомо отличается от курса поКоммерческой ретуши, но основывается на тех же Базовом и Продвинутом курсах Photoshop. Поэтому мы считаем этот курс логичной второй ступенью: от иллюстраторов – к живописцам, от музыкантов – к композиторам, от ремесленников – к мастерам.Жанр: Ретушь фотоПродолжительность: 16:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21432C769D8812585EEC9EE52D3145D292B9D82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851464   (929569) от 23.01.2015
+
+Metal Gear Solid V Ground Zeroes (2014) [Ru/Multi] (1.003) SteamRip Let'sPlay
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирно известная студия Kojima Productions представляет вашему вниманию свой очередной шедевр из серии Metal Gear Solid - Metal Gear Solid V: Ground Zeroes. Это первая часть игры Metal Gear Solid V Experience, которая служит прологом к грядущей более масштабной второй части Metal Gear Solid V: The Phantom Pain.
+MGSV: GZ приглашает самых заядлых геймеров опробовать (   Читать дальше...   )Тип издания: SteamRipРазработчик: Kojima ProductionsЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Японский, ПортугальскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Японский, Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D521672416967F2F6C418C4BC31B742F3CA764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862240   (929567) от 23.01.2015
+
+Ёлки 1914 (2014) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Россия, Базелевс ПродакшнЖанр: Комедия, Семейный, ДрамаРежиссер: Ольга Харина, Тимур Бекмамбетов, Заур ЗасеевАктеры: Константин Хабенский, Иван Ургант, Сергей Светлаков, Евгения Брик, Нина Дворжецкая, Ирина Архипова, Альберт Филозов, Елена Плаксина, Антон Богданов, Ян ЦапникПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F72204E63BF5BC548EE29DD5F1F8F1D9904F4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630084   (929524) от 14.03.2013
+
+Dead Space 3: Awakened [Ru/En] (RePack/1.0.0.1) 2013 | R.G. Repacker's
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Space 3 отправляет Айзека Кларка и безжалостного солдата Джона Карвера в глубины космоса, где спрятан источник нашествия Некроморфов. Совершив аварийную посадку на скованной холодом планете Тау Волантис, они будут вынуждены противостоять враждебной среде, искать необходимые ресурсы и оборудование. Айзеку понадобятся весь его опыт и навыки, чтобы обойти ловушки, собрать и улучшить оружие. В глубинах планеты таится ответ, который позволит раз и навсегда положить конец Некроморфам. Но путь к нему стерегут лавины, ледники и опасные хищники. Айзеку и его напарнику предстоит сражаться вместе, чтобы спасти человечество от апокалипсиса.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5998F310E0926F0BAF032F479EB03FFC7C7988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629926   (929520) от 14.03.2013
+
+Gears of War: Judgment [XBOX360] [Region Free] [RUSSOUND] [LT+3.0] (XGD3 / 15574) (2013) | R.G. X360Club
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Gears of War: Judgment стала одной из самых динамичных и сложных по сюжетной линии игр, возвращающих вас в наиболее значимый день Вселенной, где разворачиваются события игры, – в момент, наступивший сразу после Дня Прорыва. Игра как будто впервые испытывает вас на прочность характера в супер динамичном многопользовательском режиме.
+Сюжет новой серии «Judgment» вращается вокруг отряда солдат Kilo Squad, который возглавляют Деймон Байрд (Damon Baird) и Август «Колтрейн» Кол (Augustus «The Cole Train» Cole), сформированного за несколько лет до событий предыдущей серии трилогии Gears of War.
+В этой серии к ним присоединились новички София Хендрикс и Гарон Падак, объединенные одной целью – спасти оккупированный новым ужасным врагом город Халво Бей.
+
+Gears of War: Judgment предоставляет возможность совместной игры с тремя друзьями через Xbox LIVE (всего 4 человека), с которыми вы сможете спасти планету Сера от уничтожения Локустами. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Epic Games и People Can FlyЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42FF057079581949C56AA477146D6D6BE9937F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628364   (929518) от 14.03.2013
+
+Pinnacle Studio 16 Ultimate 16.1.0.115 VPP 2013 (58.2GB) [MULTi / Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Corel официально выпустил новую версию известнейшей платформы для обработки видеоматериалов Pinnacle Studio 16. Это первый релиз Pinnacle Studio с тех пор, как компания Corel приобрела бизнес компании Avid по выпуску потребительских инструментов видеомонтажа в июле этого года. На данный момент компания Corel свертывает развитие линейки продуктов Avid Studio, (   Читать дальше...   )Язык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754448   (929334) от 09.02.2014
 
 Летние Олимпийские игры 1980 в Москве (1980) SATRip [EN]
@@ -6,7 +167,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929334.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928650.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928560.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ Windows 7 Professional SP1 x64 Game OS 3.0 Final by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928559.jpg" />
 </div>
 
 
@@ -110,7 +271,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928558.jpg" />
 </div>
 
 
@@ -136,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928556.jpg" />
 </div>
 
 
@@ -162,7 +323,7 @@ CorelDRAW Graphics Suite 2020 22.0.0.412 Full / Lite RePack by KpoJIuK [Multi/Ru
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928555.jpg" />
 </div>
 
 
@@ -188,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928543.jpg" />
 </div>
 
 
@@ -215,7 +376,7 @@ Street Fighter 4 / Уличный Боец 4 [Ru/En] (RePack) 2009| z10yded
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_928509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_928509.jpg" />
 </div>
 
 
@@ -245,7 +406,7 @@ Adobe Acrobat X Professional v.10.0.0 DVD [RUS / ENG]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_928492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_928492.jpg" />
 </div>
 
 
@@ -271,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928431.jpg" />
 </div>
 
 
@@ -297,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928427.jpg" />
 </div>
 
 
@@ -323,7 +484,7 @@ Opera 12.18 Build 1872 (x86) / 1873 (x64) Final [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928424.jpg" />
 </div>
 
 
@@ -349,7 +510,7 @@ Wolfenstein The Old Blood (2015) [Ru/Multi] (1.0.0.1464/upd1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928422.jpg" />
 </div>
 
 
@@ -375,7 +536,7 @@ Microsoft Windows 7 Enterprise SP1-u with IE11 - DG Win&Soft 2016.02 (en-US, ru-
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928421.jpg" />
 </div>
 
 
@@ -401,7 +562,7 @@ Windows 10 Pro (x86/x64) Elgujakviso Edition (v.18.01.17) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928401.jpg" />
 </div>
 
 
@@ -430,7 +591,7 @@ Adobe Illustrator CC 2017 (v21.0.2) x86-x64 RUS/ENG Update 2
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928400.jpg" />
 </div>
 
 
@@ -456,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928399.jpg" />
 </div>
 
 
@@ -482,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928398.jpg" />
 </div>
 
 
@@ -509,7 +670,7 @@ Navitel / Навител Навигатор 9.7.2172 Full [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928397.jpg" />
 </div>
 
 
@@ -521,166 +682,6 @@ Navitel / Навител Навигатор 9.7.2172 Full [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECE5CA4966B4FFC29F385B4C4BBA41943F443D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089241   (928396) от 18.01.2017
-
-Шерлок / Sherlock (2016-2017) HDTVRip [H.264/720p-LQ] (сезон 4, серии 0-3 из 3) Первый канал
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пилотная серия сезона. Действие фильма происходит в 1895 года в Лондоне. К Шерлоку за помощью обращается некий Томас Риколетти. Он увидел свою жену в старом свадебном платье и очень удивился. А вскоре узнал, что она покончила с собой всего за несколько часов до этой странной встречи. Получается, что он видел призрак жены и, что еще хуже, теперь призрак миссис Риколетти (   Читать дальше...   )Производство: Великобритания, США / Hartswood Films, BBC Wales, Masterpiece TheatreЖанр: триллер, драма, криминал, детектив,Режиссер: Дуглас МакКиннонАктеры: Бенедикт Камбербэтч, Мартин Фриман, Уна Стаббс, Лу Брили, Руперт Грэйвз, Джонатан Арис, Аманда Эббингтон, Наташа О’Кифф и др.Перевод: Дублированный (Первый канал)Язык субтитров: русскийПродолжительность: ~01:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFE6069A96A99EC2D1D51F2EAD07662D1D38FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862259   (928048) от 24.01.2015
-
-Ёлки 1914 (2014) BDRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928048.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 лет назад, Российская империя... Канун Рождества. Декабрьские пробки, праздничные гулянья, роскошные балы и скромные праздники, титулованные дворяне и обычные крестьяне, царская семья и солдаты первой мировой войны, прогрессивные поэты и первые фигуристы - все было по-другому, за исключением ... праздника. Люди готовились, жили, верили, мечтали и ждали настоящего (   Читать дальше...   )Производство: Россия, Базелевс ПродакшнЖанр: Комедия, Семейный, ДрамаРежиссер: Ольга Харина, Тимур Бекмамбетов, Заур ЗасеевАктеры: Константин Хабенский, Иван Ургант, Сергей Светлаков, Евгения Брик, Нина Дворжецкая, Ирина Архипова, Альберт Филозов, Елена Плаксина, Антон Богданов, Ян ЦапникПеревод: Не требуется (русский) (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F5A094B6C11D8525E90A865EBC7EAF9F8C4641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862599   (928044) от 24.01.2015
-
-Max Payne 2: The Fall of Max Payne (2003) [Ru/En] (1.01) Repack R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все в жизни потеряло смысл. Макс Пэйн возвращается в полицию. В ходе одного из расследований он неожиданно встречает Мону Сакс — роковую красотку, которую считал давно погибшей. Мону подозревают в убийстве, и она — ответ на все вопросы Макса. Но в темных трущобах нью-йоркской клоаки удача не улыбается никому. Полицейскому-одиночке противостоит целая армия беспринципных мерзавцев и негодяев. Путешествие по кругам личного ада Макса Пэйна продолжается.
-(   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar StudiosЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A42FDE72D60C2DD82EAD50EA110EE77C30D53DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862596   (928043) от 24.01.2015
-
-Max Payne (2001) [Ru/En] (1.05) Repack R.G. Catalyst
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший полицейский Макс Пейн в одночасье потерял все. Его семья погибла от рук наркоманов, затем его обвинили в убийстве его друга и начальника, вдобавок ко всему на него обозлилась мафия, которой кто-то сообщил, что Макс был внедрен в одну из банд и собирал информацию для полиции... Все против него, и Пейну остается только одно – продолжать мстить всем, кто приложил руку к его несчастьям. Ему уже нечего терять, он агрессивен, резок и не оставляет за спиной врагов.
-(   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar StudiosЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31AF3F68855CED69371E8765650DBC1AC7353D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862621   (928042) от 24.01.2015
-
-Ограбление по-американски / American Heist (2014) WEB-DL [H.264/720p-LQ] [AVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928042.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Джеймса темное прошлое, но сейчас он из всех сил пытается изменить свою жизнь — встречается с красивой девушкой, устроился работать автомехаником, мечтает о собственном бизнесе. Тем временем, его старший брат Френки, отсидевший десять лет в тюрьме, выходит на свободу. Френки пытается наладить отношения, но Джеймс не может простить брата за то, что много лет назад (   Читать дальше...   )Производство: США, РоссияЖанр: Триллер, Криминал, ДрамаРежиссер: Сарик АндреасянАктеры: Эдриен Броди, Хэйден Кристенсен, Джорданна БрюстерПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: Алексей ЯковлевСубтитры: ОтсутствуютПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C86A274287E0EFD9C05A5B7AEA70AB2A5D5979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571445   (927891) от 15.03.2013
-
-Sleeping Dogs: Limited Edition + 25 DLC [Ru/En] (RePack/2.1.437044) 2012 | R.G. Revenants
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Гонконг, город, в котором дрожащий свет неоновых огней тесно переплетается с повседневной жизнью, город, чьи экзотические места и бурлящие улицы скрывают одну из самых могущественных и опасных криминальных организаций во всем мире — Триад.
-
-В этой игре с открытым миром вам предстоит примерить на себя роль Вей Шена, полицейского под прикрытием, который пытается разрушить банды Триад изнутри. Докажите свою значимость на пути к верхушкам этой организации, приняв участие в жестоких криминальных операциях, и не дайте преступникам раскрыть себя. Разрываясь между верностью к полицейскому значку и бандитским кодексом чести, вам придется поставить на кон всё и не запутаться в размытых границах между правдой, преданностью и справедливостью.(   Читать дальше...   )Тип издания: RepackРазработчик: United Front GamesЖанр: Action, Open worldЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4213C40582C0E28C7A323F68E2C277D75F07958
 ```
 
 https://mybot314.ru/tekegram_catalog/

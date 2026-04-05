@@ -1,3 +1,56 @@
+###  Публикация: 1510123   (792021) от 15.11.2021
+
+Волчица / Матушка Гусыня / Gasmamman (2016) BDRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792021.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Волчица" - это захватывающая шведская криминальная драма-триллер, завоевавший любовь зрителя в Швеции и за ее пределами. До сих пор вышло три сезона, в 2019 обещают четвертый сезон.
+Соня (Александра Рапапорт) живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, шведские, датские, норвежские, финскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8FC491D28DD6F3E8AF38AEAEC7DB504BBD992E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510138   (792017) от 15.11.2021
+
+Волчица / Матушка Гусыня / Gasmamman (2019) WEB-DLRip (сезон 4, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF27F9D6A81D51640150944D162931E43BA882E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271654   (792008) от 08.01.2019
 
 Я жив / Estoy vivo (2018) HDTVRip (сезон 2, серии 1-13 из 13) ViruseProject [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792008.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791952.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791894.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791744.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791743.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791730.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790137.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788814.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787906.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787437.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787433.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787418.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785998.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785996.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784810.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784794.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784529.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783684.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782579.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782468.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782006.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780471.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779445.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777722.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:522E6A1ECFA10175BAECF812008E44B65B151E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988502   (777405) от 04.05.2016
-
-Люцифер / Lucifer (2016) WEB-DLRip (сезон 1, серии 1-13 из 13) NewStudio [AD]
-
->>След.
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заскучавший и несчастный повелитель преисподней, Люцифер Морнингстар оставил свой престол и отправился в современный Лос-Анджелес, где основал ночной клуб «Lux». Очаровательный, харизматичный и дьявольски привлекательный Люцифер наслаждается своим отдыхом — вином, женщинами и музыкой — пока красивая поп-звезда не оказывается убитой на пороге его клуба…Производство: США / Aggressive Mediocrity, DC Entertainment, Jerry Bruckheimer Television, Warner Bros. TelevisionЖанр: детектив, драма, фэнтезиРежиссер: Лен УайзманАктеры: Том Эллис, Лорен Джерман, Кевин Алехандро, Д.Б. Вудсайд, Лесли-Энн Брандт, Рэйчел Харрис, Кайла Юэлл, Скарлет Эстевез, Джонатан Салисбери, Мэтт Корбой и др.Перевод: Многоголосый, профессиональный - NewStudioЯзык озвучки: русский, английскийПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387D8F3DA28DFC71C8D775F80C72FC0FB37DCC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212191   (776268) от 10.03.2018
-
-Джессика Джонс / Jessica Jones (2018) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-13 из 13) Sunshine Studio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776268.jpg" />
-</div>
-
-
-###  Подробнее
-
-После трагических событий, оборвавших короткую супергеройскую карьеру Джессики Джонс, девушка пытается восстановить свою личную жизнь и свою карьеру частного детектива, расследуя таинственную активность людей со сверхспособностями в Нью-Йорке.Производство: США / ShondaLand, ABC StudiosЖанр: фантастика, боевик, триллер, драма, криминалРежиссер: С.Дж. Кларксон, Дэвид Петрарка, Стивен СерджикАктеры: Кристен Риттер, Дэвид Теннант, Майк Колтер, Рэйчел Тейлор, Кэрри-Энн Мосс, Эйка Дарвилл, Эрин Мориарти, Уил Трэвэл, Сьюзи Абромейт, Фил КаппадораПеревод: Двухголосый закадровый, любительский - Sunshine StudioПродолжительность: ~00:50:00 серияРеклама: присутствуют аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24AE6537A96FE63BB575A467CA5EAEEE221F97B
 ```
 
 https://mybot314.ru/tekegram_catalog/

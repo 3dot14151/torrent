@@ -1,3 +1,138 @@
+###  Публикация: 1379762   (837232) от 30.04.2020
+
+Toaru Majutsu no Index III | Некий Магический Индекс [TV-3] [2018, TV, 26 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир стоит на пороге войны между наукой и магией. В качестве сторон конфликта выступают: Академия-Сити (Япония), Англиканская церковь (Великобритания) против Римско-Католической церкви во главе с «Троном справа от Бога» (Италия, Франция) и Русской Православной Церкви (Россия).
+Карисса, она же вторая принцесса Британии, считает, что помощь Академии-Сити в войне не (   Читать дальше...   )Производство: J.C. Staff, ЯпонияЖанр: Приключения, Комедия, Мистика, ФантастикаРежиссер: Нисикиори ХиросиОзвучка: Одноголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 26 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A190237601917CEEFB1C65A10A0D753EEF9A21C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379760   (837231) от 30.04.2020
+
+Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический Индекс: Чудо Эндимиона [2013, Movie + Special] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837231.jpg" />
+</div>
+
+
+###  Подробнее
+
+События фильма развиваются сразу после окончания строительства космического подъёмника «Эндимион» в Академия-Сити. Главный герой Тома Камидзё и его подруга Индекс случайно сталкиваются с Арисой Мэйго, эспером нулевого уровня.
+По непонятным причинам «Ассоциация магов» преследует Арису и нападает на Академия-Сити. Чтобы защитить город от угрозы, образуется движение (   Читать дальше...   )Производство: J.C. Staff, ЯпонияЖанр: Приключения, МистикаРежиссер: Нисикиори ХиросиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: Movie 01:30:08; Special 00:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB9C6027C0D3EEADD028D050E624A7F0FDC54DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379758   (837229) от 30.04.2020
+
+Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009, TV, 24 ep + OVA + 3 Specials] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Академия-Сити. Население 2,3 миллиона. 80 процентов учащихся принимают активное участие в «Программе по развитию мозга». Их называют эсперами, и только семеро из них достигли 5-го уровня.
+Знакомьтесь c главными героями, гражданами Академии-Сити: Микото Мисакой и её подругой Куроко Сираи. Они следят за порядком в городе, и в то время, как Куроко является членом организации (   Читать дальше...   )Производство: J.C. Staff, ЯпонияЖанр: Приключения, Комедия, ФантастикаРежиссер: Нагай ТацуюкиОзвучка: Одноголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 24 Эпизодов по 23 Мин; OVA 34 Мин.; Specials 8 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCE588CFBC435A44D5F58F58BE13B69E9F21273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 673567   (836803) от 18.03.2015
+
+Kami-sama Hajimemashita / Kamisama Hajimemashita / Очень приятно, Бог [ТВ-1] [2012, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непутевый отец сбежал, проигравшись в дым, а дочь, 17-летнюю Нанами Момодзоно, грубые люди в черном выбросили из дома. Бедняжка вместе с пожитками отправилась в парк и вдруг среди ночи услышала голос, умолявший спасти от злой собаки. Прогнав не такого уж страшного пса, Нанами разговорилась с симпатичным незнакомцем и незаметно выложила свою печальную историю. Парень, назвавшийся Микагэ, пожалел девушку и в благодарность предложил ей пожить в его доме. Сам же он возвращаться не хочет, поскольку дома давно не (   Читать дальше...   )Жанр: комедия, романтика, мистика, сёдзёРежиссер: Дайти АкитароПеревод: SakaE  (01-08), Rindroid (09-13)Формат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB3139799082A2B45CE2DDE362F12C90DD4695A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473407   (835858) от 09.10.2021
+
+Моя геройская академия [ТВ-5] / Boku no Hero Academia 5 / My Hero Academia Season 5 [2021, TV, 25 ep] WEB-DL 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый герой должен досконально владеть своим даром. Чтобы умело его контролировать понадобится обучение. Специально для такого открыли Геройскую Академию. Но можно ли туда попасть простому человеку, который не имеет никаких способностей? На самом деле с даром можно не только родится, а и получить в награду от супергероя.
+
+Простой парнишка Идзука Мидория не обладает (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Нагасаки КэндзиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 25 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333A6D17D2042D8108259D801A1B12E216628339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956593   (835769) от 07.04.2016
 
 Miss Monochrome 3 / Мисс Монохром 3 [2015, TV, 13] HDTV 720p rus
@@ -6,7 +141,7 @@ Miss Monochrome 3 / Мисс Монохром 3 [2015, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835769.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835756.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ Heavy Object / Тяжёлый объект [2015, TV, 24 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835751.jpg" />
 </div>
 
 
@@ -84,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835520.jpg" />
 </div>
 
 
@@ -110,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834965.jpg" />
 </div>
 
 
@@ -136,7 +271,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 из 12] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834801.jpg" />
 </div>
 
 
@@ -163,7 +298,7 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834464.jpg" />
 </div>
 
 
@@ -189,7 +324,7 @@ Full Metal Panic? Fumoffu | Full Metal Panic Fumoffu | Fullmetal Panic Fumoffu |
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833688.jpg" />
 </div>
 
 
@@ -215,7 +350,7 @@ Full Metal Panic! The Second Raid | Full Metal Panic! Owaru Day By Day | Ста�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833687.jpg" />
 </div>
 
 
@@ -241,7 +376,7 @@ Full Metal Panic! | Стальная тревога! [2002, TV, 24 эп.] BDrip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833686.jpg" />
 </div>
 
 
@@ -267,7 +402,7 @@ Pokemon: Battle Frontier (9 Season) / Покемон: Боевой Рубеж (9
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831946.jpg" />
 </div>
 
 
@@ -293,7 +428,7 @@ Hai to Gensou no Grimga / Гримгал пепла и иллюзий [2016, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829979.jpg" />
 </div>
 
 
@@ -320,7 +455,7 @@ Fairy Tail Zero / Фейри Тейл Зеро [2016, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828087.jpg" />
 </div>
 
 
@@ -346,7 +481,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827419.jpg" />
 </div>
 
 
@@ -372,7 +507,7 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827350.jpg" />
 </div>
 
 
@@ -398,7 +533,7 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827349.jpg" />
 </div>
 
 
@@ -424,7 +559,7 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827348.jpg" />
 </div>
 
 
@@ -450,7 +585,7 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827347.jpg" />
 </div>
 
 
@@ -478,7 +613,7 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827346.jpg" />
 </div>
 
 
@@ -504,7 +639,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826312.jpg" />
 </div>
 
 
@@ -530,7 +665,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826231.jpg" />
 </div>
 
 
@@ -543,137 +678,6 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9B2A4D7A84649C5EBEAD8B6CEC6123D9B4EBF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379769   (825620) от 07.05.2020
-
-OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Любовное Кино, но какое-то не то... [TV-1] [2013, TV, 13 ep + OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история об одном необщительном юноше, Хачимане Хикигае. У него свой искажённый взгляд на жизнь, поэтому не завёл себе парень ни друзей, ни подружки. Всё это, цинично считает он, лживая клоунада, а потому его не касается, ему не нужно. Хикигая учится в старшей школе и, когда видит одноклассников, возбуждённо обсуждающих свою бурную подростковую жизнь, по обыкновению (   Читать дальше...   )Производство: Brains Base, ЯпонияЖанр: Комедия, Романтика, ПовседневностьРежиссер: Ёсимура АйОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 14 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724C986ACA3ACE3867D35EBFBBB7AD18CAA72C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379770   (825619) от 07.05.2020
-
-OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь - Любовное Кино, но какое-то не то... [TV-2] [2015, TV, 13 ep + OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хачиман Хикигая — ученик старшей школы без друзей и каких-либо интересов — был вынужден присоединиться к клубу помощи и постепенно оказался втянут в череду школьных событий, неоднозначно раскрывающих его личностные качества. «Серый кардинал», непризнанный гений или обыкновенный подросток, нуждающийся в друзьях... Да ещё эта неудачная первая влюблённость, которая (   Читать дальше...   )Производство: Feel, ЯпонияЖанр: Комедия, Романтика, ПовседневностьРежиссер: Ойкава КэйОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 14 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691B08EA5408E8E7FE761A4375AFC55F6467FA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373532   (825618) от 07.05.2020
-
-Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825618.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Красная черта» — самый масштабный и смертельный гоночный турнир во Вселенной. И, так как проводится он раз в пять лет, каждый хочет попытаться снискать славы и принять участие в нём. Среди таких желающих и Джей Пи, безрассудный смельчак-гонщик, который не обращает внимание на скоростные ограничения, мчась на своём тюнингованном авто. В то же время все криминальные (   Читать дальше...   )Производство: Madhouse Studios, ЯпонияЖанр: Приключения, Фантастика, РомантикаРежиссер: Койкэ ТакэсиОзвучка: Двухголосая, Многоголосая закадровая, ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355BD76D6EE380024848A7B288E7A8BBCA58E7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381487   (825617) от 07.05.2020
-
-Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825617.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чёрный Мечник» Гатс продолжает своё нелёгкое путешествие с целью найти своего бывшего друга Гриффита, ответственного за страдания множества людей и по вине которого Каска, любимая женщина Гатса, потеряла рассудок. Только жажда мести держит героя в этом мире. Только ради неё он готов продолжать свои нескончаемые поиски. Обременённый постоянными сражениями с нечистью, (   Читать дальше...   )Производство: Millepensee, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Итагаки СинОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 24 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E59A85BA7A0C261B8D061AF1DC5B5502B2227FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342899   (825616) от 07.05.2020
-
-Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виолетта Эвергарден, молодая девушка, чья жизнь — не что иное, как война, послушно служит под командованием майора Гилберта Бугенвиллеи из армии Ляйденшафтлиха.
-После серьёзных увечий, оставивших её без рук и разделивших с Гилбертом, она покинула поле боя и была взята под опеку бывшим командующим армии Клаудией Ходжинсом, который после окончания войны основал почтовую (   Читать дальше...   )Производство: Kyoto Animation, ЯпонияЖанр: Повседневность, ДрамаРежиссер: Исидатэ ТайтиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 25 мин.; 1 Эпизод 34 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5117BC59BB705AC08A659CCAB393EF954A97C778
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 910352   (622382) от 20.06.2015
+
+Леонид Жариков | Червонные сабли (1984) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Червонные сабли» - продолжение давно известной и полюбившейся «Повести о суровом друге» писателя Леонида Жарикова. Из новой повести читатель узнает, как сложилась судьба Леньки Устинова, отважного кавалериста-буденновца, как с саблей в руках он защищал Республику труда, как мстил врагам за смерть своего друга Васи Руднева, с которым плечо к плечу отважно (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEB3639F5C72BDCBF36E17FE3F2800AFCDAF66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910358   (622236) от 20.06.2015
+
+Леонид Жариков | Судьба Илюши Барабанова (1985) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогой друг!
+Перед тобой третья, заключительная книга трилогии о революции писателя Леонида Жарикова.
+Если в первых двух книгах — «Повесть о суровом друге» и «Червонные сабли» — перед тобой проходили вдохновенные события революционной поры, то здесь, в повести «Судьба Илюши Барабанова», автор рассказывает о том, в какой жестокой борьбе рождалась первая в мире Республика (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039058EEA8487258B3ACF6A06059662D42009800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910347   (622217) от 20.06.2015
 
 Леонид Жариков | Повесть о суровом друге (1983) [DJVU, FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622217.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622188.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622155.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622016.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622009.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621784.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621780.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621773.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621549.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621545.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621357.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621095.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620836.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620800.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620798.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620732.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620669.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620638.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620484.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620463.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620377.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620353.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620231.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620108.jpg" />
 </div>
 
 
@@ -631,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C06F1D232BFAE4CD728E7372A09B9728F781B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910714   (620105) от 21.06.2015
-
-Н.П. Третьяков | Как ухаживать за домашней птицей (1950) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620105.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре описаны различные виды домашней птицы, даны рекомендации по ухаживанию за ней, а так же описано устройство инкубатора на 100 яиц. Брошюра рассчитана на детей школьного возраста, но может оказаться полезной всем, кто связан с птицеводством.Жанр: ПтицеводствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D74731167B7ABB9FA38A256E17EDF3ABD7C1E289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910715   (619969) от 21.06.2015
-
-Н. Мельникова | Школьная теплица (1950) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619969.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре описаны различные виды теплиц, а так же процесс постройки теплицы. Брошюра рассчитана на детей школьного возраста, но может оказаться полезной всем, кто связан с тепличной деятельностью.Жанр: СадоводствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9246942A20F9515A985DA54FD32E770CD8088B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

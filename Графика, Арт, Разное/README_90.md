@@ -1,3 +1,29 @@
+###  Публикация: 936814   (492267) от 13.09.2015
+
+Обои - Дороги 3 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему дорогФормат: JPGРазрешение файлов: 1920x1080 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A300BA98C075A1B32BD7E28D539606FED53EF31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936981   (492266) от 13.09.2015
 
 Обои - Горы 16 [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492266.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492264.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492228.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492131.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492125.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492120.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492110.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492101.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492034.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492021.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491784.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491781.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491416.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490044.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489901.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489748.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489400.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489173.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Artworks by Tiziano Vecellio [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489151.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489060.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488817.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487943.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487633.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487003.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486886.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FF277E93689F8E5289F7A6044193848C38F33EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382791   (486851) от 04.09.2011
-
-Фотография - Bugatti [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bugatti (Бугатти) - знаменитая французская компания по производству спортивных и эксклюзивных автомобилей. Легендарная марка автомобилей, пережившая смерти своих основателей и нашедшая в себе силы и дальше поражать вообрахение ценителей гоночных автомобилей.Формат: JPGРазрешение файлов: 932х600 - 5063х2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB38783EC904B22844CFEEC59F685721D0A23A17
 ```
 
 https://mybot314.ru/tekegram_catalog/

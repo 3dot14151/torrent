@@ -6,7 +6,7 @@ Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667962.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667212.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665981.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661920.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660496.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660453.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657478.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ DVJ Bazuka - Summer Love (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656622.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651227.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Ru.Music - Сборники Видеоклипов (Февраль 2010 - Июн
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648906.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Motörhead Videography / Motorhead Видеография (29 клипов) (198
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637650.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Ocean Drive feat. Aylar - Some People (2010) [720p]HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632610.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631623.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Ferry Corsten - Radio Crash (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631038.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630903.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Chicane vs Natasha Bedingfield - Bruised Water (2009) [720p]HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630894.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ ATB - Humanity (Airplay Mix) (2005)   [H.264]HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630891.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ ATB - Let You Go (Reworked) (2005) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630780.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dannii Minogue - Who Do You Love Now (feat Riva) (2001) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630642.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kylie Minogue - The One (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630634.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Kylie Minogue - In My Arms (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630447.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Kylie Minogue - Can't Get You Out Of My Head (2001) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630429.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629995.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629931.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629620.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Chicane - Saltwater (2000) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628610.jpg" />
 </div>
 
 

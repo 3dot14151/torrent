@@ -1,3 +1,29 @@
+###  Публикация: 581057   (341243) от 26.11.2012
+
+[Wallpapers] Landscape  Wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D17AAFAEA256748CA18484ECD963A59613B97C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581390   (341228) от 26.11.2012
 
 Majestic castles of the world Wallpapers (25.11.12) [Wallpapers]
@@ -6,7 +32,7 @@ Majestic castles of the world Wallpapers (25.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341228.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ OS Wallpapers (25.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341110.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Fantastic Wallpapers (25.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341096.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Minimalizm Wallpapers (25.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340978.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339707.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339481.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339369.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339349.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339299.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Majestic castles of the world Wallpapers (26.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338155.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337712.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337700.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337563.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337428.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337426.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337175.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337038.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336901.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336671.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336159.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335676.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335441.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335288.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335285.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335161.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F3EE19D4644F2FDF73411C7D8975363C5C0A62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955354   (335148) от 10.11.2015
-
-Обои - Знаки зодиака. 1920x1080 - 27 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335148.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Минималистические" обои со знаками зодиака на темном фоне. Всего 27 штук, из них 26 картинок непосредственно знаки (каждый представлен в двух вариантах, с большим или меньшим свечением, плюс Близнецы поделены на мужчин и женщин) и 1 картинка - зодиакальный круг (на постере). Могут пригодиться для творчества либо для "персонализации" вашего рабстола.)Формат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BD9B1DA107EF92474F2A8DBE65B35AAFDDEFD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

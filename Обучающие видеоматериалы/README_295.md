@@ -1,3 +1,32 @@
+###  Публикация: 1722419   (56926) от 11.05.2024
+
+GeekBrains | Факультет дизайна (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Длительность курса 18 месяцев при обучении 2-3 занятия в неделю.
+После обучения Вы сможете:
+✅Работать в Figma, Photoshop, Illustrator, After Effects, InVision, Tilda
+✅Создавать фирменный стиль бренда и дизайн полиграфической продукции(   Читать дальше...   )Производство: GeekBrainsЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 329:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E3141C1DE589EB5DB23D97776461798D381398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722472   (56920) от 11.05.2024
 
 George Vondriska | Деревообработка: основы отделки (2020) WEBRip [EN, RU / EN Sub]
@@ -6,7 +35,7 @@ George Vondriska | Деревообработка: основы отделки (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56920.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56848.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56730.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56647.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56635.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ ITVDN, Владимир Виноградов, Кирилл Чернега | C++ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56625.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56620.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ ITVDN, Руслан Ларионенко | Qt Framework (2019) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56595.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ Guitardo, Данил Чечеткин | Гитара 30 за 30 (2024) WEB-DL [A
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56522.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56502.jpg" />
 </div>
 
 
@@ -288,7 +317,7 @@ Zemskurs, Алексей Земсков | Замер и оцифровка кв�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56405.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ EngExpert, Диана Семенычева | Как в 10 раз эффекти�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56403.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56400.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56391.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ Zemskurs, Алексей Земсков | Замер и оцифровка кв�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56382.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56357.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56342.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ Nizamov.School, Илья Низамов | Telegram Web App 1С (2024) WEB-DL [AD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56198.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ Udemy, Colt Steele | HTML & CSS Bootcamp - 2023 Edition (2023) WEB-DL [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56197.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Stepik | Терминал Linux. Основы работы в командной
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56192.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56182.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56088.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55866.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Базов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55552.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Продв
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55550.jpg" />
 </div>
 
 
@@ -686,33 +715,6 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Продв
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF4CEEEC886B1BE41759F19AADF9E05C2B1D281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721692   (55454) от 25.05.2024
-
-Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Nebula: Learn Volumes, GeoNodes & More (Eevee-Cycles) - Video Course for Blender (2024) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в удивительный мир трехмерных туманностей с помощью нашего видеокурса по Blender!
-Раскройте секреты визуализации потрясающих, полностью объемных туманностей, которые поднимут ваши цифровые творения на новую высоту.Производство: Creative ShrimpЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA7292BB634C4E5DFE5B18A2414110FF4AD7656
 ```
 
 https://mybot314.ru/tekegram_catalog/

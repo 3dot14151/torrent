@@ -1,138 +1,3 @@
-###  Публикация: 970310   (141408) от 30.12.2015
-
-К. Д. Секачева | Стив Джобс. Тот, кто думал иначе (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джобс интересен не только как предприниматель, который покорял рынок год за годом, но и как невероятно эксцентричная и противоречивая личность. Для него не существовало середины, было либо "очень плохо", либо "очень хорошо". Он был одним из тех немногих людей, которые никогда не могли сидеть без дела, из него был неиссякаемый поток любознательности (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D87272300F8B1801E4FF72E10D4590CAE8EEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520448   (141405) от 28.12.2021
-
-Александра Баркова | Славянские мифы. От Велеса и Мокоши до птицы Сирин и Ивана Купалы (2022) [EPUB, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное продолжении серии «Мифы от и до», посвященное славянской мифологии.
-
-Древние славяне, в отличие от греков, египтян, кельтов и многих других народов, не оставили после себя мифологического эпоса. В результате мы не так уж много доподлинно знаем об их мифологии, и пробелы в знаниях стремительно заполняются домыслами и заблуждениями. Автор этой книги Александра (   Читать дальше...   )Жанр: Культурология, Мифы / легенды / эпосФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F7A61DA4F8F0723A898201C2422DDB1AA916AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435767   (141395) от 29.12.2020
-
-Платон | Законы (2020) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Платон Афинский – древнегреческий философ-идеалист, ученик Сократа, учитель Аристотеля. Именно с Платона философия формируется как система знания.
-Что такое законы и почему их нужно выполнять?
-Зачем они нужны и на каких философских учениях должны быть основаны?
-Кому, по мнению Платона, предстоит воплотить эти законы и стать идеальным правителем?(   Читать дальше...   )Жанр: Античная литература, Книги по философииПеревод: А. Егунов, С. Ананьин, С. Шейнман-ТопштейнФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257676E39DCF2D4F7AE8123460E4DA897913EFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272780   (141317) от 29.12.2018
-
-И.Ф. Пунанов и др. | Высоковольтный наносекундный пробой конденсированных сред (2018) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее учебное пособие посвящено описанию физических принципов и механизмов, которые определяют поведение жидких и твердых диэлектриков при воздействии на них мощных импульсов напряжения. Явление пробоя диэлектриков нашло широкое применение в импульсной энергетике, в частности, на его основе созданы двигатели малой тяги для космических аппаратов. Стремительное (   Читать дальше...   )Жанр: Электроника, электрорадиоматериалыФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B866CF67DE82B6812B84D38FDA0F5A6352EA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970428   (141316) от 30.12.2015
-
-Карл Густав Юнг и др. | Человек и его символы (2006) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книга является последним прижизненным трудом прославленного психоаналитика, а также единственным популярным изложением его теории, адресованным самым широким кругам читателей. Используя метод «аналитической психологии» Юнга, его ближайшие сподвижники и ученики наглядно демонстрируют влияние подсознания, опосредованное символами, на древние мифы и современное (   Читать дальше...   )Жанр: ПсихологияПеревод: И. Н. Сиренко, С. Н. Сиренко, Н. А. СиренкоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B020D053F24618803C70BAC3360A37AF2BB92C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970423   (141281) от 30.12.2015
 
 Карл Густав Юнг | Психологические типы (1998) [DJVU]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141281.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141273.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141257.jpg" />
 </div>
 
 
@@ -220,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141247.jpg" />
 </div>
 
 
@@ -246,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141044.jpg" />
 </div>
 
 
@@ -272,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141013.jpg" />
 </div>
 
 
@@ -298,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140920.jpg" />
 </div>
 
 
@@ -327,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140883.jpg" />
 </div>
 
 
@@ -353,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140806.jpg" />
 </div>
 
 
@@ -381,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140753.jpg" />
 </div>
 
 
@@ -408,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140711.jpg" />
 </div>
 
 
@@ -434,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140688.jpg" />
 </div>
 
 
@@ -460,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140609.jpg" />
 </div>
 
 
@@ -488,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140585.jpg" />
 </div>
 
 
@@ -514,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140526.jpg" />
 </div>
 
 
@@ -541,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140523.jpg" />
 </div>
 
 
@@ -567,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140512.jpg" />
 </div>
 
 
@@ -594,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140502.jpg" />
 </div>
 
 
@@ -620,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140452.jpg" />
 </div>
 
 
@@ -646,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140449.jpg" />
 </div>
 
 
@@ -675,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140308.jpg" />
 </div>
 
 
@@ -686,6 +551,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5FC2BD605719A7EF2200CDD25AF021547426044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088324   (140293) от 30.12.2016
+
+Олег Фейгин | Феномен Мессинга. Как получать информацию из будущего? (2016) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предчувствие фатального стечения обстоятельств… Достоверность предсказания судьбоносных решений и крутых жизненных поворотов… Можно ли заглянуть в реальность завтрашнего дня? Как предвидели будущее Нострадамус, Мессинг и Ванга? Возможны ли мысленные путешествия во времени, существование параллельных миров и иная реальность альтернативных историй? Какие тайны прошлого, (   Читать дальше...   )Жанр: Прочая образовательная литература, Занимательная наука, Необъяснимые явленияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B218BD4AFF916A3BA9333E209F1332DF39D8EC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195829   (140184) от 30.12.2017
+
+А.В. Барковская, Е.В. Хомич | Философия: ответы на экзаменационные вопросы (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие подготовлено на основе учебной программы для высших учебных заведений по курсу "Философия". В нём в сжатой форме изложены основные понятия и основные положения всех тем курса в виде ответов на экзаменационные вопросы. Предназначено для использования студентами при подготовке к семинарам и практическим занятиям, для самостоятельной работы, а также (   Читать дальше...   )Жанр: ФилософияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5E34C8C90EDEF5FD5F9FCF6ED408C9A9618D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195774   (140105) от 30.12.2017
+
+Ю.Ю. Громов и др. | Информатика (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы аппаратного и программного обеспечения современной вычислительной техники, а также алгоритмизации и программирования.
+Предназначено для студентов высших учебных заведений, обучающихся по специальностям "Комплексное обеспечение информационной безопасности автоматизированных систем", "Информационная безопасность автоматизированных (   Читать дальше...   )Жанр: ИнформатикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E6537375D94B4210172882987D0CEEB30A3ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349110   (140058) от 30.12.2019
+
+Э. М. Бескин | Художественная политграмота: Пособие для худ. техникумов и ВУЗов (1930) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140058.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сущность человека есть совокупность общественных отношений", — сказал Маркс. А значит и сущность искусства, как одного из видов деятельности общественного человека, есть специфически выраженная совокупность общественных отношений. Короче — искусство не аполитично. Эту казалось бы бесспорную формулу приходится, — увы, — и до сих пор отстаивать с большим (   Читать дальше...   )Жанр: История, политология, искусство, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2F67E4965C8D15F2F5334173114D06E67620B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348990   (140028) от 30.12.2019
+
+П. А. Полуянов (ред., сост.) | Молодые мастера искусства (1938) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140028.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Молодость, — говорит В. И. Немирович-Данченко,— не только наше будущее, а один из живительнейших источников нашего настоящего. Люди, которых уже начали называть «стариками», тем дольше сохранят свою творческую энергию, благородство мысли, свежесть идеологии, чем больше будут любить свое молодое окружение. И любить просто, по-товарищески, без зазнайства своим опытом, (   Читать дальше...   )Жанр: История, политология, искусство, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C3A8F673A34E942B00EF756193ADEFDB0B8215
 ```
 
 https://mybot314.ru/tekegram_catalog/

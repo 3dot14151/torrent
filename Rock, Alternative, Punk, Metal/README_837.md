@@ -1,3 +1,32 @@
+###  Публикация: 1406968   (240731) от 05.09.2020
+
+Taake - Over Bjoergvin Graater Himmerik (2002) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I 04:53
+02. Part II 06:42
+03. Part III 06:13
+04. Part IV 06:32(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33FF71033E079B027098E7D06266DD88788EBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632310   (240729) от 09.05.2023
 
 Desolatae - For Thy Decease (2016) [FLAC|Lossless|image + .cue] <Black, Death, Doom Metal>
@@ -6,7 +35,7 @@ Desolatae - For Thy Decease (2016) [FLAC|Lossless|image + .cue] <Black, Death, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240729.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Knellhound - Knellhound (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240725.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Joe Lamont - Secrets You Keep (1985) Reissue, 2010, Yesterrock [MP3|320 Kbps] <A
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240721.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Enigma Project - Living the Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240720.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Us in Motion - Death Poems (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240718.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Yarek Ovich - Introversion (2020) [MP3|320 Kbps] <Depressive Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240715.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Carcariass - Afterworld (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240712.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Overkill - Scorched (2023) [MP3|320 Kbps] <Thrash-metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240708.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Saviour - Shine & Fade (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progre
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240704.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nest of Plagues - To Kill A God (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240696.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Nuevo Orden - Rehenes del Tiempo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240695.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Black Mask - Queen of the Beasts (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240688.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Damn Fine Coffee - For Richmond or Poorer (2020) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240687.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Nighted - Absence (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240680.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Merzy - Merzy (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240679.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 2017, Hiatus [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240678.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Evilleaf - Slow Burn (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240676.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Project Theory - Blood & Loyalty (2020) [MP3|320 Kbps] <Alternative Metal, Rapco
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240673.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Perfect View - Bushido (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240671.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ MACHINA BLGE - Barcode (2020) [MP3|320 Kbps] <Industrial, Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240668.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Ninth Realm - A Fate Unbroken (2022) [FLAC|Lossless|WEB-DL|tracks] <Crossover, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240664.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240659.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240655.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Desolate Realm - Legions (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240648.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Legends Never Die - Goodbye to a Perfect World (A Cryptic Ending) (2020) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240642.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Legends Never Die - Goodbye to a Perfect World (A Cryptic Ending) (2020) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:752FDBF755F87851D0CE48BC826865A2C7CBAB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620343   (240638) от 20.03.2023
-
-New Mexican Doom Cult - Necropolis (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Architect [00:07:31]
-02. Seven Spirits [00:06:12]
-03. Underground [00:07:16]
-04. Necropolis [00:08:10](   Читать дальше...   )Жанр: Psych, Stoner, Doom, SludgeПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED1A68BDAF959E00F1C8876BAA440B668F0620F
 ```
 
 https://mybot314.ru/tekegram_catalog/

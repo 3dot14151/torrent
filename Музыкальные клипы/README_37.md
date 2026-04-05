@@ -6,7 +6,7 @@ NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66805.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Suzy - Come back (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66749.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66745.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66621.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Miyeon - Drive (Live) (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65428.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62011.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60968.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58528.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ E-rotic - сборник клипов (1994-2002)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58502.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Modern Talking - Video Collection (2024) WEBRip [H.264/1080p] [Handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56724.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Emma Shapplin (1997-1999) DVDRip [MPEG2]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56653.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Modern Talking - Video Collection (2024) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56499.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55436.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Chris Isaak  "BEST OF" (2006) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51554.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ZZ Top: Greatest Hits (2004) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50210.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49699.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Shocking Blue - Greatest Hits Around the World (2004) DVD-5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49160.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Status Quo - "XS All Areas" (2004) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48827.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Cinderella / Cinderella Rocked, Wired & Bluesed The Greatest Video Hits (2005) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48824.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Genesis - The Video Show 2004 DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48817.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ W.A.S.P. / 1993 - First Blood... Last Visions... (2007) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47485.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ BBC - Top Of The Pops [1967-2004] (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47308.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47163.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47088.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Metallica - The Videos 1989-2004 (2006) DVD-9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46784.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45963.jpg" />
 </div>
 
 

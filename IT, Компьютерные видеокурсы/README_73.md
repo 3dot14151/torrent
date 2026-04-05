@@ -1,31 +1,3 @@
-###  Публикация: 1838361   (260877) от 23.11.2025
-
-Purpleschool, Антон Ларичев | JavaScript с нуля - основы языка и практика для начинающих (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Базовый курс по современному JavaScript в 2025 году для начинающих. С нуля до проекта на реальных примерах и упражнениях.
-
-Курс актуален на 12 апреля 2025 года.Производство: PurpleschoolЖанр: видеокурс, обучающий курс, программирование, JavaScript (JS)Язык озвучки: русскийПродолжительность: 12:06:54Реклама: наложение на видео (плашка спонсоров)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7513E0E247F4655722E01376390A8631A7796B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838325   (260867) от 23.11.2025
 
 Nikandr Surkov | Создание вирусных приложений для Telegram (2025) PCRec [EN]
@@ -34,7 +6,7 @@ Nikandr Surkov | Создание вирусных приложений для T
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260867.jpg" />
 </div>
 
 
@@ -63,7 +35,7 @@ Udemy, Filip Jerga | Rust & WebAssembly with JS (TS) - The Practical Guide (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260644.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ Udemy, Richard Wells | Unit Testing and Test Driven Development in Python (2019)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257658.jpg" />
 </div>
 
 
@@ -117,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256798.jpg" />
 </div>
 
 
@@ -143,7 +115,7 @@ OTUS, Алексей Александров | Применение электр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256686.jpg" />
 </div>
 
 
@@ -170,7 +142,7 @@ ITVDN, Дмитрий Афанасьев | Разработка графичес
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256671.jpg" />
 </div>
 
 
@@ -196,7 +168,7 @@ Orion Soft | Обучающий курс по ZVirt (2024) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256664.jpg" />
 </div>
 
 
@@ -224,7 +196,7 @@ Stepik, Андрей Ловыгин | Планета ЧПУ (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256351.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ ProFinansy, Наталья Котовская, Вероника Войнова |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255888.jpg" />
 </div>
 
 
@@ -276,7 +248,7 @@ Vlad Ten | System Design (2025) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255883.jpg" />
 </div>
 
 
@@ -305,7 +277,7 @@ Stepik, Руслан Шишмарев | C# WPF. Создание оконног�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255492.jpg" />
 </div>
 
 
@@ -333,7 +305,7 @@ javascript.ru, Владимир Шевчук | Мастер-класс по ар
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255149.jpg" />
 </div>
 
 
@@ -359,7 +331,7 @@ Excellentschool, Ольга Базалева | Интерактивные даш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255034.jpg" />
 </div>
 
 
@@ -388,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254975.jpg" />
 </div>
 
 
@@ -415,7 +387,7 @@ Udemy, Антон Ларичев | JavaScript Advanced - продвинутые 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254826.jpg" />
 </div>
 
 
@@ -441,7 +413,7 @@ Udemy, Иван Петриченко | WEB-разработчик (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254761.jpg" />
 </div>
 
 
@@ -470,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254737.jpg" />
 </div>
 
 
@@ -498,7 +470,7 @@ Udemy, Mefodiy Kelevra | OSINT и профессиональное исполь�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254502.jpg" />
 </div>
 
 
@@ -526,7 +498,7 @@ Udemy, Bogdan Stashchuk | Полный Курс по Node.js (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254476.jpg" />
 </div>
 
 
@@ -554,7 +526,7 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254464.jpg" />
 </div>
 
 
@@ -583,7 +555,7 @@ Thinknetica, Роман Спиридонов | Асинхронный Python: к
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254448.jpg" />
 </div>
 
 
@@ -609,7 +581,7 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254443.jpg" />
 </div>
 
 
@@ -638,7 +610,7 @@ n4e.ru | Docker (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254442.jpg" />
 </div>
 
 
@@ -667,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254329.jpg" />
 </div>
 
 
@@ -693,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252776.jpg" />
 </div>
 
 
@@ -704,6 +676,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F80E273CA37CE7AF0F9AAD2F05986D1B24B010CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836438   (252502) от 10.11.2025
+
+plc-edu, Дмитрий Громов | Прикладной курс по АСУ ТП (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучение диагностике, подбору оборудования, проектированию, сборке шкафов автоматики, программированию, диспетчеризации, пусконаладке и обслуживанию в общепромышленных системах. Научитесь правильно строить работу по проекту и этапам программирования. Выпускник данного курса может составить четкое ТЗ для программиста в соответствии с особенностями техпроцесса и проконтролировать (   Читать дальше...   )Производство: plc-eduЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA0A88EDB903B8E27DC4210259611A3F035C9C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

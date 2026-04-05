@@ -1,136 +1,3 @@
-###  Публикация: 1152164   (568646) от 21.07.2017
-
-Е.Б. Алексеев и др. | Проектирование и техническая эксплуатация цифровых телекоммуникационных систем и сетей (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные положения по организации систем управления и технической эксплуатации сетей и средств электросвязи на современном этапе развития Единой сети электросвязи (ЕСЭ) РФ, вопросы оптимизации решений при проектировании и организации технической эксплуатации ЦСП.
-Для студентов вузов, обучающихся по направлению «Телекоммуникации», будет полезно специалистам (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC94E326039EFFD97B59F44DEE17AEEEFA7DBAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555562   (568595) от 04.06.2022
-
-Г.В.Зайцев (ред.) | Цифровая обработка сигналов в многофункциональных радиолокаторах: Методы, Алгоритмы, Аппаратура (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография подготовлена коллективом авторов, работающих в ОАО «Головное системное конструкторское бюро Концерна ПВО «Алмаз-Антей» имени академика А.А. Расплетина» над проектированием систем цифровой обработки сигналов (ЦОС) для многофункциональных радиолокационных комплексов. Описаны принципы разработки устройств ЦОС, алгоритмы частотно-временной обработки, методы (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEBD49BFDD840EA6BA9A103B1B9AE7363F05AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151968   (568586) от 21.07.2017
-
-М.Г. Бакулин и др. | Технология MIMO. Принципы и алгоритмы (2014) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены принципы построения и алгоритмы формирования и обработки сигналов в системах связи с технологией MIMO (многоантенных систем), положенные в основу систем: LTE, WiMax и Wi-Fi. Изложены фундаментальные основы многоантенных систем с пространственно-временным кодированием, давших толчок развитию этой технологии, а также приведены последние достижения в этой (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1FD7CC28A993CA68D25F2057B915BE1BCB8755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151581   (568561) от 21.07.2017
-
-Светлана Филатова | Специальная методика чтения лиц и эмоций (2017) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568561.jpg" />
-</div>
-
-
-###  Подробнее
-
-В чем причина удачи? Откуда берутся везунчики, у которых и бизнес ладится, и в семье все отлично, и отношения с людьми на высоте? О таких людях принято говорить, что их не подводит чутье, что их ведет интуиция.
-
- Но есть беспроигрышный способ развить в себе интуицию и чутье прямо сейчас. Научиться основам физиогномики – науки чтения по лицам. Для тех, кто умеет обнаружить (   Читать дальше...   )Жанр: ПсиходиагностикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F6F9F9C53CFC5032C61D4B7D29F2EBF165C74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529412   (568540) от 30.07.2012
-
-Виджая Кумар | Рефлексология [2004] [Pdf]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рефлексология является формой лечения, включающей в себя прикосновение к отдельным зонам стоп и рук, посредством чего соответствующие части тела получают стимуляцию.Жанр: Нетрадиционная медицина, рефлексотерапияФормат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0E4688B0031E53BD30B378F85EA943B56EF58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555354   (568497) от 04.06.2022
 
 В.А. Зорич | Математический анализ [2 книги] (2019) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568497.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568490.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568436.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568432.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568355.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568351.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568227.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568221.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568220.jpg" />
 </div>
 
 
@@ -380,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568214.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568181.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568121.jpg" />
 </div>
 
 
@@ -458,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568118.jpg" />
 </div>
 
 
@@ -486,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568117.jpg" />
 </div>
 
 
@@ -512,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568116.jpg" />
 </div>
 
 
@@ -538,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568073.jpg" />
 </div>
 
 
@@ -565,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568030.jpg" />
 </div>
 
 
@@ -591,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568019.jpg" />
 </div>
 
 
@@ -619,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567920.jpg" />
 </div>
 
 
@@ -648,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567734.jpg" />
 </div>
 
 
@@ -674,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567618.jpg" />
 </div>
 
 
@@ -685,6 +552,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CD66D1FC5B19EAE500C8EF53A14E862A76E146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152186   (567335) от 22.07.2017
+
+Г. В. Плеханов | Очерки по истории материализма (1931) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Очерки по истории материализма» впервые вышла в 1896 году на немецком языке. При жизни Плеханова из них только очерк о Гольбахе был издан на русском языке (см. «Научное обозрение», 1897 г.); остальные очерки были переведены после смерти Плеханова в 1923 г.
+
+За исключением небольших замечаний Маркса в «Святом семействе», работа Плеханова до сих пор остается (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5474D196322093DD7F8B4D4C57509AADF0E4A36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304014   (567281) от 24.05.2019
+
+J.A.S. Grenville | A History of the World: From the 20th to the 21st Century (2005) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это второе издание было полностью обновлено и включает в себя обсуждения 9/11 и второй войны в Персидском заливе и учитывает последние исторические исследования.Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807513E35A892D3A882EA97F95005D5891E46241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303968   (567280) от 24.05.2019
+
+Н.Ф. Котляр (ред.) | Галицко-Волынская летопись. Текст. Комментарий. Исследование (2005) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комментированное, снабженное исследовательскими статьями и переводом издание Галицко-Волынской летописи 13 в. - важнейшего и, в большинстве случаев единственного источника по истории (политической, экономической, культурной) Юго-Западной Руси, прежде всего ее западных земель - Галицкой и Волынской, их связей с другими древнерусскими землями и зарубежными странами. (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF219E4F736EF0AAF6B7B984109CADB74B201BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304022   (567274) от 24.05.2019
+
+Ю. Корбетт | Эскадра адмирала Шпее в бою (1994) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567274.jpg" />
+</div>
+
+
+###  Подробнее
+
+До конца Первой Мировой войны оставалось два года, когда премьер-министр Англии лорд Асквит сделал в парламенте заявление, в котором говорилось: "Предвидя возникновение требований об отчете о военных действиях для широких общественных кругов Англии, правительство решило опубликовать официальную историю войны на море”.
+Столь почётное и ответственное задание получил (   Читать дальше...   )Жанр: История, Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D7567D74F0B48F935E02F615F0E98FF44C2AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529360   (567260) от 31.07.2012
+
+А.Шерель | Аудиокультура XX века [2004] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор рассматривает различные направления аудиокультуры XX века - становление художественного и публицистического радиовещания, историю грамзаписи и звука в кино - как в самостоятельном их развитии, так и в общем, процессе организации обмена звуковой информации.
+
+Впервые рассказывается о работе у микрофона выдающихся мастеров театра и кинематографа - Всеволода Мейерхольда, Александра Таирова, Андрея Тарковского, Анатолия Эфроса, Розы Иоффе, Игоря Ильинского, Эраста Гарина и их коллег. Анализируется история аудиокультуры XX века и ее направлений, а также формы искусства звукового отражения действительности, появившиеся на рубеже XX-XXI веков - арсакустика и др.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D048389F5E882A4EE8A48D2F90066942054671E
 ```
 
 https://mybot314.ru/tekegram_catalog/

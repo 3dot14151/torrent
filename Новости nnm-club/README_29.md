@@ -1,3 +1,32 @@
+###  Публикация: 607221   (955599) от 29.01.2016
+
+Smokie (Ансамбль "Смоуки") (1977) [FLAC 2.0|192/24|traсks|Vinyl-Rip] <Pop, Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Вернись к тому, кого любишь 4:08
+2. Мне грустно от чего-то 3:02
+3. Если ты думаешь, что любишь меня 3:28(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C250154FE52FB99AFE657CEC5BA763C39F564A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980378   (955593) от 29.01.2016
 
 Ad-Aware Free Antivirus+ 11.10.767.8917 [Multi/Ru]
@@ -6,7 +35,7 @@ Ad-Aware Free Antivirus+ 11.10.767.8917 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955593.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ XSplit Broadcaster 2.7.1512.2130 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955464.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Resident Evil Zero HD: Remaster / Resident Evil 0 HD: Remaster (2016) [PS3] [JAP
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955457.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955451.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955308.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955295.jpg" />
 </div>
 
 
@@ -164,7 +193,7 @@ Kerio Control Software Appliance 9.3.4 build 3795 [i386] 1xCD [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955128.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955122.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955091.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954717.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954371.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953922.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953921.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953812.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953808.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953793.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953792.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953791.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953775.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ Windows 10 x64 Pro for Workstations v1909 build 18363.657 by Zosma [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953658.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953646.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) RePack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953182.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Grand Theft Auto: Anthology / Антология Grand Theft Auto [Ru/En/Multi7]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953122.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952569.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952372.jpg" />
 </div>
 
 
@@ -652,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:351F173373CE8DF8FE2BD3D349570DAD3246D882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981092   (952371) от 31.01.2016
-
-Срочно выйду замуж (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женя — редактор-трудоголик, Стас — светский фотограф. Она амбициозна, а у него по жизни — ни задачи, ни проблемы. Женя хочет и может стать главным редактором журнала, но для этого у нее срочно должен появиться супруг! Условие акционеров издания — семейная аудитория нуждается в семейном руководителе. И на решение этой задачи у девушки есть всего неделя. Стас берется (   Читать дальше...   )Производство: Россия / Art Pictures Studio, ВайТ МедиаЖанр: Комедия, МелодрамаРежиссер: Сергей ЧекаловАктеры: Юлия Ковальчук, Алексей Чумаков, Екатерина Маликова, Сергей Бурунов, Ольга Прокофьева, Вячеслав Гришечкин, Нонна Гришаева, Анатолий Белый, Алика Смехова, Эвклид КюрдзидисПеревод: Не требуется (русский) iTunesПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7616D12AFD93353E38E16CBE9A82F6AA5332728D
 ```
 
 https://mybot314.ru/tekegram_catalog/

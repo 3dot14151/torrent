@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334852.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334501.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334346.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334220.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Bon Jovi - In Concert BBC Radio 2 (2013) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333786.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332701.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332477.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Bon Jovi  - Keep The Faith An Evening With Bon Jovi (1993) VHSRip [MPEG2/480i]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332459.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Avril Lavigne - Live at The Roxy Theatre (2007) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_331450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_331450.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331052.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330900.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Осенний марафон № 204 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330833.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330815.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330805.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330798.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330742.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330717.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329903.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329896.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329843.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329769.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329761.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329573.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329121.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Alice Cooper - Live at Bonnaroo Festival 2012 DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329078.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328500.jpg" />
 </div>
 
 

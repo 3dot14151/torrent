@@ -1,3 +1,110 @@
+###  Публикация: 1282551   (744924) от 12.02.2019
+
+Справочник заболеваний v1.2.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник заболеваний это приложение с возможностью поиска необходимых болезней, просмотра подробного описания и симптомов к ним. В приложении организован быстрый и удобный поиск. Оно будет полезно абсолютно всем людям, как тем, кто следит за своим здоровьем, так и начинающим врачам. В нашем справочнике представлено большое разнообразие заболеваний, начиная от обычной (   Читать дальше...   )Тип издания: Free + Mod (удалена аналитика)Релиз состоялся: 24.10.2018Разработчик: Involta.RuПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188837523EF3E3BCBAA7B1668D1B7D4BC8E84C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524357   (744674) от 15.01.2022
+
+Метеорологическая станция v6.5.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью функциональная метеостанции
+ * Поддержка как большой экран HD и телефон дисплеев
+ * Давление
+ * Текущий виджет условиях(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 12 января 2022 гРазработчик: DromosysПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745CD86670F1CC815AE913F2A8D04151A6A6EEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212442   (744444) от 03.04.2018
+
+Радио Potokovoe.Ru 6.5.8.1370 (ARMv7/x86) [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744444.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью этого приложения Вы будете наслаждаться прослушиванием интернет-вещания российских радиостанций и музыки на Android, независимо от того, где Вы находитесь.Релиз состоялся: 01.04.2018Разработчик: masterfulПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D420D06149AE4C0EE7FABBB748456A60D2DAEEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361440   (743676) от 17.07.2020
+
+eReader Prestigio Premium 6.4.0 [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для чтения электронных книг и PDF файловТип издания: ПираткаРелиз состоялся: 17.07.2020Разработчик: PrestigioПоддерживаемая ОС: Android. 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1578ACAA77EF6419CDA5A3E5F14DFE6F84912CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019156   (743019) от 27.05.2016
 
 Video Converter Android 2 v3.2.5 Premium [En/Rus] - видео и аудио конвертор для телефонов и планшетов
@@ -6,7 +113,7 @@ Video Converter Android 2 v3.2.5 Premium [En/Rus] - видео и аудио к�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743019.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Track24.ru 1.95 (Lite Mod) [Ru/Eng]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742630.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ RepliGo PDF Reader v4.2.9 - многофункциональный вьювер 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742284.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ NumoTrend (NUM + KinoTrend) v2.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741176.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ KidsControl / Cемейный GPS трекер v5.2.14 [Ru/Multi] (обновл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740310.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ Easy Poser v1.3.20 Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739437.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ USSDDualWidgetPro v1.0.31 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739040.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ nzb360 - Sonarr / Radarr / SAB / Torrents and more v15.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739032.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ GuitarTab - Tabs and chords v3.8.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738748.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737761.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ MotoScan для BMW мотоциклов v1.83 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737343.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ AlfaOBD v2.2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737292.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ bimmer-tool expert v3.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736885.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ TorrServe v1.1.83_4/ v1.1.76_9 (клиент+сервер) [Ru] (обновля�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736491.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ KitchenTimer v4.5.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735832.jpg" />
 </div>
 
 
@@ -401,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735618.jpg" />
 </div>
 
 
@@ -427,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735122.jpg" />
 </div>
 
 
@@ -453,7 +560,7 @@ Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732915.jpg" />
 </div>
 
 
@@ -479,7 +586,7 @@ Librain v1.1.11 [Ru/Multi] - развитие памяти и внимания (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732863.jpg" />
 </div>
 
 
@@ -505,7 +612,7 @@ Mind Diary Journal / Дневник для самоанализа и самор�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732640.jpg" />
 </div>
 
 
@@ -531,7 +638,7 @@ Lanos (Daewoo/ZAZ/Chevrolet) v1.0.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731744.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731623.jpg" />
 </div>
 
 
@@ -573,113 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B4A89C39804D64DE3F5D9694CC4B14E6455FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530080   (730660) от 09.02.2022
-
-Music Theory Companion v2.6.3 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теория музыки очень важна при написании любой песни. Это приложение-помощник по теории музыки предназначено для всех музыкантов, которые заинтересованы в изучении гамм, аккордов, альтернативных аккордов, пятого круга, голосового ведения, модуляции или изменения тональности и т. д. И применяют их в своих композициях. Music Theory Companion - это краткий справочник (   Читать дальше...   )Тип издания: Пиратка (VIP)Релиз состоялся: 2 февраля 2022 г.Разработчик: PG App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C37F88CBE2BFEBE57DE980249CF02074B02B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530293   (729568) от 10.02.2022
-
-Шахматный тренер Pro v2.81 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729568.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Шахматы" - одна из лучших и увлекательных игр на Земле! В нее играют миллионы шахматистов по всему миру от детей до пожилых людей. Но чтобы понять как играть в шахматы, недостаточно просто знать шахматные правила и названия шахматных фигур. Намного важнее изучить шахматную стратегию и тактику, а также все поля шахматной доски, чтобы хорошо в ней ориентироваться. (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 2 февраля 2022 г.Разработчик: KemigoGamesПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BBF32B6B923BBD1938A26EF16943467E673C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530300   (729567) от 10.02.2022
-
-Bluetooth Scanner v1.2.2 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы обнаруживать вокруг себя любые устройства Bluetooth?
-Хотите знать всё о подключенных устройствах Bluetooth?Тип издания: Пиратка (Ultimate)Релиз состоялся: 29 января 2022 г.Разработчик: Zoltán PallagiПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6494E9D2A08350D2A3261001513250E1B49597A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981106   (729362) от 23.04.2017
-
-Snapseed 2.17.0.150426010 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоторедактор, завоевавший множество сердец пользователей iOS теперь доступен и на Android c версии 4.0+
-Теперь лучшее приложение по обработке фотографий выставки TIPA и IPad App 2011 доступно и на Android!
-Snapseed является единственным приложением, которое вы будете желать использовать каждый день. Вы сможете высококачественно обрабатывать ваши фотографии парой (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 23.04.17Разработчик: Google Inc.Поддерживаемая ОС: Android 4.1 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C304B50A11D10A597C9A2C412D6ED67E757CAD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

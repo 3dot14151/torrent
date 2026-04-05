@@ -1,3 +1,32 @@
+###  Публикация: 1333193   (307644) от 23.10.2019
+
+Jimmy Eat World - Surviving (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surviving (03:05)
+02. Criminal Energy (03:11)
+03. Delivery (03:13)
+04. 555 (03:41)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581ED7AF7BEA144D85E2D2B68445C3653EB358BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260870   (307621) от 09.11.2018
 
 Turbowolf - The Free Life (2018) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
@@ -6,7 +35,7 @@ Turbowolf - The Free Life (2018) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307621.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Manowar - Fighting The World (1987) [FLAC|tracks+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307573.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Jap
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307562.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dio - The Last In Line (1984) 24 KT + Gold CD /2012, Audio Fidelity/ [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307549.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307541.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Elvis Presley - The Real... Elvis (The Ultimate Elvis Presley Collection) (2011)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307513.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Crazy Horse & Neil Young - Colorado (2019) Scene [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307498.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ WolveSpirit - Discography: 5 Studio Albums, 1 EP, 7 CD (2011-2018) [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307455.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307452.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Mgzavrebi - Geo (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307444.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Nazareth - Greatest Hits (1996) [FLAC|tracks+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307417.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Beast In Black (ex-Battle Beast) - Berserker (2017) [MP3|320 Kbps] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307409.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Iron Maiden - Somewhere Back In Time - The Best Of: 1980-1989 (2008) [FLAC|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307400.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Shocking Blue - Venus-The Best Of (1993) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307381.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307376.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307347.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Sturgill Simpson - SOUND & FURY (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307330.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ Architects - Holy Hell (2018) [MP3|320 Kbps] <Progressive Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307289.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307146.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307103.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ Rainbow - Best Ballads (1998) [MP3|320 кб/с]<HardRock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307060.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306993.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Glass Prism - Poe Through The Glass Prism (1969) 2012,  Flawed Gems [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306991.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Preacher Stone - Remedy (2016) [MP3|320 Kbps] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306989.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Nightmare - Dead Sun (2016) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306798.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ Nightmare - Dead Sun (2016) [MP3|320 Kbps] <Heavy, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CA3771A1F591C37AE9AA009F8E5381D2A1B111D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261117   (306735) от 09.11.2018
-
-Muse - Simulation Theory (2018) Super Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Algorithm
-2. The Dark Side
-3. Pressure
-4. Propaganda(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2DE46C9CAD80F9A1BA323E972C8D60F4AD8193
 ```
 
 https://mybot314.ru/tekegram_catalog/

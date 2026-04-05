@@ -1,3 +1,214 @@
+###  Публикация: 1709608   (61888) от 25.03.2024
+
+Властелин колец: Возвращение Короля / The Lord of the Rings: The Return of the King (2003) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Extended Edition] [hand made Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя часть трилогии о Кольце Всевластия и о героях, взявших на себя бремя спасения Средиземья. Повелитель сил Тьмы Саурон направляет свои бесчисленные рати под стены Минас-Тирита, крепости Последней Надежды. Он предвкушает близкую победу, но именно это и мешает ему заметить две крохотные фигурки - хоббитов, приближающихся к Роковой Горе, где им предстоит уничтожить (   Читать дальше...   )Производство: Новая Зеландия, США / New Line Cinema, WingNut FilmsЖанр: фэнтези, драма, приключения, боевикРежиссер: Питер ДжексонАктеры: Элайджа Вуд, Вигго Мортенсен, Шон Эстин, Иэн Маккеллен, Орландо Блум, Доминик Монахэн, Билли Бойд, Энди Серкис, Миранда Отто, Бернард ХиллПеревод: Дублированный (Мосфильм + "Позитив" на расширенные сцены)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, forced)Продолжительность: 04:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56416B0F19733E9CF82D9B4A643FB11E8C637BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221820   (61879) от 25.03.2024
+
+Оригинальные Microsoft Office 2010 + Компоненты х64 Retail [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office предоставляет удобные и простые средства для увеличения продуктивности работы отдельно взятой персоны, а также упрощения командной работы, оптимизации бизнес-процессов и документооборота, а также проведения бизнес-анализа. Полностью пересмотрены существующие принципы организации пользовательского интерфейса для того, чтобы облегчить конечным пользователям (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7B194C456AA83D4996FD96020C1C66999A22EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709471   (61843) от 25.03.2024
+
+Очередное достижение: 3000 релизов от vitolinform
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 3000 релизов от
+   vitolinformУважаемые одноклубники, очередная тысяча пройдена и мы от всей души можем поздравить vitolinform с преодолением отметки в 3000 релизов! Спасибо за релизы и вклад в развитие трекера!
+От всей души поздравляем тебя с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NNM-CLUB!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690958   (61785) от 26.03.2024
+
+Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen / Злодейка 99 уровня: Возможно я Тайный Босс, но точно не Повелитель Демонов [2024, TV, 12] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этой отомэ-RPG происходит в королевстве Варшайн, где темные волосы стали клеймом проклятия и предвестником несчастий. Юмиэлла Долкнесс — дочь графа, которую с рождения ненавидят из-за черных как смоль волос. А ещё она - тайный босс по сюжету игры. Но в возрасте пяти лет Юмиэлла вспоминает свою прошлую геймерскую жизнь в Японии. Не интересовавшаяся романтическими (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Ямаока МиноруЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82CE976FBAA18F855F22CF60947662056E39864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709182   (61777) от 26.03.2024
+
+Дом у дороги / Road House (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремейк одноимённого фильма 1989 года. Бывший боец UFC Элвуд Далтон переживает не лучшие времена. Он живёт в машине и зарабатывает участием в подпольных боях без правил. Владелица бара «Дом у дороги», который расположен во Флорида-Кис, предлагает Далтону работу вышибалы, поскольку в заведении стабильно устраивают погромы члены местной банды.Производство: США / BCD Travel, Metro-Goldwyn-Mayer (MGM), Silver PicturesЖанр: боевик, драма, криминалРежиссер: Даг ЛайманАктеры: Джейк Джилленхол, Даниэла Мелшиор, Билли Магнуссен, Конор Макгрегор, Джессика Уильямс, Жоакин де Алмейда, Б.К. Кэннон, Лукас Гейдж, Дж.Д. Пардо, Ханна Лав ЛаньеПеревод: Многоголосый профессиональный (Jaskier), двуголосый профессиональный (ViruseProject), авторский (М.Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 02:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D9A730EB80D13F86BFA15A3F1B5A273E965F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709664   (61760) от 26.03.2024
+
+Российский и белорусский космонавт успешно отправились на МКС
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ракета-носитель «Союз-2.1а» успешно стартовала на Международную космическую станцию (МКС). Об этом сообщает пресс-служба Роскосмоса.Ракета взлетела с 31-й площадки космодрома Байконур в 15:36 мск. На корабле «Союз МС-25» в космос отправились российский и белорусский космонавты Олег Новицкий и Марина Василевская, а также астронавт NASA Трейси Дайсон.Согласно плану, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710394   (61678) от 27.03.2024
+
+3 причины посмотреть «Задачу трёх тел» — адаптацию знаменитой книги от авторов «Игры престолов»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал от Netflix может понравиться и тем, кто читал оригинальные книги, и тем, кто с ними не знаком.21 марта на Netflix вышел первый сезон сериала «Задача трёх тел», основанного на одноимённой книге китайского фантаста Лю Цысиня. Этот роман и два его продолжения (вместе они составляют трилогию «Воспоминания о прошлом Земли») в нулевых сделали писателя чуть ли не (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709459   (61677) от 27.03.2024
+
+10 сериалов, изменивших телевидение
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61677.jpg" />
+</div>
+
+
+###  Подробнее
+
+От «Доктора Кто» до «Во все тяжкие»1. Доктор Кто
+Doctor WhoВеликобритания, 1963–1989 годы, 2005 год — настоящее время.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705304   (61669) от 27.03.2024
 
 Джентльмены / The Gentlemen (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Red Head Sound, HDRezka Studio, NewComers, LostFilm, Jaskier
@@ -6,7 +217,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61669.jpg" />
 </div>
 
 
@@ -32,7 +243,7 @@ F-Secure Freedome VPN 2.71.176.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61567.jpg" />
 </div>
 
 
@@ -58,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61554.jpg" />
 </div>
 
 
@@ -84,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61549.jpg" />
 </div>
 
 
@@ -110,7 +321,7 @@ YouTube: просмотр видео может сделать вас подоз
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61475.jpg" />
 </div>
 
 
@@ -136,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61468.jpg" />
 </div>
 
 
@@ -162,7 +373,7 @@ F-Secure Freedome VPN 2.71.176.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61462.jpg" />
 </div>
 
 
@@ -188,7 +399,7 @@ The KMPlayer 4.2.3.10 repack by cuta (build 1) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61451.jpg" />
 </div>
 
 
@@ -214,7 +425,7 @@ Saijaku Tamer wa Gomi Hiroi no Tabi o Hajimemashita. / The Weakest Tamer Began a
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61371.jpg" />
 </div>
 
 
@@ -240,7 +451,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61363.jpg" />
 </div>
 
 
@@ -266,7 +477,7 @@ Mahou Shoujo ni Akogarete | Вoсхищaясь дeвушкaми-вoлшeбниц
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61361.jpg" />
 </div>
 
 
@@ -292,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61356.jpg" />
 </div>
 
 
@@ -318,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61355.jpg" />
 </div>
 
 
@@ -344,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61354.jpg" />
 </div>
 
 
@@ -370,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61344.jpg" />
 </div>
 
 
@@ -396,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61267.jpg" />
 </div>
 
 
@@ -422,7 +633,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61260.jpg" />
 </div>
 
 
@@ -448,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61257.jpg" />
 </div>
 
 
@@ -459,214 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D73B50735EE02615C900904432A82A5E88C0DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581110   (61251) от 31.03.2024
-
-The Elder Scrolls V: Skyrim (2021) [Ru/Multi] (0.1.3905696/dlc) License GOG [Anniversary Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обладатель более 200 наград «Игра года», The Elder Scrolls V: Skyrim празднует 10-летие приключений с потрясающими деталями. Юбилейное издание включает в себя контент десятилетней давности: признанную критиками основную игру и дополнения Skyrim Special Edition, а также весь ранее существовавший и новый контент от Creation Club, включая квесты, подземелья, боссов, (   Читать дальше...   )Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Ролевая игра, Приключeние, ФэнтeзиЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C39E53DFC9A46C146BD11C36A4191382C174F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689272   (61250) от 31.03.2024
-
-Иван Васильевич меняет всё (2023) WEBRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шурик пытается с помощью машины времени вернуть домой царя Ивана Грозного. Но VPN, на котором работает чудо-машина, постоянно ломается и перемещает горе-изобретателя и царя в разные страны и времена.Производство: Россия / ТНТЖанр: комедия, фантастика, приключенияРежиссер: Миша Семичев, Роман КимАктеры: Тимур Батрутдинов, Демис Карибидис, Максим Лагашкин, Марина Кравец, Павел Деревянко, Ольга Бузова, Гарик Мартиросян, Ольга Картункова, Максим Киселев, Олег ВерещагинСубтитры: oтсутствуютПродолжительность: 01:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A78E4337FC3EA58E231DFE9CD2666F1BA5C2AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346779   (61249) от 31.03.2024
-
-Ведьмак  / The Witcher (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) Пифагор
-
->>3
->>14
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьмак Геральт, мутант и убийца чудовищ, изо всех сил старается найти свое место в мире, где люди часто оказываются намного хуже монстров.Производство: Польша, США / NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: фэнтези, боевик, драма, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Аллан, Джои Бэти, МайАнна Бёринг, Том Кэнтон, Аня Чалотра, Имон Фэррен, Бьерн Хлинур Харальдссон, Адам Леви, Джоди Мэй и др.Перевод: Дублированный - ПифагорСубтитры: русские, английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C74C79833000FE5D05A41A2B92FAA4031BA6286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711770   (61231) от 31.03.2024
-
-Synology DSM 7.2 [x32_x64] 4xDVD PC ESXi IMG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Synology DiskStation Manager (DSM), программный пакет на основе Linux, который является операционной системой для продуктов DiskStation и RackStation. Synology DSM является основой DiskStation, объединяющей основные функции совместного использования файлов, централизованного резервного копирования, хранилища RAID, потокового мультимедиа, виртуального хранилища. Synology (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A998CAB54EC913F901FBB0D09466CEB6A06A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346738   (61041) от 02.04.2024
-
-Ведьмак / The Witcher (2019-2021) WEB-DLRip (сезон 1-2, серии 1-16 из 16) Пифагор
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьмак Геральт, мутант и убийца чудовищ, изо всех сил старается найти свое место в мире, где люди часто оказываются намного хуже монстров.Производство: Польша, США / NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: фэнтези, боевик, драма, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Аллан, Аня Чалотра, Мими Дивени, Анна Шаффер, Бэзил Айденбенц, Ясен Атор, Грэм Мактавиш, Саймон Кэллоу, Лиз КаррПеревод: Дублированный - ПифагорЯзык озвучки: Русский, английскийСубтитры: Русские (форсированные, полные), английские (отдельно)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558133AFE2A4ECB3D437EE3EC35CFF9C0674F25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517881   (61040) от 02.04.2024
-
-Ведьмак / The Witcher (2021) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) Пифагор
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьмак Геральт, мутант и убийца чудовищ, на своей верной лошади по кличке Плотва путешествует по Континенту. За тугой мешочек чеканных монет этот мужчина избавит вас от всякой настырной нечисти — хоть от чудищ болотных, оборотней и даже заколдованных принцесс. В сельской глуши местную девушку Йеннифэр, которой сильно не повезло с внешностью, зато посчастливилось (   Читать дальше...   )Производство: США, Польша / Netflix, Pioneer Stilking Films, Platige ImageЖанр: фэнтези, приключения, драма, ужасыРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Аллан, Аня Чалотра, Мими Дивени, Анна Шаффер, Бэзил Айденбенц, Ясен Атор, Грэм Мактавиш, Саймон Кэллоу, Лиз КаррПеревод: Дублированный (Пифагор, Postmodern)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), английские (SDH), ивритПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1972CC022D1ADDF6D06F466462E1F8C6876B84A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708792   (61039) от 02.04.2024
-
-Задача трёх тел / 3 Body Problem (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) HDRezka, LostFilm, TVShows, Red Head Sound
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время «культурной революции» Китай посылает сигнал в космос, чтобы получить отклик внеземных цивилизаций. Он приходит в начале XXI века: неизвестные силы пытаются затормозить научный прогресс человечества. Над созданием масштабного сай-фай-сериала с несколькими временными линиями работали шоураннеры «Игры престолов» Дэвид Бениофф и Д. Б. Уайсс. В основе сюжета (   Читать дальше...   )Производство: Великобритания, США, Китай / Bighead Littlehead, Netflix Studios, Plan B Entertainment, Primitive Streak, T-StreetЖанр: фантастика, фэнтези, драма, детективРежиссер: Минки Спиро, Джереми Подесва, Дерек ЦанАктеры: Джован Адепо, Лиам Каннингэм, Эйса Гонсалес, Джесс Хун, Бенедикт Вонг, Марло Келли, Алекс Шарп, Sea Shimooka, Розалинд Чао, Саамер УсманиПеревод: Профессиональный многоголосый (HDRezka Studio, LostFilm, TVShows, Red Head Sound)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5571042EDEDE34D63A0DD19B327986A963717BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711884   (61033) от 02.04.2024
-
-Microsoft строит «Звездные врата» за 100 миллиардов долларов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft разрабатывает планы по созданию суперкомпьютера стоимостью 100 миллиардов долларов, который получил условное название "Stargate". Этот проект призван обеспечить работу следующего поколения систем искусственного интеллекта от OpenAI.Считается, что "Stargate" станет пятой и заключительной стадией совместного плана Microsoft и OpenAI по (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

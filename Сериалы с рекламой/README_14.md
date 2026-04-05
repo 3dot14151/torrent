@@ -1,3 +1,55 @@
+###  Публикация: 1130474   (700543) от 09.05.2017
+
+Заложница / Taken (2017) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история молодого Брайана Миллса, бывшего «зеленого берета», пережившего трагедию, которая полностью изменила его. Справляясь с последствиями травмы, Миллс становится оперативником ЦРУ, и новая работа пробуждает в нем особенные и невероятно опасные таланты.Производство: США, Франция / FLW Films, Universal Television, Europacorp TelevisionЖанр: боевик, триллерРежиссер: Холли Дэйл, Ромео Тироне, Лекси АлександрАктеры: Клайв Стэнден, Джеймс Хеберт, Симу Лью, Дженнифер Марсала, Романо Орцари, Джанет Рэкуэл, Дженнифер Билз, Моник Кёрнен, Гай Чарльз, Майкл Ирби и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:45:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03600517FD494589F66178D289148AB88E4561D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220825   (700317) от 21.04.2018
+
+Прислуга (2018) WEBRip (серии 1-12 из 12) [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700317.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном из домов фешенебельного коттеджного городка происходит убийство сотрудницы из обслуживания Лары, в котором обвиняют молодого человека Антона, но полиция не спешит с расследованием Его жена Марта специально устроилась работать в тот же жилой комплекс, чтобы доказать невиновность любимого...Производство: Украина / "Sister's production" по заказу телеканала "1+1"Жанр: детектив, мелодрамаРежиссер: Бата НедичАктеры: Мишель Андраде,Антон Денисенко, Валерия Ходос, Олег Савкин, Лариса Руснак, Борис Хвошнянский, Ирина Мельник, Анна Сагайдачная, Людмила Загорская, Владимир Канивец и др.Язык озвучки: русскийПродолжительность: ~00:46:00 серияРеклама: присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C608098FF324139A887E1EDEA79B181CF4FD5C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131723   (700210) от 09.05.2017
 
 Восьмое чувство / Sense8 (2017) WEBRip [H.264/1080p] (сезон 2, серии 1-10 из 10) OmskBird [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700210.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698257.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696716.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696345.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692381.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691795.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690647.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690633.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690054.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690052.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689685.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688764.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688654.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_688651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_688651.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688647.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684555.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684441.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682256.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682253.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682095.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682003.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680539.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680403.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680397.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:406428A8BBDD343B11A7EE3D6C1717E0994D1C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064725   (680393) от 19.05.2017
-
-База Куантико / Куантико / Quantico (2016) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-22 из 22) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть совершенно разных новобранцев поступают на стажировку в ФБР на базу Куантико в штате Вирджиния. Базой руководит Миранда Шоу, первая женщина на высшей должности в ФБР. Миранда объединяется со своим бывшим партнером, Лиамом О`Коннором, который ныне работает советником, чтобы отобрать лучших новобранцев в агенты. Тем не менее в будущем один из новобранцев будет (   Читать дальше...   )Производство: США /  Mark Gordon Company, The, Random Acts Entertainment, ABC StudiosЖанр: драмаРежиссер: Марк МанденАктеры: Онжаню Эллис, Приянка Чопра, Джэйк МакЛафлин, Тейт Эллингтон, Грэхэм Роджерс, Джоанна Э. Брэдди, Ясмин Эл Массри, Дюгрей Скотт, Анна Хайа, Хуанита Дж.П. Тейлор и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F015611CFB7C2E1E57113611DF2524A8DC68EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061168   (680391) от 19.05.2017
-
-Скорпион / Scorpion (2016) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-25 из 25) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет основан на реальных событиях. Это история об эксцентричном гении и его группе вундеркиндов. Они являются аналитическим центром, работающим на службу национальной безопасности, и их задача — разбираться со сложными угрозами современности ...Производство: СШАЖанр: боевик, драмаРежиссер: Гэри Фледер, Дуайт Х. Литтл, Бобби РотАктеры: Элиес Габел, Кэтрин МакФи, Эри Стидэм, Эдди Кэй Томас, Джейдин Вонг, Эмили Робинсон, Роберт Патрик, Рис Риос и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~ 00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDF5B261745AB57E37A4E372E1BD5DEEB371A1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

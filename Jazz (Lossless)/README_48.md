@@ -6,7 +6,7 @@ Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871675.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joyce Cooling - Playing It Cool (1997) Heads Up [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871674.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Duke Ellington - The Real... Duke Ellington (2012) 3CD [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871671.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871660.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871657.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871655.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Judith Nijland - A Jazz Tribute To ABBA (2016) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871564.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Club Des Belugas - How To Avoid Difficult Situations (2021) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871406.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Harry Allen - I Won't Dance (1999) BMG Japan [FLAC|Lossless|image + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871357.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vladimir Danilin, Alexei Kuznetsov, Alex Rostotsky (Владимир Данил�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871237.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871234.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Frank Sinatra - The Real... Frank Sinatra (2014) 3CD [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871221.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Quarantine Doom Jazz (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870937.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Leo Wright - Suddenly The Blues (1962) Remaster, 2012, WEA[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870402.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wayman Tisdale - The Wayman Tisdale Story (2011) Mack Avenue Records[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870399.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mike Mainieri - An American Diary (1995) [FLAC|Lossless|image + .cue] <Jazz, Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870162.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Cyrus Chestnut - Natural Essence (2016) HighNote [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870154.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Teddy Wilson Trio & Gerry Mulligan Quartet - At Newport (1957) Remaster, 2016, U
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870148.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Paul Lay & Isabel Sorling - Alcazar Memories (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870140.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Perez Prado - The Real... Perez Prado (2014) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870075.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Glenn Miller - The Real... Glenn Miller (2013) 3CD [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869957.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sarah Vaughan - Sarah Vaughan's Finest Hour (2000) Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869933.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Harry Allen & Randy Sandke witn The Rias Big Band - Turnstile: Music Of The Trum
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868995.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Dr. Lonnie Smith - The Healer (2012) Pilgrimage Productions[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868601.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868599.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868547.jpg" />
 </div>
 
 

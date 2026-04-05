@@ -1,3 +1,119 @@
+###  Публикация: 1308397   (553926) от 14.06.2019
+
+Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hitch Hikin' (03:37)
+02. The Wayfarer (04:18)
+03. Tucson Train (03:31)
+04. Western Stars (04:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B777E99099BE1365CBC01227A9425F399CCE009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308457   (553910) от 14.06.2019
+
+ZZ Top - Goin' 50 (2019) Compilation, RM. [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Grange (2019 Remaster) (3:53)
+ 02. Sharp Dressed Man (2019 Remaster) (4:13)
+ 03. Gimme All Your Lovin' (2019 Remaster) (4:00)
+ 04. Tush (2019 Remaster) (2:17)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Southern RockПродолжительность: 03:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF40346A6C4FAFAF5DF5D16FD8A28192DF8F3469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308662   (553781) от 15.06.2019
+
+Reptaliens - Valis (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise Sunset
+02. Venetian Blinds
+03. Shuggie 1
+04. Shuggie 2(   Читать дальше...   )Жанр: Indie Pop, Lo-FiПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FDE0032ECCA1BE6FF3408878DACE4D3248FDEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308716   (553728) от 15.06.2019
+
+D-A-D - A Prayer For The Loud (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553728.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Burning Star [3:38]
+2. A Prayer for the Loud [4:11]
+3. Nothing Ever Changes [4:17]
+4. The Sky Is Made Of Blues [4:20](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4463C5539E257A49BE6121482DF7CEF8EFFDE46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236901   (553622) от 21.07.2018
 
 LayerZ - Memory Towers (2013) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Electronic, Fusion>
@@ -6,7 +122,7 @@ LayerZ - Memory Towers (2013) [FLAC|Lossless|tracks + .cue] <Progressive Rock, E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553622.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Joker - Joker (1990) 1991, TECP-25726 [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553291.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Panic! At the Disco - Pray For The Wicked (2018) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553276.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553148.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Chariot - Chariot (1971) Reissue, 2007, Radioactive [MP3|320 Kbps] <Rock, Blues 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553055.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Winterstorm - Cube Of Infinity (2016) [FLAC|Lossless|image + .cue] <Power, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553049.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Second Life - Second Life (1971) Reissue, 1997, Second Battle [MP3|320 Kbps] <Pr
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552972.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Faint Signal - Formula (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552941.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Archer Nation - Beneath the Dream (2019) LP [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552924.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Sodom - Decision Day (2016)  Japanese Edition [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552913.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Sodom - Decision Day (2016) Japanese Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552907.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552881.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Buckcherry - Warpaint (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552876.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Silversun Pickups - Widow's Weeds (2019) [MP3|320 Kbps] <Alternative Rock, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552872.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Delain - Moonbathers (2016) 2CD Limited Edition [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552855.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Bad Omens - Bad Omens (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore, Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552846.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Twisted Sister - The Best Of The Atlantic Years (2016) Rhino Atlantic [MP3|320 K
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552845.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Blue Stahli - Premonitions (2016) [MP3|320 Kbps] <Industrial Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552792.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Rammstein - Auslander (2019) Maxi-Single [FLAC|Lossless|image + .cue] <Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552768.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552714.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Bighorn - Bighorn (1978) Reissue, 1999, SME Records [MP3|320 Kbps] <Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552462.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Grootna - Grootna (1971) Reissue, Unofficial [MP3|320 Kbps] <Psychedelic Rock, B
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552460.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Grootna - Grootna (1971) Reissue, Unofficial [MP3|320 Kbps] <Psychedelic Rock, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BCD45ED92A4A1E780FD7C14EFEC90AFBE13D9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692031   (552366) от 23.08.2013
-
-The Mamas And The Papas - Greatest Hits (1998) [FLAC|Lossless]<Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Dreamin'
-02. Go Where You Wanna Go
-03. Monday, Monday
-04. I Call Your Name(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3392D108805F6822C19BE02F7202620D99C508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237338   (552357) от 23.07.2018
-
-Bring Me The Horizon - 2004-2013 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traitors Never Play Hangman (3:37)
- 02. Pray For Plagues (4:22)
- 03. Diamond Aren't Forever (3:48)
- 04. The Sadness Will Never End (Feat. Sam Carter) (5:22)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1094B05668DBF6A6D72D9C4E2B5699690E2E3E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237304   (552345) от 23.07.2018
-
-BrainStorm - Контакты (2018) EP [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552345.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Контакты
-2. Nothing Lasts Forever
-3. Ogles
-4. Ogles (Edit)Жанр: Pop RockПродолжительность: 00:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9164A2C82004AC6B02906DA770D323B41CBAB95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237360   (552341) от 23.07.2018
-
-Bad Wolves - Disobey (2018) Eleven Seven Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Groove Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Officer Down (3:29)
- 02. Learn To Live (3:40)
- 03. No Masters (3:53)
- 04. Zombie (4:15)(   Читать дальше...   )Жанр: Alternative Rock, Groove Metal, MetalcoreПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFF8DD3FE102CFFB46ABD26FF410E84B5DE3E11
 ```
 
 https://mybot314.ru/tekegram_catalog/

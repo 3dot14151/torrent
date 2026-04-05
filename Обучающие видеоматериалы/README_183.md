@@ -1,3 +1,30 @@
+###  Публикация: 1836095   (252280) от 08.11.2025
+
+Diodov.net, Дмитрий Забарило | Программирование микроконтроллеров STM32 для начинающих (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный мир электроники уже неразрывно связан с цифровыми устройствами, наиболее яркими представителями которых являются микроконтроллеры (МК).
+И если пару-несколько десятилетий назад можно было быть вполне успешным электронщиком, особо не разбираясь ни в микроконтроллерах, ни в микропроцессорах, то сейчас любой уважающий себя электронщик должен иметь достаточный (   Читать дальше...   )Производство: Diodov.netЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 124:51:43Реклама: наложение на видео и в презентации (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50700D3F5207B0767709F77504844C7C6C6BFBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626696   (252243) от 15.05.2023
 
 Gumroad, Fxforfun | SideFX – FFF Houdini Subject 071 (2022) WEB-DL [EN, RU]
@@ -6,7 +33,7 @@ Gumroad, Fxforfun | SideFX – FFF Houdini Subject 071 (2022) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252243.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ CyberYozh Academy, Евгений Ивченков | Комплексная на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252237.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ Alexcode, Алексей Леонов | Разработчик 1С с нуля (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252220.jpg" />
 </div>
 
 
@@ -92,7 +119,7 @@ Timesavervfx, Юлия Корчагина| Моушн-графика в Davinci 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252217.jpg" />
 </div>
 
 
@@ -121,7 +148,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners Substance Painter Course (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252209.jpg" />
 </div>
 
 
@@ -148,7 +175,7 @@ Timesavervfx, Александр Ежов | Анимация фотографи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252203.jpg" />
 </div>
 
 
@@ -177,7 +204,7 @@ Red Group, htmllessons, Максим Шушвал | Все интенсивы (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252193.jpg" />
 </div>
 
 
@@ -206,7 +233,7 @@ Amigoscode, Mama Samba Braima Nelson | PROFESSIONAL Full Stack Developer (2023) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252190.jpg" />
 </div>
 
 
@@ -233,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252183.jpg" />
 </div>
 
 
@@ -262,7 +289,7 @@ Autocad Specialist, Алексей Меркулов | Проектировани
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252179.jpg" />
 </div>
 
 
@@ -291,7 +318,7 @@ JUG Ru Group, JPoint и Joker | Конференция для опытных Jav
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252178.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ Udemy, Артем Яковлев | Blender 2023 - полный базовый к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252138.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252125.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Targetorium, Павел Антонов, Наталья Якимчук | Спец
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252078.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ itProger |  Профессия Python разработчик (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252041.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ Javascript.ninja, Илья Климов | Зимняя школа по Typescrip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251978.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251963.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ Udemy, Andrey Sobolev | Микросервисы на Python (asyncio, starlette
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251960.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251918.jpg" />
 </div>
 
 
@@ -544,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251914.jpg" />
 </div>
 
 
@@ -570,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251896.jpg" />
 </div>
 
 
@@ -596,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251864.jpg" />
 </div>
 
 
@@ -625,7 +652,7 @@ Skillbox, Е. Брызгалина, А. Кузнецов, Н. Клюева | Ф�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251811.jpg" />
 </div>
 
 
@@ -652,7 +679,7 @@ Wikisound | Ableton live 11 с нуля до эксперта (2021) WEB-DL [RU]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251773.jpg" />
 </div>
 
 
@@ -678,7 +705,7 @@ Wikisound | FL Studio 20 абсолютный профи (2018) WEB-DL [RU]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251770.jpg" />
 </div>
 
 
@@ -689,32 +716,6 @@ Wikisound | FL Studio 20 абсолютный профи (2018) WEB-DL [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F66031A11805A5948634AC7F1FB2EDB3F22E0433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495124   (251287) от 11.05.2012
-
-Суставы. Пути восстановления (2011) SATRip
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суставы быстро не восстанавливаются, поскольку в суставных тканях нет кровеносных сосудов. Все методы сводятся к усилению обмена веществ в хрящевой ткани и кровообращения в прилежащих тканях.Жанр: Обучающее видео, ЛекцияПродолжительность: 01:22:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

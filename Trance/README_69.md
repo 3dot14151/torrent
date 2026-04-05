@@ -1,3 +1,61 @@
+###  Публикация: 1771005   (31985) от 04.01.2025
+
+VA - Levitated Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ISTAR Project - Greytail (Extended Mix) [5:52]
+02. Extravagance SL - Mwanga (Extended Mix) [5:24]
+03. Manuel Rocca - Pristine (Extended Mix) [7:21]
+04. Taurus G - Rebirth (Extended Mix) [7:06](   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F11D69B060A7126DC8B6388BE1775580BDFF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770901   (31980) от 04.01.2025
+
+Armin van Buuren - A State of Trance Episode 1206 (2025) [MP3|320 Kbps] <Trance, Progressive Trance, House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - A State of Trance (ASOT 1206) (Intro) [0:42]
+02. Armin Van Buuren - A State of Trance (ASOT 1206) (Happy New Year!) [0:46]
+03. Arty;Stadiumx;Jason Walker - Thousand Lives (ASOT 1206) (Scorz Remix) [1:17]
+04. Paul Oakenfold;Hernan Cattaneo - London To Buenos Aires (ASOT 1206) [2:31](   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 01:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B321009A73DC11278AC4FBBE95B40A03A1506C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 444187   (31818) от 06.01.2025
 
 Chicane - Thousand Mile Stare: The Collectors Edition (2CD) (2011) [MP3|320 kbps]<Trance, Chillout, Ambient, Progressive House>
@@ -6,7 +64,7 @@ Chicane - Thousand Mile Stare: The Collectors Edition (2CD) (2011) [MP3|320 kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31818.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Massive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31808.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Adrian & Raz Vocal Trance Top 10 Volume 1 - 3 (2013) [MP3|320 кб/с]<Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31804.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Manuel Rocca Presents: White Clouds Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31789.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Vocal Trance Hits 2015-02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31723.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Bobina - Speed Breaker (2016) [MP3|320 кб/с] <Progressive Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31718.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31716.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Vocal Anthems Amsterdam (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31708.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Vocal Trance Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31705.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Pure Vocal Trance Hits Vol. 2 (2016) [MP3|320 кб/с] <Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31703.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Pure Bliss Vocals Volume 5 (2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31700.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Pure Bliss Vocals Vol. 3 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31698.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Vocal Trance Gems - Summer (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31668.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - A Decade Of Female Vocal Trance (2010 - 2020) (2020) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31618.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Markus Schulz - Escape (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31602.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Pure Bliss Vocals Volume 4 (2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31589.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Top 11 November 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31049.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Selected Trance Music 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30952.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Armada Music - Trance Legacy III (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30827.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Dream Dance Vol. 96 - The Annual (2025) [MP3|320 Kbps] <Trance, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29916.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Top 8 December 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27940.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Remixes Revisited, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27308.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - The Best of 2024 from High Emotions Group Music (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26471.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - In the Mix with Neil MD (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25731.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - In the Mix with Neil MD (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17938DF72079849082026F09E930F9A024754D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783135   (25728) от 04.03.2025
-
-VA - The Best of Sounemot 2024 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A L O N 3 L Y & G-Monty - Garden Of Life (Original Mix) [6:55]
-02. AlphaCube vs Dreamira & Tsuki Shizumutoki - Revive Shift (Dreamskies Mashup) [7:29]
-03. DreamSkies & GeorD - The Death Of A Star (Original Mix) [6:45]
-04. Elgfrothi vs Dreamlife vs SounEmot & Grande Piano - Ephemeral Past (Dreamskies Mashup) [5:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C970E86DD787B81C685D10BAA88DB869F5310364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784950   (24781) от 13.03.2025
-
-VA - Black Hole Trance Music 03-25 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. nilsix, Orjan Nilsen & Mark Sixma - Untold (Extended Mix) (04:14)
-02. Mads Arp & Julie Harrington - Slow It Down (Daniel Wanrooy Extended Remix) (06:42)
-03. Driftmoon - Moonstruck (Extended Mix) (06:38)
-04. Dennis Sheperd & LK - Resonance (Protoculture Extended Remix) (06:12)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB65ABE6540D11807142D883B81405FEF73EA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

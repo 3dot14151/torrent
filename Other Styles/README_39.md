@@ -1,3 +1,61 @@
+###  Публикация: 1009122   (811919) от 20.04.2016
+
+Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Love    03:08
+02. You're My Everything    03:09
+03. Remembering the 80's    03:06
+04. Persia    03:51(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197907   (811887) от 09.01.2018
+
+Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter's Deepest Sleep
+02. Summer Afternoon
+03. Taos Song
+04. Heavy as a Feather(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197875   (811881) от 09.01.2018
 
 Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811881.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Chicago Afrobeat Project, Tony Allen - What Goes Up (2017) [FLAC|Lossless|tracks
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811878.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [MP3|320 Kbps] <Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811605.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Sensual Meditation: Emotional Music, Deep Feeling Connection, Tantra Medita
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811474.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtem
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811374.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Intimate Piano: Moonlight Love (1999) [FLAC|Lossless|image + .cue] <Instrum
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811227.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811083.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811079.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Bill Brown, Mikael Sandgren - Command & Conquer: Generals+Command & Conquer: Gen
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810939.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Michael Reimann - Eine entspannende Reise (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810134.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Daniel Waples & Friends (Hang In Balance) - 'Lisn: The Remixes (2014) [FLAC|Loss
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810128.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Daniel Waples & Friends (Hang In Balance) - 'Lisn (2013) [FLAC|Lossless|Web-DL|t
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810122.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Myristica - Waiting for Yesterday (2014) [FLAC|Lossless|tracks] <New Age, Ambien
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810040.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_809667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809667.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ The Soft Music Box - Classic Piano Lullabies - U.S. Edition (2020) [FLAC|Lossles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808139.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808110.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Dr. Jeffrey Thompson - Ambient Music For Sleep (2004) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807999.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ The Greatest Saxophone Hits Ever - Golden Saxophone (1994) [FLAC|Lossless] <Easy
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807566.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ VA - Cafe India Lounge (Retail 2006) (2006) [MP3|~190 Kbps (V2)] <New Age, Lo-Fi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807489.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Pianochocolate - Blueberry (2016) [MP3|320 Kbps] <Instrumental, Chillout>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807215.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ Paul Mauriat - Too Much Heaven & Bonus Tracks (1979) Remastered, 2017 [FLAC|Loss
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807091.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ Yanni - Inspirato (2014) [FLAC|Lossless]<New Age, Classical crossover>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806913.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ John Tesh - Tour De France-The Early Years (1990) [FLAC|Lossless|tracks + .cue]<
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806312.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Seaso
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806178.jpg" />
 </div>
 
 
@@ -682,64 +740,6 @@ Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Seaso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1B4F7FB27668A82DEA609C3CD27E15EE07C6625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009832   (805994) от 23.04.2016
-
-Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Bend in the River (feat- Josie Quick)    04:23
-02. Distant Horseman (feat- Josie Quick)    05:05
-03. Turn and Walk Away    04:00
-04. A Night so Cold (feat- Josie Quick)    05:04(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119771   (805742) от 29.03.2017
-
-Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Okinawa Battlefield (03:59)
-02. I could Have Killed Him (02:20)
-03. A Calling (02:42)
-04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB674F0985B71B19B2F3A7027149CC0311D92274
 ```
 
 https://mybot314.ru/tekegram_catalog/

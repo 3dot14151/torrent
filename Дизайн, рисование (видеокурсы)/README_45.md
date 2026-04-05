@@ -1,3 +1,56 @@
+###  Публикация: 1131142   (407577) от 06.10.2018
+
+Елена Разумова | Комплексное обучение «Специалист по Adobe InDesign CC». Уровни 1, 2, 3 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Adobe InDesign представляет собой новейшую версию одной из самых функциональных на настоящий момент издательских систем. Великолепные возможности верстки сочетаются с очень удобным и гибким интерфейсом. Исключительные возможности при работе с цветом и графикой дополняют превосходные возможности для работы с текстом, а набор визуальных эффектов вообще не (   Читать дальше...   )Производство: Россия/СпециалистЖанр: Обучающее, графика, видеокурсыПродолжительность: 30:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8F0B0FB4338D76A8886667851737A355219A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574140   (407227) от 03.09.2022
+
+Udemy, Nexttut, Nikolay Naydenov | Female Character Creation in Zbrush (2019) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь скульптить женское тело, одежду, аксессуары, оружие, создавать позу и визуализировать персонажа в Zbrush.
+К концу этого курса вы сможете моделировать симпатичных женских персонажей с одеждой, аксессуарами и оружием в Zbrush от начала до конца.Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 25:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F64599C3D1437AF875186174EAA3C02FABA479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413720   (406979) от 05.10.2020
 
 ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma и многое другое / Complete Web & Mobile Designer in 2020: UI/UX, Figma + more (2020) PCRec [En]
@@ -6,7 +59,7 @@ ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406979.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406768.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ Shane Hurlbut | Как освещать рекламные ролики в вы�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406741.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ Shane Hurlbut | Продвинутая коммерческая режиссур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406733.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ Eduard Mykhailov | Безумные визуальные эффекты в After
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406619.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Pluralsight, Dan Cox | Creating Game-ready Modular Structures in 3ds Max (2016) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387624.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Gameinstitute, Dojn | Game Mathematics (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387448.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ Eduard Mykhailov | Rich Glitch (2019) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387407.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ Jesse Pitela | Курс по созданию огня и дыма с плаги
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387291.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ Jesse Pitela | Курс Для Начинающих по Симуляции Жи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387264.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Jesse Pitela | Курс для начинающих по созданию зап
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387148.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ Jesse Pitela | Курс по созданию продвинутых крупн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387146.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ Max Twain | Bad Cat (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387116.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ Max Twain | NOIRE (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386963.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ Max Twain | Mystic (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386955.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ Max Twain | Global Wedding (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386822.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ Max Twain | Джоконда (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386821.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ Max Twain | Workshop (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386816.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ Max Twain | Daz3D (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386814.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ Max Twain | Pro Retoucher. Fatalism NEON (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386812.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ Max Twain | Fatalism ART (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386808.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ Max Twain | Pro Retoucher. Fatalism START 2020 PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386704.jpg" />
 </div>
 
 
@@ -596,7 +649,7 @@ Alkis Escobedo | Освещение и рендеринг с помощью V-Ra
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385384.jpg" />
 </div>
 
 
@@ -622,7 +675,7 @@ ArtistHunt School | 25 курсов по рисованию (2020) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384724.jpg" />
 </div>
 
 
@@ -633,59 +686,6 @@ ArtistHunt School | 25 курсов по рисованию (2020) TVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F017A941FE927A3BA352742E58AE6171B5BB08A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574370   (383548) от 06.09.2022
-
-The Gnomon Workshop, Maxime Deleris | Visual FX for Games (2013) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383548.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом DVD, Maxime разбирает каждый визуальный эффект, от текстур до сложных эффектов и погружается в самую суть игрового уровня при помощи UDK для Unreal Engine 3. Он показывает, как использовать Adobe Photoshop, AfterEffects, FumeFX и 3ds Max, для создания текстур и демонстрирует действенные методы для улучшения и оптимизации многочисленных реалистичных эффектов (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868B00DE0C3C4C5F418C06F84714FECD728E8FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572858   (383155) от 06.09.2022
-
-CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс дистанционного обучения Риггинг Мастер подготовлен таким образом, чтобы провести вас по всем важнейшим аспектам риггинга, детально рассматривая и отрабатывая на практике весь представленный материал.
-Риггинг - это не просто создание скелета персонажа, это также создание различных систем управления персонажами, техникой, объектами, создание вспомогательных инструментов (   Читать дальше...   )Производство: CGTarianЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 146:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E149585DF1F4C8207632D33E7D44702DE01DBA84
 ```
 
 https://mybot314.ru/tekegram_catalog/

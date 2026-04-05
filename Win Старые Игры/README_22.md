@@ -1,3 +1,55 @@
+###  Публикация: 1262452   (292673) от 16.11.2018
+
+Tomb Raider I - III (1996-1998) [En] (0.74/1.1/1.0) Repack Other s
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomb Raider III – присоединяйтесь к Ларе Крофт в ее новом и самом большом приключении в Tomb Raider III: Adventures of Lara Croft. Вам предстоит пройти пять огромных уровней, что бы отыскать древний метеор, дарующий жизненные силы. Вас ждут новые загадки, новые и некоторые старые враги, такие как T-Rex. Вместе с Ларой вы побываете в джунглях Индии, в ледяной Антарктике, (   Читать дальше...   )Тип издания: RepackРазработчик: Core Design LimitedЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D63971AA57622AE6C3B33608AB6E1745A2D1C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080084   (291395) от 05.12.2016
+
+Original War (2001) [Ru/Multi] (1.10b) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало XXI века. Американская геологическая экспедиция, направленная в отдаленный район Сибири в поисках месторождений нефти, находит совсем не то, что должна была. Месторождение абсолютно нового ресурса, доселе науке неизвестного. Ресурс (сиберит) радиоактивен и невероятно энергоёмок - но вот беда, оказалось, что он действительно существует лишь на территории России.Тип издания: LicenseРазработчик: ALTAR InteractiveЖанр: Strategy (Real-time), Top-downЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A4F9F970FBDAA641CEB658367B9F0DA5A19B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185929   (288875) от 23.11.2017
 
 The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
@@ -6,7 +58,7 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288875.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288867.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Prison Architect (2015) [Ru/Multi] (2.0/dlc) SteamRip Let'sPlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287377.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Albion (1995) [Multi] (1.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285370.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Descent 3 (2000) [En] (1.4/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285338.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285199.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Screamer (1995) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284110.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Screamer 2 (1996) [En] (1.00) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283937.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Silent Hunter 2 (2001) [En] (1.00.06) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281980.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Startopia (2001) [En] (1.00) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281867.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Descent (1996) [En] (1.4a) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281756.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Nox (2000) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281625.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Descent 2 (1996) [En] (1.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279999.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Freedom Fighters (2003) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279900.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Afterlife (1996) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279139.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276703.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Outlaws (1997) [En] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276180.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275939.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275073.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275060.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274157.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Sensible Soccer 2006 (2006) [En] (1.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273100.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (2006) [En] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273084.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273001.jpg" />
 </div>
 
 
@@ -615,60 +667,6 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A856B5B87EC4A909E97F99835B42511C3D445D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 275817   (268498) от 28.12.2010
-
-25 To Life [Ru] (P) 2006
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как ни крути, а тема противостояния добра и зла красной нитью проходит через добрую половину компьютерных игр, начиная от RPG с фантастической тематикой и заканчивая современными урбанистическими шутерами, к которым без тени сомнения можно причислить новый проект Ritual Entertainment и Eidos под названием 25 To Life.
-На этот раз “силы света” будут представлены бравыми американскими копами в кевларовых бронежилетах, а силы зла — татуированными “рыцарями” шотгана и хип-хопа. Несмотря на наличие небольших одиночных кампаний, как за стражей закона, так и за “плохишей”, основное призвание 25 to Life — многопользовательский режим. На подобные мысли наводят следующие факты: основательная поддержка кланов (с созданием собственной символики и своего неповторимого стиля), продуманный баланс оружия и высокая интерактивность игровых уровней. К примеру, расположение затаившихся противников могут выдать такие “мелочи”, как сработавшая автомобильная сигнализация или собака, зашедшаяся в истерическом лае.
-От графики 25 to Life (   Читать дальше...   )Тип издания: ПираткаРазработчик: Avalanche Software, HWY1 Productions и Ritual EntertainmentЖанр: Action (Shooter) / 3D / 3rd Person
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E3EAF13E2515595EA1A0D666D94041B2376C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339618   (265252) от 20.11.2019
-
-The Temple of Elemental Evil (2003) [En] (1.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключение в мире Грейхок начинается. Вам предстоит найти дорогу к источнику древней тайны, к самому средоточию зла. Дьяволица основала культ изучения зла в его самых стихийных проявлениях. Оплотом культа стал храм неподалеку от деревни Хоммлет в графстве Налб. Вскоре тирания культа воцарилась в этих землях, и настали мрачные времена хаоса и насилия. После опустошительной (   Читать дальше...   )Тип издания: LicenseРазработчик: Troika GamesЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434B09EEE841988EF0698CAFC43DB80FEC732ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

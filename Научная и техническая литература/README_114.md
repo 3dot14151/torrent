@@ -1,135 +1,3 @@
-###  Публикация: 1371430   (891676) от 30.03.2020
-
-Оливер Стоун, Питер Кузник | Нерассказанная история США. Новая глава 2012–2018 (2020) [EPUB, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891676.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу продолжения масштабной «Нерассказанной истории США», написанной знаменитым голливудским режиссером, обладателем трех премий «Оскар» Оливером Стоуном и профессором истории, специалистом по ядерным исследованиям Питером Кузником, легли события с 2012 по 2018 год.
-В новой главе книги, ставшей мировым бестселлером, освещаются такие темы, как внешняя политика (   Читать дальше...   )Жанр: ИсторияФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28856CC89A7E20A209E1B3BE5246CF73A84FC7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371321   (891659) от 30.03.2020
-
-Ирина Галеева | Вынос мозга. Чудеса восприятия и другие особенности работы нервной системы (2020) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что происходит с нашей нервной системой в течение дня? Как реагирует наш мозг на кофеин, алкоголь, влюбленность, сон? Можно ли силой мысли замедлить биение сердца или умереть от счастья? На все эти вопросы ответит книга врача-невролога и популярного блогера Ирины Галеевой.
-Вымышленный герой, в котором каждый может узнать себя, пройдет по лабиринту нервной системы (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицинеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEA44C16436B2D7E20D7442D4A28A8EC2745DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993793   (891560) от 07.03.2016
-
-В.С. Мелентьев и др. | Проектирование конструкции «виртуального двигателя» (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлено описание основных этапов моделирования конструкции «виртуального двигателя», включающих объемное моделирование, кинематический, динамический, прочностной и вибрационный анализы функциональных групп двигателя. Рассмотрены программные продукты, с помощью которых данные этапы моделирования могут быть осуществлены. По ходу изложения материала даны учебные (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9BC114B606AADF84D52BF42D944F56EFC34E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994114   (891533) от 07.03.2016
-
-Андрей Харук | Все гидросамолеты Второй Мировой (2014) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая цветная энциклопедия гидроавиации Второй Мировой войны, не только великих авиадержав - Великобритании, США, Третьего Рейха, СССР, Франции, Италии, Японии, - но и Нидерландов, Югославии, Норвегии, Швеции, Польши. Исчерпывающая информация обо всех разновидностях гидросамолетов - поплавковых, летающих лодках, самолетах-амфибиях и катапультных гидропланах корабельного (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F5B6FFF5D3ED300C394B973E60AF7EEE9A83B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993829   (891469) от 07.03.2016
-
-В.А. Кузовкин | Теоретическая электротехника (2005) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены общие методы исследования электротехнических устройств. Показан подход к построению моделей электротехнических приборов на базе анализа явлений, заложенных в основу их функционирования. Приведена классификация и показаны условия упрощения электродинамических моделей и перехода к эквивалентным схемам. Представлены основные методы расчета нелинейных и линейных (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4657707F07C496B1BA7C139EB6070E3C756539E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 825420   (891343) от 30.03.2020
 
 А. Саркелов (сост.) | Куда и как правильно писать жалобу (2014) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891343.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891312.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891241.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891163.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891064.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891048.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890920.jpg" />
 </div>
 
 
@@ -320,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890907.jpg" />
 </div>
 
 
@@ -346,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890638.jpg" />
 </div>
 
 
@@ -372,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890584.jpg" />
 </div>
 
 
@@ -398,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890563.jpg" />
 </div>
 
 
@@ -424,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890505.jpg" />
 </div>
 
 
@@ -450,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890449.jpg" />
 </div>
 
 
@@ -476,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890414.jpg" />
 </div>
 
 
@@ -502,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890299.jpg" />
 </div>
 
 
@@ -528,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_890091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890091.jpg" />
 </div>
 
 
@@ -554,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890010.jpg" />
 </div>
 
 
@@ -580,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889979.jpg" />
 </div>
 
 
@@ -607,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889952.jpg" />
 </div>
 
 
@@ -634,7 +502,7 @@ David Crystal | The Cambridge Encyclopedia of Language / Кембриджска�
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889884.jpg" />
 </div>
 
 
@@ -660,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889861.jpg" />
 </div>
 
 
@@ -671,6 +539,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30175711731C7FC5FA132A68827019AA7A8905D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994206   (889794) от 08.03.2016
+
+Э. М. Чудинов | Нить Ариадны: Философские ориентиры науки (1979) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889794.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге доктора философских наук, профессора Э. М. Чудинова на основе анализа творчества крупнейших ученых раскрывается значение философских идей в конкретном научном исследовании.
+
+Книга рассчитана на молодежь, интересующуюся проблемами современной науки.Жанр: История, философия, науковедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38959962011BF520236530B1944389BE3B8A6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994184   (889776) от 08.03.2016
+
+В.В. Спичак (ред.) | Современные методы измерения, обработки и интерпретации электромагнитных данных (2009) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889776.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются возможности пятого поколения ЭМ измерительной аппаратуры, а также современные методы обработки электромагнитных данных, основанные на применении новейших математических алгоритмов. Большое внимание уделено методам интерпретации электромагнитных данных в классе трёхмерных моделей среды, а также с учётом анизотропии пород. Исследуются электромагнитные (   Читать дальше...   )Жанр: ГеофизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00472B637ECD50D7AA763C386778C8A1F8E286C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994537   (889749) от 08.03.2016
+
+Сергей Плеханов | Святослав — первый русский император (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный роман о жизни великого русского князя Святослава Игоревича Храброго и его роли в мировой истории. В условиях мощнейшей идеологической и военной агрессии южных империй против языческого Севера он сумел не только сохранить государство своих отцов, но и создать собственную империю, включавшую разные народы и климатические зоны – от холодного Белого моря, (   Читать дальше...   )Жанр: Биографии и Мемуары, Историческая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163A35A6DFE52450701DA2E2B92EEAB040FAE2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994297   (889733) от 08.03.2016
+
+В.Н. Никулин и др. | Лабораторный практикум по биологической химии (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889733.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебно-методическом пособии дается краткое теоретическое введение в предусмотренные ФГОС ВПО и рабочими учебными программами разделы, дающие представления о химической сущности и биологическом значении наблюдаемых явлений. Изложен порядок проведения лабораторных работ, в которых используются современные и наиболее доступные методы химического анализа биологических (   Читать дальше...   )Жанр: Химия, биологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737E11EE924B5CB4C610CE10FE5748233D9E6911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994283   (889695) от 08.03.2016
+
+Г.Н. Шелованова | Материалы и элементы электронной техники (2007) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889695.jpg" />
+</div>
+
+
+###  Подробнее
+
+В виде презентации подробнейшим образом представлен курс лекций, разбитый на модули, по дисциплине Материалы и элементы электронной техникиЖанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428E402615A1014B452F7248AD97493EC6FAFE7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

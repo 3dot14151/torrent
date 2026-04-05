@@ -1,107 +1,3 @@
-###  Публикация: 1040104   (742973) от 04.04.2018
-
-Догма / Dogma (1999) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два падших ангела, Локи и Бартлби, обреченные вечность торчать в штате Висконсин, узнали, что у них есть шанс вернуться в рай. Для этого нужно всего лишь воспользоваться ошибочной церковной католической догмой, провозглашенной кардиналом-новатором: каждый, прошедший через освященную арку в соборе в Нью-Джерси, получает отпущение грехов. Пройдя через нее, Локи и Бартлби (   Читать дальше...   )Производство: США / STK, View Askew ProductionsЖанр: Комедия, Фэнтези, ПриключенияРежиссер: Кевин Смит / Kevin SmithАктеры: Бен Аффлек, Мэтт Дэймон, Сальма Хайек, Кевин Смит, Джейсон Ли, Джейсон Мьюз, Алан Рикман, Крис Рок, Дэн Этеридж, Джордж Карлин, Брайан О`Халлоран, Джефф Андерсон, Аланис Мориссэтт, Мари Елена О`Брайэн, Бад Корт, Джанин Гарофало, Бэррет Хэкни, Джаред Пфеннигверт, Китао Сакурай, Бетти ЭберлинПеревод: Дублированный, 3x Одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 02:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126481C679C15BA85300E59530343E41A0FA02DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217378   (742960) от 04.04.2018
-
-Секретное досье / The Post (2017) HDRip [MVO]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742960.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Кэтрин Грэм, первой женщины-издателя газеты «Вашингтон пост», и редактора Бена Брэдли. Они вступают в гонку с «Нью-Йорк таймс» за право пролить свет на государственные тайны, скрывавшиеся более 30 лет. Журналистам придется преодолеть свои разногласия и рискнуть карьерой и свободой, чтобы мир узнал правду.Производство: США / Amblin Entertainment, DreamWorks SKGЖанр: Триллер, драма, биография, историяРежиссер: Стивен СпилбергАктеры: Мэрил Стрип, Том Хэнкс, Сара Полсон, Боб Оденкёрк, Трэйси Леттс, Брэдли Уитфорд, Брюс Гринвуд, Мэттью Рис, Элисон Бри, Кэрри КунПеревод: Любительский многоголосый, закадровый (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B3D6F03E638F30AF215BC14AB5388E86262D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020677   (742927) от 27.05.2016
-
-Эдди «Орел» / Eddie The Eagle (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о трамплинисте Эдди, по прозвищу «Орел». Он прославился благодаря своим неудачам, ибо на всех соревнованиях он занимал последние места.Производство: Великобритания, США, Германия, Marv Films, Saville Productions, Studio Babelsberg, Plowman Craven & Associates, NvizibleЖанр: Драма, Комедия, Спорт, БиографияРежиссер: Декстер ФлетчерАктеры: Тэрон Эджертон, Хью Джекман, Кристофер Уокен, Джо Хартли, Том Костелло, Кит Аллен, Дикон Толсон, Джек Костелло, Марк Бентон, Тим МакИннерниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA74D4198107616CF6434055E3E54171277EF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020653   (742915) от 27.05.2016
-
-Из тьмы / The Hallow (2015) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейная пара переезжает в новый дом на краю леса, окутанного жуткими легендами. Его первобытные существа пытаются забрать у родителей младенца.Производство: Великобритания, США, Ирландия / Altitude Film EntertainmentЖанр: УжасыРежиссер: Корин ХардиАктеры: Джозеф Моул, Бояна Новакович, Майкл МакЭлхаттон, Майкл Смайли, Гари Лайдон, Стюарт Грэхэм, Конор Крэйг Стефенс, Joss Wyre, Шон ТайрелПеревод: Дублированный (iTunes)Язык субтитров: Русские, английскиеПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1628C4088D36F457C153FA1CF3E18E9B947B2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020661   (742872) от 27.05.2016
 
 Время не ждет / Time Rush (2016) HDRip
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742872.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742861.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742839.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742834.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742788.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742766.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742707.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742492.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742149.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742003.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742002.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741891.jpg" />
 </div>
 
 
@@ -422,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741883.jpg" />
 </div>
 
 
@@ -448,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741868.jpg" />
 </div>
 
 
@@ -474,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741860.jpg" />
 </div>
 
 
@@ -500,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741698.jpg" />
 </div>
 
 
@@ -526,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741632.jpg" />
 </div>
 
 
@@ -552,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741626.jpg" />
 </div>
 
 
@@ -578,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741614.jpg" />
 </div>
 
 
@@ -604,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741609.jpg" />
 </div>
 
 
@@ -630,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741446.jpg" />
 </div>
 
 
@@ -656,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741419.jpg" />
 </div>
 
 
@@ -667,6 +563,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25D068A82BFA1A02596D7C38F0883B4645C247F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282964   (740875) от 15.02.2019
+
+Зятек / Son in Law (1993) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ребекка — молодая студентка, которая отправляется в свой родной городок, чтобы встретить с родными День Благодарения. Вместе с собой она берет своего лучшего друга Кроула, довольно странного паренька, у которого огромное количество причуд. Приехав к родителям, девушка представляет его родным, как своего жениха. Семье Ребекке не нравится ее выбор, поскольку парень (   Читать дальше...   )Производство: США. Hollywood PicturesЖанр: Комедия, МелодрамаРежиссер: Стив РашАктеры: Поли Шор, Карла Гуджино, Лейн Смит, Синди Пикетт, Мейсон Эдамс, Патрик Ренна, Деннис Бёркли, Тиффани Тиссен, Дэн Готье, Риа ПавиаПеревод: Многоголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB62AA3D36992CE38778350789164A0C355D21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784255   (740717) от 07.05.2014
+
+Каратель / The Punisher (2004) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: боевик, триллер, драма, криминалРежиссер: Джонатан ХенслиАктеры: Томас Джейн, Джон Траволта, Уилл Пэттон, Эдди Джемисон, Ребекка Ромин, Бен Фостер, Джон Пинетт, Лора Хэрринг, Джеймс Карпинелло, Марко Ст. Джон, Энтони Короне, Бен Фостер, Рик ЭлмхурстПеревод: Многоголосый закадровыйПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25B2B2FB63991308150F26C5AF1C6ED9AC8D0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126949   (740699) от 20.04.2017
+
+Дьявол в нем / Le diable dans la peau (2011) DVDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ксавье и его младший брат - Жак, живут в сельской местности, полной ущелий, плато и огромных просторов. Эта щедрая величественная природа контрастирует с их темной и жестокой повседневной жизнью. Накануне летних каникул Ксавье узнает, что их хотят разлучить: Жака отправляют учиться в специальную школу для одаренных детей...Производство: Франция (Noodles Production)Жанр: ДрамаРежиссер: Gilles MartinerieАктеры: Кантен Гроссе, Поль Франсуа, Джианн Бурно, Орфео Кампанелла, Августин Куэр, Жозефин Деренне, Орели Мерьель, Франсис РеноПеревод: Одноголосый закадровый (Семен Ващенко)Субтитры: русские, английские неотключаемыеПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9805338F9471447F35E8013C1BD35ADF884F2468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127192   (740697) от 20.04.2017
+
+Челюсти 3D / Shark Night 3D (2011) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма вращается вокруг группы подростков, учащихся колледжа, которые проводят свои выходные на воде в большом озере. Вскоре они обнаруживают, что зубастая опасность скрывается под ними, в непроглядной глубине.Производство: США / Incentive Filmed Entertainment, Next Films, Sierra Pictures (III), Silverwood FilmsЖанр: Триллер, УжасыРежиссер: Дэвид Р. ЭллисАктеры: Сара Пэкстон, Дастин Миллиган, Крис Кармак, Кэтрин МакФи, Донал Лог, Джоэль Мур, Джошуа Леонард, Синква Уоллс, Алисса Диас, Крис ЗилкаПеревод: Дублированный (BD 3D)Субтитры: АнглийскиеПродолжительность: 01:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797DFF86B0BE69F229F475A6A3776A9C3BAABB38
 ```
 
 https://mybot314.ru/tekegram_catalog/

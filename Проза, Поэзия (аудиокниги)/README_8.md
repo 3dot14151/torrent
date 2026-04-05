@@ -1,3 +1,55 @@
+###  Публикация: 1487972   (1002849) от 08.08.2021
+
+Каролина Дэй | Принуждение (2021) [MP3, Валерия Савельева]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002849.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Принуждение» – роман Каролины Дэй, жанр современный любовный роман, романтическая эротика. Ради спасения близкого человека, я продала свое тело незнакомому мужчине. Мне неизвестно о нем ничего. Разум помнит низкий голос с хриплыми нотками, неповторимый аромат мяты, обжигающие прикосновения, от которых можно сойти с ума. Я никогда его не видела и не увижу. Таков (   Читать дальше...   )Жанр: Современные любовные романыПродолжительность: 09:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C8C5E0E36CE0F66C25D9A6BB621AF10B152036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350978   (1002766) от 08.01.2020
+
+Майкл Ондатже | Военный свет (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002766.jpg" />
+</div>
+
+
+###  Подробнее
+
+1945. Лондон до сих пор не может оправиться от войны. Родители оставили 14-летнего Натаниела и его старшую сестру Рэчел на попечение загадочному человеку по прозвищу Мотылек. Они подозревают, что он преступник, и все больше в этом убеждаются, узнавая его эксцентричных друзей: мужчин и женщин, которых что-то связывает в прошлом и которые теперь хотят опекать юных (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 07:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C687937F71BA805137DC398FDBAA094CD3EE391E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351196   (1002516) от 09.01.2020
 
 Александр Мелихов | Интернационал дураков (2020) [MP3]
@@ -6,7 +58,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002516.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002187.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001954.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001716.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001694.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000870.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993329.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992735.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989106.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988062.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987556.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986165.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986163.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984655.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981108.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981102.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980757.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980560.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980559.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979192.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979043.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975804.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975638.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974388.jpg" />
 </div>
 
 
@@ -632,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4986CE32CB75F71F475B258D91708BFCA5FC0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973645   (973423) от 14.01.2016
-
-Рафаэль Иглесиас | Счастливый брак (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973423.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Счастливый брак» - это почти автобиография, очень личный и откровенный рассказ о жизни писателя Энрике Сабаса и его жены Маргарет Коэн. На протяжении всей книги автор переключает внимание читателя с истории знакомства главных героев, счастливых и несчастливых событий их брака на описание последних дней жизни Маргарет, чувств и мыслей Энрике в связи с неизлечимой (   Читать дальше...   )Жанр: РоманПеревод: A happy marriage с англ. Елены ВалкинойПродолжительность: 15:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50718352D32CD8C5C8984E02CDF3D3BB3CC9F856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974353   (973210) от 14.01.2016
-
-Том Шервуд | Призрак Адора (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973210.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Призрак Адора» – вторая книга, написанная мастером Томом Шервудом Локком из Бристоля. Книга о чувстве долга и о самопожертвовании. Повествование о судьбе человека, который, попав в общество, где нет ни полиции, ни законов, восстаёт против местных правил и проявляет незаурядные способности.
-В погоне за похитителями двоих мальчиков-близнецов, детей его старого друга, (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 10:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199CC18536F99CAE712BFE56714CFABA40AB60CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

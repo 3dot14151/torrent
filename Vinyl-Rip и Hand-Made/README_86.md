@@ -1,3 +1,32 @@
+###  Публикация: 1791283   (67888) от 12.04.2025
+
+Macbeth (Italy) - Studio Albums (5 releases) (1998-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macbeth - проект, родившийся в 1995 году, в Милане, Италия. Развивался от симфонической готики до более экспериментальной, с некоторыми электронными элементами.1998 - Romantic Tragedy's Crescendo
+2001 - Vanitas
+2005 - Malae Artes
+2007 - Superangelic Hate BringersЖанр: Symphonic Gothic MetalПродолжительность: 03:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25051DCFDB15ADED0E3744665FC2153A3EA98249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791208   (67875) от 12.04.2025
 
 Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -6,7 +35,7 @@ Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67875.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67870.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67772.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67768.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Powe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67762.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67759.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67757.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67756.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67753.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67752.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67625.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67621.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67600.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67592.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67591.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67589.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67585.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67584.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67581.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67576.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67571.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Gary Moore - Dirty Fingers (1983) Reissue 1992 [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67535.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Bob Roy Orchestra - Disco-Flash (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67532.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67516.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67515.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ A4 - Into The Light(   Читать дальше...   )Жанр: Melodic Doom, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E46DCDC5F4236174B175A743E7D6AAEAADDB6D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792894   (67512) от 24.04.2025
-
-Manowar - Fighting the World (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67512.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fighting The World
-A2 Blow Your Speakers
-A3 Carry On
-A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9B5AA898420277A2B4579211FEC26788455A87
 ```
 
 https://mybot314.ru/tekegram_catalog/

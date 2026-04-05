@@ -1,3 +1,211 @@
+###  Публикация: 1750555   (43005) от 20.09.2024
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2024.09.20) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43005.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76800AA49982F19B436D7F2F96FCF7F079905DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750431   (42913) от 21.09.2024
+
+ФСТЭК назвала стоимость российского ПО чрезмерно высокой
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стоимость отечественного программного обеспечения очень завышена, заявил заместитель директора Федеральной службы по техническому и экспортному контролю (ФСТЭК) Виталий Лютиков на пленарной сессии BIS Summit.Замдиректора отметил, что российские производители подняли цены в десятки раз из-за спроса на свои товары и отсутствия конкуренции с популярными европейскими (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749129   (42898) от 21.09.2024
+
+Star Wars Jedi: Survivor (2023) [Multi] (Patch 9/dlc) Scene Rune [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42898.jpg" />
+</div>
+
+
+###  Подробнее
+
+STAR WARS Jedi: Survivor продолжит повествование о жизни Кэла через пять лет после прошлых событий. В этом галактическом экшен-адвенчуре с видом от третьего лица тебя ждет захватывающий сюжет, который погрузит тебя в мир, погружающийся во мрак. Стоит ожидать сражений с новыми и старыми врагами, а также важных решений, которые придется принимать Кэлу, чтобы спасти (   Читать дальше...   )Тип издания: SceneРазработчик: Respawn EntertainmentЖанр: Экшены, ПриключениеЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9A992A768564E7A0534A2F572C61DA3BDE9ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750646   (42896) от 21.09.2024
+
+WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.09.20 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FAC88C389B134F4B9E423C43F1ED0F23880374D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750550   (42895) от 21.09.2024
+
+Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.17932.20114 (2024.09) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office LTSC 2024 предоставляет привычный набор приложений, таких как Word, Excel, PowerPoint, Outlook, OneNote, OneDrive и Access, и включает функции, представленные в корпоративных версиях Microsoft 365. Среди нововведений — динамические диаграммы в Excel, улучшенные возможности поиска и создания встреч в Outlook, а также улучшения производительности, безопасности (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1DB6CC46CA6294B39C2AE5765A0C7A416417CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750486   (42801) от 22.09.2024
+
+Палата представителей США заявила: все новые автомобили должны быть оснащены AM-радио
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автопроизводители сопротивляются по экономическим и техническим причинам.Конгресс размышляет, следует ли требовать от новых транспортных средств включать AM-радио, технологию, которую многие автопроизводители считают устаревшей и от которой потребители все чаще отказываются в пользу цифрового потокового вещания. Однако есть аргументы в пользу ее включения, такие (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750561   (42794) от 22.09.2024
+
+Провайдеры пожаловались в ФАС на дискриминацию из-за замедления YouTube
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Началось: провайдеры зарубились с РКН — ассоциация операторов связи направила  жалобу в Федеральную антимонопольную службу (ФАС) на дискриминацию из-за ЗАМЕДЛЕНИЯ YouTube.Площадка официально НЕ ЗАБЛОКИРОВАНА в России, поэтому РКН не имеет права по собственной инициативе ограничивать к ней доступ. Кроме того, операторы не довольны тем, что «деградация серверов» происходит (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 278889   (42793) от 22.09.2024
+
+Sin Episodes: Emergence (2006) [Ru] (1.0/dlc) Repack Fenixx
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник Джон Р. Блейд — командир легендарного силового подразделения HardCorps Security Force в городе Фрипорт. Вот уже несколько лет Блейд пытается свести счеты с Элексис Синклер, гениальной, но порочной дочкой миллиардера, возглавляющей биотехнологическую корпорацию SinTEK. Теперь, когда Элексис достигла самых вершин власти и собирается переделать все человечество (   Читать дальше...   )Тип издания: RepackРазработчик: Ritual EntertainmentЖанр: Action (Shooter), 3D, FPSЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687C2DE9E094FD6C96E235353D4698D143AE3435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749796   (42791) от 22.09.2024
 
 Меган: К вашим услугам / Subservience (2024) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +214,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42791.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ Windows 11 Pro 23H2 22631.4169 x64 by SanLex [Lightweight] [Ru/En] (2024.09.21)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42790.jpg" />
 </div>
 
 
@@ -60,7 +268,7 @@ Ookami to Koushinryou: Merchant Meets the Wise Wolf / Spice & Wolf: Merchant Mee
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42690.jpg" />
 </div>
 
 
@@ -86,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42689.jpg" />
 </div>
 
 
@@ -112,7 +320,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 8.8 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42685.jpg" />
 </div>
 
 
@@ -141,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42581.jpg" />
 </div>
 
 
@@ -169,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42564.jpg" />
 </div>
 
 
@@ -195,7 +403,7 @@ SpaceX хочет запустить пять кораблей на Марс д�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42562.jpg" />
 </div>
 
 
@@ -221,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42491.jpg" />
 </div>
 
 
@@ -247,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42488.jpg" />
 </div>
 
 
@@ -273,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42483.jpg" />
 </div>
 
 
@@ -299,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42479.jpg" />
 </div>
 
 
@@ -325,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42380.jpg" />
 </div>
 
 
@@ -351,7 +559,7 @@ Ookami to Koushinryou: Merchant Meets the Wise Wolf | Spice & Wolf: Merchant Mee
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42377.jpg" />
 </div>
 
 
@@ -377,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42282.jpg" />
 </div>
 
 
@@ -403,7 +611,7 @@ Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Sube
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42275.jpg" />
 </div>
 
 
@@ -429,7 +637,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 09.2024
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42269.jpg" />
 </div>
 
 
@@ -455,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42268.jpg" />
 </div>
 
 
@@ -466,214 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBACDCB22F7BF752B2D17BED48A9D2FF3E2D0887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751927   (42182) от 28.09.2024
-
-Discord может быть заблокирован или замедлен в России в ближайшие дни.
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный в ИТ-среде и игровом сообществе мессенджер Discord может быть вскоре официально заблокирован в России из-за нарушения законодательства, пишет «Коммерсантъ» со ссылкой на информированный источник.Как сообщается, со ссылкой на данные из реестра запрещённых сайтов ведомства, с 20 сентября Роскомнадзор вынес пять новых решений по поводу работы Discord в России, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727393   (42177) от 28.09.2024
-
-Яндекс.Погода v24.9.20 Mod by vadj [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42177.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 27.09.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0437257D3F4FF31B0004EC52B3288D98F4E03A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206037   (42166) от 28.09.2024
-
-Наутилус Помпилиус (Nautilus Pompilius) - Discography (45CD) (1983..2008) [MP3|320 kbps]<Русский Рок>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Русский РокПродолжительность: 34:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D18ED7C4FDD73B3C64570AC853E01C633C75872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748074   (42165) от 28.09.2024
-
-Ребел Ридж / Rebel Ridge (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший морпех вступает в схватку с коррупцией в небольшом городке, когда местные правоохранители незаконно изымают у него крупную сумму, необходимую для залога за кузена.Производство: США / Bonneville Pictures, Film ScienceЖанр: боевик, триллер, драма, криминалРежиссер: Джереми СолньеАктеры: Аарон Пьер, Дон Джонсон, Аннасофия Робб, Дэвид Денман, Эмори Коэн, Oscar Gale, Reid Williams, Стив Зиссис, Дэниэл Чунг, Дэна ЛиПеревод: Многоголосый (TVShows, HDrezka Studio, LE-Production), Двуголосый (ViruseProject), Авторский (М.Яроцкий)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, Английские (Full, SDH)Продолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6A9625DD86D8BC1691FF2B6F125CAF96BA52FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751783   (42164) от 28.09.2024
-
-Одинокие волки / Wolfs (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пути двух соперничающих решал пересекаются, когда их обоих вызывают помочь скрыть промах видного нью-йоркского чиновника. В течение одной взрывоопасной ночи им придётся отбросить свои мелкие обиды и эго, чтобы довести дело до конца.Производство: Великобритания, США / Apple Studios, Columbia Pictures Corporation, Plan B Entertainment, Smoke HouseЖанр: триллер, криминалРежиссер: Джон УоттсАктеры: Брэд Питт, Джордж Клуни, Эми Райан, Остин Абрамс, Пурна Джаганнатан, Wael Alroyly, Златко Бурич, Линда Карола, Ирина Дубова, Ричард КайндПеревод: Профессиональный многоголосый (RGB)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECF4C16D9DA5541566CDFEE5062B8B7F1BC766C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221192   (42163) от 28.09.2024
-
-Жили-были (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старинная деревня в русской глубинке. Из жителей только два одиноких немолодых мужчины и внезапно овдовевшая женщина. Один из друзей решает, что пора завязывать с одиночеством и собирается предложить вдове руку и сердце. Но второй мужчина в корне с этим не согласен и тоже претендует на вакантное место. Лучшие друзья объявляют друг другу войну.Производство: Россия, Продюсерский центр Фёдора ДобронравоваЖанр: КомедияРежиссер: Эдуард ПарриАктеры: Фёдор Добронравов, Ирина Розанова, Роман Мадянов, Виктор Супрун, Владимир Капустин, Альбина Евтушевская, Алексей Ведерников, Ирина Сойкина, Владимир КарповПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0557459B7A0767B38F7D785CC3F73C26A51327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751466   (42126) от 28.09.2024
-
-Российские сотовые операторы внедряют блокчейн в сим-карты
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотовые операторы по всему миру начинают внедрять блокчейн-технологии в сим-карты, что обещает улучшить безопасность и упростить доступ к криптокошелькам для пользователей. В России МТС также изучает возможность интеграции блокчейна в смартфоны, сообщает РБК.Такие сим-карты будут способны хранить открытые и закрытые ключи пользователей, управлять ими и обеспечивать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751559   (42072) от 29.09.2024
-
-"АвтоВАЗ" запустил производство электромобилей Lada e-Largus за 3 млн рублей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42072.jpg" />
-</div>
-
-
-###  Подробнее
-
-На входящем в «АвтоВАЗ» заводе «Lada Ижевск» началось массовое производство электромобиля Lada e-Largus, передаёт «Интерфакс» со ссылкой на пресс-службу компании. В посвящённом событию мероприятии приняли участие президент «АвтоВАЗа» Максим Соколов и глава Удмуртии Александр Бречалов.К концу года предприятие выпустит несколько десятков электромобилей, заявил господин (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

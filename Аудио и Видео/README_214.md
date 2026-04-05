@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310536.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309810.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309712.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309463.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309359.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308969.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Blue Note Re:imagined 2020 (2020) [AAC|~321 Kbps] <Contemporary Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308849.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308727.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308719.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308569.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308443.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Территория ДДТ (2020) [AAC|~320 Kbps] <Alternative, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308229.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307565.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307193.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307141.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306952.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306943.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306942.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306937.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306811.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306755.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306552.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - The New Spirits Of Jazz (2000) [AAC|~308 Kbps] <Downtempo, Future Jazz, Tri
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306415.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Electronic Species (1996) [AAC|~311 Kbps] <Dub, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306414.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Summer Memories Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306413.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - By the Lake Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306410.jpg" />
 </div>
 
 

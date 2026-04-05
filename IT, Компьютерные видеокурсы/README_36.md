@@ -1,32 +1,3 @@
-###  Публикация: 1196518   (821995) от 03.01.2018
-
-Geekbrains | Профессия Разработчик игр (2017) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто такой Разработчик игр? Создатель программного кода, который визуализирует игровой мир и взаимодействия игрока с этим миром.
-
-C# уровень 1
-unity 3d уровень 1(   Читать дальше...   )Производство: GeekbrainsЖанр: Разработка игрПродолжительность: 33:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8505032EE544CA717C6E19D2ACDEBF72ABAB34D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196807   (820312) от 04.01.2018
 
 Unity3DSchool | Комплексное обучение созданию игр на Unity3D (2016-2017) PCRec [H.264/1080p-LQ]
@@ -35,7 +6,7 @@ Unity3DSchool | Комплексное обучение созданию игр 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820312.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ Geekbrains | Профессия Разработчик .Net (2016) PCRec [H.264/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820311.jpg" />
 </div>
 
 
@@ -92,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819236.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818719.jpg" />
 </div>
 
 
@@ -147,7 +118,7 @@ Udemy | Создание веб-сайта с нуля с помощью HTML & 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818705.jpg" />
 </div>
 
 
@@ -175,7 +146,7 @@ Udemy, Stephen Ulibarri | Unreal Engine Blueprints - The Ultimate Developer Cour
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817210.jpg" />
 </div>
 
 
@@ -201,7 +172,7 @@ Geekbrains | Blockchain (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816743.jpg" />
 </div>
 
 
@@ -227,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816600.jpg" />
 </div>
 
 
@@ -253,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816350.jpg" />
 </div>
 
 
@@ -279,7 +250,7 @@ Udemy, Gabriel Aguiar | Unreal Engine 4 - VFX for Games - Beginner to Intermedia
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815246.jpg" />
 </div>
 
 
@@ -305,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812951.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812948.jpg" />
 </div>
 
 
@@ -357,7 +328,7 @@ Udemy, Stephen Ulibarri | Learn C++ for Game Development in Unreal Engine (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811526.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ KNOWLEDGE Syndicate | Архитектура мобильных игр на UNIT
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811519.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811052.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810932.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Udemy, Andy Bek | The Ultimate Pandas Bootcamp: Advanced Python Data Analysis  (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809731.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Udemy, David Bombal | The Complete Networking Fundamentals Course. Your CCNA sta
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809625.jpg" />
 </div>
 
 
@@ -523,7 +494,7 @@ Techworld With Nana, Nana Janashia | The Ultimate Kubernetes Administrator Cours
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809611.jpg" />
 </div>
 
 
@@ -551,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809403.jpg" />
 </div>
 
 
@@ -577,7 +548,7 @@ Udemy, Scott Smith | Cisco CCIE Enterprise Infrastructure  (2021) WEB-DL [En / E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807934.jpg" />
 </div>
 
 
@@ -604,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807624.jpg" />
 </div>
 
 
@@ -630,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806500.jpg" />
 </div>
 
 
@@ -656,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805121.jpg" />
 </div>
 
 
@@ -682,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805116.jpg" />
 </div>
 
 
@@ -695,6 +666,32 @@ Oracle – самая популярная база данных, которая
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98C2AB882D18B01A3096D4E8D1D23DF9B538951C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009710   (805112) от 23.04.2016
+
+Андрей Кудлай | Создание каталога товаров с помощью PHP, MySQL и jQuery (2015) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Вашему вниманию курс по созданию каталога товаров с помощью PHP, MySQL и jQuery. Это огромный по объему курс, в котором не просто решается какая-то конкретная задача, но в котором практически в режиме онлайн мы будем создавать собственный движок с нуля. Написанный в курсе по созданию каталога товаров с помощью PHP, MySQL и jQuery движок, можно будет (   Читать дальше...   )Производство: WebforMyselfЖанр: PHP, MySql, jQueryПродолжительность: 32:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70678A84B269EC7272A47587B19EC0488492CB09
 ```
 
 https://mybot314.ru/tekegram_catalog/

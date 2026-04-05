@@ -1,3 +1,32 @@
+###  Публикация: 1635455   (241909) от 25.05.2023
+
+Walk With Titans - Olympian Dystopia (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herakles (4:08)
+02. Edge Of Time (4:35)
+03. Gods Of The Pantheon (5:53)
+04. As Titans Fall (4:37)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D32EA45DEDB23538E5A6CCC6B61FB667F36027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374528   (241896) от 10.04.2020
 
 Solar Eruption - The End Is Near (Limited Edition) / Bloody Mary (2019-2020) [MP3|320 Kbps] <Technical Deathcore>
@@ -6,7 +35,7 @@ Solar Eruption - The End Is Near (Limited Edition) / Bloody Mary (2019-2020) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241896.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Benighted - Obscene Repressed (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241888.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Wisborg - Into The Void (2021) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241884.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Abandon All - Far Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241878.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ All Wasted - Burn With Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241875.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241874.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Primitai - The Line Of Fire (2010) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241864.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Soliton - Cyclical Denial (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241863.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ VA - Soft Rock Forever (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241861.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Graveyhard - 2 Albums (2018-2020) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241854.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Phoenix Rising - Fire & Ashes - Acta Est Fabula (2021) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241853.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Powerwolf - Interludium (2023) 3CD, Deluxe Version [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241847.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241832.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Blood, Sweat & Tears - Blood, Sweat & Tears (1968) Reissue, 2022,  Columbia - Le
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241817.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Trope - Eleutheromania (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241801.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Whipworm - Gozer (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241796.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Night Spirit - The Spark (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241790.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Disphoria - Чёрная Метка (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241786.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Primitai - The Calling (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241781.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Otherwise - Gawdzillionaire (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mod
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241774.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Darkfold - Ley Lines (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241769.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Adversor - Portrait of a Wasteland (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241768.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Smogg - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241766.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Throwdown - Take Cover (2020) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241764.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Abysmal Dawn - Nightmare Frontier (2022) EP [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241761.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Abysmal Dawn - Nightmare Frontier (2022) EP [FLAC|Lossless|image + .cue] <Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10A064925CCB9F803E42744ABF1CDEE3839D4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376585   (241757) от 18.04.2020
-
-The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. [10 Good Reasons For Modern Drugs] (04:08)
-02. Shooting Dennis Hopper Shooting (03:24)
-03. The Arbor (04:19)
-04. VTr (04:16)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7DEDF2517728577701B0AC382E81FDC3CF24DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

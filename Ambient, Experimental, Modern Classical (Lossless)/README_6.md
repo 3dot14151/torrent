@@ -6,7 +6,7 @@ Illuvia - Illuvia (2017) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789535.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Robert Rich - Inner Landscapes (1999) Hypnos / Soundscape [FLAC|Lossless|tracks+
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789528.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Spacecraft - Spacecraft (1997) Lektronic Soundscapes [FLAC|Lossless|tracks+.cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789527.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Relmic Statute - Morning Tapes (2010) hibernate [FLAC|Lossless|tracks+.cue] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789115.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Paul Menska - Travel Memoirs (2016) Terminal Dream [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789105.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789104.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wintersilence - Slow Focus (2016) Musical Philosophy [FLAC|Lossless|tracks+.cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789100.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Secret Pyramid - Two Shadows Collide (2017) Ba Da Bing! [FLAC|Lossless|WEB-DL|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789095.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Anima Infinity - With Eyes Closed (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789055.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Pill-Oh (Zinovia) - Vanishing Mirror (2012) Kitchen. Label [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787973.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Spell of Unseeing - Weaving Light and Shadow (2020) 2021, Northern Silence Produ
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787067.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Cryo Chamber Sampler #1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787018.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Robert Rich - Tactile Ground (2019) Soundscape [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787009.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Between Interval - legacy (2017) [FLAC|Lossless|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785755.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Our Lady Of The Flowers - Holiday In Thule (2019) 13 Records [FLAC|Lossless|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785453.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Thing With Five Eyes - Noirabesque (2018) [FLAC|Lossless|Web-DL|tracks] <Dar
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785447.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Antendex - Take Shelter (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785437.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Robert Rich - The Biode (2018) [FLAC|24/96|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783460.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Logic Moon - 2017 (2020) Logic Moon Records [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782697.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Javier Marimon - General Noise (2020) Oslated [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782299.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Territories (2017) 79Ancestors [FLAC|Lossless|WEB-DL|tracks] <Ambient, Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781740.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Physical Dreams - Ambient Sounds (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781705.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781333.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Autumn of Communion - Streams (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780387.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Los
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779538.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777146.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1060135   (454904) от 07.10.2016
+
+After All - Waves Of Annihilation (2016) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rejection Overruled
+02. Target Extinction
+03. The Unusual Sin
+04. Fall In Line(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B5A7BE16AC26ABD63D62FDF858B5B0FDAD26AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060212   (454901) от 07.10.2016
 
 Epica - The Holographic Principle (2016) Digipak, Limited Edition [FLAC|Lossless|tracks + .cue] <Symphonic Power Metal>
@@ -6,7 +35,7 @@ Epica - The Holographic Principle (2016) Digipak, Limited Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454901.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fit For A King - Dark Skies (2018) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454838.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Рок на костях. 25+25. Посвящается 25-летию не�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454817.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Beefeaters - Secret Tapes (1968) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454801.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Tarja (Tarja Turunen) - Dead Promises (2019) Single [MP3|320 Kbps] <Symphonic Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454796.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ No Doubt - 9Albums+10Singles (1992-2012)<Alternative Rock/Pop Rock/Ska>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454669.jpg" />
 </div>
 
 
@@ -184,7 +213,7 @@ Jungle - For Ever (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454545.jpg" />
 </div>
 
 
@@ -213,7 +242,7 @@ Soijl - Endless Elysian Fields (2015) [MP3|320 кб/с]<Doom Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454076.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ After Smoke Clears - Rapacious (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454027.jpg" />
 </div>
 
 
@@ -271,7 +300,7 @@ Messiah - Fracmont (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454024.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ Desecration Conflict - Digital Dementia (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454021.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ Mindwake - B-52 (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454019.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ Les Friction - Les Friction (2012) [MP3|320 кб/с]<Alternative Rock, Symphonic
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453973.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ Eklipse - Electric Air (2013) [FLAC|Lossless]<Instrumental Symphonic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453957.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Cytotoxin - Nuklearth (2020) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453934.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Cruthu - 2 Albums (The Angle of Eternity / Athru Crutha) (2018-2020) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453933.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ VA - AngelHeaded Hipster: The Songs Of Marc Bolan & T. Rex (2020) 2xCD [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453917.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453860.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ Shiraz Lane - Forgotten Shades Of Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453831.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ Black Eye - Black Eye (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453829.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ Norma Jean - Deathrattle Sing For Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaot
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453827.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ At the Gates - Slaughter Of The Soul (1995) Full Dynamic Range Remaster, 2018 [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453825.jpg" />
 </div>
 
 
@@ -651,7 +680,7 @@ O.R.k. - Inflamed Rides (2015) Remastered, Deluxe Edition, 2022, Kscope [FLAC 2.
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453824.jpg" />
 </div>
 
 
@@ -680,7 +709,7 @@ Knight Area - D-Day II - The Final Chapter (2022) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453823.jpg" />
 </div>
 
 
@@ -709,7 +738,7 @@ Belphegor - The Devils (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453821.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ Belphegor - The Devils (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41BD59BA1ABC91564F86362AE3346A327CD48940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569318   (453820) от 12.08.2022
-
-Norma Jean - Deathrattle Sing for Me (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Chaotic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1994 (3:32)
-02. Call for the Blood (3:15)
-03. Spearmint Revolt (5:02)
-04. Memorial Hoard (4:50)(   Читать дальше...   )Жанр: Chaotic MetalcoreПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135CCD0D143E527690BBBD9CA6DC6DE5916A6A06
 ```
 
 https://mybot314.ru/tekegram_catalog/

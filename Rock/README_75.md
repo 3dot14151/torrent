@@ -6,7 +6,7 @@ Ohhms - Rot (2023) [MP3|320 Kbps] <Sludge, Doom, Stoner, Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243422.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Make Mama Proud - Make Mama Proud II (2022) [MP3|320 Kbps] <Stoner Rock, Heavy P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243420.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ten Jinn - Ardis (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243385.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kevin M. Thomas - Generation Rock (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243147.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Modern Man - Modern Man (1987) [MP3|320 Kbps] <Pop Rock, Synth-pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243145.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eddie B - I'm Holding On (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243030.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Riverside - Riverside 20 The Shorts & The Longs (2021) 2xCD [MP3|320 Kbps] <Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242981.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Toot Farangi - Stingchasers (2023) [MP3|320 Kbps] <Progressive Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242807.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Band of Spice - By the Corner of Tomorrow (2021) [MP3|320 Kbps] <Hard Rock, Ston
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242803.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Fish - Vigil’s End (UK Tour 2021) (2022) [MP3|320 Kbps] <Progressive Rock, Neo
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242789.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Greenleaf - Echoes from a Mass (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242715.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Haken - Fauna (2023) [MP3|256 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242677.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Van Stephenson - China Girl (1981) Deluxe Edition, 2023, MelodicRock Classics [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242209.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Dust Coda - Mojo Skyline (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242174.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Nightrider - Nightrider (1979) Reissue, 1992, Musea Records [MP3|320 Kbps] <Heav
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242073.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Wisborg - Into The Void (2021) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241884.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Soft Rock Forever (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241861.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Trope - Eleutheromania (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241801.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Fratellis - Half Drunk Under a Full Moon (2021) Deluxe Edition [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241716.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Conifer Beard - 3 Albums (2019-2022) [MP3|320 Kbps] <Stoner Rock, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241602.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Guru Guru - The Three Faces Of Guru Guru 1970-2021 (2023) 3CD [MP3|320 Kbps] <Kr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241495.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Riviere - Passage (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240985.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Elephant Rose - 2 Albums, 1 Single (2019-2022) [MP3|320 Kbps] <Progressive Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240855.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ i-Ten - Taking a Cold Look (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240751.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Joe Lamont - Secrets You Keep (1985) Reissue, 2010, Yesterrock [MP3|320 Kbps] <A
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240721.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Damn Fine Coffee - For Richmond or Poorer (2020) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240687.jpg" />
 </div>
 
 

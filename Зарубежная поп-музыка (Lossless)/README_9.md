@@ -6,7 +6,7 @@ Veronique Jannot - Le Meilleur De Veronique Jannot (2002) [FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993320.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Morgan Myles - Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992687.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ a-ha - Stay On These Roads (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990699.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Halsey - Manic (2020) [FLAC|Lossless|tracks] <Indie, Pop, Alternative>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990698.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Now 100 Hits Party (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990607.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988480.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988477.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Radio 538 Hitzone Christmas 2015 (2015) [FLAC|Lossless|image+.cue] <Pop, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988406.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Demis Roussos - Forever And Ever (1973) /2000 Philips/ [APE|Lossless]<Pop, Pop F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987893.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ ABBA - Ring Ring (1973) 2013 Remastered Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987829.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Dan Balan - Freedom. Part 1 (2012) [FLAC|Lossless]<Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987770.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Rock'N'Roll HitMix  Superhits Non-Stop (1999) [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986981.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Vanessa Mai - Fur immer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986941.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Oonagh - Aeria (2015) Sartoranta • Fan-Edition [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985560.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Oonagh - Oonagh (2014) Attea Ranta • Second Edition [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984548.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lola Marsh - Someday Tomorrow Maybe (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983535.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983522.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Fitzgerald - Full Circle (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B, E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983353.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983341.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ New York Gypsy All Stars - Dromomania (2015) [FLAC|Lossless|WEB-DL|tracks] <Cont
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980240.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Duran Duran - Astronaut (2004) SACD, 2005 Epic [FLAC|Lossless|tracks + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979131.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - BRAVO Hits 90 (2015) [FLAC|Lossless|tracks|WEB-DL]<Pop, Electronic, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976616.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975796.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975683.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Crazy Loop (Dan Balan) - The Power of Shower (2007) [FLAC|Lossless]<Pop, Dance, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974916.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Mylene Farmer - Monkey Me (2012) [APE|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974738.jpg" />
 </div>
 
 

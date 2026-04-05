@@ -1,3 +1,108 @@
+###  Публикация: 1151340   (534867) от 02.08.2017
+
+Бриолин / Grease (1978) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои Дэнни Зуко и Сэнди влюбляются, расстаются и вновь находят друг друга. В фильме показана Америка 1950-х годов, где ещё нет ни нефтяных кризисов, ни войны во Вьетнаме, ни панк-рока, преобладают длинные авто с открытым верхом, зализанные пресловутым бриолином причёски, а белые носки — вовсе не признак дурного вкуса. Всюду царит атмосфера безудержного оптимизма (   Читать дальше...   )Производство: США / Allan Carr Production, Paramount Pictures, Robert Stigwood Organization (RSO)Жанр: Мелодрама, МюзиклРежиссер: Рэндал КлайзерАктеры: Джон Траволта, Оливия Ньютон-Джон, Стокард Ченнинг, Джефф Конэвей, Бэрри Перл, Майкл Туччи, Келли Уорд, Диди Конн, Джэми Доннелли, Дина МаноффПеревод: Многоголосый, Двухголосый. Авторский x3Субтитры: Русские (песни, фильм), АнглийскиеПродолжительность: 01:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBAFF66EF224451E01851E2866718CAC1EF53916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266488   (533960) от 03.07.2019
+
+Призрачное счастье (У зеркала два лица) / Le miroir a deux faces (1958) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподаватель арифметики пострадал в автомобильной аварии, виной которой стал знаменитый пластический хирург. Для того чтобы компенсировать моральный ущерб, врач предлагает бесплатно превратить жену учителя в настоящую красавицу. Но, к сожалению, это не приносит им счастья…Производство: Франция, Италия. CEI Incom, Franco London Films, Gaumont, Paris Union FilmsЖанр: ДрамаРежиссер: Андре КайаттАктеры: Мишель Морган, Бурвиль, Иван Десни, Жоржетт Анис, Жюльен Каретт, Жорж Шамара, Элизабет Мане, Жана Маркен, Марсель Перес, СильвиПеревод: ДублированныйСубтитры: Русские (forced, на отсутствующие в Советском прокате эпизоды)Продолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88733A443BDCD3062C74B431903111E41820F738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538267   (533456) от 19.06.2022
+
+За шкуру полицейского / Pour la peau d'un flic / For a Cop's Hide (1981) Blu-ray [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть хорошим частным детективом – значит иметь кучу врагов. И когда частный детектив случайно копнет там, где это кому-то сильно не выгодно, надо быть начеку... В поисках пропавшей слепой девушки герой фильма Шукас и не думал, что столкнется с серьезным сопротивлением своих бывших коллег… Так сколько же стоит шкура бывшего полицейского и куда подевалась девушка?Производство: Франция, Adel ProductionsЖанр: Боевик, триллер, мелодрама, криминалРежиссер: Ален ДелонАктеры: Ален Делон, Анн Парийо, Даниэль Секкальди, Жан-Пьер Даррас, Ксавье Депраз, Жак Риспаль, Жерар Эрольд, Пьер Бело, Анник Алан, Паскаль РоберПеревод: Многоголосый профессиональный (5-й канал, НТВ)Субтитры: РусскиеПродолжительность: 01:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2C6C4112694F55CADE5A39758224A3C18369C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239460   (532952) от 08.08.2018
+
+День Шакала / The Day of the Jackal (1973) BDRemux [H.264/1080p] ARROW GBR Transfer
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного романа Фредерика Форсайта.
+Фильм, действие которого происходит во Франции в начале 60-х годов, основан на реальных событиях. Картина воспроизводит историю покушения на жизнь президента Франции Шарля де Голля, предпринятую ультраправой террористической организации ОАС. Исполнителем воли преступников стал опытный наемный убийца по кличке Шакал, (   Читать дальше...   )Производство: Великобритания, Франция / Universal Productions France S.A., Warwick Film Productions Ltd.Жанр: Триллер, Драма, КриминалРежиссер: Фред ЦиннеманАктеры: Эдвард Фокс, Алан Бадел, Тони Бриттон, Сирил Кьюсак, Микаэль Лонсдаль, Дельфин Сейриг, Эрик Портер, Дерек Джекоби, Рональд Пикап, Мишель Оклер, Вернон ДобчеффПеревод: Дублированный, многоголосый закадровый, двухголосый закадровый, одноголосый закадровыйСубтитры: Английские, французские, немецкие, испанские, португальскиеПродолжительность: 02:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4D9EB3385C0EFE721898D70FEF48CE9CB8E9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532435   (532062) от 10.08.2012
 
 Челюсти / Jaws (1975) [1080p] BDRip
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532062.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531335.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531188.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530859.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529993.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529695.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529420.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529350.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528830.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528537.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528044.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527879.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526999.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526872.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526587.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525472.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524772.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523930.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523824.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523154.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522407.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521541.jpg" />
 </div>
 
 
@@ -575,112 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97E568B2704D890CBE301CA0596D56F1635E2AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240978   (520942) от 16.08.2018
-
-Секс и незамужняя девушка / Sex and the Single Girl (1964) WEB-DLRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520942.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Хелен Герли Браун.
-Редактор «желтого журнала» «Стоп» Боб Вестон процветает! Чем скандальнее его статьи — тем в больший экстаз впадают главный редактор и редколлегия! Последним его «шедевром» стало исследование книги молодого психолога, очаровательной Хелен Браун. Ей 23 года, она не замужем и при этом пустилась в книге в исследования любви, секса и семейной (   Читать дальше...   )Производство: США. Fernwood Productions Inc., ReynardЖанр: КомедияРежиссер: Ричард Ричард КуайнАктеры: Тони Кертис, Натали Вуд, Генри Фонда, Лорен Бэколл, Мэл Феррер, Фран Джеффрис, Лесли Пэрриш, Эдвард Эверетт Хортон, Ларри Сторч, Стабби КэйПеревод: Двуголосый закадровый, одноголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1694B17EC6F88693FA131CDF1FB1CD5D692661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126722   (519887) от 17.08.2018
-
-Барон Мюнхгаузен / Baron Prasil (1962) BDRip [H.264/1080p] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барон Мюнхгаузен, Сирано де Бержерак и жюль-верновский герой Бирбикен встретились на Луне с молодым ученым-астрономом, нашим современником. Приняв его за обитателя Луны, Барон Мюнхгаузен решает отправиться вместе с ним на Землю, дабы показать ему, на что способна настоящая фантазия....
-Фантасмагория по книге Бюргера, стилизованная под гравюры Доре. 3еман вводит в (   Читать дальше...   )Производство: Чехословакия, Filmov Studio Gottwaldov, Krtk Film PrahaЖанр: Фантастика, Фэнтези, Мелодрама, КомедияРежиссер: Карел ЗеманАктеры: Милош Копецки, Рудольф Елинек, Яна Брейхова, Карел Хёгер, Nadesda Blazickova, Карел Эффа, Йозеф Глиномаз, Зденек Годр, Мирослав Голуб, Мирослав ГомолаПеревод: Дублированный, одноголосый закадровыйСубтитры: английские, чешскиеПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2319A47F285270164DF2D6AD9BEBC13A08B9FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924987   (519423) от 19.08.2015
-
-Из породы беглецов / The Fugitive Kind (1960) HDTV [H.264/1080i-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валентайн Ксавьер — бродячий музыкант, решивший сменить образ жизни и покончить со злачными местами и ночными клубами. Волею судьбы он попадает в провинциальный городок, где устраивается на работу продавцом в магазин Джейба Торренса. Между ним и Леди Торренс — женой хозяина магазина возникает симпатия. Но на сердце парня также претендует молодая и взбалмошная Кэрол (   Читать дальше...   )Производство: США, Pennebaker ProductionsЖанр: Драма, МелодрамаРежиссер: Сидни ЛюметАктеры: Марлон Брандо, Анна Маньяни, Джоэнн Вудворд, Морин Стейплтон, Виктор Джори, Р.Г. Армстронг, Эмори Ричардсон, Мадам Спиви, Сэлли Грейси, Люсиль БенсонПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E03B49C617054B4DADC6FBEF349E6D1463CD3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924710   (519346) от 19.08.2015
-
-Как украсть миллион / How to Steal a Million (1966) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Париже. Молодая девушка, дочь миллионера, втайне промышляющего подделкой произведений искусства, и преступник, должны выкрасть с выставки изобразительного искусства в музее один из «шедевров» отца девушки, чтобы спасти его от разоблачения.Производство: США / World Wide ProductionsЖанр: Мелодрама, Комедия, КриминалРежиссер: Уильям УайлерАктеры: Одри Хепберн, Питер О’Тул, Илай Уоллак, Хью Гриффит, Шарль Буайе, Фернан Гравей, Марсель Далио, Жак Марен, Мусташ, Роже ТревильПеревод: Дублированный, многоголосый закадровый, одноголосый закадровыйСубтитры: Русский, английский (SRT)Продолжительность: 02:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD73C7EB6A0A42D8DEF766E434F8A77763DF47E
 ```
 
 https://mybot314.ru/tekegram_catalog/

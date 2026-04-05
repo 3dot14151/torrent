@@ -1,3 +1,212 @@
+###  Публикация: 1602677   (1045005) от 16.01.2023
+
+F-Secure Freedome VPN 2.55.431.0 (15.01.2023) [Multi/Ru]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045005.jpg" />
+</div>
+
+
+###  Подробнее
+
+F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA498166F32A205E733521F7A07CF536F68152EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604711   (1045004) от 16.01.2023
+
+Jinn'sLiveUSB 10.3 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авторская раздача]
+
+>>3
+>>20
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jinn'sLiveUSB - конструктор мультизагрузочной флешки для установки Windows, диагностики и устранения неполадок, состоящий из большого количества продуктов, объединённых оболочкой, с возможностью загрузки в BIOS и UEFI.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C141EEFEB6F6B53AA41A976D5A2A0CE388131A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605064   (1044902) от 17.01.2023
+
+AMD обнаружила 31 новую уязвимость в своих процессорах Ryzen и EPYC
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания AMD обновила информацию об уязвимостях в своих процессорах. В список добавлены данные о 31 уязвимости, которые, в том числе, затрагивают потребительские процессоры Ryzen и серверные EPYC. Разработчики также опубликовали список версий библиотеки AGESA, в которых реализованы исправления для закрытия выявленных уязвимостей.Библиотека инструкций AMD Generic (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587612   (1044890) от 17.01.2023
+
+Концерты (2022-2023) WEBRip [H.264/1080p] (сезон 1, выпуски 1-10 из 10)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы об этом мечтали, но боялись произнести вслух. Чистый юмор в эфире ТНТ! В рамках этого проекта профессиональные юмористические коллективы будут выступать со специальными часовыми перфомансами. Никаких судей или оценок – только юмор – это и есть «КОНЦЕРТЫ». Самый отвязный юмор во всём его жанровом и смысловом разнообразии, без запретов и ограничений. В каждом выпуске (   Читать дальше...   )Телекомпания: АО «ФМП Групп» по заказу АО «ТНТ-Телесеть»Жанр: ТВ-шоу, юморРежиссер: Роман НовиковПродолжительность: ~00:45:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF607F7277061C948DE6DAAA8DB5C4B83BFFD830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605069   (1044793) от 18.01.2023
+
+Intel заявила, что вернула пользователям из России и Беларуси возможность скачивать драйверы в рамках гарантийных обязательств
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Intel официально прокомментировала ситуацию с восстановлением доступа в фирменному программному обеспечению для пользователей из России и Беларуси. Ранее, напомним, получить доступ к разделу загрузки софта американского полупроводникового гиганта можно было только через VPN.В феврале 2022 года Intel прекратила поставки продукции в Россию и Беларусь, а в (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605340   (1044782) от 18.01.2023
+
+Телевизоры Sony будут блокировать пиратские фильмы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подобная мера найдет понимание далеко не у всех пользователей
+Sony создала технологию, которая будет блокировать любые попытки посмотреть фильмы бесплатно. Телевизоры на Android TV будут сами бороться с пиратским контентом.К японской компании разработали приложение, которое вшивается в телевизор. Оно будет проверять каждое видео на пиратство. Если вы смотрите фильмы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525728   (1044781) от 18.01.2023
+
+Терминатор 2: Судный день / Terminator 2: Judgment Day (1991) BDRip [H.264/1080p-LQ] [Extended Special Edition] [handmade remastered AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война роботов и людей продолжается. Казалось, что человечество обречено на полное уничтожение. Но благодаря своему лидеру Джону Коннору у сопротивления появляется шанс победить. Не имея возможности убить Джона в реальном времени, роботы отправляют в прошлое свою самую совершенную разработку - терминатора-убийцу из жидкого металла, способного принимать любое обличье. (   Читать дальше...   )Производство: США, Франция / Carolco Pictures, Pacific Western, Lightstorm Entertainment, Canal+Жанр: Фантастика, Боевик, ТриллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Линда Хэмилтон, Эдвард Ферлонг, Роберт Патрик, Эрл Боэн, Джо Мортон, С. Ипейта Меркерсон, Кастуло Герра, Дэнни Кукси, Дженетт ГолдстинПеревод: Дублированный (со вставками MVO от Позитив)Субтитры: Русские, английскиеПродолжительность: 02:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D622CE2168EF6439B7607B07B6F6F17847E08C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297502   (1044776) от 18.01.2023
+
+One piece | Ван Пис (1997) [105 томов, 1069 глав] [Манга] [Русский] [PNG, JPG] [incomplete]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед смертью Король Пиратов, имевший в своём распоряжении всё – богатство, славу, могущество – завещал главное из своих сокровищ, таинственный Ван Пис, тому, кто первым его найдёт. Так началась Великая Эра Пиратства – эпоха смелых и отважных, устремившихся на поиски Ван Писа. Одним из искателей приключений оказался мальчик по имени Луффи. Полный уверенности, что (   Читать дальше...   )Жанр: Приключения, комедия, фэнтези, сёнэнПеревод: kusok, all-blue, atributz, OPR, MangaOP, xxRIDDICKxx, FallenAngel, GoingMerry, W0WC00L, rushed.Формат: PNG, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E3BB3EE9AB09F3FD075A34152873741D2DC41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605128   (1044774) от 18.01.2023
 
 Microsoft® Windows® 11 x64 Ru 22H2 4in1 Upd 01.2023 by OVGorskiy
@@ -6,7 +215,7 @@ Microsoft® Windows® 11 x64 Ru 22H2 4in1 Upd 01.2023 by OVGorskiy
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044774.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ Micron представила модули DDR5 объёмом 24 и 48 Гбай
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044673.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2023) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044662.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044659.jpg" />
 </div>
 
 
@@ -111,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044588.jpg" />
 </div>
 
 
@@ -129,32 +338,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606139   (1044572) от 20.01.2023
-
-Adobe Photoshop 2023 24.1.1.238 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1044572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2023 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3164E02AB2BC16D826EB9F26C9888CD149F528D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425882   (1044570) от 20.01.2023
 
 Red Dead Redemption 2 (2019) [Ru/Multi] (1.0.1311.23) Repack xatab [Ultimate Edition]
@@ -163,7 +346,7 @@ Red Dead Redemption 2 (2019) [Ru/Multi] (1.0.1311.23) Repack xatab [Ultimate Edi
 >>19
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044570.jpg" />
 </div>
 
 
@@ -189,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044479.jpg" />
 </div>
 
 
@@ -216,7 +399,7 @@ VivaVideo Video Editor v9.7.5 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044456.jpg" />
 </div>
 
 
@@ -243,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044352.jpg" />
 </div>
 
 
@@ -269,7 +452,7 @@ Windows 10 PE (x86/x64) by Ratiborus v.3.2023 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044343.jpg" />
 </div>
 
 
@@ -295,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044277.jpg" />
 </div>
 
 
@@ -321,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044270.jpg" />
 </div>
 
 
@@ -347,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044185.jpg" />
 </div>
 
 
@@ -373,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044100.jpg" />
 </div>
 
 
@@ -399,7 +582,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (01.2023) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044094.jpg" />
 </div>
 
 
@@ -425,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043983.jpg" />
 </div>
 
 
@@ -451,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043977.jpg" />
 </div>
 
 
@@ -477,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043880.jpg" />
 </div>
 
 
@@ -488,189 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607542   (1043871) от 27.01.2023
-
-Windows 11 3in1 x64 22Н2 (build 22621.1105) by ivandubskoj 26.01.2023 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка Windows 11 3в1 (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111F9C50E71627DAE5B00A5E74141748231F41F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607688   (1043864) от 27.01.2023
-
-Битва при Нарвике: Первое поражение Гитлера / Kampen om Narvik / Narvik: Hitler's First Defeat (2022) WEB-DL [H.264/1080p] [МVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Апрель 1940 года. Взоры всего мира устремлены на Нарвик, маленький городок на севере Норвегии, источник железной руды, необходимой для военной техники Гитлера. За два месяца ожесточенной зимней войны Гитлеру нанесено его первое поражение.Производство: Норвегия, Nordisk Film Production ASЖанр: драма, военный, историяРежиссер: Эрик ШёлдбьергАктеры: Хенрик Местад, Kristine Hartgen, Бен Гарлик, Стиг Хенрик Хофф, Карл Мартин Эггесбё, Magnus Dugdale, Хольгер Хандтке, Кристоф Бах, Олли Кэмпбелл, Эмиль ЙонсенПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: русский, английскийСубтитры: Русские, английские (Forced, SDH)Продолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8957EEDF28CFB6831199BEF3455E33B1638DE402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607592   (1043863) от 27.01.2023
-
-Kaspersky Free, Basic, Standard, Plus, Premium 21.9.6.465 Repack by LcHNextGen (27.01.2023) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043863.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2023 году Kaspersky предлагает кибербезопасность нового поколения, чтобы защитить вас от новых вирусов, программ-вымогателей и вредоносного ПО, не замедляя вашу работу. Также включает в себя защиту платежей и менеджер паролей, чтобы ваша цифровая жизнь была конфиденциальной и безопасной.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26246234F558D8DAC24796446002003760353F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607101   (1043862) от 27.01.2023
-
-Чебурашка (2022) WEBRip [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда, чтобы вернуть солнце и улыбки в мир взрослых, нужен один маленький ушастый герой. Мохнатого непоседливого зверька из далекой апельсиновой страны ждут удивительные приключения в тихом приморском городке, где ему предстоит найти себе имя, друзей и дом.
-Помогать — и мешать! — ему в этом будут нелюдимый старик-садовник, странная тетя-модница и ее капризная внучка, (   Читать дальше...   )Производство: Россия / «РОССИЯ 1», Союзмультфильм, СТС, Yellow, Black & WhiteЖанр: семейный, комедияРежиссер: Дмитрий ДьяченкоАктеры: Сергей Гармаш, Ольга Кузьмина, Полина Максимова, Фёдор Добронравов, Сергей Лавыгин, Елена Яковлева, Дмитрий Лысенков, Софья Зайка,  Илья Кондратенко, Ева СмирноваПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99BE364DA8AD3949014B6DA362B743A627BBE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607317   (1043772) от 28.01.2023
-
-В России резко выросло число загрузок пиратских копий фильмов через торренты
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043772.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России резко выросло число загрузок пиратских копий иностранных блокбастеров через торренты — количество скачиваний исчисляется сотнями тысяч в день. Об этом, ссылаясь на данные Peer Trace, пишет «Коммерсант» в среду, 25 января.Наибольшей популярностью на торрентах 22 января пользовались «Аватар 2: Путь воды» (168,6 тыс. скачиваний в день) и «Кот в сапогах 2: Последнее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606747   (1043764) от 28.01.2023
-
-Adobe Photoshop 2022 23.5.4.981 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1043764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2022 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B309088A84CE4184C96AC1F24F246D16B96F8D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604717   (1043761) от 28.01.2023
-
-Windows 10 22H2 + LTSC 21H2 (x64) 20in1 +/- Office 2021 by Eagle123 (01.2023) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 v22H2 19045.2486 и Windows 10 Корпоративная LTSC v21H2 19044.2486, включающие в себя 5 русских и 5 английских редакции x64, с обновлениями по 01.2023, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A876F99E00E8472D14A1245873818F9E28F7CAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

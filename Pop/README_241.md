@@ -1,177 +1,3 @@
-###  Публикация: 1260299   (312185) от 07.11.2018
-
-Rasmus Seebach - Ingen Kan Love Dig I Morgen (2013) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandstorm
-02. Øde Ø
-03. I Min T-Shirt
-04. Olivia(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582617   (312137) от 02.12.2012
-
-Stars on 45 - Звёзды дискотек (1981) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Попурри на темы песен Битлз (15:56)
-02.Попурри на темы песен Битлз (окончание) (17:25)Жанр: DiscoПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD862FDB601F533E8A76320FF79601CCA41C85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 157255   (312115) от 10.12.2009
-
-Ольга Орлова - Первый (2001) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260079   (312020) от 07.11.2018
-
-VERA - Полускромная; Слабая; Название альбома (2017-2018) 3 EP [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Blues Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312020.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 - Полускромная
-2018 - Слабая
-2018 - Название альбомаЖанр: Alternative Pop, Alternative Rock, Blues Rock, Indietronic, RockПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372188506D84981A6DA6C8E906A044D6CCEF3907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583746   (311955) от 02.12.2012
-
-Mylène Farmer - Monkey Me (2012) [MP3|320 kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle a dit (03:52)
-02. À l'ombre (04:51)
-03. Monkey Me (04:13)
-04. Tu ne le dis pas (04:22)
-05. Love Dance (04:06)
-06. Quand (04:07)
-07. J'ai essayé de vivre... (04:40)
-08. Ici-bas (04:33)
-09. A-t-on jamais (03:47)
-10. Nuit d'hiver (05:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D90B6361795CEBCA7BF32CC291296BE6E74E7A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959967   (311925) от 26.11.2015
-
-Чи-Ли - В голове ветер (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А потому
-02. Северный ветер
-03. Ангел на моём плече
-04. Аргентина(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8678C5B3166DAC7F68311A1E0409D6AB03D11A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959807   (311917) от 26.11.2015
 
 Андрей Губин - The Best (2008) [MP3|320 кб/с]<Pop>
@@ -180,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311917.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ The Millionaires - The Millionaires (1980) LP [MP3|320 Kbps] <Electronic, Disco,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311892.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Rumer (Sarah Joyce) - This Girl's In Love: a Bacharach and David Songbook (2016)
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311885.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Future Disco Vol.10 - Complete. Repeat. A Disco Drama (2016) [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311872.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ The Hardkiss - 2 альбома, 1ЕР, 21 сингл (2011-2017) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311648.jpg" />
 </div>
 
 
@@ -324,7 +150,7 @@ Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311537.jpg" />
 </div>
 
 
@@ -353,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311088.jpg" />
 </div>
 
 
@@ -382,7 +208,7 @@ Ane Brun - After The Great Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Art-Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310814.jpg" />
 </div>
 
 
@@ -411,7 +237,7 @@ PUPO - 1996 (1996) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310414.jpg" />
 </div>
 
 
@@ -446,7 +272,7 @@ Gloria Estefan - Cuts Both Ways (1989) [FLAC|tracks+.cue]<Latin, Cubano, Synth-p
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310319.jpg" />
 </div>
 
 
@@ -475,7 +301,7 @@ VA - A Playlist of Love Songs (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310115.jpg" />
 </div>
 
 
@@ -504,7 +330,7 @@ VA - Die Deutschen Disco Charts - Die Hits Des Jahres (2018) 3CD [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310110.jpg" />
 </div>
 
 
@@ -533,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310108.jpg" />
 </div>
 
 
@@ -562,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310105.jpg" />
 </div>
 
 
@@ -591,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310079.jpg" />
 </div>
 
 
@@ -620,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310001.jpg" />
 </div>
 
 
@@ -649,7 +475,7 @@ Danny Fervent - Beautiful Life (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309873.jpg" />
 </div>
 
 
@@ -678,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309460.jpg" />
 </div>
 
 
@@ -707,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309093.jpg" />
 </div>
 
 
@@ -736,7 +562,7 @@ Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308789.jpg" />
 </div>
 
 
@@ -750,6 +576,180 @@ Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C395F5AACF544DD7C6093B410189784C503E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077265   (308724) от 27.11.2016
+
+Петр Лещенко - Petr Lescenco singt (2001) [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Все, что было (Everything that was) [2:50]
+02. Барселона (Barcelona) [2:45]
+03. Андрюша (Andryusha) [2:51]
+04. Караван (Caravan) [3:29](   Читать дальше...   )Жанр: РетроПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450350F774961EC792416442C5728E0BA431FDF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077285   (308608) от 27.11.2016
+
+VA - Незабытые танго (2010) [MP3|320 Kbps] <Эстрада, советская песня, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аргентина (Ф.Гордон (Ф.Квятковская)) - Н.Арполин, Оркестр п/у П.Годвина
+02. Снилось мне (О.Строк) - К.Сокольский, Оркестр "Беллакорд"
+03. Ответ на чёрные глаза (О.Строк) - М.Белорусов, Оркестр п/у М.Вебера
+04. Где твоё сердце (автор неизвестен) - М.Белорусов, Оркестр "Беллакорд"(   Читать дальше...   )Жанр: Эстрада, Cоветская песня, PетроПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FAD3551006A55812596BE523F84410B9C04914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422564   (308565) от 09.11.2020
+
+Workout Music Tv - Best Happy Pop Hits 2020 For Jogging [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Baby - Workout Remix 128 Bpm (4:30)
+02. What A Man Gotta Do - Workout Remix 128 Bpm (4:00)
+03. Boyfriend - Workout Remix 128 Bpm (3:45)
+04. Stupid Love - Workout Remix 128 Bpm (3:30)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8D5C274CF2E4C2A8440F9ABA55CAAD4EC27C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422559   (308561) от 09.11.2020
+
+Workout Music Tv - 40 Happy Aerobic & Cardio Hits 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Got Love - Workout Remix 128 Bpm (4:33)
+02. Take Your Time - Workout Remix 128 Bpm (5:50)
+03. Faith - Workout Remix 128 Bpm (5:39)
+04. Good As Hell - Workout Remix 128 Bpm (4:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E78D94341BF9D6142072AF3ABF3D9C093A0C2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422581   (308560) от 09.11.2020
+
+Workout Music Tv - Running Fall Hits 2020 Session [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firework - Workout Remix 160 Bpm (4:12)
+02. Locked Out Of Heaven - Workout Remix 160 Bpm (4:12)
+03. Warrior - Workout Remix 160 Bpm (3:36)
+04. Crazy Train - Workout Remix 160 Bpm (4:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699BFF582C5B21F82CB23DB2C1B8615348648544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960539   (307887) от 28.11.2015
+
+Cyndi Lauper - The Body Acoustic (2005) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Changes Everything (with Adam Lazzara) 05:14
+ 02. All Through The Night (with Shaggy) 04:40
+ 03. Time After Time (with Sarah McLachlan) 04:17
+ 04. She Bop 04:16(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AFD73F3551621D444CDD4150444E97D86928D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

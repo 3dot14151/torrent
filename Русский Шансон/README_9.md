@@ -1,3 +1,32 @@
+###  Публикация: 1070757   (366278) от 07.11.2016
+
+Любовь Успенская - Еще Люблю (2016) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любочка
+02. Время, Время (Cool Remix 2016)
+03. Забываю (feat. Philipp Kirkorov)
+04. Еще Люблю(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7961793ECB15D97ABDAD5BDCD779DE4A84DA5FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 683403   (357417) от 31.10.2015
 
 Сергей Трофимов - 100 лучших композиций (2013) [MP3|320 кб/с]<Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357417.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356295.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353946.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349953.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348799.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348545.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348065.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347928.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347511.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_332837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_332837.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330074.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329841.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ VA - Вне закона (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328342.jpg" />
 </div>
 
 
@@ -396,7 +425,7 @@ VA - Авторские песни (Эхо Души) (2011) [MP3|192 кб/с]<Ш
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328283.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ VA - Top 30 - Золото Шансона (2015) [MP3|320 кб/с]<Шансон,
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328146.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ VA - Ангел снов (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326656.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324708.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320152.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312861.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307847.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306135.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306047.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302738.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302150.jpg" />
 </div>
 
 
@@ -739,7 +768,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301848.jpg" />
 </div>
 
 
@@ -753,35 +782,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F08BAB7169D6B97A5F2B429AFF9DB85675B74F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081245   (284273) от 09.12.2016
-
-Аркадий Северный - Соло для двух гитар (2016) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление
-02. Елена Бакурова - Скрипач
-03. Интро
-04. Аркадий Северный - Красное, зелёное(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E788DFE2964BA9C4EE070DDAEA26D9B5169CEEB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

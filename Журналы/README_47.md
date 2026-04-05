@@ -1,3 +1,107 @@
+###  Публикация: 976558   (968709) от 18.01.2016
+
+«Моделист-Конструктор» | Морская Коллекция №11 (194) (2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированный журнал для любителей истории флота и судомоделистов. Это серия тематических выпусков о флотах и кораблях всего мира и всех времен, энциклопедические справочники о флотах разных стран в разные исторические периоды. Это подробные «биографии» военных кораблей, знаменитых парусников с чертежами и схемами, редкими фотографиями и архивными материалами. (   Читать дальше...   )Жанр: История военного флотаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167ED4AA5EFDC14E802968CDCED7F1BC6C1B82BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619225   (968665) от 15.02.2013
+
+Журнал | Ателье №2 [+ выкройки] (февраль 2013) [PDF, JPG]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто создаёт одежду. Основные материалы журнала посвящены последним новостям моды в России и за рубежом, персоналиям, так или иначе связанным с модой и производством одежды, производственным и техническим моментам в изготовлении одежды, тканям и методам их обработки, последним тенденциям в стиле и моде.Формат: PDF+JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E2B14ABB41786F3569A69A125BE30BE4300AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619085   (968552) от 15.02.2013
+
+Журнал | Радиоежегодник №21 [февраль 2013] [DJVU]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основу сборника составляет схемотехнический дайджест зарубежной периодики журнала Радиохобби и ещё десяти периодических и интернет-изданий за 2011г. Продолжается знакомство с программой TINA-TI в рамках цикла статей посвященных программам схемотехнического моделирования.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA2B4BAFCB2F96921A4FBD4FF78B0BD19B449A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358664   (968517) от 08.02.2020
+
+Подшивка журналов | Наша история (2018-2020) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать ученые.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2950DD4AE9D5907A4EAFE8B7969B2DE504516FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305985   (968439) от 08.02.2020
 
 Подшивка газет | "Чудо-ПоварЁшка" (2008-2020) [PDF] [Обновлено 08.02.2020]
@@ -6,7 +110,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968439.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968109.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967958.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967954.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967908.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967907.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967859.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967834.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967832.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967814.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967813.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967807.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967773.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967761.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967752.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967732.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967731.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967668.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967595.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967424.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967421.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967239.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BA10A10C556CC5D9B9616378B7F6394C9E0209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358936   (967227) от 09.02.2020
-
-Журнал | Родина №2 (2020) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный исторический журнал "Родина" — это продолжение традиций научно-популярной исторической журналистики, заложенных создателями одноименного дореволюционного издания еще в 1879 году. Современная "Родина" выходит с января 1989 года и неизменно предоставляет читателю богатый просветительский материал.Жанр: научно-популярный исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD688514C4CBC525C2001DA2FBC22CFBEF8782F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358933   (967178) от 09.02.2020
-
-Журнал | Родина №1 (2020) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный исторический журнал "Родина" — это продолжение традиций научно-популярной исторической журналистики, заложенных создателями одноименного дореволюционного издания еще в 1879 году. Современная "Родина" выходит с января 1989 года и неизменно предоставляет читателю богатый просветительский материал.Жанр: научно-популярный исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DADEF0D55866BCEC731F5E5B284AD1668A3CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745768   (967148) от 15.01.2014
-
-Журнал | Cosmopolitan [Россия] №1 (январь 2014) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967148.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Cosmopolitan" – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED55E402ABFB9974D1D7BED0C17551B4822CB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620285   (966797) от 17.02.2013
-
-Журнал | Computerworld [Россия] №3 (февраль 2013) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_966797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Computerworld - ведущий международный еженедельник, посвященный информационным технологиям. В журнале Вы найдете обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технологиях.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2489FEDB5554AD6000DF4FBC9DA888929E8BF09
 ```
 
 https://mybot314.ru/tekegram_catalog/

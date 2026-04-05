@@ -1,162 +1,3 @@
-###  Публикация: 1480868   (1008685) от 30.06.2021
-
-Денис Шевченко | О Haskell по-человечески (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами - книга о Haskell, удивительном и прекрасном языке программирования. Функциональное программирование - своеобразное гетто посреди мегаполиса нашей индустрии. Доля функциональных языков пока ещё очень мала, и многие разработчики побаиваются знакомства с этими языками, и с Haskell в особенности. Моя цель - разрушить этот страх. Вероятно, вы слышали, что (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB1DE9B2A363F2120461F57B3D50D8848A4E31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480967   (1008548) от 01.07.2021
-
-Joe Mayo | C# Cookbook (Early Release) (2021) [EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Even if you're familiar with C# syntax, knowing how to combine various language features is a critical skill when building applications. This handy cookbook is packed full of recipes to help you solve issues for C# programming tasks you're likely to encounter. You'll learn tried-and-true techniques to help you achieve greater productivity and improve the quality (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E75A50122025AAEDFA7527346F719539248006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480476   (1008369) от 02.07.2021
-
-Алексей Васильев | Программирование на Python в примерах и задачах (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня существует много разных языков программирования. Некоторые из них популярны, а некоторые — не очень. Обычно популярность языка определяют по количеству программистов, которые используют его в своей работе на постоянной основе, или по запросам работодателей, которые ищут сотрудников-программистов. Долгие годы традиционно популярными являются языки программирования (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D1607D14901141E6E3FEFB13CC1AF98EBDAB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481873   (1007947) от 05.07.2021
-
-Ройс Дэвис | Искусство тестирования на проникновение в сеть (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пентестеры выявляют бреши в безопасности, атакуя сети точно так же, как это делают злоумышленники. Чтобы стать пентестером мирового уровня, вам необходимо освоить наступательные концепции безопасности, использовать проверенную методологию и постоянно тренироваться. В этой книге представлены уроки эксперта по безопасности Ройса Дэвиса, а также учебная виртуальная (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C69BBA88DAF8B4A864CFBD1F0CF6D831D4A6FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482238   (1007697) от 07.07.2021
-
-Даниэль Куссвюрм | Профессиональное программирование на ассемблере x64 с расширениями AVX, AVX2 и AVX-512 (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007697.jpg" />
-</div>
-
-
-###  Подробнее
-
-зучите язык ассемблера x64, сосредоточившись на обновлениях набора команд x86, наиболее актуальных для разработки прикладных программ.
-
-Рассматриваемые темы:
-64-разрядная платформа x86: архитектура, типы данных, регистры, режимы адресации памяти и базовый набор команд;(   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2944EE53B95FAB238C61419D611A2D256F3B0B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482168   (1007679) от 07.07.2021
-
-П.А  Дмитриев и др. | BIOS. Настройки. Описание, рекомендации по выбору значений, разгон ПК, решение проблем, 5-е издание (2013) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007679.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге приведено подробное описание BIOS и его параметров. При этом представлены различные версии BIOS от всех известных производителей, включая самые современные. При рассмотрении настроек BIOS даются рекомендации по выбору нужных значений. Из этой книги вы узнаете, как повысить производительность компьютера, оптимизировать работу его отдельных систем (процессора, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF (оригинал-макет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1006DBD42E54D3E4BDFCD3D1038C6B0E6470EE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482372   (1007550) от 08.07.2021
 
 Лиз Райс | Безопасность контейнеров. Фундаментальный подход к защите контейнеризированных приложений (2021) [PDF]
@@ -165,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007550.jpg" />
 </div>
 
 
@@ -191,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007521.jpg" />
 </div>
 
 
@@ -217,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007513.jpg" />
 </div>
 
 
@@ -245,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007364.jpg" />
 </div>
 
 
@@ -271,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007351.jpg" />
 </div>
 
 
@@ -297,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007220.jpg" />
 </div>
 
 
@@ -324,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007101.jpg" />
 </div>
 
 
@@ -353,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006941.jpg" />
 </div>
 
 
@@ -379,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006935.jpg" />
 </div>
 
 
@@ -405,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006811.jpg" />
 </div>
 
 
@@ -431,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006689.jpg" />
 </div>
 
 
@@ -458,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006683.jpg" />
 </div>
 
 
@@ -484,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006325.jpg" />
 </div>
 
 
@@ -513,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005974.jpg" />
 </div>
 
 
@@ -539,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005960.jpg" />
 </div>
 
 
@@ -565,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005785.jpg" />
 </div>
 
 
@@ -591,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005778.jpg" />
 </div>
 
 
@@ -617,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005531.jpg" />
 </div>
 
 
@@ -643,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005152.jpg" />
 </div>
 
 
@@ -670,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004656.jpg" />
 </div>
 
 
@@ -684,6 +525,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40CE78D4CA94D1B64E5A0E7B42E79627FE841A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349831   (1004023) от 03.01.2020
+
+Роланд Гесс | Книги по Blender [4 книги] (2009-2012) [PDF] [En]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги автора Roland Hess по 3D моделированию, анимации, физической симуляции и видео монтажу в Blender.Жанр: 3D моделирование, АнимацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB33FBB37B7C1F161AD20252533BF146E1946F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349848   (1003938) от 03.01.2020
+
+Книжная серия | Компьютерный покет [4 книги] (2015-2017) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия компактных самоучителей карманного формата, посвященных наиболее актуальным и популярным вопросам, связанным с компьютером, офисными приложениями и интернетом. Все книги серии отличает доступное и наглядное изложение, понятное читателям любых возрастов.Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97B86690943434E07E4AB8C76B914853FE06791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350038   (1003672) от 04.01.2020
+
+Л.К. Бабенко и др. | Параллельные алгоритмы для решения задач защиты информации (2014) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кратко представлены основные составляющие современных криптографических систем: симметричные алгоритмы шифрования, асимметричные алгоритмы шифрования, функции хэширования. Основной упор сделан на рассмотрение практической возможности применения существующих способов анализа современных криптосистем с целью оценки их криптографической стойкости.
+В работе рассмотрен (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F3B7E6F3D2C20FB05FE6366C9B3E1A7C5E3003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 106380   (1003641) от 04.01.2020
+
+Зинаида Лукьянова | 26 полезных статей для начинающих Фотошоп-мастеров [2008] [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это книга в PDF формате, которая содержит 26 статей посвященных фотошопу.
+Как Вы скорее всего уже знаете, фотошоп - это очень мощная и местами достаточно сложная программа. Именно эта мощь и вызывает сложности у многих новичков и приводит к неразберихе в голове.Возможно, и с Вами произошла подобная история, и Вы, время от времени, задаете себе подобные вопросы. Поэтому (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1FF7A9F3F25589D96C219D3D3FE558AD0D121F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839237   (1003323) от 27.11.2025
+
+В.А. Падарян | Архитектура ЭВМ и язык ассемблера [конспект лекций] (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс имеет своей целью изучение базовых принципов устройства современных ЭВМ, анализ качественных и количественных характеристик различных компонент ЭВМ, анализ влияния этих характеристик на работу прикладных программ. Помимо того, в рамках курса предполагается практическое освоение языка ассемблера архитектуры IA-32, изучение особенностей этой процессорной (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Teach-In. Лекции ученых МГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3809A3D656DD961E7E13BE20497B5790D1497298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487570   (1003205) от 06.08.2021
+
+Вильям Спрингер | Гид по Computer Science, расширенное издание (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие из моих знакомых разработчиков пришли в профессию из самых разных областей. У одних — высшее образование в области Computer Science, другие изучали фотографию, математику или даже не окончили университет. Эта книга для всех вас. Многие найдут здесь темы, интересные сами по себе. Я попытался показать, в каких реальных (неакадемических) ситуациях эти знания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926249EC13E242C297C87EEE1D153109A86CF1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

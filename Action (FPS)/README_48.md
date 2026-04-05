@@ -1,3 +1,55 @@
+###  Публикация: 1758568   (38426) от 03.11.2024
+
+No Man's Sky (2016) [Ru/Multi] (5.12/dlc) Repack seleZen [VR]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая научная фантастика, ее многообразие и неповторимый дух приключений, оживают в творении студии Hello Games. No Man’s Sky – игра, отличающаяся невероятным размахом и амбициями. Вам предстоит исследовать бесконечную вселенную, открывать бесчисленные уникальные планеты и знакомиться с невиданными прежде формами жизни.Тип издания: RepackРазработчик: Hello GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E205F64283CE859DA454C1E531C2C18A2C7F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672430   (38240) от 05.11.2024
+
+Ghostrunner 2 (2023) [Ru/Multi] (42294_40/dlc) License GOG [Brutal Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кровь прольется в долгожданном хардкорном слэшере от первого лица, действие которого происходит через год после событий первой части. Вас ждет приключение в постапокалиптическом киберпанковом будущем. Джек вернулся, чтобы сразиться с жестоким культом киберниндзя, возникшим на задворках Башни Дхармы, и определить будущее человечества. Вас ждут невероятные схватки (   Читать дальше...   )Тип издания: LicenseРазработчик: One More LevelЖанр: Экшны, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCCC75457107971D783EFC9F6D1BE990906CE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624010   (38160) от 06.11.2024
 
 Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
@@ -6,7 +58,7 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38160.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Descent (1995) [Ru/En] (1.5) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38156.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Blood II (1998) [Ru/En] (1.21/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38153.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38063.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38060.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Metro Awakening (2024) (1.0 build 16229071) Repack seleZen [VR only]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38058.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Descent II (1996) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38056.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38054.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Will Rock (2003) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38052.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38043.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Quake Classic (1996) [Ru/En] (1.09) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38041.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38034.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38033.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Turok 2: Seeds of Evil (1998) [Ru/En] (1.4) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38031.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38029.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38028.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38020.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38012.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38007.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Repack Other s [Deluxe Edition] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37845.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37816.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.4.4b/dlc) Repack Let'sРlay [All Fronts]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37727.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37441.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Repack Other s [Ultimate Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37247.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Sker Ritual – фантастический боевик, который мож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AB717BC8EF36A9134CE538A8103807377B6BA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760840   (37112) от 16.11.2024
-
-Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симулятор выживания, которого долго ждали любители реального истощения героя в условиях диких джунглей! Главный герой побывает в темных лесах Амазонки с одной только рацией из предметов «своего времени», а в помощь ему пойдут руки и голова, которые со временем начнут предавать. Green Hell - выживание, истощение, психически подорванное здоровье главного героя. За (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342C63D444A3EA10FF4CAABD58AC61885F88A296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761318   (36837) от 19.11.2024
-
-Black Mesa (2020) [Ru/Multi] (build 14053053/dlc) Repack dixen18 [Definitive Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Mesa («Чёрная Меза», ранее известная как Black Mesa: Source) – ремейк культовой компьютерной игры Half-Life 1998 года на движке Source. Представляет собой модификацию игры Half-Life 2. Разработчики воссоздали оригинальную вселенную Half-Life, используя расширенные возможности движка Source, переработали все текстуры, модели и уровни, реализовали отличный геймплей. (   Читать дальше...   )Тип издания: RepackРазработчик: Crowbar CollectiveЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AE5A8F162F1932855AC181304BD68EB091FDF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

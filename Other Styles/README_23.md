@@ -1,3 +1,61 @@
+###  Публикация: 989752   (915701) от 23.02.2016
+
+Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My World
+02. Little Girl
+03. Save Me
+04. Anima (Remix)(   Читать дальше...   )Жанр: New age, Classical CrossoverПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A31E5D2FF57DA08CFF6C1A42EEFC617B47DC3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366744   (915692) от 16.03.2020
+
+Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915692.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:57| 01. Intro
+|01:37| 02. Helicopter
+|01:05| 03. Tribunal
+|02:05| 04. Serbian Theme(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA263DEFE40A10B02424BE584213CDD35E06BE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366743   (915664) от 16.03.2020
 
 Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +64,7 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915664.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ The Hollywood Symphony Orchestra - Native Spirit (2012) 3CD [MP3|192 Kbps] <Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915522.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ OST - Verliefd op Ibiza / Любовь и секс на Ибице (2013) [MP3|2
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915389.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Star Wars Headspace (2016) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915384.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Space - Magic Fly (1977) Remastered, 1998, Bastien Music [FLAC|Lossless|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915090.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915085.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Brantley Gilbert - The Devil Don't Sleep (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914077.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Alexander Ryabtsev (Александр Рябцев) - Europe: Fantasy Vol. 13 (
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914065.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - The Man from U.N.C.L.E. (Deluxe Version) (2015) [MP3|320 Kbps] <Soundtrack,
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913929.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Kathryn Kaye - There Was a Time (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913684.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Klaus Schulze & Lisa Gerrard - Farscape (2008) 2CD Digipack Edition [FLAC|Lossle
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913569.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Era - The Essential (2010) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913486.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Enya - Best Hits 1988-1994 (1996) Compilation, Unofficial Release [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913176.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Amaste - Spirit of Tibet (2015) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912380.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Jamie Dupuis - Tonalism (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912054.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Guy Sweens - Pathways (2016) [MP3|320 кб/с] <New Age, Ethnic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912004.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Medwyn Goodall - The Portal (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911758.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911723.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Paul Sills - Devas 2 - Ocean Spirits (2016) [MP3|320 кб/с] <New Age, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909762.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Gordon Giltrap - Pofacetilly (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909160.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909135.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909122.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909095.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909074.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42498AC32BB5B0ABD0C270A9E0B544E2DD6A5300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098310   (908944) от 30.01.2017
-
-Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [00:07:37]
-02. A Safe Place [00:06:00]
-03. Sensing the Emotion [00:03:16]
-04. Working With Energy [00:03:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098324   (908937) от 30.01.2017
-
-Asha - Thunderheart (2016) [MP3|320 Kbps] <New Age, Contemporary Christian>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacramental Song
-02. Will You Marry Me
-03. Where Are You
-04. Thunderheart(   Читать дальше...   )Жанр: New Age, Contemporary ChristianПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A7E71DBF46E90FBE9A8689CD4829CADF2852E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

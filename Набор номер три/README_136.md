@@ -1,3 +1,159 @@
+###  Публикация: 804034   (865957) от 01.03.2015
+
+The Forest (2014) [En] (0.14/alpha) Repack R.G. Games
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой игры остается в живых после крушения самолета на необитаемом острове. Основная задача - выжить: рубите деревья, чтобы построить себе убежище, охотьтесь на диких животных или ищите и садите плоды, чтобы не умереть с голоду, а также не забывайте поддерживать очаг, чтобы не замерзнуть. С наступлением ночи все меняется: на охоту выходят мутанты-каннибалы. (   Читать дальше...   )Тип издания: Steam Early AccessРазработчик: Endnight Games LtdЖанр: Action (FPS) / Adventure / Indie / SimulatorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40971D86FE082D2827193C11C259407894F94BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999062   (865945) от 21.03.2016
+
+Роботы, действующие на станции Фукусима, продолжают "гибнуть" от радиации
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_865945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомним нашим читателям, что пять лет назад землетрясение, силой 9 баллов по шкале Рихтера, вызвало появление огромной волны-цунами, которая обрушилась на северо-восточное побережье Японии. Эта волна буквально стерла с лица Земли прибрежные районы четырех перфектур (областей) Японии. Количество жертв этой катастрофы превысило 19 тысяч человек, а самые разрушительные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496549   (865933) от 21.09.2021
+
+Почему лунная пыль может отравить организм человека
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_865933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследовав образцы лунной пыли, в свое время добытые астронавтами, ученые пришли к выводу, что содержащиеся в ней минералы крайне токсичны и могут спровоцировать у человека рак.Мечты о колонии на Луне, где люди ходят по покрытой пылью поверхности и живут внутри огромных куполов, скорее всего так и не станут реальностью в ближайшие десять или даже двадцать лет. Да, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497082   (865924) от 21.09.2021
+
+Верховный суд  запретил разводить на садовых участках сельскохозяйственных животных
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_865924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россиянам нельзя держать мелкую сельхозживность, в том числе кур, на землях для садоводства. Соответствующий запрет подтвердил Верховный суд, сообщает «Российская газета». За нарушение этой нормы гражданам грозит крупный штраф.Поводом для разбирательств стал конфликт жительницы Волгограда с областной инспекцией по использованию и охране земель. Инспекторы обнаружили (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497103   (865920) от 21.09.2021
+
+NVIDIA GeForce Desktop Game Ready 472.12 WHQL + DCH [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865920.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3EFB3A0ECAF22F1EDBA7D8080781F7CF1E349D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162736   (865905) от 21.09.2021
+
+Windows 7 RTM USB-DVD Download Tool 1.0.30.0 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows USB/DVD Download Tool - инструмент от компании Microsoft, переназначенный для быстрого и простого создания загрузочных USB-флешек или DVD-дисков и образами операционной системы Windows. Она позволяет записать образ системы на флешку или DVD-диск, чтобы затем использовать его для установки на компьютер или ноутбук. При этом, программа очень проста в использовании (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433AB10E00123E8CCF7677FCB93B4AA51A3FB38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999233   (865717) от 21.03.2016
 
 Акула-Робот / Roboshark (2015) WEB-DL [H.264/720p]
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865717.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865711.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865532.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865509.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ BELOFF 2016.3.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865507.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865506.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) RePack by D!akov (20.03.2016) [Mult
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865505.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ CorelDRAW Graphics Suite X8 18.0.0.448 Retail [Multi/Ru]
 >>24
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865504.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.02.23 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865461.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865454.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865452.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865450.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865186.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865176.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_865087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_865087.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_865075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_865075.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865047.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ Dead Space Дилогия [Ru/En/Multi3] (Lossless RePack) 2008-2011 | R.G. Ме
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865022.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ Pinnacle Studio 15 Content VM & OB Team [Multi/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865018.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ LiveCD Windows'7 5.5c (cuba) и 5.5m (mini) by xalex (12.01.2011) [Русски�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865014.jpg" />
 </div>
 
 
@@ -514,162 +670,6 @@ LiveCD Windows'7 5.5c (cuba) и 5.5m (mini) by xalex (12.01.2011) [Русски�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497209   (864280) от 22.09.2021
-
-Вассерман предложил сократить срок обучения в школах
-
->>3
->>20
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_864280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публицист и телеведущий Анатолий Вассерман, вышедший в лидеры по Преображенскому округу Москвы на выборах в Госдуму, заявил о намерении продвигать идею реформирования системы образования. В частности, он предложил сократить срок обучения в российских школах, передает издание «Подъем».Телеведущий отметил, что реформа образования должна начаться с изменения цели обучения, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323891   (864275) от 22.09.2021
-
-Green Hell (2019) [Ru/Multi] (2.1.3) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864275.jpg" />
-</div>
-
-
-###  Подробнее
-
-GREEN HELL – это симулятор выживания в открытом мире, чье действие происходит в неизведанном уголке джунглей Амазонки. Вы оказались одни в джунглях, без еды и снаряжения. Ваша задача – выжить и выбраться к людям. Но со временем одиночество начинает все сильнее давить не только на ваше тело, но и на вашу психику – и ваша битва за жизнь оборачивается войной на истощение. (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AA225A4786CDFEB3F558FC85761FF41154047E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107711   (863919) от 24.02.2017
-
-Scorpion-3 - прототип летающего мотоцикла от российской компании Hoversurf
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_863919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Буквально на днях представители российской компании Hoversurf опубликовали видеоролик, на котором демонстрируется пилотируемый полет многороторного летающего мотоцикла, так называемого хавербайка (hoverbike). Этот летательный аппарат на электрической тяге, имеющий название Scorpion-3, совмещает в себе все преимущества аппарата с вертикальным взлетом и посадкой, возможностью (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999495   (863696) от 22.03.2016
-
-Fallout 4: Automatron (2016) [Ru/En] (1.4.132.0) License [DLC]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863696.jpg" />
-</div>
-
-
-###  Подробнее
-
-DLC Automatron - первое из дополнений к игре Fallout 4. В данном дополнении Automatron, некий таинственный персонаж по имени Механист выпустит на волю орду агрессивных роботов, за которыми игроку предстоит охотиться, чтобы из их частей собрать собственного робота. Можно будет выбирать из сотен модификаций, комбинировать различные конечности, менять покраску и даже (   Читать дальше...   )Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Action (Shooter), RPG, 3D, 1st-Person, 3rd-PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE4FB93C32DCA5C31669B99C6A70B04ECED175B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999369   (863692) от 22.03.2016
-
-Autodesk AutoCAD 2017 N.52.0.0 (x64) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863692.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD 2017 – это больше, чем проектирование. Придавайте форму окружающему вас миру с помощью мощных Интернет-ориентированных инструментов AutoCAD – САПР, которая разработана компанией Autodesk. Продукт позволяет создавать впечатляющие 3D-проекты, с высокой скоростью выпускать рабочую документацию и совместно работать в облаке. Доступ к проектам возможен не только (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACCF562884F76015718B90CE87C22784CD1E833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999324   (863690) от 22.03.2016
-
-Выживший / The Revenant (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охотник Хью Гласс серьезно ранен на неизведанных просторах американского Дикого Запада. Товарищ Хью по отряду покорителей новых земель Джон Фицжеральд предательски оставляет его умирать в одиночестве. Теперь у Гласса осталось только одно оружие — его сила воли. Он готов бросить вызов первобытной природе, суровой зиме и враждебным племенам индейцев, только чтобы выжить (   Читать дальше...   )Производство: США, Anonymous Content, Appian Way, New Regency Pictures, RatPac Entertainment, Soho VFXЖанр: Триллер, Драма, Приключения, ВестернРежиссер: Алехандро Гонсалес ИньярритАктеры: Леонардо ДиКаприо, Том Харди, Донал Глисон, Уилл Поултер, Пол Андерсон, Лукас Хаас, Брэд Картер, Кристоффер Йонер, Брендан Флетчер, Хавьер Ботет, Кори Грим, Роберт Молони, Винсент Леклерк, Джошуа Бёрдж, МакКалеб Барнетт, Рэй Чейз, Тимоти Лайл, Эдриан Макморран, Дэйв Бурчилл, Майкл ВилларПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, Full), Украинский (Forced, Full), Английский (Forced, Full)Продолжительность: 02:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069DF0603B295B3FADF8D9D58749BD27DF2CEBEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

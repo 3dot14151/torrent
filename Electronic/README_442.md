@@ -1,3 +1,119 @@
+###  Публикация: 1346411   (163737) от 19.12.2019
+
+VA - Spacechillers Vol. 2 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Inks & Ateris – Nightfall (10:58)
+02. Dreaming Cooper – Wide Spectrum (09:04)
+03. Cabeiri – Central Channel (07:41)
+04. Flucturion 2.0 & Keencurl – Pathetique Avenue (06:29)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6726B5FEC904B8E39E5AD4F9570BCD72C4C2A07A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517268   (163719) от 14.12.2021
+
+Hodel - Live @ Monday Bar (God Rave The Queen Cruise), Tallink Silja, Sweden (2021-11-06) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto vs. Mark Norman - Flight 643 Overkill (Hodel's AMS Intro Mash)
+02. Randy Katana - Play Gemini Louder (Hodel's Phat Mash)
+03. Divini & Warning vs. Fable - 4LB Nightshift (Hodel Mashup)
+04. Armin vs. M.I.K.E. - Intruder (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327B3B7ABECD6B558BE14C53327DB6858A2E3030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517284   (163705) от 14.12.2021
+
+Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim van Werd - Come Back To Me
+02. Delhia De France, Anyma, Janus Rasmussen - Claire (feat. Delhia De France)
+03. Eel1ke Kleijn - Mont Saint-Michel
+04. Tim van Werd - Tell It All(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD5CB21ABA51E412BF923809D30711739ED5E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516898   (163548) от 14.12.2021
+
+Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, Geffen Records [FLAC|Lossless|tracks + .cue] <New Wave, Goth Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hong Kong Garden [2:55]
+02.Mirage [2:49]
+03.The Staircase (Mystery) [3:06]
+04.Playground Twist [3:02](   Читать дальше...   )Жанр: New Wave, Goth RockПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3694C4FA0F112320775D160952279714EF07B1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517232   (163533) от 14.12.2021
 
 VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossless|WEB|tracks|image] <Trance>
@@ -6,7 +122,7 @@ VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossle
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163533.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Supermode - Tell Me Why [MeduZa remix] (2022) [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163385.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ Hieroglyphic Being - There Is No Acid in This House (2022) [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163373.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ VA - Pop Vocal Lounge: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163346.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ Siskin - We Are Siskin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163303.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ aname (SE) - Beautiful World (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163252.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ VA - Christmas by the Fire: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163080.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Jean-Michel Jarre - Oxymoreworks (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163012.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ David Gainsford - The Best Of Lounge: The Blue Lounge (2001) [FLAC|Lossless|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162975.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [FLAC|Lossless
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162967.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - The Best Of Lounge: Latino Lounge (2001) [FLAC|Lossless|tracks + .cue] <Lat
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162955.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ VA - The Best Of Lounge: Asian Lounge (2001) [FLAC|Lossless|tracks + .cue] <Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162946.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Syn
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162934.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - Black Hole Trance Music 12-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162917.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Coffee & Jazz: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162908.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ VA - Planeta Mix Hits 2022: Winter Edition (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162833.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Eli & Fur - Found In The Wild (Remixed) (2021) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162756.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Recharged 002 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162597.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Nicolas Barnes - Liquid Tools (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162484.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Kombinat 100 - Wege Ubers Land (2023) (Remastered 2007)[FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162418.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162328.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - High School Music Band - Je T'aime... Moi Non Plus (2018) [MP3|320 Kbps] <E
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162069.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - High School Music Band - Je T'aime... Moi Non Plus (2018) [MP3|320 Kbps] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80293D1FC8DA3DF40AAABF925BF328B0617E4280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433124   (161989) от 19.12.2020
-
-VA - Pure Synthwave Vol. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Tourist - An Opening (Descent from Orbit) (3:38)
-02. FM-84 feat. Ollie Wride - Bend & Break (5:16)
-03. BY FOREVER - Let's Work It Out (5:00)
-04. Duett feat. Stewart Lockwood - Don't Make Me Wait (4:05)(   Читать дальше...   )Жанр: Synthwave, Synthpop, ElectronicПродолжительность: 01:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC0D194718708BA06751CD1C12D6C3733F2390F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598727   (161925) от 20.12.2022
-
-VA - Music To Watch Girls By (2019) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Easy Listening, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161925.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Music to Watch Girls By - Andy Williams
-02. Fly Me to the Moon - Julie London
-03. Wives and Lovers - Jack Jones(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 03:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D355F2E814F122313D1ED02EBBBF04D435C39E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598387   (161902) от 20.12.2022
-
-DJ RumBuRak  - The Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astro Night (Original Mix) (10:47)
-02. Dreamland (Original Mix) (08:07)
-03. Inside Your Soul (Original Mix) (07:00)
-04. No Way Out (Original Mix) (07:38)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09EE3DAE243BA53C3272EC8852304A6370D36219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598749   (161856) от 20.12.2022
-
-Nina Hagen - Unity (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock, Punk Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadrack [00:03:42]
-02. United Women of the World [00:03:10]
-03. Unity [00:03:32]
-04. 16 tons [00:02:38](   Читать дальше...   )Жанр: Synth-pop, Pop Rock, Punk RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7AB29E7F05D926B5DE73000E5843F09762997BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

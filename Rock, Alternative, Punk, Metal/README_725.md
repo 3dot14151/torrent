@@ -1,3 +1,32 @@
+###  Публикация: 955201   (335413) от 10.11.2015
+
+Arx Atrata  - Oblivion (2013) [FLAC|image+.cue]<Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter
+02. The Hour
+03. Through Dying Lands
+04. The Broken Man(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6FE0A622A00477C8831DE5BA122175FE5BD4514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955447   (335278) от 10.11.2015
 
 Александр Иванов - Грешной души печаль (1997) Remastered /2015, Медиа Лэнд/ [MP3|320 кб/с|Vinyl-Rip]<Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335278.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Toto - 13 Studio Albums (1978-2015) CD [MP3|320 Kbps] <Classic Rock, Soft Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335216.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Celldweller - End of an Empire (2015) Collector's Edition 5-CD Box Set [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335155.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Boston - 6 Studio Albums, 2 Live, 1 Compilation (1976 - 2014) [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334927.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Algebra - Chiroptera (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334866.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ancestor of Kaos - Ancestor of Kaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334865.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Corpse Garden - Entheogen (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334864.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Inmaze - O (2022) [MP3|320 Kbps] <Math Metal, Post-Core>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334863.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mara - Loka Mær (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334862.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Bay City Rollers (The Rollers) - 8 Albums 1974-1980 (CD Box Set, 1990) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334854.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Leslie West Band - The Leslie West Band (1975) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334849.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ H-Bomb - Attaque (1984) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334731.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Legion - Labyrinth Of Problems (1992) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334728.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Certa Mortis - Ab Inferno Ad Astra (2022) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334726.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Chaosbay - 2222 (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334724.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Saints’ Anger - Danger Metal (1985) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334721.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Colour Haze - Temple (2006) Remastered, 2022, Electrohasch [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334719.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Zumpano - Goin' Through Changes (1996) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334716.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334714.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ We are Legend - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334712.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Psycada - Hiking Lung (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334709.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Wolf On Fire - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334706.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Autopsy - Morbidity Triumphant (2022) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334705.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Battlesword - Towards the Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334704.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Infected Rain - Ecdysis (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334701.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Infected Rain - Ecdysis (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Fem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:265F69DF1ED136F720E55A8169B49C04B5FB7209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258828   (334699) от 31.10.2018
-
-Yo La Tengo - Upside-Down (1992) EP [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upside-Down (2:39)
- 02. (The) Farmer's Daughter (2:22)
- 03. Out Of Control (2:09)
- 04. Upside-Down (One More Time) (2:47)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F36E3B4FB43911AE749FBB187BADA5850A6D2CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

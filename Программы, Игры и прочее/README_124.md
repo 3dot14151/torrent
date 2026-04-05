@@ -1,3 +1,108 @@
+###  Публикация: 1691889   (122954) от 14.01.2024
+
+PhotoTune - Улучшитель фото v4.4.8 Mod by Raju054 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свои старые, пиксельные, размытые или поврежденные изображения в фотографии высокой четкости одним касанием! PhotoTune использует современный искусственный интеллект, чтобы размыть, восстановить и улучшить любое изображение, которое вы хотите.Тип издания: ProРелиз состоялся: 13.01.2024Разработчик: Vyro AIПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7BE5970D18773B80EBB59713881D749A3648EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684865   (122659) от 16.01.2024
+
+Антирадар HUD Speed v64.1 Mod by viktorovich31 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
+HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 16.01.2024Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B72DF2DB222F516E5DC6A2325A501CE2ED6CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684864   (122635) от 16.01.2024
+
+GPS АнтиРадар v41.1 Mod by viktorovich31 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение работает с помощью известных данных о расположении стационарных камер и радаров ДПС (такие как Стрелка или Старт СТ) и других объектов. Есть возможность добавить недостающие камеры вручную и синхронизация их между пользователями! Вам не нужно ждать пока мы добавим камеры, она пополняется просто и удобно самими пользователями!Тип издания: ProРелиз состоялся: 12.01.2024Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37DFC09B56B4475F4C202466AFBCD1BD5C82262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596792   (122600) от 16.01.2024
+
+Coloring / Раскраска v2.0.94 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрашивайте с помощью заливки или штриховки. В вашем распоряжении неограниченное число цветов в палитре и линии различной ширины. В отличие от бумажной, в мобильной раскраске исправить ошибку проще простого. Отмените последнее действие или сотрите ластиком часть картинки, которая вам не нравится. Есть много бесплатных снимков, и никаких ограничений по времени.Тип издания: FullРелиз состоялся: 07.01.2024Разработчик: Teazel LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B5179FB8B4C93003F79B4E93A1074CB8943F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692488   (122553) от 16.01.2024
 
 Флорист-X v1.8.171 Mod by vadj [Ru]
@@ -6,7 +111,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122553.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Sense V2 Flip Clock & Weather 6.51.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122404.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.4 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122171.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121915.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Listen Audiobook Player v5.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121897.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Gradient v2.10.12 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121892.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.010.1433 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121841.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ VK X 6.8.2 (29200) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121779.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ Pro Pilkki 2 / Зимняя рыбалка v1.9.3 Mod by Bubalex88 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121756.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Docs To Go Office Suite v4.004 (b1618) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121748.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.13 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121720.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121221.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ vpnify - Безлимитный VPN 2.1.6 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121211.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ MacroDroid v 5.40.4 Pro/Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121200.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ Carista OBD2 v8.2.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121187.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ Plus Messenger (Telegram+) v10.6.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121152.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ PictureThis - Plant Identification v3.76.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121041.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ PhotoTune - Улучшитель фото v4.4.9 Mod by maxi123444 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121019.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ AR Ruler App: Линейка Рулетка v2.7.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121009.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ Strava: бег, велоезда, хайкинг v344.9 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120674.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ My TTS: Text-to-Speech v1.2.2 Mod by Alex.Strannik [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120523.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ AirReceiver AirPlay Cast DLNA v5.0.8 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120521.jpg" />
 </div>
 
 
@@ -568,110 +673,6 @@ AirReceiver — это универсальный потоковый (   Чит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE7E25CD969A51B6E85F45EC5C8BAC77A3583638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695222   (120480) от 28.01.2024
-
-OfficeSuite Pro + PDF 14.2.50872 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120480.jpg" />
-</div>
-
-
-###  Подробнее
-
-OfficeSuite Pro + PDF - это полнофункциональный офисный пакет для android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи OfficeSuite Professional Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 26.01.2024Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAB8D45B112CB8E782DF9F79F498EF33A96E82A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695752   (120192) от 30.01.2024
-
-RUTUBE - видео, шоу, трансляции 28.16.1.TV-androidtv Mod by N3k1t4_1996 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120192.jpg" />
-</div>
-
-
-###  Подробнее
-
-RUTUBE — официальное приложение одноименной онлайн-видеоплатформы, созданной в 2006 году двумя россиянами Олегом Волобуевым и Михаилом Паукиным. Любопытно, что всего через два года этот видеопортал приобрела компания «Газпром Медиа Холдингс», подконтрольная российскому правительству. В приложении (очевидно)много-много видео: сериалы, блогерские ролики, профессиональный (   Читать дальше...   )Тип издания: ModРелиз состоялся: 26.01.2024Разработчик: rutube.ruПоддерживаемая ОС: Android TV 7.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128663686EAA74CF66DA053DCE8FAF914F1B7A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695826   (120181) от 30.01.2024
-
-Табель учета рабочего времени v1.103 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое и удобное приложение для учёта рабочих смен с возможностью внесения данных о выплатах и штрафах. В наличии тёмная тема и создание цветных меток в календаре. Поддерживается сохранение данных и создание отчётов. Индивидуальный табель учета рабочего времени и заработной платы в формате календаря с сохранением, просмотром и отправкой файла отчета (HTML, EXCEL) (   Читать дальше...   )Тип издания: ModРелиз состоялся: 09.01.2024Разработчик: RavenDEVПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0EF4BE8E5F91ACBAD6B9284FE1A425DDAF9B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695696   (120164) от 30.01.2024
-
-RUTUBE: видео, шоу, трансляции 28.18.2-android Mod by N3k1t4_1996 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120164.jpg" />
-</div>
-
-
-###  Подробнее
-
-RUTUBE — официальное приложение одноименной онлайн-видеоплатформы, созданной в 2006 году двумя россиянами Олегом Волобуевым и Михаилом Паукиным. Любопытно, что всего через два года этот видеопортал приобрела компания «Газпром Медиа Холдингс», подконтрольная российскому правительству. В приложении (очевидно)много-много видео: сериалы, блогерские ролики, профессиональный (   Читать дальше...   )Тип издания: ModРелиз состоялся: 15.12.2023Разработчик: rutube.ruПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B215DAFEB122F0D3598B599840F32EEDA86238
 ```
 
 https://mybot314.ru/tekegram_catalog/

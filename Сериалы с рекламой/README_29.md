@@ -1,3 +1,56 @@
+###  Публикация: 1170350   (262642) от 18.12.2017
+
+Нация Z / Нация Зомби / Z Nation (2017) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-13 из 13) OMSKBIRD [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя три года после того, как вирус зомби распространился и выпотрошил всю страну, команда героев должна перевезти необычный груз. Это - единственный выживший после непосредственного воздействия чумы. В Калифорнии последняя функционирующая вирусная лаборатория ждет его крови. Хотя антитела, которые он несет, являются последней надеждой мира получить вакцину, он (   Читать дальше...   )Производство: США / Asylum, The, Go2 Digital MediaЖанр: ужасы, фантастика, боевик, драма, комедияРежиссер: Крэйг Энглер, Джон Хайамс, Карл ШэферАктеры: Том Эверетт Скотт, Майкл Уэлш, Келлита Смит, Анастасия Баранова, Расселл Ходжкинсон, Кит Аллан и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: английскиеПродолжительность: ~00:44:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DA194E95ECD444D12159E6C71B331C92552B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838025   (257805) от 20.11.2025
+
+Смерть от молнии / Death by Lightning (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о 20-м президенте США Джеймсе А. Гарфилде, который неохотно заступил на пост в 1881 году и правил страной всего несколько месяцев — с марта по сентябрь, — пока его не застрелил фанатик Шарль Гито.
+Сериал основан на книге Кэндис Миллард «Судьба республики: история безумия, медицины и убийства президента».Производство: США / Bighead Littlehead, Origo Catering, Pioneer Stillking FilmsЖанр: драма, биография, историяРежиссер: Мэтт РоссАктеры: Мэттью Макфэдиен, Майкл Шеннон, Бетти Гилпин, Шей Уигэм, Брэдли Уитфорд, Ник Офферман, Laura Marcus, Archie Fisher, Дэвид Найкл, Эндрю Хефлер и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:50:00 серияРеклама: Присутствует бегущая строка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7953FFF48287EF51F3ED774731A5F645BAAD82B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838026   (257804) от 20.11.2025
 
 Смерть от молнии / Death by Lightning (2025) WEBRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257804.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255434.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254871.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254870.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254509.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254504.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254493.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250201.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249861.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249853.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249845.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249758.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249405.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247133.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242096.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240734.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239178.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238813.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238780.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238685.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237477.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236928.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236888.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236439.jpg" />
 </div>
 
 
@@ -616,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6576B9B33A4BE643AF8A424761B4BD7932A212B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550529   (236073) от 11.05.2022
-
-Шетланд / Shetland (2014) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский сериал «Шетланд» является экранизацией романов английской сочинительницы детективов Энн Кливз. В шесть серий вошли три её произведения из колоритного «шетладского» цикла про вернувшегося на родину детектива Джимми Переса. Это «Вороново крыло», «Мёртвая вода» и «Синяя молния». На каждый из романов отводится два эпизода. В роли вернувшегося в родные туманы, (   Читать дальше...   )Производство: Великобритания / ITV Studios, Silverprint Pictures, BBC ScotlandЖанр: драма, криминал, детективРежиссер: Ян Мэттис, Тадеус О’Салливан, Ребекка ГатуардАктеры: Дуглас Хеншэлл, Элисон О’Доннелл, Стивен Робертсон, Марк Боннар, Льюис Хауден, Эрин Армстронг, Джули Грэм, Энн Кидд, Конор МакКэрри, Нив МакИнтош и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:55:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF3833DDCC7249136922F1791CD243CE8BD5CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531025   (234434) от 18.05.2022
-
-911: Одинокая звезда / 9-1-1: Lone Star (2022) WEBRip (сезон 3, серии 1-18 из 18) RuDub (Ex-Baibako) [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-йоркский пожарный Оуэн Стрэнд вместе с сыном переезжает в Остин и влюбляется в начальницу местного госпиталя Мишель Блэйк.Производство: США / 20th Century Fox Television, Brad Falchuk Teley-Vision, Ryan Murphy TelevisionЖанр: боевик, триллер, драмаРежиссер: Брэдли Букер, Санаа Хамри, Марита ГрабякАктеры: Роб Лоу, Лив Тайлер, Ронен Рубинштейн, Сьерра Эйлина МакКлейн, Джим Пэррак, Наташа Карам, Брайан Майкл, Rafael Silva, Джулиан Уоркс, Марк Елиас и др.Перевод: Многоголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:46:00 серияРеклама: присутствуют рекламные вставки (видео / аудио / баннер)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9109FF89D2BEAC2B1243D38064281A70A56B364A
 ```
 
 https://mybot314.ru/tekegram_catalog/

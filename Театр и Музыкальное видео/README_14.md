@@ -6,7 +6,7 @@ Bad Company - Don Kirshner's Rock Concert (1974) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972011.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971758.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971741.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971726.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Romantic Collection (Hits 1983-2001)TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971675.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971671.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Reggae On The River (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971102.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970868.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ James Brown - Live at Montreux (1981) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970833.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970691.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970652.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Зимний марафон № 219: Самые сливки Нового �
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970575.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969951.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Adam And The Ants - Live In Tokyo (1981) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969726.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Babooshka (Александр Константинов) - 7 Music Videos (2019-2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969634.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969633.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969603.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969394.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969258.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969256.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968949.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968895.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Tom Boxer & Morena - Las Vegus (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968794.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968699.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968675.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968530.jpg" />
 </div>
 
 

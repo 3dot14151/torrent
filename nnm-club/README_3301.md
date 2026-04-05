@@ -1,219 +1,25 @@
-###  Публикация: 982088   (949704) от 02.02.2016
+###  Публикация: 1362219   (950809) от 22.02.2020
 
-Роджер Желязны | Ружья Авалона [Хроники Амбера - Книга 2] (2007) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Престол таинственного Янтарного королевства – приз победителю в жестокой игре отражений. Предательство и коварство, жизни и судьбы людей – все это ничто перед грандиозностью великой цели. Ведь из девяти претендентов – принцев Амбера – лишь одному суждено занять место на троне….Жанр: ФэнтезиФормат: m4bПродолжительность: 08:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9BB4EC0338659A237A3400DF30E3FB3737A91C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362453   (949701) от 23.02.2020
-
-FontLab 7 v7.1.0 (build 7355) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949701.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
-
-По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: FontLab StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422AAB5B7AD7712CD12FD5531CB292DEDE600A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362377   (949699) от 23.02.2020
-
-Athentech Perfectly Clear Complete (St and Plug-in for Lr) 3 v3.9.0.1749 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B4B12B9440A36A53664DE17C679D86EB3E0092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625025   (949697) от 02.03.2013
-
-Журнал | Тайны ХХ века [Украина] №8 (март 2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F094402F0B00896C46B697DBDDD84DCB5CC365C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362353   (949696) от 23.02.2020
-
-Dubstar - Stars (1995) Single [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars (Original Mix) (4:12)
-02. Stars (Sky Edit) (4:32)
-03. Stars (Mother Dub) (6:27)
-04. Stars (Search & Destroy Full Vox Mix) (7:35)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C668BA04F6B247AAC5985B827CCAF38CE1D48514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362478   (949694) от 23.02.2020
-
-Kaleidoscope 2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaleidoscope — приложение, предназначенное для сравнения текстовых или графических файлов и быстрого поиска различий в них.
-Область применения программы предельно ясна.
- Если вы  программист, то с помощью Kaleidoscope всегда будете видеть различия в коде двух версий файлов. При этом зелёным цветом будут подсвечиваться добавленные строки, красным — удалённые, а синим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2020Разработчик: Black PixelПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD146048843DCF7EC9D0BE1F2B95D9619736480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362314   (949692) от 23.02.2020
-
-Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949692.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:32| 01. We Have a Fan Club?
-|04:19| 02. Entering Camp
-|03:03| 03. I Got Top Bunk
-|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA332C058E3476838F74D99646FC7D6BD52C840F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362217   (949689) от 23.02.2020
-
-We Sell The Dead - Black Sleep (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+Foreigner - Original Album Series (2009) 5CD Box Set [FLAC|Lossless|image + .cue] <Soft Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Caravan [5:06]
- 02 - Across The Water [3:40]
- 03 - Black Sleep [4:19]
- 04 - Carved In Stone [3:49](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:38
+01. Tooth and Nail (3:56)
+02. That Was Yesterday (3:49)
+03. I Want to Know What Love Is (5:06)
+04. Growing Up the Hard Way (4:14)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:42:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CE08FE33185E1F7FA83DB808A42743A9CFC4AB7
+magnet:?xt=urn:btih:EF22E6B91EC8DA8B756868E7C18D9EC857B99D46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,28 +27,162 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362503   (949688) от 23.02.2020
+###  Публикация: 1362257   (950807) от 22.02.2020
 
-HELENGARD - Firebird (2017) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Metal, Post Rock>
+Женский Stand Up (22.02.2020) WEB-DL [H.264/1080p-LQ] (выпуск 6)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: Ток-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D31C604C956A39C72CD3B7845CF4BAE7D796560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361921   (950806) от 22.02.2020
+
+Doro Pesch & Warlock - Live in London (1985) DVDRip [H.264] [60 fps]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление рок группы Warlock в 1985 году в Лондоне.Жанр: Heavy MetalПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A647A3D72E9912EB77986D2F3E1D722FF09489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362214   (950804) от 22.02.2020
+
+Марк Уильямс и др. | Выход из депрессии. Спасение из болота хронических неудач (2020) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во многих странах депрессивные состояния уже давно приравняли к заболеваниям. Ужасное настроение, апатия, постоянное чувство тревоги, неуверенность в себе – это лишь малая часть того, что ощущает человек в депрессии. А любые попытки выйти из нее только усугубляют ситуацию. Антидепрессанты, желание «утопить» депрессию в алкоголе – все это не работает…
+
+Или помогает (   Читать дальше...   )Жанр: Клиническая психология, Практическая психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F38E5B13068FAF2573605585745A144B07B7A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362070   (950802) от 22.02.2020
+
+Comedy Баттл. Новый сезон (21.02.2020) WEB-DL [H.264/1080p-LQ] (сезон 10, выпуск 6)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950802.jpg" />
+</div>
+
+
+###  Подробнее
+
+По прошествии девяти сезонов «Comedy Баттл» уже не нуждается в представлении. Все прекрасно знают, что это лучшая телевизионная площадка для молодых комиков, которая отлично подходит для всех видов юмора. Здесь выступают с миниатюрами, фокусами, пантомимой, интерактивом, стендапом, музыкальными номерами и многими другими жанрами. Никаких ограничений! Нет, все-таки (   Читать дальше...   )Телекомпания: Comedy Club Production, Телеканал ТНТЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824446030B7DE89045AC3F34D1A476E1958E1CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362158   (950800) от 22.02.2020
+
+Денис Деев | Игра на нервах [Книга 3] (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра на нервах» – фантастический роман Дениса Деева, третья книга одноименного цикла, жанр боевое фэнтези, ЛитРПГ.
+
+Ты подверг опасности миллионы жизней. Устроил несколько глобальных войн. Грызет ли тебя совесть? Спишь ли ты спокойно по ночам? Захочешь ли ты все это исправить, если на пути устранения ошибок прошлого ты потеряешь часть себя?Жанр: Боевое фэнтезиПродолжительность: 08:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E08AB88B8013370964182202966213CF74CC21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016707   (950799) от 22.02.2020
+
+Sebastian Bach - Kicking And Screaming (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prologue (1:12)
-02. Fall Rue (6:27)
-03. Oktostitch I (0:41)
-04. Brumal Mud (8:23)(   Читать дальше...   )Производство: kauanmusicЖанр: Folk Metal, Black Metal, Post RockПродолжительность: 00:35:02
+01. Kickinng & Screaming . . . . . . . . . .3:17
+ 02. My Own Worst Enemy . . . . . . . . . . .3:45
+ 03. Tunnelvision . . . . . . . . . . . . . .3:50
+ 04. Dance On Your Grave. . . . . . . . . . .3:29(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B6045866E92AB2F8E34D565272401B2B1535D01
+magnet:?xt=urn:btih:00E095C9E2DC7C020BCFDE880237E1C5E252AD97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +190,310 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362406   (949685) от 23.02.2020
+###  Публикация: 1362121   (950796) от 22.02.2020
 
-Still Harbours - Fluorochrome (2020) [FLAC|Lossless|tracks + .cue] <Ambient, Dark Ambient, Drone>
+М.Н. Иванов, В.А. Финогенов | Детали машин (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950796.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом разделе приводятся контрольные вопросы для самоподготовки и примеры, помогающие освоить методику расчётов и разрабатывать программы таких расчётов. При выполнении рисунков авторы стремились дать простые схемы, которые, однако, сохраняют основные черты конструкций и позволяют понять условия работы и расчета деталей, полагая, что конструкции деталей студенты (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6EB27EE4BC5140AFB0DBEEDCAEBA3E1E9E5F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624795   (950795) от 01.03.2013
+
+Мастера угрозы (Возмутители спокойствия) / Masters of Menace (1990) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселая бригада немолодых уже байкеров во главе с Бадди Уилером получает условный срок: при первом же правонарушении они всем скопом сядут в тюрьму. Молодой адвокат, защищавший байкеров, вынужден присоединиться к ним, чтобы контролировать их поведение и уберечь от проступков.
+Прокурор же, метящий в губернаторы, напротив, мечтает упечь байкеров за решетку любыми средствами. (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Дэниел Рэсков / Daniel RaskovАктеры: Дэвид Раш, Кэтрин Бах, Тино Инсана, Ли Винг, Дэвид Бове, Лонни Паркинсон, Кэрол Энн Сьюзи, Джон Хэзелвуд, Дэвид Л. Лэндер, С.Э. Граймс,Перевод: Одноголосный закадровыйСубтитры: нетФормат: AVIПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0345FD23778FF686A025EBDF45A6C230BBD12AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362074   (950794) от 22.02.2020
+
+Advanced SystemCare Pro 13.2.0.222 Portable by Jooseng [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced SystemCare PRO обеспечивает автоматический всесторонний сервис для ПК с удалением вредоносных программ, исправлением ошибок в реестре, защитой личных данных, очисткой системы и повышением производительности. Благодаря применению новейших технологий Защита Браузера и Ускорение Интернета, программа обеспечивает превосходную защиту и ускорение доступа при пользовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA022A2FE838ABF857FE4635969678D89227E8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089392   (950792) от 04.01.2017
+
+VA - Trance Elegance On This Year 006 (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal Trance, Energy, Emotional, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H Ft Song & The Moon - Dont Talk Away The Magic (Heatbeat Extended Mix) 6:42
+02. Fisherman & Hawkins Ft. Sir Adrian - Never The Same (Radion6 Remix) 5:24
+03. Hasso & Maxime Luft ft. Lucida - Blossoms In The Winter (Original Mix) 6:49
+04. Aimoon - Fusion (Extended Mix) 6:07(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal Trance, Energy, Emotional, UpliftingПродолжительность: 02:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29881BCB63204D1AD995FD8CDCE01754A6E8F725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089540   (950791) от 04.01.2017
+
+VA - Magics - Reflex Recordings Masterpieces (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meckie Mex - Telling Nice but Spice (05:02)
+02. Hondale - Motor Brain (03:50)
+03. A M G - 100 (Klav Version) (07:35)
+04. Reflex Artists - Physalis (Reflex Mix) (04:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09F358B4E34725102C9C1E668926FB13AD8027C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089329   (950790) от 04.01.2017
+
+Paul Smith - Brazilian Detour (1966) Remaster, 2013, Warner [FLAC|Lossless|tracks + .cue] <Cool, Bossa Nova, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.One Note Samba [02:48]
+ 02.Lullaby Of Birdland [02:40]
+ 03.Meditation [02:32]
+ 04.The Lamp Is Low [01:43](   Читать дальше...   )Жанр: Cool, Bossa Nova, Latin JazzПродолжительность: 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F381A3D6B8B7A95575A4E91A043F1E64A7FD98D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089753   (950789) от 04.01.2017
+
+Chico Hamilton Trio - Introducing Freddie Gambrell (1958) Remaster, 1991, Toshiba[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lullaby Of The Leaves [05:42]
+ 02.Reservation Blues [04:56]
+ 03.These Foolish Things [04:09]
+ 04.Ex-Ray's Friends [04:11](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Piano JazzПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936235B397324A2ACB1643C0D99AB2B957E6752C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089234   (950788) от 04.01.2017
+
+Woody Herman - Memorial: The 40th Anniversary Carnegie Hall Concert (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950788.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Introdcution
+2. Woody's Theme (Blue Flame) And Acknowledgements
+3. Apple Honey
+4. Sweet And Lovely(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5A23A41B767B42221D7A0F072C74A918505573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089596   (950787) от 04.01.2017
+
+VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Decline - Lunge (Original Mix) [4:23]
+02. Sentencia - Above The Sky (Original Mix) [4:30]
+03. Dmitry Kostyuchenko - Heaven Love (Original Mix) [7:39]
+04. Yuri Pike - 21 (Original Mix) [6:19](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730889C090C28D327B2E1B4F93E31870BC5BFAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089415   (950786) от 04.01.2017
+
+VA - Christmas Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Area Code 51 - Ships 3:45
+02. Koolsax - Strange Night 4:44
+03. Larry Scottish - Porcelain (Extended Mix) 6:43
+04. Kornpluck - Proper (Extended Mix) 6:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9848130A230F0DD87ABCF8112D8C00FC9ABE7AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089277   (950782) от 04.01.2017
+
+VA - Coldharbour Top 25 Best Of (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Map Visitor (5:42)
-02. Valley of the Kings (6:00)
-03. Cloudless Skies (6:47)
-04. Walk Among the Giants (11:28)(   Читать дальше...   )Производство: Ambientologist - AMB001Жанр: Ambient, Dark Ambient, Drone, Guitar Ambient, ExperimentalПродолжительность: 00:42:43
+01. Markus Schulz - Sestertius 7:38
+02. Fisherman & Hawkins - Oblivion (Original Mix) 6:45
+03. Artisan ft Anki - Love Is Divine (Original Mix) 7:08
+04. Novaspace - Cygnus (Original Mix) 6:54(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:103D1FFA24EFF60DBD7796BE73B96840482EC7D0
+magnet:?xt=urn:btih:F17755ED193B63ACB1C82BC4AC745C27DD33F5F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,27 +501,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362248   (949683) от 23.02.2020
+###  Публикация: 1089460   (950780) от 04.01.2017
 
-Alfred Powerpack 4.0.9 (build 1142) [En]
+Lee Morgan - The Sidewinder (1963) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Running with Crayons LtdПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
+01.The Sidewinder [10:28]
+ 02.Totem Pole [10:17]
+ 03.Gary's Notebook [06:08]
+ 04.Boy, What A Night [07:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C381FC0BE1A8519588DAD7D6F416246E5C303D63
+magnet:?xt=urn:btih:511E0955C8C27403A1BE584DD9798203E07E7C06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,28 +530,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362533   (949681) от 23.02.2020
+###  Публикация: 1089797   (950778) от 04.01.2017
 
-HELENGARD - Helengard (2010) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Metal, Post Rock>
+VA - NYE 2016 Lounge Hits (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinyl Cartel - Redim
+02. Future Loop Foundation - I'm Only Dreaming
+03. Vinyl Cartel - Shuk Un
+04. Bencenzi - Vista(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E948933D7F52A57E5FF8CF14926CD2D3413A8450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749781   (950777) от 27.01.2014
+
+Знахарь / Znachor (1981) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950777.jpg" />
+</div>
+
+
+###  Подробнее
+
+С гениальным хирургом Рафалом Вильчуром происходит трагедия, изменившая всю его жизнь. Уходят жена и дочь, в тот же день он оказывается на улице без денег и документов. Ему приходится пережить несколько лет скитаний и горя. И все-таки судьба поворачивается к нему лицом.Производство: ПольшаЖанр: ДрамаРежиссер: Ежи ГоффманАктеры: Ежи Биньчицкий, Анна Дымна, Томаш Стокингер, Бернард Лядыш, Божена Дыкель, Артур БарцисПеревод: ДублированныйПродолжительность: 02:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A73C17B1ADABC303662C2F89E5C276686764B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088890   (950776) от 04.01.2017
+
+Magnesis (Magnésis) - La Dame de Braise (2015) [FLAC|Lossless|image + .cue] <Neo-prog>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (1:27)
-02. Wreath (5:05)
-03. Blizzard Sweeps The Traces (4:48)
-04. Snowstorm Call (7:20)(   Читать дальше...   )Производство: kauanmusicЖанр: Folk Metal, Black Metal, Post RockПродолжительность: 00:41:56
+1. Ouverture (1:46)
+2. Catherine de Chateauneuf (4:56)
+3. Un Triste Mariage (2:36)
+4. Giraud (6:05)(   Читать дальше...   )Жанр: Neo-progПродолжительность: 00:46:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9D2DBE52FB99F36670AAFDA130946A7BF1AC578
+magnet:?xt=urn:btih:C6A5D504454FA800F0D0F92DA1F2651A5ECB6FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,27 +614,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362349   (949679) от 23.02.2020
+###  Публикация: 1089539   (950774) от 04.01.2017
 
-Хоккей. НХЛ 2019-2020. Баффало Сэйбрз - Питтсбург Пингвинз (22.02.2020) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+VA - Just Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julio Marquez Ensamble - Ritmo de Copa Cabana (06:55)
+02. Lorenzo Casanova - Vila Mimosa (Make Love Not War Boogie Version) (04:47)
+03. Sombra Modos - Shared Happiness (06:05)
+04. Digital Orchestra Berlin - Into the Desert (Cafe Marrakesh Mix) (05:07)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EAC45182F1CE4E0AE666A044E0AFEF7D49029C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089610   (950772) от 04.01.2017
+
+VA - Chill In The Summer: Chillout Collection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Feedback - Rien Ne Va Plus  (Don Gorda Project Remix) 7:00
+02. Don Gorda Project - Dreamscape 6:12
+03. Joop & Aurelio - Macaracas 5:03
+04. Enrico Donner - Time Stands Still 4:44(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42357AE81CED6E8809ADE4884091F46CA5E71CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 750425   (950771) от 27.01.2014
+
+Плохие парни / Bad Boys (1995) BDRip [720p] [hand made 60fps]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 февраля 2020 года, суббота 21:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 620 зрителей (100 % при вместимости 18 673)
-Главный судья: Кевин Поллок (Кинкардин, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:23
+Производство: СШАЖанр: Боевик, Криминал, КомедияРежиссер: Майкл БэйАктеры: Уилл Смит , Мартин Лоуренс , Теа Леони , Чеки Карио , Джо Пантольяно , Марж Хелгенбергер , Нестор Срано , Хулио Оскар , Мечосо Тереза , Рэндл Саверио , ГуэрраерПеревод: Дублированный
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D31032453D891E0622E55B203D28CB1A7F9227DD
+magnet:?xt=urn:btih:E71BCBF68772D2CB29F356AE47EF06BBB2A6F767
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,361 +698,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362313   (949677) от 23.02.2020
+###  Публикация: 1089705   (950770) от 04.01.2017
 
-Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+Киримизе Жанэ | Как Хазрет уходил на скачки (1961) [PDF, DJVU]
 
->>Other Styles
->>OST
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-|02:32| 01. We Have a Fan Club?
-|04:19| 02. Entering Camp
-|03:03| 03. I Got Top Bunk
-|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
+Сборник стихотворений для детей дошкольного возраста Жанэ Киримизе Хаджемусовича с иллюстрациями Дьяковой Людмилы Георгиевны. Перевод с адыгейского Заславского Риталия Зиновьевича.Жанр: СтихиПеревод: Риталия ЗаславскогоФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C12E8C31AEC0D6E997ED7BE90FF735C89C8429E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362249   (949675) от 23.02.2020
-
-Neaera - Neaera (2020) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Un)Drowned
-02. Catalyst
-03. False Shepherds
-04. Resurrection of Wrath(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96782FD26CD3491C6D8E9FC6852778C21718EA6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625295   (949674) от 02.03.2013
-
-И. П. Высоцкий (сост.) | С.-Петербургская Столичная Полиция и градоначальство. 1703-1903 (1903) [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрированный исторический очерк был издан к 200-летнему юбилею Санкт-Петербургской столичной полиции. Он содержит уникальный материал, основанный на подлинных документах из архивов Сената, Государственного Совета, Министерства внутренних дел. Для создания очерка были использованы статьи из официальных изданий, журналов, сборников. Текст подготовлен чиновником (   Читать дальше...   )Жанр: исторический очеркФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93247680BA67FCE41DC646B25ADB1A35F4974427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362509   (949673) от 23.02.2020
-
-Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Одиночная смешанная эстафета (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949673.jpg" />
-</div>
-
-
-###  Подробнее
-
-54-й Чемпионат мира по биатлону 2020 года. Антхольц-Антерсельва (Италия)
-20 февраля 2020 года, четверг. 15:15 МСК
-Одиночная смешанная эстафета 6км + 7,5км
-Стадион: Биатлонная Арена-Южный Тироль (Разун-Антерсельва, Италия)Телекомпания: Первый КаналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4705D710645960284854B9D79ED77573B0E56573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362515   (949671) от 23.02.2020
-
-Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Одиночная смешанная эстафета (2020) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949671.jpg" />
-</div>
-
-
-###  Подробнее
-
-54-й Чемпионат мира по биатлону 2020 года. Антхольц-Антерсельва (Италия)
-20 февраля 2020 года, четверг. 15:15 МСК
-Одиночная смешанная эстафета 6км + 7,5км
-Церемония награждения медалями — Медаль Плаза (Антхольц, Италия)(   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9D6D70A6DA5A1B4B9B312924AD830F180124A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362195   (949669) от 23.02.2020
-
-Ильин - EP. Кровь (2020) [MP3|320 Kbps] <Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949669.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Заплатки
-2. Слово
-3. ТопольЖанр: Metal, RockПродолжительность: 00:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20D02520051F44CEC8D9F7CD86941A6036CC2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362483   (949667) от 23.02.2020
-
-Gabriel Garrido Garcia - Etherborn (Original Game Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949667.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:15| 01. Main Title
-|01:38| 02. Birth
-|01:36| 03. The Endless Tree - First Vision
-|01:36| 04. The Endless Tree - Second Vision(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88E061E39186459D8260160B397EF192FC959A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362346   (949666) от 23.02.2020
-
-Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Нью-Джерси Дэвилз (22.02.2020) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949666.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 февраля 2020 года, суббота 21:00 МСК
-Стадион: Пруденшиал-центр (Ньюарк, США), 16 514 зрителей (94 % при вместимости 17 625)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Пьер Ламберт (Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BDCF68FCAEC4E7529912D2DFC3F84E25E61657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362255   (949665) от 23.02.2020
-
-Beneath the Massacre - Fearmonger (2020) [MP3|320 Kbps] <Technical Death Metal, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise of the Fearmonger
-02. Hidden in Plain Sight
-03. Of Gods and Machines
-04. Treacherous(   Читать дальше...   )Жанр: Technical Death Metal, DeathcoreПродолжительность: 00:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829591110B2F5FA336729F2FCDAD22DE34731679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362317   (949664) от 23.02.2020
-
-Владимир Казаков | Роман Флобера (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свою новую повесть известный писатель Владимир Казаков называет лирическим фарсом нового века. Это смешная и трагичная история любви. Неудачная попытка взрослого человека сыграть по юношеским правилам, прыгнуть в последний вагон «нормальной» жизни оборачивается для него разочарованием. Но герой не унывает, продолжая жить своей жизнью, смеясь над миром и собой. Вся (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D5E8B65E43FA042FA3CC6AC88C572CA711F5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981728   (949663) от 02.02.2016
-
-Хоккей. НХЛ 2015-2016. Матч всех звёзд НХЛ 2016. (31.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матч звёзд давно стал неотъемлемой составляющей Национальной хоккейной лиги. На постоянной основе шоу-игра проводится давно, с 1947 года, когда в Советском Союзе хоккей с шайбой только начинал развиваться. Формат All Star Game в этом сезоне вновь претерпел изменения: теперь команды будут играть «3 на 3». Матч звёзд НХЛ — 2016 пройдёт в Нэшвилле, штат Теннесси 31 (   Читать дальше...   )Телекомпания: NBCSNЖанр: СпортПродолжительность: 02:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE6A831ACADF4AE06B36FDFE167AB2B96C214D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982020   (949662) от 02.02.2016
-
-Джереми Кларксон: Крест Виктории: За доблесть / Jeremy Clarkson: The Victoria Cross: For Valour (2003) DVDRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949662.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сентября 1944 года во время битвы за Арнем майор Кейн заслужил, так называемый, "лучший Крест Виктории за всю войну". Рассказывая его историю, а также о проявлении храбрости другими, Джереми Кларксон показывает свой взгляд на исторические события и полученные награды за доблесть, проявленную перед лицом врага.Телекомпания: ВВСЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4D16459656FD174BF6557D3B872B7F97A2322E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981666   (949660) от 02.02.2016
-
-Столешников А.П. | Чем наполнить организм (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949660.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге сконцентрирован огромный запас знаний автора, которые он почерпнул из личного опыта и иностранных источников, что делает книгу еще более интересной и занимательной.
-
-По мнению автора "чем наполнить организм" - отнюдь не праздный вопрос. Мы, это то, что мы едим. Автор на убедительных примерах доказывает полезность и вред различной пищи, подвергая (   Читать дальше...   )Жанр: ЗдоровьеПродолжительность: 03:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFB292BA030423947248D00F77B5BBCB3F22E10
+magnet:?xt=urn:btih:6E85686BE0228189654D7837ED5027B9CE1FA92D
 ```
 
 https://mybot314.ru/tekegram_catalog/

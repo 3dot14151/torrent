@@ -1,3 +1,110 @@
+###  Публикация: 1835784   (251902) от 07.11.2025
+
+Кегель тренажер v10.2.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплекс несложных упражнений и ежедневные напоминания - вот простой способ укрепить мышцы тазового дна! Вам надоело выполнять одни и те же упражнения и чувствовать, что результаты не улучшаются? В этом приложении 10 различных тренировок, это означает, что у вас всегда есть возможность выбрать новый комплекс. Быстро и легко - все упражнения длятся от 30 секунд до (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.11.2025Разработчик: Olson Applications LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835785   (251900) от 07.11.2025
+
+Табата ®. Интервальные тренировки / Tabata Training v4.10 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение-помощник для высокоинтенсивных интервальных тренировок. Иллюстрации. Обширная база упражнений. Возможность создавать собственные тренировки. 4 минутная тренировка заменяет час в тренажерном зале. Табата - это высокоинтенсивный интервальный тренинг:
+• 20 секунд интенсивной тренировки
+• 10 секунд отдыха
+• повторить 8 разТип издания: PremiumРелиз состоялся: 06.11.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835757   (251892) от 07.11.2025
+
+Цифровое ТВ v4.3.5 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835787   (251889) от 07.11.2025
+
+Скользящий график смен v4.0.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма удобный инструмент для расчёта и учёта смен при работе по скользящему графику. Несколько графиков. Темы оформления. Будильник. Напоминания.  Нет необходимости долго разбираться в многочисленных настройках, просто выберите готовый график из списка, или составьте свой график смен, и нажмите на нужную дату, с которой начать расчёт графика работы. В приложении (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2025Разработчик: 4th floor appsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4EF97E8FAB1ABD967891A3383E51BFCFE6543F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835758   (251886) от 07.11.2025
 
 Эфир ТВ + : Телевизор Онлайн v4.2.6 Mod by vadj [Ru]
@@ -6,7 +113,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251886.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Vanced Tube v5.5.80.142 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251884.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251882.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Artista Impresso v1.3.58 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251803.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Portrait Painter v1.17.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251794.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ MP3 Cuter v1.7.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251760.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ Parrot Timer / Кухонный таймер v2.11.0 Mod by Alex.Strannik [Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251758.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ Material Pods: батарея AirPods v6.70 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251750.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ Photo Editor v12.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250496.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ Photo Editor v12.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250495.jpg" />
 </div>
 
 
@@ -266,7 +373,7 @@ Vanced Tube v5.5.80.136 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250485.jpg" />
 </div>
 
 
@@ -292,7 +399,7 @@ NokoPrint v5.24.4 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250430.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ HiPER Calc Pro v11.2.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250429.jpg" />
 </div>
 
 
@@ -345,7 +452,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250402.jpg" />
 </div>
 
 
@@ -371,7 +478,7 @@ Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250397.jpg" />
 </div>
 
 
@@ -397,7 +504,7 @@ Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250396.jpg" />
 </div>
 
 
@@ -423,7 +530,7 @@ Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250393.jpg" />
 </div>
 
 
@@ -449,7 +556,7 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250392.jpg" />
 </div>
 
 
@@ -475,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250391.jpg" />
 </div>
 
 
@@ -501,7 +608,7 @@ GO Weather EX Premium 6.162 Mod by Balatan, tasker67 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250322.jpg" />
 </div>
 
 
@@ -527,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250313.jpg" />
 </div>
 
 
@@ -553,7 +660,7 @@ Meditopia: Сон и Медитация 3.24.0 Mod by ApkDone Team [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250209.jpg" />
 </div>
 
 
@@ -564,110 +671,6 @@ Meditopia – это приложение для медитации, котор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50F86AE10B97612D8E0DF4D6727F1E5E972C91F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563174   (250204) от 12.07.2022
-
-Screen Stream Mirroring Pro 2.7.0c Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screen Stream Mirroring - многофункциональное приложение для трансляции экрана устройств на базе Android и звука в реальном времени! Приложение позволяет «в прямом эфире» транслировать (дублировать) изображение с экрана на любое устройство или ПК в той же сети - на мультимедиаплееры, веб-браузеры, Chromecast и устройства UPnP и DLNA (Smart TV и другие совместимые (   Читать дальше...   )Тип издания: Patched (Pro)Релиз состоялся: 02.04.2020Разработчик: MOBZAPPЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9346074683C77B498D73C12D4D6FDA89AAF3E6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429996   (250190) от 12.07.2022
-
-PhotoLayers v4.0.0 [En/Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миниатюрное приложение для создание фотоколлажей и всяческих "фотожаб". Поддерживает автоматическое удаление у накладываемого изображения. Безусловно позволяет убирать фон и вручную с помощью инструмента "Умное удаление". Великолепно работает со слоями. Присутствует возможность поделиться полученным коллажем через социальные сети.Тип издания: Пиратка (Mod)Релиз состоялся: 02.07.2022Разработчик: handyCloset Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Английский + русификация
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F720A8449020112105783D7F5642826FE44836DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563504   (250070) от 14.07.2022
-
-Браузер Opera Touch 2.9.6 Mod by AlexxVp [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera Touch - новый быстрый браузер с функцией Flow, предлагает более быстрый поиск в интернете и рассчитан на то, чтобы им было удобно пользоваться одной рукой. Как только вы запускаете Opera Touch, браузер сразу же готов к поиску информации в сети. Просто начните поиск или произнесите ваш запрос вслух. Если нужно считать QR-код, сделайте это прямо в приложении (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.07.2021Разработчик: OperaЯзык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E5DF6D02C0444D8916E9E55E333E15AA47CB4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564353   (249769) от 18.07.2022
-
-Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) 3.8.0.101 Mod by Valikovrepikov [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) - приложение тире клиент, что станет отличной находкой для всех кто хочет существенно повысить комфорт взаимодействия с известным видеохостингом. Удобное управление, различные интересные идеи в механике воспроизведения, сохранение всех главных и классических функций, отсутствие рекламы, работа с закладками, крайне (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.07.2022Разработчик: Pure Tuber StudioЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F661BEF91DADB4820F6D89032DFB6F7A2DEF71D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,164 @@
+###  Публикация: 1444254   (1034501) от 01.02.2021
+
+Палмер / Palmer (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выйдя из тюрьмы, бывшая звезда школьного американского футбола Эдди Палмер возвращается в родной городок. Парень надеется наладить свою жизнь, но сталкивается с проблемами прошлого и неожиданно становится наставником мальчика, которого оставила мать.Производство: США / Sidney Kimmel Entertainment, Hercules Film Fund, Rhea Films (II)Жанр: ДрамаРежиссер: Фишер СтивенсАктеры: Джастин Тимберлейк, Джуно Темпл, Джун Скуиб, Дин Уинтерс, Алиша Вейнрайт, Винн Эверетт, Райдер Аллен, Дж.Д. Эвермор, Джейк Бреннан, Джесси БойдПеревод: Дублированный (Apple TV+)Субтитры: Русские, украинские, английские (SDH)Продолжительность: 01:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1967AA28D0482E3EE91E87350F6E19C3BB978D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448656   (1034482) от 09.03.2023
+
+Груз 200 (2007) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034482.jpg" />
+</div>
+
+
+###  Подробнее
+
+СССР, 1984 год. Провинция. После дискотеки пропадает дочь секретаря райкома партии. Свидетелей нет, виновные не обнаружены. В этот же вечер в доме на окраине города происходит жестокое убийство. Обвиняемый — хозяин дома. Расследования обоих преступлений поручены капитану милиции Журову.Производство: Россия, Кинокомпания CTB / СТВЖанр: триллер, драмаРежиссер: Алексей БалабановАктеры: Агния Кузнецова, Алексей Полуян, Леонид Громов, Алексей Серебряков, Леонид Бичевин, Наталья Акимова, Юрий Степанов, Михаил Скрябин, Сергей Александров, Валентина АндрюковаСубтитры: русские, английскиеПродолжительность: 01:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9607DB02810125D6CA9392715C32356FE0BBFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617996   (1034481) от 09.03.2023
+
+Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до результата! (2023) WEB-DL [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это ранняя версия курса. Курс готов на 70% и охватывает все основные темы JS.
+Существующего материала хватит минимум на 3 месяца активной учебы. До 31 марта 2023 года, курс будет дополнен еще 3-мя темами. Студенты приобретающие курс получат доступ ко всем дополнениям бесплатно и автоматически.
+
+Привет!) Меня зовут Дима.(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 17:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B419E3B8AACC0323EC8C7B50097DBBD95DD48A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224323   (1034480) от 09.03.2023
+
+Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Multi] (5.0.0.0040/dlc) License GOG [Obsidian Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преследуйте беглого бога на земле и по морю в сиквеле Pillars of Eternity — ролевой игры, заслужившей высокую оценку критиков. Отправьте свой корабль в опасную экспедицию через огромный неизученный архипелаг Дэдфайр. Подчините мир своей воле — исследуйте массу безграничных возможностей, включая детальную персонализацию героя, полную свободу в исследовании мира и (   Читать дальше...   )Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD419DE6A25C813499D84B99026F0E5C904E6F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444354   (1034327) от 02.02.2021
+
+Очередное достижение: 7000 релизов от Весельчак У !!!
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 7000 релизов от Весельчак У !!!Уважаемые одноклубники!
+Разрешите от всех нас поздравить с очередным рекордом - 7 тыс. релизов -
+в этой цифре кроется неимоверный труд нашего модератора Apple, всеми уважаемого Весельчак У !(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443738   (1034318) от 02.02.2021
+
+Гиперхаос поможет физикам создать квантовые компьютеры
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаотичное поведение квантовых битов – кубитов может позволить физикам моделировать сложные квантовые системы без необходимости использовать огромные вычислительные мощности.Парадоксально, но развитие квантового компьютера следующего поколения ограничивается скоростью работы обычных процессоров. Даже самые быстрые в мире суперкомпьютеры не обладают достаточной мощностью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440374   (1034289) от 02.02.2021
 
 Знахарь / Znachor (1981) DVDRip [H.264]
@@ -6,7 +167,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034289.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.08/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034270.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (41555) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034269.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034104.jpg" />
 </div>
 
 
@@ -110,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034087.jpg" />
 </div>
 
 
@@ -136,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034051.jpg" />
 </div>
 
 
@@ -163,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034050.jpg" />
 </div>
 
 
@@ -189,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034046.jpg" />
 </div>
 
 
@@ -215,7 +376,7 @@ MInstAll v.02.02.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034045.jpg" />
 </div>
 
 
@@ -241,7 +402,7 @@ Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.05upd6/dlc) Repack 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034042.jpg" />
 </div>
 
 
@@ -267,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034038.jpg" />
 </div>
 
 
@@ -293,7 +454,7 @@ Rustore хотят устанавливать на всех устройства
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034036.jpg" />
 </div>
 
 
@@ -319,7 +480,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.8.39/dlc) License 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034023.jpg" />
 </div>
 
 
@@ -345,7 +506,7 @@ Lineage II: Essence  (2015) [Ru] (P.221116.230307.1) License (обновляем
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034022.jpg" />
 </div>
 
 
@@ -371,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033909.jpg" />
 </div>
 
 
@@ -397,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033873.jpg" />
 </div>
 
 
@@ -423,7 +584,7 @@ Lancet опубликовал результаты завершающей фаз
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033840.jpg" />
 </div>
 
 
@@ -449,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033835.jpg" />
 </div>
 
 
@@ -476,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033814.jpg" />
 </div>
 
 
@@ -502,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033801.jpg" />
 </div>
 
 
@@ -513,165 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE142A0A1C04E4656886AE21FA4D1236C80FD9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292343   (1033800) от 12.03.2023
-
-Громкая связь (2019) WEB-DL [H/264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семеро друзей, собравшись в загородном доме, в шутку начинают игру — участники должны зачитывать вслух все приходящие им сообщения, а на звонки отвечать только по громкой связи. Они и представить себе не могут, какие удивительные откровения им предстоит сделать друг о друге.Производство: Россия / Марс Медиа Энтертейнмент, СтрелаЖанр: КомедияРежиссер: Алексей НужныйАктеры: Анастасия Уколова, Леонид Барац, Ирина Горбачёва, Ростислав Хаит, Мария Миронова, Камиль Ларин, Вероника Корниенко, Александр Демидов, Анастасия ЯсеваПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138283A994FE5378D63D2EB29CD60FD51C736A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444910   (1033633) от 05.02.2021
-
-«Совершенно новая» мобильная ОС Huawei оказалась клоном Android
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский исследователь, пожертвовав приватностью, после двух дней ожидания с момента подачи заявки смог получить доступ к инструментам разработки для «совершенно новой» мобильной операционной системы Huawei Harmony OS 2.0. В ходе тестирования новинки специалист выяснил, что у нее очень много общего с Android. По его мнению, это и есть Android с минимальными правками.Harmony (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445224   (1033610) от 05.02.2021
-
-Минцифры предложило вывести данные о геолокации из-под действия тайны связи
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство цифрового развития, связи и массовых коммуникаций предложило отменить действие охраны тайны связи на геоданные абонентов. Это следует из проекта поправок в закон «О связи» и пояснительной записки к нему, сообщает РБК.Ведомство предлагает вывести информацию о местоположении мобильных устройств из-под охраны тайны связи, что позволит силовикам получать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438501   (1033594) от 05.02.2021
-
-Linux Mint 20.1 Ulyssa (XFCE, Mate, Cinnamon) [64bit] 4xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNet: представлен релиз дистрибутива Linux Mint 20.1, продолжающий развитие ветки на основе пакетной базы Ubuntu 20.04 LTS. Дистрибутив полностью совместим с Ubuntu, но существенно отличается подходом к организации интерфейса пользователя и подбором используемых по умолчанию приложений. Разработчики Linux Mint предоставляют десктоп-окружение, соответствующее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D158C3429D8390C33391B2694AA9E3FE909C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444743   (1033593) от 05.02.2021
-
-Microsoft рассказала о последствиях «убийства» Windows 7
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекращение поддержки Windows 7 вызвало череду обновлений на более современные ОС. Об этом сообщает издание Softpedia со ссылкой на материалы Microsoft.В заявлении корпорации, связанном с публикацией квартального финансового отчета, отмечается успех новых операционных систем. По словам журналистов, Microsoft положительно оценивает востребованность Windows 10 после (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594710   (1033571) от 13.03.2023
-
-Windows 11 Enterprise x64 Micro 22H2 build 22621.900 by Zosma[Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1033571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максимально облегченная сборка основана на официальном образе Microsoft:
-ru-ru_windows_11_business_editions_version_22h2_updated_nov_2022_x64_dvd_bf0f2f9b
-В сборке используется загрузчик на основе модифицированных ядер WinPe 10 от Xemom1 & korsak7.
-Удалены компоненты связанные с шпионством и отправкой телеметрии.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FA041783ABBD8A0F539F288B92F75F34A99ADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

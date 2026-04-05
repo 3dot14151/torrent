@@ -1,3 +1,85 @@
+###  Публикация: 1811090   (8888) от 08.08.2025
+
+Эммануэль Тодд | Поражение Запада (2025) [MP3, Владимир Овуор]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский историк, социолог и демограф Эммануэль Тодд обрел известность в 1976 году, когда крайне точно предсказал грядущий крах Советского Союза.
+В своей книге «Поражение Запада» Тодд указывает, что в разгоревшемся новом конфликте Запад сам обрек себя на поражение. В числе причин автор указывает индустриальный упадок США, отказ от протестантской этики и позицию (   Читать дальше...   )Жанр: Политология, публицистикаИздательство: АСТПродолжительность: 10:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD932C0AFCD233C54775A9E67277165348C9A4DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820986   (8518) от 30.09.2025
+
+Томас Хертог | О происхождении времени, последняя теория Стивена Хокинга (2025) [MP3, Алексей Ядренников]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бестселлер «Нью-Йорк Таймс».
+Книга, которую ждали и о которой говорят в научных сообществах по всему миру.
+Автор Томас Хертог, ближайший сотрудник, ученик и соратник Стивена Хокинга, озвучивает финальные мысли главной научной суперзвезды о космосе, Вселенной и нашем месте в ней. Томас Хертог провел 20 лет бок о бок с великим ученым, работая над новой теорией космоса, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: БОМБОРА, Правообладатель ЭксмоПродолжительность: 13:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084E1D7385ECDC3224E92FCEE6F07590A5324E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811338   (8439) от 11.08.2025
+
+Михаил Геллер | К началу. История Российской империи (Главы 1, 2) (2025) [MP3, Роман Ильин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Яковлевич Геллер (31 августа 1922, Могилёв, БССР — 3 января 1997, Париж, Франция) — историк, публицист, писатель, критик, диссидент. Автор ряда книг, исследующих различные аспекты русской истории и литературы советского периода, издававшихся в Англии, Франции, Польше, Венгрии и других странах.
+Книга Михаила Геллера «К началу. История Российской империи» представляет (   Читать дальше...   )Жанр: ИсторияИздательство: Аудиокнига своими рукамиПродолжительность: 05:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F273088F001CFD773970F7D5084B9F54A6DF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811650   (8409) от 11.08.2025
 
 Фиби Гансуорси | Выбирай себя каждый день (2022) [MP3, Людмила Пахмутова]
@@ -6,7 +88,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8409.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8141.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7878.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7090.jpg" />
 </div>
 
 
@@ -114,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7062.jpg" />
 </div>
 
 
@@ -141,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6754.jpg" />
 </div>
 
 
@@ -167,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6613.jpg" />
 </div>
 
 
@@ -193,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6286.jpg" />
 </div>
 
 
@@ -219,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6261.jpg" />
 </div>
 
 
@@ -245,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5828.jpg" />
 </div>
 
 
@@ -274,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5688.jpg" />
 </div>
 
 
@@ -303,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4947.jpg" />
 </div>
 
 
@@ -330,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4799.jpg" />
 </div>
 
 
@@ -356,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3197.jpg" />
 </div>
 
 
@@ -383,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3133.jpg" />
 </div>
 
 
@@ -409,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2985.jpg" />
 </div>
 
 
@@ -436,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2321.jpg" />
 </div>
 
 
@@ -463,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1981.jpg" />
 </div>
 
 
@@ -489,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1611.jpg" />
 </div>
 
 
@@ -515,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1287.jpg" />
 </div>
 
 
@@ -543,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1147.jpg" />
 </div>
 
 
@@ -570,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_539.jpg" />
 </div>
 
 
@@ -598,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38.jpg" />
 </div>
 
 
@@ -610,59 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFF084F32C09A9295F152CF1BE412B229A3A3A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820769   (30) от 29.09.2025
-
-Артур Шопенгауэр | Мир как воля и представление (2023) [MP3, Игорь Гмыза]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мир как воля и представление» – главный труд А. Шопенгауэра. В нем автор стремился создать принципиально новое и всеобъемлющее учение, противоположное рационализму Нового времени. В философии Шопенгауэра движущая сила всех явлений во Вселенной – бессознательная мировая воля, которая проявляет себя во всем и всему остается чуждой.Жанр: ФилософияИздательство: Аудиокнига (АСТ)Продолжительность: 22:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4227A0E6C11B598CC39F830E199DACFAF38673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820767   (25) от 29.09.2025
-
-Иммануил Кант | Критика практического разума (2022) [MP3, Игорь Гмыза]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный этический трактат Иммануила Канта, развивающий его идеи высшего принципа нравственности. Иммануил Кант – величайший философ Западной Европы, один из ведущих мыслителей эпохи Просвещения, родоначальник немецкой классической философии, основатель критического идеализма, внесший решающий вклад в развитие европейской философской традиции.
-«Критика практического (   Читать дальше...   )Жанр: ФилософияИздательство: Аудиокнига (АСТ)Продолжительность: 07:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13C26527CBBD07E046893FEC80CB32D366CC8F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

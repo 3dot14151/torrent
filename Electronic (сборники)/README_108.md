@@ -1,3 +1,61 @@
+###  Публикация: 1038544   (606839) от 28.07.2016
+
+VA - Soft Emotion: Chillout Mix (2016) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606839.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Toni Verde - Heroes of Galaxy - Main Theme
+002. Oceanus - Arabamish - Original Mix
+003. Chill Out Hotel - Human - Original Mix
+004. Sanjay Farrell - Higher Level(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF082FA503DA804DBC7F219C35123A9CC56EF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038399   (606836) от 28.07.2016
+
+VA - Armin van Buuren - Embrace Remix (2016) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Kensington -  Heading Up High (Swanky Tunes Remix) 3:11
+02. Armin van Buuren feat. Lyrica Anderson -  Gotta Be Love (Arston Remix) 3:54
+03. Armin van Buuren feat. Kensington -  Heading Up High (Swanky Tunes Extended Remix) 4:11
+04. Armin van Buuren -  Off The Hook (Fisherman And Hawkins Remix) 3:07(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BEF24FD26B2B986303167D2CEE358B636E11D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038491   (606831) от 28.07.2016
 
 VA - The Best - In Music We Trust Vol.4 (2016) [MP3|320 Kbps] <House, Progressive, Club House>
@@ -6,7 +64,7 @@ VA - The Best - In Music We Trust Vol.4 (2016) [MP3|320 Kbps] <House, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606831.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Vocal Trance: Spring Positive Mix (2022) [MP3|320 Kbps] <Trance, Club, Danc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605939.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Sexy Trance #42 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605787.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ VA - Masterpieces Vol.1 The Wonderful World of Lounge Music (2017) [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605617.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Armin van Buuren - Greatest Hits (2011) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605429.jpg" />
 </div>
 
 
@@ -159,7 +217,7 @@ VA - Beatport Top 100 (27.06.2015) [MP3|160-320 кб/с]<House, Dubstep, Minimal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605116.jpg" />
 </div>
 
 
@@ -188,7 +246,7 @@ VA - Hot Parts Island Trip (2016) [MP3|320 Kbps] <House, Electro House, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605065.jpg" />
 </div>
 
 
@@ -217,7 +275,7 @@ VA - Goa World 2016.2 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605060.jpg" />
 </div>
 
 
@@ -246,7 +304,7 @@ VA - Rocco Presents Hands Up Heroes Vol. 9 (2016) [MP3|320 Kbps] <Hardcore, Hand
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604978.jpg" />
 </div>
 
 
@@ -275,7 +333,7 @@ VA - Chicane - Twenty (2016) [MP3|320 Kbps] <House, Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604836.jpg" />
 </div>
 
 
@@ -304,7 +362,7 @@ VA - Digital Dream: Techno Set (2019) [MP3|320 Kbps] <Techno, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604833.jpg" />
 </div>
 
 
@@ -333,7 +391,7 @@ VA - Special Electro House Mix For Ladies (2019) [MP3|320 Kbps] <Electro House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604825.jpg" />
 </div>
 
 
@@ -362,7 +420,7 @@ VA - Hits of My Soul Vol. 08 (2016) [MP3|320 кб/с]<Post Rock, Electronic, Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604682.jpg" />
 </div>
 
 
@@ -394,7 +452,7 @@ Axion - Push The Limit (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604423.jpg" />
 </div>
 
 
@@ -423,7 +481,7 @@ VA - Summer of Love Vol. 2 (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604401.jpg" />
 </div>
 
 
@@ -452,7 +510,7 @@ VA - Record Super Chart 23.04.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604320.jpg" />
 </div>
 
 
@@ -481,7 +539,7 @@ VA - Club Dance Ambience Vol.152 (2018) [MP3|256-320 Kbps] <Dance, Club House, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604076.jpg" />
 </div>
 
 
@@ -510,7 +568,7 @@ VA - Hits of My Soul Vol. 46 (2019) [MP3|320 кб/с]<DubStep, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604041.jpg" />
 </div>
 
 
@@ -539,7 +597,7 @@ VA - Inspirations Uplifting Trance Hymns (2017) [MP3|256-320 Kbps] <Uplifting, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603935.jpg" />
 </div>
 
 
@@ -568,7 +626,7 @@ VA - Trance Collection Vol.70 (2018) [MP3|320 Kbps] <Trance, Progressive Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603672.jpg" />
 </div>
 
 
@@ -597,7 +655,7 @@ VA - Deep House Collection Vol.175 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603669.jpg" />
 </div>
 
 
@@ -626,7 +684,7 @@ VA - Options Remake Of Tracks April -B- (2019) [MP3|320 Kbps] <Tropical, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603597.jpg" />
 </div>
 
 
@@ -655,7 +713,7 @@ VA - Trance Masters 100 Greatest Hits Ever (2017) [MP3|320 Kbps] <Trance, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603450.jpg" />
 </div>
 
 
@@ -684,7 +742,7 @@ VA - Beatport Top 100 Big Room June (2017) [MP3|320 Kbps] <House, Tech House, Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603446.jpg" />
 </div>
 
 
@@ -698,64 +756,6 @@ VA - Beatport Top 100 Big Room June (2017) [MP3|320 Kbps] <House, Tech House, Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1A649F1B5985B93C1F5AD9A1C9A85346E3E50B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297564   (603031) от 24.04.2019
-
-VA - Club Goes Music Sunday (2019) [MP3|320 Kbps] <Deep House, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rey Vercosa  &  R.Braga  &  Guiga - Na Tua Casa (Feat. Guiga)(Bruno Motta Radio Remix)
-02. Going Deeper & Twoworldsapart - Love You Better(Original Mix)
-03. Gray - Girl (Vitaco Remix)
-04. Morgan Page Ft. Lissie - The Longest Road(Steff Da Campo Extended Remix)(   Читать дальше...   )Жанр: Deep House, Future HouseПродолжительность: 06:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E69D63EAD37361EEB3DD3D12642E2C08ECE7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297892   (602680) от 25.04.2019
-
-VA - Omniversum: Techno Electronics Mix (2019) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lucifah - Perry
-002. Alexander Dee - Night Trip
-003. Crypsis - Combination Style
-004. Damian Kuklinski - Edge Line(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA40FDB9BB24A792D658A9DC792B3F98BE15750
 ```
 
 https://mybot314.ru/tekegram_catalog/

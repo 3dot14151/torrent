@@ -6,7 +6,7 @@ Chris Beard - Barwalkin' (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888183.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kelly Wildowsky - Blues Prophecy (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879415.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Bob Lanza Blues Band - Things Ain't So Bad (2009) [MP3|320 кб/с] <Electri
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877657.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Bluesbenders - Gargoyle Schmargoyle (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868511.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Stevie Ray Vaughan etc - Discography (1978..2009) [MP3|320 kbps] <Electric/Texas
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867805.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Woody Blues Trio - Vivitos y bluseando (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866613.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866251.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Lisa Scherma - Here In My Heart (2016) [MP3|320 кб/с] <Contemporary Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863050.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Ana Popovic - Live for Live (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861804.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ The Penitent Man - The Penitent Man (2020) [MP3|320 Kbps] <Heavy Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860376.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Dave Fields - Unleashed (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855672.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Deep In The Top - Blues In Different Colours (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855623.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Southern Avenue - Southern Avenue (2017) [MP3|320 Kbps] <Memphis Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855563.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Guy Verlinde And The Houserockers - How How How (2017) [MP3|320 Kbps] <Rockin' B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853807.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Skidrola - House Of Hope (2016) [MP3|320 кб/с] <Blues, Rockin' Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852285.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Robin Trower - Where You Are Going To (2016) [MP3|320 кб/с] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852187.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Jeff Healey - Heal My Soul (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850463.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Dave Day - Sound the Bell (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847120.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Roy Buchanan - When A Guitar Plays The Blues (1985) [MP3|320 Kbps] <Electric Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846747.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Living The Blues: The 70s Blues Classics (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845941.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Gary Eisenbraun - Ghost Notes (2015) Expanded Edition [MP3|320 кб/с]<Blues Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845847.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ David Anastasia - Hoodadoo Cheaper By The Dozen (2016) [MP3|320 кб/с] <East C
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845401.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ The Dana Fuchs Band - Lonely for a Lifetime (2003) [MP3|320 кб/с] <Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845283.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - NOW Soul Classics (2020) [MP3|320 Kbps] <Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844800.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - NOW Blues Classics (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844791.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Lisa Lystam Family Band - Give You Everything (2016) [MP3|320 кб/с] <Blues Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840313.jpg" />
 </div>
 
 

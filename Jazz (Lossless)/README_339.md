@@ -6,7 +6,7 @@ VA - My PlayList (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101213.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Jalapeno Funk, Vol. 15 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101212.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - House Disco Funk Vol 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Ho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101211.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Broken Beat Nu Funk, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101197.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101196.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101195.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - NYC Jazz Bar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101174.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Calm Late Night Jazz Music (Instrumental Jazz Sax Piano Guitar) (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101172.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Jazz Vocalists (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101166.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101153.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101150.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Funky For A Sunny Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101148.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pomante - Frames (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101146.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mal Waldron - One Entrance, Many Exits (1982) 2003, Quicksilver [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101131.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bill Harris - Holiday Improvisations (1998) Daddy Jazz Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100888.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dave Koz & Friends - Christmas Ballads: 25th Anniversary Collection (2022) Just 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100886.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Teddy Horangic & Frank Lacy - This Christmas With Night Is Alive (2023) Night Is
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100677.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rosemary Clooney - Irving Berlin's White Christmas (1954) 2014, Real Gone Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100676.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100664.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Art Blakey - In This Korner (1978) 1992, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100609.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100554.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100547.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Soulmate Project - Vinyl Flavour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100544.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Breeze - Just Another Day (Breeze) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100543.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Cinematic Funky Grooves Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100535.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ StudioTan - StudioTan (2012) [FLAC|Lossless]<Fusion, Jazz-Funk, Chillout>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_100474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100474.jpg" />
 </div>
 
 

@@ -1,3 +1,133 @@
+###  Публикация: 1601606   (1046393) от 01.01.2023
+
+Путешествие Муравья (1983) DVDRip [H.265/2160p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046393.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положена сказка В. Бианки «Как муравьишка домой спешил». В нем рассказывается о злоключениях хвастливого муравьишки, унесенного ветром в лес, и о том, как гусеница, кузнечик, водомер и майский жук помогли ему до захода солнца попасть домой.Производство: СССР, СоюзмультфильмЖанр: Короткометражный, комедия, рисованная анимация, семейныйРежиссер: Эдуард НазаровАктеры: Эдуард НазаровСубтитры: отсутствуютПродолжительность: 00:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB75A0557EAAFE4AA537CBBF8F9A1D109ED21EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601608   (1046391) от 01.01.2023
+
+Про Сидорова Вову (1985) DVDRip [H.265/2160p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046391.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу мультфильма положено сатирическое стихотворение Э. Успенского, высмеивающее родителей, которые в своей слепой любви доходят до абсурда и тем самым калечат ребенка, воспитывая его неприспособленным к нормальной трудовой жизни, службе в армии.Производство: СССР, СоюзМультфильмЖанр: мультфильм, комедия, короткометражкаРежиссер: Эдуард НазаровАктеры: Сергей ЮрскийСубтитры: отсутствуютПродолжительность: 00:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA141A3F4E0BA395C208D99DDC96870FE9559F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601849   (1046327) от 02.01.2023
+
+Одинокие бурундуки / Chip n Dale – The Lone Chipmunks (1954) DVDRip [H.265/2160p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046327.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Одинокие бурундуки» — американский короткометражный анимационный фильм 1954 года, снятый Джеком Кинни и спродюсированный Уолтом Диснеем. В короткометражном фильме Чип и Дейл находятся на Диком Западе, пытаясь поймать Черного Пита за вознаграждение в размере 10 000 долларов.Производство: США, Walt Disney ProductionsЖанр: мультфильм, короткометражка, семейный, вестернРежиссер: Джек КинниАктеры: Билли Блэтчер, Десси Флинн, Джеймс МакДональдПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 00:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B61C47DB013D37F12892B3729F074A703A17713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601746   (1046250) от 03.01.2023
+
+Царство против разбойников (2022) WEBRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Царевич отказывается платить ежегодную дань разбойникам и, вопреки желанию царя и воеводы, нанимает на службу двух странствующих актеров, выдающих себя за богатырей, которые вместе с ним превращают оборону деревни в фарс, проигрывают сражение, а потом, действительно взявшись за дело, исправляют ситуацию и побеждают своих врагов.Производство: Россия / КиноФирмаЖанр: Мультфильм, комедия, приключенияРежиссер: Марина Лескова-ГакиАктеры: Прохор Чеховской, Элиза Мартиросова, Лариса Брохман, Диомид Виноградов, Михаил Хрусталёв, Ирина Киреева, Валерий Сторожик, Антон Эльдаров, Александр ГаврилинСубтитры: отсутствуютПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1668FB5216FC7E8B5A2A354D20C1077AA0159D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477972   (1046237) от 03.01.2023
+
+Маша и медведь (2020-2022) WEB-DL [H.264/1080p] (сезон 5, серии 1-26 из 26)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маша - невероятно активная девочка, которая никогда не сидит на месте и считает, что весь мир создан для неё одной. Машина индивидуальность не знает границ, поэтому урок труда легко оборачивается строительством парусного корабля, а набор художника - в разукрашивание всего леса.Производство: Россия / Студия "Анимаккорд"Жанр: Детский, комедия, семейныйРежиссер: Олег Кузовков, Олег Ужинов, Денис ЧервяцовСубтитры: ОтсутствуютПродолжительность: ~00:08:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C40F3AE9844F9B8C2D2B5C2D7E5878A1920D1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602128   (1046196) от 04.01.2023
 
 Рождественский Мадагаскар / Merry Madagascar (2009) BDRemux [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046196.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046181.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046178.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046164.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045983.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045979.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045797.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045545.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045244.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045243.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045015.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044698.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044365.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044361.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044344.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044127.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043992.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043886.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043872.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043683.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043587.jpg" />
 </div>
 
 
@@ -541,141 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68D654DE230726DAB56EBD9BFDBC8A18FFB96434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232627   (1043492) от 31.01.2023
-
-Я свинья / Pig Me (2010) HDTVRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрая и красочная короткометражная зарисовка, которая выделяется ярким, запоминающимся сюжетом. Мелодичная, успокаивающая музыка, с грамотно подобранной палитрой исполнения мультфильма, оставит приятное впечатление от просмотра у любого зрителя!Жанр: Компьютерная анимация, КомедияРежиссер: Mette Tange, Israel Hernanadez, Ditte Gade, Marie-Louise Hojer Jensen, Rebecca Bang SorensenПеревод: Без слов / НемойПродолжительность: 00:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C342AA1B9BF59F9FA88BD1A9D072E4AA2687E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 127619   (1043487) от 31.01.2023
-
-Ковчег / ARK (2007) HDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный вирус уничтожил почти все человечество. Не обращая внимания на истинную природу болезни, немногие, оставшиеся в живых, пытаются спастись в море. На огромных кораблях они отправляются на поиски необитаемой земли. Так начинается Исход, под предводительством одного человека…Производство: Польша, Platige ImageЖанр: фантастика, драмаРежиссер: Гжегож ЙонкайтысПеревод: Без словСубтитры: Русские (отдельным файлом)Продолжительность: 00:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490652213D5E2ECEB26BB7453B9AEFD802991A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337   (1043479) от 31.01.2023
-
-Старик и море (1999) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043479.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной повести Э.Хемингуэя
-
-История дружбы между маленьким деревенским мальчишкой и старым рыбаком. Сантьяго, сильный и гордый человек, он не может смириться с неумолимым течением времени, отнимающем физические силы.
-Уже много недель он возвращается с моря без улова. Наконец он принимает решение - уйти за добычей далеко-далеко в море и без улова не возвращаться. (   Читать дальше...   )Производство: Россия, Япония / Студия Ogden EntertainmentЖанр: детский, драмаРежиссер: Александр ПетровАктеры: Гордон Пинсент, Кевин Дюхани, Ёдзи Мацуда, Рэнтаро МикуниПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 00:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81AA0C92FC36F407F2E28489588284E818519C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 125654   (1043388) от 01.02.2023
-
-Хранители: История Чёрной Шхуны / Watchmen: Tales of the Black Freighter (2009) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043388.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Черной Шхуны - комикс со страниц графического романа Watchmen, который читает мальчик Берни у газетного киоска (в фильме он будет в режиссерской версии). По сюжету молодой моряк отчаянно пытается добраться до родных земель, чтобы успеть предупредить о приближении корабля-призрака "Черная Шхуна".Производство: США, Warner Bros. Pictures Co.Жанр: приключения, ужасыРежиссер: Майк Смит, Даниэль Дел ПургаториоПеревод: Многоголосый закадровый (notabenoid)Субтитры: Русские, Английские (вшитые)Продолжительность: 0:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E194B801246F648C3B4762EE779E5E0143C76477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 71534   (1043200) от 03.02.2023
-
-"Моя любовь", "Корова", "Сон смешного человека", "Русалка" (1989-2006) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043200.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Моя любовь"
-Это фильм о любви и о взрослении. Это взгляд мудрого человека на порывы юности. В картине есть всё, что может тронуть сердце чуткого зрителя: и нежность к своим мальчишеским стремлениям, и понимание, какие открытия ожидают юношу на пути к зрелости.
-Герой фильма - шестнадцатилетний гимназист Антон. Он влюблён сразу в двух девушек, и ему предстоит (   Читать дальше...   )Производство: РоссияЖанр: драма, короткометражкаРежиссер: Александр ПетровАктеры: Нина Русланова, Евгения Крюкова, Сергей Гармаш, Александра Живова и др.Субтитры: ОтсутствуютПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED0E21E88CCA8777FB77ACD3E1E72FF5EEB7260
 ```
 
 https://mybot314.ru/tekegram_catalog/

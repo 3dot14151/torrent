@@ -1,3 +1,32 @@
+###  Публикация: 1835678   (251693) от 07.11.2025
+
+Kings Of Leon - EP #2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Little Sheep [00:03:33]
+02. To Space [00:03:53]
+03. Pit To The Rind [00:04:31]
+04. The Wolf [00:03:10]Жанр: Indie Rock, Alternative Rock, Southern RockПродолжительность: 00:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01872B8A2739682BC6D9F349F8239D27ED63D3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495160   (251516) от 12.05.2012
 
 Iron Maiden - 2 Альбома (1983-2002) [FLAC|Lossless]<Rock, Heavy Metal>
@@ -6,7 +35,7 @@ Iron Maiden - 2 Альбома (1983-2002) [FLAC|Lossless]<Rock, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251516.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ P.H.O.B.O.S. - Atonal Hypermnesia (2012) [MP3|320 кб/с]<Psychedelic Industria
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251401.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Nordheim - Lost In The North (2010) [MP3|320 кб/с]<Viking/Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251358.jpg" />
 </div>
 
 
@@ -105,7 +134,7 @@ King Crimson - The 21st Century Guide To King Crimson: Volume One (1969-1974) & 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251303.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ Paul Mccartney, Wings - Wings (Deluxe) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251282.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251246.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ Empire Drowns - Endless Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251226.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251159.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Randy Johnston - Rockin' Soul at the Star Tavern (2025) [FLAC 24/48|Lossless|WEB
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250855.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Ashes And Diamonds - Are Forever (2025) [FLAC|Lossless|image + .cue] <Rock, Alte
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250834.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250828.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ Shadows Fall - Fire From The Sky (2012) [MP3|320 кб/с]<Metalcore / Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250776.jpg" />
 </div>
 
 
@@ -396,7 +425,7 @@ Slash - Live at the S.E.R.P.E.N.T. Festival (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250758.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ Cold Steel - Discipline & Punish (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250637.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Deez Nuts - Saudade (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Hardcor
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250630.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ Florence + The Machine - Everybody Scream (Chamber Version) (2025) [FLAC 24/48|L
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250629.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250604.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ White Lies - Night Light (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250535.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ Greg Puciato - 3 Albums (2020-2022) [MP3|320 Kbps] <Alternative Rock, Grunge, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250522.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ Scorpions - From The First Sting (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250503.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250400.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ Wildways - Сумерки (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardc
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250398.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ Serpent Bite - Nightblade Of The Law (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250384.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ City Fixx - Fire Your Guns (1990) Compilation, 2022, Steelheart Memories, The "L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250320.jpg" />
 </div>
 
 
@@ -744,7 +773,7 @@ Bullet - No Mercy (1983) Reissued, 1997,	High Vaultage [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250314.jpg" />
 </div>
 
 
@@ -758,35 +787,6 @@ Bullet - No Mercy (1983) Reissued, 1997,	High Vaultage [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE96C124EB46A246F20130138283ACA115A08883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617500   (250301) от 07.03.2023
-
-Cardinal Black - January Came Close (2022) Scene [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise Up
-02. Where Do You Go
-03. Tell Me How It Feels
-04. Terra Firma(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6A3C479B4FA60FC052E85694AAF51C07A1C0A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

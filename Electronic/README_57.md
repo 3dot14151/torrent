@@ -1,3 +1,67 @@
+###  Публикация: 1354914   (986041) от 24.01.2020
+
+VA - Drizzly Music presents: 100% Hotel Deluxe Music Series (The Best In Lounge And Chill Out, Essential Luxury Hits) - 8 Releases (2012-2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambien ...
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986041.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - 100% Hotel Deluxe Music
+2013 - 100% Hotel Deluxe Music Vol.2 (The Best In Lounge And Chill Out, Essential Luxury Hits)
+2013 - 100% Hotel Deluxe Music Vol.3 (The Best In Lounge And Chill Out, Essential Luxury Hits)
+2014 - 100% Hotel Deluxe Music Vol.4 (The Best In Lounge And Chill Out, Essential Luxury Hits)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 17:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FCCDA15D4C129DBA3AFD59F11C451635381C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611714   (985994) от 02.02.2013
+
+VA - Mega House Top 100 (2013) [MP3|320 кб/с]<house, dance, club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985994.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:Жанр: house, dance, clubПродолжительность: 01:19:36
+
+ 01. Sander Van Doorn vs Julian Jordan - Kangeroo [03:11]
+ 02. Basto - I Rave You (SD Radio Edit) [03:04]
+ 03. Laura Broad ft Chris Brown - Nobody Can (Wolfpack Radio Edit) [02:58]
+ 04. Mickey ft Billie - Weekend (Extended) [04:06]
+ 05. Hook N Sling ft Evermore - Surrender [03:35]
+ 06. Julian Jordan - Rock Steady [03:20]
+ 07. Mobin Master & Ian Carey - Lights Out (Ian Carey Radio Edit) [03:24]
+ 08. Patrick Hagenaar - Another Chance (Radio Edit) [02:50](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491D4F1CBF426860B761562B878E7AFCEE3660ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355017   (985967) от 24.01.2020
 
 Boris Brejcha - Space Diver (2020) Ultra Records [FLAC|Lossless|tracks] <Tech House, Minimal>
@@ -6,7 +70,7 @@ Boris Brejcha - Space Diver (2020) Ultra Records [FLAC|Lossless|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985967.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ Cravagoide - Empty Frame (2015) [FLAC|Lossless|WEB-DL] <Ambient, Downtempo, IDM>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985946.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985891.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ Morcheeba - Part Of The Process (The Collection) (2020) 2CD, Compilation [FLAC|L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985656.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ VA - Black Hole House Music 01-20 (2020) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984981.jpg" />
 </div>
 
 
@@ -151,7 +215,7 @@ VA - Black Hole Trance Music 01-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984915.jpg" />
 </div>
 
 
@@ -180,7 +244,7 @@ Pet Shop Boys - Hotspot (2020) 2CD Special Edition [FLAC|Lossless|tracks + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984744.jpg" />
 </div>
 
 
@@ -209,7 +273,7 @@ VA - Delicate Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984699.jpg" />
 </div>
 
 
@@ -238,7 +302,7 @@ VA - Havana Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984682.jpg" />
 </div>
 
 
@@ -267,7 +331,7 @@ Dirty Vegas - Days Go By (2002) [FLAC|Lossless|tracks + .cue] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984651.jpg" />
 </div>
 
 
@@ -295,7 +359,7 @@ VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984599.jpg" />
 </div>
 
 
@@ -324,7 +388,7 @@ Dvar - Roah (2003)  [FLAC|Lossless|image + .cue] <Darkwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984390.jpg" />
 </div>
 
 
@@ -353,7 +417,7 @@ V.A. - Lounge Del Mar (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Chillout, Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984229.jpg" />
 </div>
 
 
@@ -388,7 +452,7 @@ VA - Klangkunst (2013) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983631.jpg" />
 </div>
 
 
@@ -417,7 +481,7 @@ VA - Gym Floor Energy 2020 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983628.jpg" />
 </div>
 
 
@@ -446,7 +510,7 @@ VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983626.jpg" />
 </div>
 
 
@@ -475,7 +539,7 @@ Jeff & Jane Hudson - Flesh (1983) Reissue CD, 2000, Daft Records [MP3|320 Kbps] 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983519.jpg" />
 </div>
 
 
@@ -504,7 +568,7 @@ VA - Soleados Chillout Beats (2015) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983518.jpg" />
 </div>
 
 
@@ -533,7 +597,7 @@ VA - Sotto Il Sole A Ritmo Di Chillout (2016) [MP3|320 кб/с] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983507.jpg" />
 </div>
 
 
@@ -562,7 +626,7 @@ VA - Fantasy Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983500.jpg" />
 </div>
 
 
@@ -591,7 +655,7 @@ ATB - All The Best (2012) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983362.jpg" />
 </div>
 
 
@@ -620,7 +684,7 @@ VA - La Nuit (Delicious Chill House Lounge Vol 1) (2016) [MP3|320 кб/с] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983346.jpg" />
 </div>
 
 
@@ -649,7 +713,7 @@ VA - Ibiza Lounge Cafe (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983340.jpg" />
 </div>
 
 
@@ -678,7 +742,7 @@ Neelix - Alone After All (feat. Volk & Caroline Harrison) (2015) [MP3|320 кб/�
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983337.jpg" />
 </div>
 
 
@@ -689,64 +753,6 @@ Neelix - Alone After All (feat. Volk & Caroline Harrison) (2015) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C948560A65BE9864D9180ED4E2681FBBFC894EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355614   (982294) от 27.01.2020
-
-VA - Workout All Music (Electro House Music Body Groove) (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Le Grange - Yuo Mann 06:43
-02. Assian - Smalltalk 05:37
-03. Supernocs - Black Oce 04:33
-04. Supernocs - Abotha 06:07(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8128A762922F50F56D70E1D247FCB7A8DB25A8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355560   (982111) от 27.01.2020
-
-Workout Electronica - Workout Music 2020 (2019) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Workout Music 2020 Techno House Electro Bass Motivation Top 100 Hits (2 Hr DJ Mix) [01:59:47]
-2. Mellow Bass Bender, Pt. 1 (138 BPM Techno Trance Motivation DJ Mixed) [4:42]
-3. Commit to Perfection, Pt. 2 (138 BPM Techno Trance Motivation DJ Mixed) [5:04]
-4. Command the Muscle, Pt. 3 (138 BPM Techno Trance Motivation DJ Mixed) [5:14](   Читать дальше...   )Жанр: TechnoПродолжительность: 10:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F105FD41418D7102BD9C1BBF6098F73DD5D6144
 ```
 
 https://mybot314.ru/tekegram_catalog/

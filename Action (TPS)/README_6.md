@@ -6,7 +6,7 @@ Scarface: The World is Yours (2006) [En/Ru] (1.0) Repack R.G. Games
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971122.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970293.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru/En/Multi12) [LossLess RePack/1.7/2 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969085.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Stranglehold Collector's Edition / Stranglehold. Коллекционное из
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968144.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Orcs Must Die! Dilogy / Дилогия. Бей орков! [Ru/En] (RePack) 2011
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965941.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Alan Wake + Alan Wake's American Nightmare [Ru/En] (Repack) 2012 | R.G. Revenant
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964915.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Dark Sector (2009) [Ru] (1.01/fix-vid) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964225.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.3853173/dlc) SteamRip =nemos= [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963934.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) SteamRip =nemos= [Deluxe Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963892.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962815.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Planet Nomads (2019) [Ru/Multi] (1.0.6.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962802.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Orcs Must Die: Game of The Year Edition [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961087.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Terminator Salvation The Video Game (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960612.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) Repack Other s [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957769.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Resident Evil 0 Remaster / Biohazard 0 HD Remaster (2016) [Ru/Multi] (1.0/dlc) S
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956801.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954916.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954803.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Blades of Time / Клинки Времени [Ru] (RePack/u5) 2012 | a1chem1st
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954711.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Brutal Legend [En/Multi5] (L) 2013 | RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954695.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ ENSLAVED Odyssey to the West (2013) [Ru/Multi] (1.0 upd1/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948167.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ DreadOut (2014) [Ru/Multi] (2.2.18) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947674.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Terminator Salvation: The Videogame / Терминатор: Да придёт с
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940817.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Blade & Bones (2016) [Ru/Multi] (1.3) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939498.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ DmC: Devil May Cry [Ru] (Repack/1.0u2/4 DLC) 2013 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934198.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ The Admin (2016) [En] (1.02) License POSTMORTEM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933121.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Disney Infinity Trilogy (2013-2016) [Ru/En] (20161216/dlc) Repack R.G. Меха�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933008.jpg" />
 </div>
 
 

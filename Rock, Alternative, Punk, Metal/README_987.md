@@ -1,3 +1,32 @@
+###  Публикация: 1590047   (189486) от 12.11.2022
+
+Stratovarius - Will The Sun Rise? (1996) Single, Remastered, T&T [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will The Sun Rise (Album Version)
+02. Speed Of Light (Live Version)
+03. Will The Sun Rise (Live Version)
+04. Eternity (Live Version)(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12702F1B0EA5CDD53257A102F90B42B12DBD3E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590130   (189485) от 12.11.2022
 
 Oak - The Quiet Rebellion Of Compromise (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
@@ -6,7 +35,7 @@ Oak - The Quiet Rebellion Of Compromise (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189485.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ MMXX - Sacred Cargo (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Ric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189482.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Incursion - Blinding Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189479.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Xentrix - Seven Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189478.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ WarKings - Morgana (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189474.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Crime - Master Of Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189465.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Black Hole - Whirlwind of Mad Man (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189458.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Chapter - 3 Albums (2006-2022) [MP3|320 Kbps] <Doom, Death, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189456.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Narkomfin - Нарочито Комедийный Финал (2022) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189453.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Enuff Z'Nuff - Finer Than Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189437.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The White Buffalo - Year Of The Dark Horse (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189435.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Austin Gold - Those City Lights (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189430.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Ablaze My Sorrow - The Suicide Note (2009) EP, 2017, Reissue, Ablaze Productions
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189419.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ I Am Your God - The Resurrection (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189418.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189417.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189413.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ DeathOrchestra - Symphony of Death (2020) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189412.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ I Am Your God - SINister (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189401.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ I Am Your God - The Resurrection (2020) [MP3|320 Kbps] <Melodic Death Metal, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189398.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189397.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Meurtrieres - Ronde de Nuit (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189396.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Fresh Rock Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189389.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ I Am Your God - SINister (2023) [MP3|320 Kbps] <Melodic Death Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189386.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189369.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189367.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BF4146C04F7A3EAC43FEA40F572CDA26686D3C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660370   (189363) от 13.09.2023
-
-VA - Welcome to My Life - Pop-Rock Anthem (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Plan - Welcome to My Life (3:27)
-02. Paramore - This Is Why (3:28)
-03. My Chemical Romance - Honey, This Mirror Isn't Big Enough for the Two of Us (3:53)
-04. Crash Adams - Give Me a Kiss (2:49)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B5E2845A1F34F3A58D657CCBE6C0CB63920442
 ```
 
 https://mybot314.ru/tekegram_catalog/

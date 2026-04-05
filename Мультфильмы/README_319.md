@@ -1,3 +1,133 @@
+###  Публикация: 1636721   (197686) от 01.06.2023
+
+Царевны и Таинственная гостья (2023) WEBRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключeния ждут царевен во время празднования Всеволшебного дня. В школе ждут бал: мальчики готовят сюрприз, а царевны примеряют костюмы животных. Но не успевает торжество начаться, как на школу нападает юная волшебница Марфуша, у которой с учебным заведением свои счёты. Застав Кощея врасплох, она превращает его в ворона, а бросившихся ему на выручку царевен — в (   Читать дальше...   )Производство: Россия / Кинокомпания CTBЖанр: мультфильм, детский, фэнтезиРежиссер: Александра ШохаАктеры: Анна Слынько, Алёна Кононова, Ирина Обрезкова, Елизавета Чабан, Юлия Рудина, Наталья Терешкова, Александр Быковский, Валерий Смекалов, Станислав Концевич, Мария Цветкова-ОвсянниковаСубтитры: ОтсутствуютПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82385A5795244C9A5B3C85E1F5989ADAF3D6833A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636638   (197662) от 02.06.2023
+
+Уволен на Марсе / Fired on Mars (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеффу Куперу приходится заново искать себя после увольнения с должности в космическом стартапе Mars.Iy. Не имея возможности вернуться на Землю, он вынужден заново искать смысл жизни в опасном, чужом, но знакомом корпоративном ландшафте.Производство: США / NN Productions, Pat & Mike Productions, Warner Bros. DiscoveryЖанр: мультфильм, фантастика, комедияРежиссер: Нейт Шерман, Ник ВокиАктеры: Люк Уилсон, Шон Уинг, Тим Хайдекер, Седрик Ярбро, Фрэнки Киньонес, Амара Каран, Лесли Дэвид Бэйкер, Эл Ди, Памела Адлон, Чейз БернштейнПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1929B2CA239F613A757E71AA3A880E1FE8F61420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170256   (197649) от 31.05.2023
+
+Жил-был кот / Rudolf the Black Cat (2016) WEB-DLRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197649.jpg" />
+</div>
+
+
+###  Подробнее
+
+История маленького чёрного котёнка с гордым именем Рудольф, жившего счастливо и спокойно ровно до тех пор, пока по роковой случайности он не оказался в неизвестном большом городе. Здесь герою придётся выживать без ласки и заботы хозяев, а ведь раньше он был твёрдо убежден, что всегда будет в полной безопасности.Производство: Япония, КанадаЖанр: Мультфильм, комедия, приключенияРежиссер: Микинори Сакакибара, Кунихико ЮямаАктеры: Мао Иноуэ, Рёхэй Судзуки, Норито Ясима, Арата Фурута, Сандаю Докумамуси, Нана Мидзуки, Рио Сасаки, Юка Тэрасаки, Акио ОцукаПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBA968741396CBBDA1D488EA10F72EAC7B2D17B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637078   (197639) от 02.06.2023
+
+Головоломка / Inside Out (2015)  WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Райли — обычная 11-летняя школьница, и, как у каждого из нас, ее поведение определяют пять базовых эмоций: Радость, Печаль, Страх, Гнев и Брезгливость. Эмоции живут в сознании девочки и каждый день помогают ей справляться с проблемами, руководя всеми ее поступками. До поры до времени эмоции живут дружно, но вдруг оказывается, что Райли и ее родителям предстоит переезд (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, семейный, комедияРежиссер: Пит Доктер, Роналдо Дель КарменПеревод: дублированныйСубтитры: русские, английскиеПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8D401E6EFF67F7401CF11D002151B8A9FE2F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636990   (197636) от 02.06.2023
+
+Коты Эрмитажа (2023) WEBRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный кот по имени Винсент в компании мыши Мориса спасается от наводнения в старинном клавесине, который подбирают моряки и отправляют в Санкт-Петербург, где он попадает в Эрмитаж. Там Винсент знакомится с элитным кошачьим отрядом, что столетиями охраняет произведения искусства от мышей и прочих вредителей. Винсент мечтает обрести настоящую кошачью семью, но не хочет (   Читать дальше...   )Производство: Россия / Лицензионные брендыЖанр: мультфильм, детский, комедияРежиссер: Василий РовенскийСубтитры: отсутствуютПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C9BF1F339E63F8CE6175CD7766465516999713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997672   (197631) от 31.05.2023
 
 Смех и грех (Мультфильмы для взрослых) (2002) WEBRip [H.264] (серии 1-9 из 9)
@@ -6,7 +136,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197631.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197457.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197451.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197386.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197368.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197308.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197275.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197271.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197215.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ Angry Birds в кино / Angry Birds (2016 - 2019) BDRip [H.264/720p] [Дило
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197192.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197181.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197153.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197112.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197002.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196976.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196963.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196953.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196952.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196889.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196810.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196766.jpg" />
 </div>
 
 
@@ -538,138 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:461C244EBF3B6C1D618F69F2A12CA22414201803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402089   (196741) от 20.06.2023
-
-Конь БоДжек / BoJack Horseman (2014-2020) WEB-DL [H.264/1080p-LQ] (сезон 1-6, серии 1-77 из 77) Невафильм
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в мире населенном антропоморфными животными и людьми. Большая часть сюжета происходит в Лос-Анджелесе. БоДжек — звезда ситуационной комедии, популярной в конце 80-х — начале 90-х годов, на момент времени происходящего в сериале, БоДжек переживает кризис среднего возраста. В попытках вернуть былую популярность и любовь публики, БоДжек пытается (   Читать дальше...   )Производство: США | Tornante Company, NetFlix, ShadowMachine FilmsЖанр: мультфильм, драма, комедия, для взрослых
-
-Режиссер: Эми Уинфри, JC Gonzalez, Аарон ЛонгПеревод: Дублированный (Невафильм)Субтитры: Русские, английские и др.Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EEAD6CBA0C33CF7E51A1A53E20721C800EDDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641963   (196635) от 25.06.2023
-
-Братья Супер Марио в кино / The Super Mario Bros. Movie (2023) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-водопроводчики Марио и Луиджи открывают портал в подземный город, из которого должны вызволить пленённую принцессу Пич и сразиться с заклятым врагом Боузером.Производство: США, Япония / Universal Pictures, Nintendo Co. Ltd., Illumination EntertainmentЖанр: мультфильм, фэнтези, приключения, комедияРежиссер: Аарон Хорват, Михаэль ЕленикПеревод: дублированный (Red Head Sound, HotVoice 41), профессиональный многоголосый (TVShows), авторскийЯзык озвучки: русский, английскийСубтитры: русские (full), английские (full, SDH)Продолжительность: 01:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D134345C7B392390B3EF828183CB1FF1974F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332752   (196618) от 23.06.2023
-
-Дракон (1961) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196618.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказок юго-восточной Азии.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Александра Снежко-БлоцкаяАктеры: Елена Понсова, Галина Новожилова, Эраст Гарин, Георгий Вицин, Виктор Хохряков, Михаил ПогоржельскийСубтитры: ОтсутствуютПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35ABD94973EA35C5F8E495F108F926F231D2D3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642265   (196582) от 26.06.2023
-
-Изумительный Морис / The Amazing Maurice (2022) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196582.jpg" />
-</div>
-
-
-###  Подробнее
-
-У кота Мориса есть два таланта: говорить и проворачивать аферы. Путешествуя с говорящими грызунами из города в город, он каждый раз «спасает» местных жителей от нашествия крыс (разумеется, за хорошую оплату). Но попав в Дрянь-Блинцбург, Морис и его друзья понимают, что этот городок таит в себе нечто опасное… Теперь им предстоит сыграть в кошки-мышки с настоящим злом (   Читать дальше...   )Производство: Великобритания, Германия, США / Studio Rakete, Red Star 3D, Cantilever GroupЖанр: мультфильм, семейныйРежиссер: Тоби Генкель, Флориан ВестерманнАктеры: Хью Лори, Эмилия Кларк, Дэвид Тьюлис, Химеш Патель, Джемма Артертон, Джо Сагг, Эрион Бакаре, Джули Атертон, Роб Брайдон, Хью БонневилльПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: Русские (full), английские (full, SDH)Продолжительность: 01:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D449D32DEEEFBBB62FEDBC1D3CBD17DDFC7BEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271504   (196562) от 26.06.2023
-
-Возвращение (1980) TVRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подходит к концу космическое путешествие, перед посадкой Космонавт крепко засыпает. Он не слышит сигналы с Земли. Надвигается катастрофа. Когда корабль пролетает над родным домом Космонавта, раздается звон Будильника, заведенного Дедом и Космонавт просыпается.Производство: СССР, СоюзмультфильмЖанр: детский, фантастикаРежиссер: Владимир ТарасовАктеры: Виктор Балашов, Василий ЛивановСубтитры: отсутствуютПродолжительность: 00:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A39EAD4B723AAF48E61154AE96F2EE3C889B1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

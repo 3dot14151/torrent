@@ -6,7 +6,7 @@ The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645459.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645032.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dream Theater - Live at Budokan (2004/2011) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642821.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_641810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641810.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ The Rolling Stones - The Stones In The Park (1969/2012) [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641658.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Judas Priest - Epitaph (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_638022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638022.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636690.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Burt Bacharach - A Life In Song (2016) BDRip [H.264/1080i-LQ] <Pop, R&B, Film Mu
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636030.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Motorhead - Clean Your Clock (Live in Munich 2015) (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635934.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Whitesnake - Made In Japan (2011/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_635912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_635912.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635726.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635284.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Motorhead - Clean Your Clock (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634136.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631535.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629883.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627956.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Slash Featuring Myles Kennedy and The Conspirators - Live At The Roxy  (2014) BD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625682.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Slipknot - Rock am Ring (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625426.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623550.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623513.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Rihanna - Good Girl Gone Bad Live (2008) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623461.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Jimi Hendrix: Jimi Plays Berkeley (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618538.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Duran Duran - A Diamond In the Mind (2011) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618337.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618302.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ In Flames - Rock Am Ring (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617902.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617507.jpg" />
 </div>
 
 

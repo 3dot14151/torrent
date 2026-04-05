@@ -1,3 +1,134 @@
+###  Публикация: 1209560   (779164) от 27.02.2018
+
+Фердинанд / Ferdinand (2017) BDRip [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фердинанд — самый добродушный бык во всей Испании. Несмотря на внушительные размеры и недюжинную силу, он с детства предпочитал сидеть на лужайке и любоваться цветами вместо того, чтобы бодаться с другими быками. По нелепой случайности Фердинанд был выбран среди других соплеменников для участия в бое быков в Мадриде.
+Фердинанду предстоит отстоять свои миролюбивые (   Читать дальше...   )Производство: США, Blue Sky Studios, Davis Entertainment, Twentieth Century Fox AnimationЖанр: Мультфильм, Приключения, Комедия, СемейныйРежиссер: Карлос СалданаПерсонажи: Джон Сина, Кейт МакКиннон, Дэвид Теннант, Бобби Каннавале, Энтони Андерсон, Джек Гор, Джет Юргенсмейер, Найл Диас, Колин Х. Мерфи, Карлос Салдана ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E1F0363DFD49E8DFBD34D182E19CFF8891F7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209685   (779064) от 28.02.2018
+
+Маленький вампир / The Little Vampire (2017) BDRemux 3D [H.264/1080p] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о маленьком вампире Рудольфе — тринадцатилетнем мальчике, чью семью преследует злостный охотник на вампиров. Однажды Рудольф встречает обычного мальчика, Тони, своего сверстника. Тони без ума от старинных замков и страшных историй про вампиров, поэтому он не раздумывая предлагает Рудольфу свою помощь. Теперь эту парочку ждут весёлые и невероятные приключения (   Читать дальше...   )Производство: Нидерланды, Германия, Дания, Великобритания  | A. Film, Ambient Entertainment GmbH, Cool BeansЖанр: Мультфильм, детский, семейный, приключения, полнометражныйРежиссер: Рихард Клаус, Карстен КилерихПеревод: Дублированный (iTunes)Субтитры: ОтсутсвуютПродолжительность: 01:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F046C95F45026DEB4E53E41500B37B509D408D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209822   (779053) от 28.02.2018
+
+Вуди Вудпекер / Woody Woodpecker (2017) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лэнс Уотэрс - адвокат, который совсем недавно потерял работу. Он решил не оставаться в городе и переехать со своей подругой и сыном в загородный дом. Вот только здание еще нужно построить, и ему удалось найти для него просто идеальное место. Он уже видит, как посреди великолепного леса стоит их огромный особняк. Вот только мужчина даже не подозревает, что хочет построить (   Читать дальше...   )Производство: США / Capital Arts Entertainment, Universal 1440 Entertainment, Universal Animation StudiosЖанр: Мультфильм, комедия, семейныйРежиссер: Алекс ЗаммАктеры: Тимоти Омандсон, Таила Айала, Эрик Бауза, Грэм Верчир, Джордана Ларги, Скотт МакНил, Эдриан Макморран, Джейкоб Дейвис, Шон ТайсонПеревод: Многоголосый закадровый, любительский (Flarrow Films)Субтитры: ОтсутствуютПродолжительность: 01:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A594E75168817098F312A09C19DE86BAA6EB2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209828   (779052) от 28.02.2018
+
+Вуди Вудпекер / Woody Woodpecker (2017) WEB-DLRip [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лэнс Уотэрс - адвокат, который совсем недавно потерял работу. Он решил не оставаться в городе и переехать со своей подругой и сыном в загородный дом. Вот только здание еще нужно построить, и ему удалось найти для него просто идеальное место. Он уже видит, как посреди великолепного леса стоит их огромный особняк. Вот только мужчина даже не подозревает, что хочет построить (   Читать дальше...   )Производство: США / Capital Arts Entertainment, Universal 1440 Entertainment, Universal Animation StudiosЖанр: Мультфильм, комедия, семейныйРежиссер: Алекс ЗаммАктеры: Тимоти Омандсон, Таила Айала, Эрик Бауза, Грэм Верчир, Джордана Ларги, Скотт МакНил, Эдриан Макморран, Джейкоб Дейвис, Шон ТайсонПеревод: Многоголосый закадровый, любительский (Flarrow Films)Субтитры: ОтсутствуютПродолжительность: 01:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349C18ED036A30143094DBB4662799285767AA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209966   (778916) от 01.03.2018
+
+Плюшевый монстр / Lino: Uma Aventura de Sete Vidas (2017) WEB-DL [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Лино — молодого парня, работающего аниматором в детском саду, — кажется беспросветной: его дом того и гляди развалится, девушки его не любят, а на работе целый день терроризируют дети. Отчаявшись, он решается обратиться к одному незадачливому магу, который обещает найти выход из любой ситуации. И маг находит способ кардинально изменить жизнь Лино. Однако с (   Читать дальше...   )Производство: Бразилия, Start Desenhos AnimadosЖанр: мультфильм, семейныйРежиссер: Рафаэль РибасПерсонажи: Селтон Мелу, Дира Паис, Паола Оливейра, Луис Карлос Де Мораес, Гильерме Лопес, Хелио Рибейро, Лупа Мабузе, Лео Рабело, Марсело Чепа, Рейнальдо РодригесПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D832800CE75F05D14318B0B3B6527D5BA7FA4DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210177   (778901) от 01.03.2018
 
 Гадкий Я 3 / Despicable Me 3 (2017) BDRip [H.265/1080p-LQ]
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778901.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778782.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778778.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778770.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778766.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778762.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778759.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778752.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778470.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778039.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777797.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777500.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777367.jpg" />
 </div>
 
 
@@ -348,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777094.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776679.jpg" />
 </div>
 
 
@@ -400,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776342.jpg" />
 </div>
 
 
@@ -426,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776311.jpg" />
 </div>
 
 
@@ -452,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775974.jpg" />
 </div>
 
 
@@ -478,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775666.jpg" />
 </div>
 
 
@@ -504,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775551.jpg" />
 </div>
 
 
@@ -530,7 +661,7 @@ LEGO Супергерои DC: Лига Справедливости – Косм
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775455.jpg" />
 </div>
 
 
@@ -541,139 +672,6 @@ LEGO Супергерои DC: Лига Справедливости – Косм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0724F23289C2C6DC266DD5AD617D63D216A7C111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659450   (775333) от 22.05.2013
-
-Вернер – холодный, как лёд / Werner - Eiskalt! (2011) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм будет рассказывать о прирождённом гонщике — парне по имени Вернер, который ещё с пеленок уже показывал класс в управлении коляской, а позднее и мотоциклом и прочими транспортными средствами всех видов и расцветок…Жанр: КомедияРежиссер: Гернот РоллПерсонажи: Редгер Фельдманн, Ивонна Шонхер, Марисоль Фернандес, Ричард Саммел, Калле Хаверлан, Энди Фельдманн, Андреас Фельдманн, Йохен Никель, Михаэль ЛоттПеревод: Одноголосый закадровыйЯзык субтитров: НемецкийПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76C7435CC3C2D59448B3581F0ECD2AF244DD1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659197   (775288) от 22.05.2013
-
-Ральф / Wreck-It Ralph (2012) BDRip [1080p] [Вертикальная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ральф — второстепенный персонаж восьмибитной компьютерной игры, и ему надоело находиться в тени главного героя, мастера на все руки Феликса, который всегда появляется, чтобы «исправить» ситуацию! После тридцати лет добросовестной работы в роли злодея, в течение которых все похвалы выпадали на долю Феликса, Ральф больше не хочет быть плохим.
-
-Он решает отправиться (   Читать дальше...   )Жанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Рич МурПерсонажи: Джон Си Райли  Джек МакБрайер  Сара Силверман  Джейн Линч  Алан Тьюдик  Минди Калинг  Джо Ло Трульо  Эд О’Нил  Деннис Хейсбёрт  Эди МакКлёргПеревод: ДублированныйПродолжительность: 01:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0139ECEFAA418F9CFB6012B7C32DB98AE2CADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080434   (774883) от 13.03.2018
-
-Звёздная принцесса и силы зла / Стар против Сил Зла / Star vs. the Forces of Evil (2016) WEB-DL [H.264/1080p] (сезон 2, серии 1-22 из 22) Кириллица
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774883.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о девочке, живущей в ином измерении, по имени Стар Баттерфляй, которая получила в 14 лет волшебную палочку. Но после того, как Стар чуть ли не превратила свой родной город в прах, родители отправили её в другое измерение, которое называется Земля, чтобы жить с семьёй Диаз, которая состоит из добродушных родителей и подростка по имени Марко. Все одноклассники (   Читать дальше...   )Производство: США / Daron Nefcy Productions, Disney XD, Walt Disney Television AnimationЖанр: мультфильм, фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Аарон Хэммерсли, Пьеро Пилузо, Дэвид ВассонАктеры: Иден Шер - Star Butterfly, Адам МакАртур - Marco Diaz, Грэй Гриффин - Queen Butterfly, Алан Тьюдик - Ludo и др.Перевод: Дублированный (Кириллица)Продолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17C493FAD872B726226A82DC1DFBB09DFA129C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277206   (774857) от 22.01.2019
-
-Разочарование / Disenchantment (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) TVShows
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в Средневековье в королевстве Бинландия, где живёт юная принцесса-алкоголичка Бин. Отказавшись выходить замуж, Бин отправляется в путешествие по стране в компании эльфа и демона. По дороге трио встретит множество фантастических тварей и дураков людского происхождения.Производство: США / NetflixЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Фрэнк МариноАктеры: Эрик Андре, Мэтт Берри, Джон Ди Маджио, Нат Факсон, Ноэль Филдинг, Дэвид Херман, Эбби Джейкобсон, Морис ЛаМарш, Тресс МакНилл, Билли Уэст и др.Перевод: Многоголосый закадровый, любительский - (TVShows)Субтитры: английскиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658561D808B16A96C536DEAE1871790CC3DA3289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015183   (774688) от 10.05.2016
-
-Король обезьян / Xi You Ji Zhi Da Sheng gui lai (2015) WEB-DLRip [Line]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всемогущий Король Обезьян однажды прогневил богов и был заключен ими в ледяную бездну среди Мраморных гор. Спустя 500 лет маленький мальчик случайно снимает заклятие и освобождает героя.
-Теперь Короля ждет новое испытание: ему предстоит сразиться с Кровожадным Драконом. Сможет ли великий герой, владевший магией и кунг-фу, спасти людей и победить Могучего Дракона?Производство: Китай, Beijing Weiyingshidai Culture & Media, Hengdian Chinese Film Production Co., October Animation StudioЖанр: Приключения, Компьютерная анимацияРежиссер: Тиан Сяо ПенгАктеры: Никки Брайар, Федор Чин, Ника Футтерман, Джеймс Хонг, Дэвид С. ЮнгПеревод: Дублированный (Line)Субтитры: ОтсутствуютПродолжительность: 01:26:51Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28120AE8AF423E9D76CADCDF0419E0C40D55B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

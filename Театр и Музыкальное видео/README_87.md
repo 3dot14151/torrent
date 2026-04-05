@@ -6,7 +6,7 @@ VA - Осенний марафон № 197 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427054.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426337.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426260.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425771.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Bad Wolves - Zombie (Official Video) (2018) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425381.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425095.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Осенний марафон № 196 / Видеоклипы (Коктей�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424800.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Zaira - Mi vida (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424788.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423987.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Beth Hart Band-Crossroads (Rockpalast) (2011) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423845.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423815.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423499.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422965.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ The Strat Pack - Celebrating 50 Years Of The Fender Stratocaster Live In Concert
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421430.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420528.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419964.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418823.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418459.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416154.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Scorpions - Live in Munich (2012) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415858.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415785.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_415660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_415660.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415489.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415165.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414277.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <In
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413464.jpg" />
 </div>
 
 

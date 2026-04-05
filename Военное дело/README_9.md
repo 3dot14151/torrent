@@ -1,3 +1,29 @@
+###  Публикация: 1161568   (426280) от 27.09.2018
+
+Военные миссии особого назначения (2017-2018) SATRip (1-12 серия из ??) (Обновляемая)
+
+>>След.
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал расскажет об участии советских военных специалистов в некоторых вооруженных конфликтах второй половины ХХ века.Жанр: Документальный, война, историяПродолжительность: 12 х ~ 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9137935A6C6AC7421B16D561150E8B7471C06D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064622   (425673) от 20.10.2016
 
 Военная приемка. Ка-52. Бросок «Аллигатора» (16.10.2016) HDTVRip [720p-LQ]
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425673.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423912.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418751.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415744.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412264.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411390.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410713.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410699.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403929.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380289.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379584.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379193.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373813.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372462.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370173.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369408.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367761.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367559.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362749.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360135.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354178.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353454.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353421.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347614.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347478.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3FD335D9ABADF79361A8729DA0F1A83F008BFAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073522   (345542) от 16.11.2016
-
-Возвращение в Лимбанг / Return To Limbang (2006) DVB
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345542.jpg" />
-</div>
-
-
-###  Подробнее
-
-В декабре 1962 году на берегу реки небольшой городок Limbang в Северной Борнео (ныне в малайзийском штате Саравак) стал новостью № 1 в мировой политике, когда повстанцы захватили город, и взяли всех местных европейцев в заложники. 42 Команда Королевской морской пехоты, которой командовал капитан Джереми Мур, была спешно отправлена в Лимбанг с миссией: "Спасение (   Читать дальше...   )Телекомпания: США, Brush Fire FilmsЖанр: Документальный, ИсторияПеревод: Одноголосый закадровый, профессиональный (ТПО "Red Media")
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A46D21D7F2CCD2866B6C5CC0018EFBF2BDEBAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

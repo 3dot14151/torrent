@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775083.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775067.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774602.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774410.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774381.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774380.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774377.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774375.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774373.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774371.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774354.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773614.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773613.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773612.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773611.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773610.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773606.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773604.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ History Channel: Крысы / Rats (2005) TVRip [Перевод субтитра
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_773507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_773507.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773444.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773400.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773233.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ ARCA Menards Series-2020. 3-й Этап. Талладега 200. Гонка / AR
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773124.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773081.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772821.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772120.jpg" />
 </div>
 
 

@@ -1,3 +1,109 @@
+###  Публикация: 1233572   (577510) от 01.07.2018
+
+AdminPE10 2.3 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577510.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdminPE - загрузочный диск/флешка системного администратора AdminPE (WinPE10 - Win10). Предназначен для работы с автономной Windows 10.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE24CBBB1ECD27E85E0A6FA8BBCDA6D0558770C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302987   (575634) от 19.05.2019
+
+Microsoft Visual Studio 2017 Professional 15.9.12 (Offline Cache, Unofficial) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual Studio Professional - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72892D5AA1D4A786578935CA9F622296627C6909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922947   (564250) от 31.07.2015
+
+Endels 1.71 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Серверное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Endels (аббревиатура читается как Энделс) - это набор инструментов (phpMyAdmin, PHP, MySQL, Apache и пр.) для web-разработчиков.
+Установка и управление локальным веб-сервером никогда не было таким удобным и простым! Компоненты уже настроены для совместной работы.
+Комплекс устанавливается стандартной Windows-установкой и удобно управляется с помощью иконки в области (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAB7365413CB5F7E1B6D0866324BCF2E47D8D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304877   (559385) от 28.05.2019
+
+Orbitron 3.71 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orbitron - это спутниковая система слежения для радиолюбителей и наблюдателей. Программа также используется профессионалами синоптиками, метеорологами, пользователями спутниковой связи, астрономами, любителями НЛО и даже астрологами. Приложение показывает положение спутников в любой момент (в реальном или смоделированном времени). Приложение бесплатно и, вероятно, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DF6FA117256767C2D22388A681209E0F56BB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152592   (559194) от 26.07.2017
 
 PS4 4.50 SDK Offline Installer [En]
@@ -6,7 +112,7 @@ PS4 4.50 SDK Offline Installer [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559194.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Netfabb Private 5.2.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558901.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ RADIO AdsMan Pro 2.2.2.140 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558868.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ MySQL Installer 5.6.26 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557231.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ CoolUtils Total CAD Converter 3.1.0.113 RePack (& Portable) by TryRooM [Multi/Ru
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554355.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ Autodesk СПДС модуль 3.2 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551912.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Adobe Dreamweaver CC 2019 19.1.0.11240 (x64) Portable by FC Portables [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550077.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ Wing IDE Pro 7.0.3.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550008.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ BOOTICE 1.3.4.0 (Test) Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548896.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Mirillis Action! v 3.9.6 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541618.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ Autodesk СПДС модуль 4.1 AutoCAD 2015-2016 (x86/x64) [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530911.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ Mkey 1.3.5 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530191.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ Microsoft Desktop Optimization Pack 2015 (x86-x64) [Multi/Ru] WZT
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520196.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ Microsoft SQL Server 2014 12.0.2000.8 (x64) [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517983.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ FireDaemon Pro 3.8 Build 2717 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517203.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ Resistor Colour Code Solver 1.3.1 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517117.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ Mentor Graphics ModelSim SE 10.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508817.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ Mentor Graphics HDL Designer 2013.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507843.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ Driver Signature Enforcement Overrider 1.3b [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505051.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ SoMachine 4.1 SP1.2 [Multi]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504076.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498121.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ Logitech SetPoint 6.67.83 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493449.jpg" />
 </div>
 
 
@@ -569,110 +675,6 @@ Logitech Setpoint - программное обеспечение для мыш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8D7F58F21DBF003329DC942AF02B6A1A2D733B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938079   (483170) от 17.09.2015
-
-Макросы для Sprint-Layout 6.0 00001 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макросы для Sprint-Layout 6.0Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE64267F275096D50ECD6A37B843636BA804CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545915   (478129) от 13.09.2012
-
-Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Круглосуточный скальпер для 4 пар (EURUSD, GBPUSD, USDJPY, USDCHF),таймфрейм М15.Название программы: Wall Street RоВоt - форекс советник для МТ4/МТ5Язык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160129   (477847) от 23.08.2017
-
-ZX Custom RegTweaker 2.1 Portable [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита является конструктором для создания своего твикера реестра. Интерфейс на фото, является только рабочим примером. Все элементы можно создавать самому, прописывать для них свои ключи реестра и редактировать весь интерфейс по своему вкусу. Формат записи ключей, такой же как в стандартных .reg файлах. В один чекбокс, можно прописывать не только единичные твики, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542BE67AE643BD23CBD4B82C396127F5A24E801D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243878   (477827) от 03.09.2018
-
-PowerPlan v3.2e & Trackpad++ v3.5b [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включает в себя набор из двух программ PowerPlan и Trackpad++. Первая, PowerPlan, продлит время работы MacBook в Windows - изменяет схемы питания. Вторая, Trackpad++, добавляет жесты трекпада из Mac OS в Windows.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C78D05B4DA8CD0555D81A8E778888B77AB422A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

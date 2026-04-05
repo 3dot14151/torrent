@@ -7,7 +7,7 @@ I. Schwenzer, C. Fountoulakis, M. Dimsey et al. | International Sales Law: A Gui
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062235.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061498.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061497.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061446.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061444.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061443.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059681.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059480.jpg" />
 </div>
 
 
@@ -214,32 +214,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854507   (1057248) от 18.02.2026
-
-Сергей Анисимов | 60 законов влияния руководителя (2025) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057248.jpg" />
-</div>
-
-
-###  Подробнее
-
-60 законов, которые помогут руководителю влиять без давления: через слова, рамки, решения, систему и долгую игру. Книга научит управлять командой, изменять динамику группы, формировать культуру, усиливать доверие и принимать решения, которые люди поддерживают. Практичные инструменты для лидеров, менеджеров, HR и тех, кто развивает управленческие навыки, лидерство (   Читать дальше...   )Жанр: Деловая литература, бизнес-книгиИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2F0B45E211D3B6FF22B8E7848F9C7628D6C02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852786   (1056532) от 12.02.2026
 
 И.И. Зайнуллин | Заработок в крипте. Все легальные способы (2025) [PDF]
@@ -248,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056532.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056531.jpg" />
 </div>
 
 
@@ -301,7 +275,7 @@ Martin Kunc | Strategic Analytics. Towards AI-based Strategy Planning. Second Ed
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054620.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ Harvard Business Review, Linda A. Hill и др. | HBR's 10 Must Reads for New Ma
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054596.jpg" />
 </div>
 
 
@@ -358,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054368.jpg" />
 </div>
 
 
@@ -384,7 +358,7 @@ Peter Hill | Pricing for Profit. How to Develop a Powerful Pricing Strategy for 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053436.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ Gary Garth | The Zero to 100 Million Sales Blueprint (2023) [EPUB] [EN]
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053431.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053312.jpg" />
 </div>
 
 
@@ -466,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053118.jpg" />
 </div>
 
 
@@ -494,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052799.jpg" />
 </div>
 
 
@@ -520,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052662.jpg" />
 </div>
 
 
@@ -546,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052652.jpg" />
 </div>
 
 
@@ -572,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052642.jpg" />
 </div>
 
 
@@ -598,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052641.jpg" />
 </div>
 
 
@@ -624,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052638.jpg" />
 </div>
 
 
@@ -651,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051304.jpg" />
 </div>
 
 
@@ -677,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050753.jpg" />
 </div>
 
 
@@ -688,6 +662,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15895BD6B82C51F4566D386A3E5E47D73ED8B550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841760   (1048464) от 13.12.2025
+
+Джеффри Дж. Фокс | Как делать большие деньги в малом бизнесе (2012) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведение собственного бизнеса дает предпринимателю огромные возможности по реализации своего личностного потенциала и материальных амбиций. Никакие банковские вклады, высокие оклады и премии не могут сравниться по своему потенциальному доходу с результатами ведения собственного успешного бизнеса.
+
+Книга консультанта с мировым именем Джеффри Фокса поможет вам достичь (   Читать дальше...   )Жанр: Зарубежная деловая литература, Малый и средний бизнесПеревод: Татьяна ГутманИздательство: Альпина ПаблишерФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AAB35A7AE850A4073DA65BC23812403B319C5A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

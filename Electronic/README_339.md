@@ -1,3 +1,116 @@
+###  Публикация: 1072371   (354675) от 12.11.2016
+
+VA - Stil Vor Talent Berlin - Kottbusser Tor (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Techno HouseПродолжительность: 03:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C74907C935B10AF61DFEEA12AFE74ACC5B6D861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256648   (354556) от 22.10.2018
+
+VA - DJ Sakin Pres. Club Trance Future Edition Vol.3 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terra V. - It Does Not Make (Original Mix)
+02. DJ Sakin & DJ Wag - What Is This Place (DJ Sakin Club Mix)
+03. DJ X-Wing - Magnetic Dreams (Club Mix)
+04. Sync Diversity & Karl Schaap - Game of Trance (Skypath Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A164532EA9AFE1AC44E51983E18477F084A7FD18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329324   (354444) от 04.10.2019
+
+Makoto - Tomodachi Sessions (2019) [MP3|320 Kbps] <Drum'n'bass, Liquid Funk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illuminate (Feat. Degs) (04:11)
+02. Shine On Through (Feat. Mountain & Karina Ramage) (04:09)
+03. Kosa (Feat. Keeno) (06:00)
+04. The Encounter (Feat. Bop) (05:43)(   Читать дальше...   )Жанр: Drum'n'bass, Liquid FunkПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37181269FD44115447A5FBA3CB8567801AB6C586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329214   (354442) от 04.10.2019
+
+Hill & Wiltschinsky Guitar Duo - Latin Moods: The Romantic Sound Of Guitars (1995) 2хCD, Compilation [MP3|320 Kbps] <Easy Listening, Latin, Guitar>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl From Ipanema (2:23)
+02. One Note Samba (2:42)
+03. Meditation (3:34)
+04. Volare (3:42)(   Читать дальше...   )Жанр: Easy Listening, Latin, GuitarПродолжительность: 01:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9FAD9DA71F43F54C4C99FF8E9D78D42298AD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329174   (354440) от 04.10.2019
 
 Jay-Jay Johanson - Kings Cross (2019) Digital Booklet [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo, Alternative>
@@ -6,7 +119,7 @@ Jay-Jay Johanson - Kings Cross (2019) Digital Booklet [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354440.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - Uplifting Trance Only (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354431.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - ADE Afterhours Volume 01 (2018) [MP3|320 Kbps] <Progressive House,Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354427.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Sudbeat Showcrates 4 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354420.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ DJ Бинокль - DneproHouse (2001) [MP3|320 Kbps] <Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354414.jpg" />
 </div>
 
 
@@ -148,7 +261,7 @@ Murya - Northern Lights (2019) Dyadik [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Dow
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354315.jpg" />
 </div>
 
 
@@ -177,7 +290,7 @@ VA - Best of Trance Vol. 02 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354183.jpg" />
 </div>
 
 
@@ -206,7 +319,7 @@ VA - Ferry Corsten presents Corsten's Countdown October (2017) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354091.jpg" />
 </div>
 
 
@@ -235,7 +348,7 @@ VA - Sunday Cozy Mood (Beautiful Vocal Edition) (2017) [MP3|320 Kbps] <Balearic,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354087.jpg" />
 </div>
 
 
@@ -264,7 +377,7 @@ VA - Ori Uplift & Afternova - Uplifting Only 246 (2017) [MP3|320 Kbps] <Trance, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353977.jpg" />
 </div>
 
 
@@ -293,7 +406,7 @@ VA - Best of Uplifting Vocal Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353832.jpg" />
 </div>
 
 
@@ -322,7 +435,7 @@ VA - Anjunadeep 09 (Mixed By Jody Wisternoff & James Grant) (2017) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353820.jpg" />
 </div>
 
 
@@ -351,7 +464,7 @@ VA - Greatest Kitts Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352614.jpg" />
 </div>
 
 
@@ -380,7 +493,7 @@ VA - Best City Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352609.jpg" />
 </div>
 
 
@@ -409,7 +522,7 @@ VA - Premier League Lounge: Groovy Cool and Smooth Sounds for Easy Listening (20
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352608.jpg" />
 </div>
 
 
@@ -438,7 +551,7 @@ VA - Space Cafe, Vol. I (Finest Chillout & Lounge Tracks) (2016) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352604.jpg" />
 </div>
 
 
@@ -467,7 +580,7 @@ VA - New Years Eve: Dance Party Package (2016) [MP3|320 Kbps] <House, Disco, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352391.jpg" />
 </div>
 
 
@@ -496,7 +609,7 @@ Neptune Project - Live @ Intricacy Albuquerque, New Mexico, United States 2019-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352379.jpg" />
 </div>
 
 
@@ -525,7 +638,7 @@ VA - I Love Mukke, Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352376.jpg" />
 </div>
 
 
@@ -554,7 +667,7 @@ Benny Benassi Presents The Biz - Love Is Gonna Save Us (2004) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352367.jpg" />
 </div>
 
 
@@ -583,7 +696,7 @@ Tantrum Desire - Blue Moon (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Drum'n'Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352364.jpg" />
 </div>
 
 
@@ -612,7 +725,7 @@ Paul van Dyk - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352262.jpg" />
 </div>
 
 
@@ -626,119 +739,6 @@ Paul van Dyk - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA1A29A369EB4F27F68D5A7C3CCAA90E46CDEB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329551   (352249) от 05.10.2019
-
-VA - Trance Escapades (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laucco vs Tecnomind - Waterfall (Original Mix)
-02. M3R-T - BIRTH (Aeden Remix)
-03. Ar-2 - SandStorm (Radio Edit)
-04. Etasonic - No Words Can Tell This (Steve Dekay OrchesTrance Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:620016135B9C1D80E759AC676E226C803A299CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329525   (352118) от 05.10.2019
-
-Didier Marouani - Space Opera (1987) Japanese Edition [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1 (4:42)
-02. Part 2 (2:58)
-03. Part 3 (3:53)
-04. Part 4 (Save Our Soul) (4:47)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6461BA6909F1BC7B7C1F5489FAAD58F54740346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256712   (352110) от 23.10.2018
-
-Bodyrox Feat. Luciana - Yeah Yeah (2006) [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Radio Edit) (2:45)
-02. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Vocal Club Mix) (8:19)
-03. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Instrumental) (6:57)
-04. Bodyrox feat Luciana - Yeah Yeah (Electro Radio Edit) (2:37)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: : 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8480E2B794D14AADDBD689203DB470B9DB39638A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256857   (352109) от 23.10.2018
-
-DJ Base - Энергия Жизни 1 (2001) [MP3|256 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.DJ Base - Energiya ZHiZni 2000Жанр: Progressive HouseПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5747CA4CC29D73FADE113704732533A0225DA7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

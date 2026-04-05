@@ -1,83 +1,3 @@
-###  Публикация: 1117825   (814770) от 24.03.2017
-
-H. P. Langtangen | A Primer on Scientific Programming with Python [+ Code] (2016) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга служит введением в программирование научных приложений, использующих язык высокого уровня Python. В книге представлено проблемно-ориентированное изложение и множество примеров, где приложения взяты из математики, статистики, физики, биологии и финансов. Книга учит «Matlab-style» и процедурному, а также объектно-ориентированному программированию. Знания (   Читать дальше...   )Жанр: Программирование на PythonФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C2B7FA300DF2ED4FBB89C00D5EDA0C622DE74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117176   (814756) от 24.03.2017
-
-Kristian Rother | Pro Python Best Practices: Debugging, Testing and Maintenance (2017) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите разработку программного обеспечения и лучшие практики программирования, чтобы писать код Python правильно и без ошибок. В этой книге вы увидите, как правильно отлаживать, организовывать, тестировать и поддерживать ваш код, что поможет вам лучше и эффективней писать код.
-
-Разработка программного обеспечения является сложной задачей. Программы любой существенной (   Читать дальше...   )Жанр: Программирование на PythonФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D175D97A1C6632105E070DE34B71D47D418B78D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117906   (814634) от 24.03.2017
-
-Magnus Lie Hetland | Beginning Python: From Novice to Professional (2017) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите фундаментальное понимание синтаксиса и функций Python с помощью этого современного введения и практического руководства в программирование. Охватывая широкий круг вопросов программирования на языке Python, включая внутреннюю структуру языка, интеграцию баз данных, веб-программирование и веб-службы, вы будете руководствоваться принципами гармоничного развития. (   Читать дальше...   )Жанр: Программирование на PythonФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB3E1BAFDC614AE769686DC567FB2E3C0A57463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118033   (806836) от 28.03.2017
 
 Stoyan Stefanov | React: Up & Running: Building Web Applications (2016) [PDF] [En]
@@ -86,7 +6,7 @@ Stoyan Stefanov | React: Up & Running: Building Web Applications (2016) [PDF] [E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806836.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805916.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805872.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805711.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805587.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803980.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803852.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802383.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ David Flanagan | JavaScript: The Definitive Guide, 7th Edition / JavaScript: П�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802229.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800674.jpg" />
 </div>
 
 
@@ -352,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800053.jpg" />
 </div>
 
 
@@ -378,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799343.jpg" />
 </div>
 
 
@@ -404,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799336.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799315.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798342.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798059.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798055.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ Paul Deitel, Harvey Deitel | C++20 for Programmers / C ++ 20 для програ
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795770.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795303.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794646.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794540.jpg" />
 </div>
 
 
@@ -638,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793844.jpg" />
 </div>
 
 
@@ -664,7 +584,7 @@ Shreeharsh Ambli | Изучаеи Python: шаг за шагом (2020) [PDF] [E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793169.jpg" />
 </div>
 
 
@@ -677,6 +597,87 @@ Value developer productivity over anything else? Want to get more done in fewer 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7F08CF2A1F040C993DE97D724DAA7404A67686D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387074   (792348) от 31.05.2020
+
+Cay S. Horstmann | Modern JavaScript for the Impatient / Современный JavaScript для нетерпеливых (2020) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792348.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «JavaScript для нетерпеливых» автор бестселлеров Кей Хорстманн предлагает практическое введение в современные методы и инструменты JavaScript, а также показывает, как избежать ошибок из прошлого. Хорстманн показывает, как в полной мере использовать возможности стандартной библиотеки, современные инструменты JavaScript, асинхронное и веб-программирование, и многое (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E9B422C5817FCF288C96DC366FE89A0323A9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510099   (791876) от 15.11.2021
+
+Майкл Дженесерет, Винай К. Чаудри | Введение в логическое программирование (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Логическое программирование – это стиль программирования, в котором программы принимают форму наборов предложений на языке символической логики. В последнее время интерес к нему вырос благодаря возможности применения в дедуктивных базах данных, электронных таблицах, создании бизнес-логики при управлении предприятием и др. Данная книга знакомит с теорией логического (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: С.В. МинцФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D0143297EAE935EAA79CCF6E5B66FAE0039909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384876   (791760) от 01.06.2020
+
+Роберт Найстром | Шаблоны игрового программирования (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приветствую тебя, разработчик игр!
+- Борешься с тем, чтобы компоненты кода сливались в единое целое?
+- Тяжело вносить изменения с ростом кодовой базы?
+- Чувствуешь, что твоя игра как гигантский клубок, в котором все переплетается друг с другом?(   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1305C506778E4DCA4D92E0A3276EE7688AB32A50
 ```
 
 https://mybot314.ru/tekegram_catalog/

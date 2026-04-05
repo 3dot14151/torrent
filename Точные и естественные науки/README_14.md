@@ -1,3 +1,81 @@
+###  Публикация: 1129265   (723819) от 27.04.2017
+
+Владимир Савельев | Статистика и котики (2017) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723819.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Из этой книги вы узнаете, что такое дисперсия и стандартное отклонение, как найти t-критерий Стьюдента и U-критерий Манна-Уитни, для чего используются регрессионный и факторный анализы, а также многое и многое другое. И все это – на простых и понятных примерах из жизни милых и пушистых котиков, которые дарят нам множество приятных эмоций.Жанр: Общие вопросы математикиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86546D42DBCCE9AE15A78E8B4B5D8D9CC325E183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891805   (723325) от 24.04.2015
+
+П. Гнэдиг и др. | Двести интригующих физических задач (2005) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник задач, предлагавшихся в разные годы на международных физических олимпиадах школьников. Ко всем задачам даны указания и подробные решения. Задачи охватывают все разделы школьной физики, но порой и выходят за ее пределы. В книге большое количество рисунков. Для учащихся средних школ, лицеев и гимназий, для членов и руководителей физических кружков и факультативов, а также для всех, кому просто интересна физика.Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8806705F9C1A7CCBB0F02301400CDEF363094672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285201   (722767) от 25.02.2019
+
+А. К. Тимирязев | Естествознание и диалектический материализм (1925) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собранные в настоящей книге статьи, появившиеся в период 1920—1925 г.г., расположены в порядке их появления. Часть этих статей, относящихся к 1920—1921 годам, представляет ряд обзоров новейших успехов физики, о которых мы узнали в Советской России с большим запозданием вследствие блокады и долго неналаживавшейся доставки научной литературы. По меткому замечанию Владимира (   Читать дальше...   )Жанр: Науковедение, Физика, ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E84C2E2F292D1C8CC292C3E712343ABD11956B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285200   (722760) от 25.02.2019
 
 В. М. Дуков | Закон сохранения энергии (1961) [DJVU]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722760.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721150.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720742.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720685.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720327.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719237.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718628.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718615.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714072.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710664.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710657.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710520.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705590.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702914.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702177.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699579.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692862.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689173.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689164.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689039.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679267.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679133.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677018.jpg" />
 </div>
 
 
@@ -603,88 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A65FA695DFCEEFC6F8F8F495834A3D1E6AF4F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136095   (674908) от 22.05.2017
-
-В. В. Лункевич | Наука о жизни (1928) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674908.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора:
-
-Настоящее, пятое, издание этой книги существенно разнится от предыдущего и содержанием и объемом. Все главы тщательно просмотрены и переработаны согласно новейшим данным физиологии. Сделано много существенных дополнений в главах, трактующих о пище, пищеварении, обмене веществ и нервной системе. Написана новая глава о гормонах. Дано возможно полное изложение (   Читать дальше...   )Жанр: История, науковедение, естествознание, биология, физиологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4514D754D59826984A05A5EC6E7144804050713F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136205   (674641) от 22.05.2017
-
-Е. И. Игнатьев | Наука о небе и Земле [очерки по астрономии, физической географии и геологии] (1912) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674641.jpg" />
-</div>
-
-
-###  Подробнее
-
-К началу XX в. в России вышло немало научно-популярных книг, рассказывающих о Небе и Земле. Однако для их чтения необходимо иметь некоторую и часто значительную подготовку, чего был лишен значительно большой круг русских читателей.
-
-Настоящая книга представляет собой первую изданную в России общедоступную и понятную работу для "первого чтения" и ознакомления (   Читать дальше...   )Жанр: История, естествознание, науковедение, астрономия, география, геология, математикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C9A5181CBC5A34EA86F780354DF51071C6EEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223710   (671424) от 06.05.2018
-
-Александр Поздняков | Философские основания классической биологии (2018) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671424.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге обсуждаются особенности, истоки и развитие биологии как структуры мышления. С начала Нового времени в науке о живом существуют три направления. Эмпирическое (гербалистское, номиналистическое) направление являлось основой таксономии и развилось в комплекс дисциплин под общим названием «естественная история». Аристотелевское (эссенциалистское) направление с (   Читать дальше...   )Жанр: Общая биология, палеонтологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06845BD164D16DAF93EF903F68826AB7F21B4CA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

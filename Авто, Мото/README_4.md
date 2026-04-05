@@ -1,3 +1,81 @@
+###  Публикация: 1475368   (1012077) от 08.06.2021
+
+MotoGP. Этап 07. Гран-при Каталонии. Гонка (06.06.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012077.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 июня 2021, воскресенье. 14:00 МСК. Этап 7, Барселона, Испания. Гран-при Каталонии. Гонка (24 круга)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F747E8FE58CDCCF4B9D50F80036A9362A01ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476712   (1011530) от 12.06.2021
+
+Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Этап 2. Лейквуд, Калифорния / Lucas Oil Pro Motocross Championship. Rd. 2. Lakewood (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011530.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC827E7C67B912DA08F993D753B6BCC4A93C6709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477332   (1011136) от 14.06.2021
+
+Чемпионат США по супербайку 2021. Этап 3. Элкхарт Лейк. Гонка 1-2 / MotoAmerica 2021. Rd. 3. Elkhart Lake. Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011136.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoAmerica — это организация, которая продвигает серию AMA Superbike с 2015 года. С санкции Американской ассоциации мотоциклистов и Международной федерации мотоциклистов она предлагает пять классов шоссейных гонок: Superbike, Stock 1000, Supersport, Twins Cup и Junior Cup.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 00:58:58 + 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB283F7989704C002F5890C4947A0096953AFAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477346   (1010982) от 15.06.2021
 
 Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2021. Снеттертон 300, Гонка 1-3 / BTCC. Snetterton 300, Race 1-3 (2021) WEB-DL [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010982.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010801.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MotoGP. Этап 08. Гран-при Германии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010340.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ MotoGP. Этап 08. Гран-при Германии. Гонка (20.06.2021) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010080.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009801.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009791.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ MotoGP. Этап 09. Гран-при Нидерландов. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009283.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MotoGP. Этап 09. Гран-при Нидерландов. Гонка (27.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008919.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006267.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006127.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005315.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005314.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005311.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005310.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005308.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005305.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005302.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005299.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004871.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004129.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004128.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004127.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004126.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ W Series была презентована публике 10 октября 2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0A5E5E1808F4479132F33D2702F726D86149EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350222   (1003492) от 05.01.2020
-
-Monster Jam: Wales, Cardiff (18.05.2019) WEB-DL [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Jam - это серия автоспортивных соревнований, проводимых компанией Feld Entertainment. Первые соревнования в серии прошли в 1992 году и были авторизованы United States Hot Rod Association. В основном соревнования проводятся на территории США, но есть и выездная международная часть в Японии, Нидерландах и Мексике. Формат соревнований иногда отличается зависимо (   Читать дальше...   )Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 0:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167990641258A5A02196BF0370FF4BAD6E1D3675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488021   (1002591) от 09.08.2021
-
-Чемпионат по дрэг-рейсингу NHRA 2021. 10 этап. Помона / NHRA Drag Racing Championship 2021. Round 10. Pomona (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра (1/4 мили). Реже проводятся заезды на 1/2 мили (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути драг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 02:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF616E81BBD26C44A2CC1E6681D8476AE4FA665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488022   (1002587) от 09.08.2021
-
-Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2021. Зольдер, Гонка 1-2 / DTM 2021. Zolder, Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:27:35 + 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D31AC9543F6300B639445D4B1D4C2EC5814BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1428900   (178434) от 04.12.2020
+
+Skynet 2020.2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Skynet создано, чтобы прекратить эти раздражающие объявления! Сохраняйте данные, не загружая рекламу! Это лучший блокировщик рекламы для iOS и macOS. Это очень просто! Просто включите расширение, приложение обо всем позаботится. Работайте в Интернете без перерывов.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Hariharan MurugesanПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053098501E09D20D2220B171F5BD578F09370F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429236   (177747) от 05.12.2020
+
+Faronics Power Save Enterprise for Mac 3.70.2200.0455 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Faronics Power Save предлагает современные механизмы для управления электропитанием рабочих станций. Автоматически завершая работу неиспользуемых компьютеров, Power Save позволяет оптимизировать потребление энергии и снизить расходы на электричество.
+Faronics Power Save управляет энергопотреблением компьютера, абсолютно не мешая работе пользователя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Faronics CorporationПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74906F5A24EC4DA87CF2E1A53AE6297EBABBE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594838   (177426) от 02.12.2022
 
 Dropshare 5.24 [En]
@@ -6,7 +59,7 @@ Dropshare 5.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177426.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Text Workflow 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177424.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Image Exif Editor 5.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177302.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Multitouch 1.27.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176852.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ CADintosh X 8.8.3 Beta [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176768.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ AirMail Pro 5 v.5.5.81 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176672.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Tower Pro 9 v.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176654.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Luminar Neo 1.5.1 ARM [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176615.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Aseprite 1.2.25 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176241.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ Monodraw 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176034.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176028.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ Elmedia Player Pro 7.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175698.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ GraphicConverter for Mac 12.0.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175461.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ Screens 4 v.4.12.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175418.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ Viper FTP 6.3.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175382.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ Audio Editor - Merge Split And Edit 1.6.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175373.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ Typora for Mac 1.7.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175370.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ Pro Microphone: Audio Recorder 1.5.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175356.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ PortsMonitor 1.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175316.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ Gemini 2: The Duplicate Finder 2.9.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175029.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ ABBYY FineReader PDF for Mac 15.2.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174964.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ A Better Finder Rename 12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174820.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ Vellum 3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174810.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ HoudahGeo 6 v.6.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174802.jpg" />
 </div>
 
 
@@ -633,61 +686,6 @@ HoudahGeo поддерживает множество методов геоко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5982719E0549A85CA9A363238796EF67945AD492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668236   (174776) от 11.10.2023
-
-iCalamus 2 v.2.5 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174776.jpg" />
-</div>
-
-
-###  Подробнее
-
-iCalamus - настольное издательское решение для Mac OS X.
-iCalamus это профессиональная программа, используемая для подготовки к печати различных публикаций. Приложение поддерживает Uniocode, предоставляет множество специализированных инструментов, позволяющих достичь простым способом интересных эффектов.
-iCalamus предлагает простой подход к АКДС и является отличным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2023Разработчик: © 2022 Software & DSDПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7154D620CE39FF42985B7A623C077E6E7C782B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668237   (174757) от 11.10.2023
-
-Image Resizer – Resize Photos 2.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Resizer – Resize Photos  полезный и эффективный инструмент для изменения размера одного или нескольких изображений без ущерба для разрешения и качества изображения. Используя этот инструмент, вы можете выбрать фотографии из библиотеки фотографий или из любой папки на вашем компьютере.
-Получите это приложение, Image Resizer и будьте уверены, что у вас есть лучший (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.09.23Разработчик: © 2022 Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1ACBB07DF74F34BDFB1F55A43A4224975E43EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

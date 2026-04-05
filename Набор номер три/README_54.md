@@ -1,3 +1,165 @@
+###  Публикация: 1353185   (991249) от 18.01.2020
+
+Windows 10 Enterprise x64 lite 1909 build 18363.592 by Zosma
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе Microsoft:
+Microsoft Windows 10.0.18363.535 Version 1909 (December 2019 Update)
+Удалены компоненты связанные с шпионством и отправкой телеметрии.
+Отключены бесполезные (вредные) службы(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5368F3B6D019FC169761EED02A1605D18ECCB6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353436   (991247) от 18.01.2020
+
+Windows 7 SP1 (x86/x64) 52in1 +/- Office 2016 by SmokieBlahBlah 18.01.20 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991247.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по январь 2020 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894A744CD6C99047575EA32D29256A82D3754C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164894   (991246) от 18.01.2020
+
+Half-Life 2 (2004-2009) [Ru/En] (7000) Unofficial/Mod [Ultimate Edition 7]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Half-Life 2 - компьютерная игра, научно-фантастический шутер от первого лица, сиквел Half-Life, разработанная Valve Corporation. Игра была выпущена 16 ноября 2004 года (21 ноября 2004 года в России и странах СНГ компанией SoftClub) и получила высочайшие оценки многих авторитетных изданий. Помимо этого, игра собрала множество наград и более 35 титулов «Игра года 2004». (   Читать дальше...   )Тип издания: Unofficial/ModРазработчик: Valve SoftwareЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AA24A5AC31D269D2441B97E8990AEDD19CD79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941390   (991245) от 18.01.2020
+
+X Rebirth (2013) [Ru/En] (4.30/dlc) Repack alexalsp
+
+>>3
+>>28
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далекое будущее. Вселенная Х находится на пороге неотвратимых перемен. Пока весь мир шагает в неопределенность, появляются новые враги, ищущие силы и власти. В это нелегкое время начинаются приключения юного авантюриста и его спутницы. На потрепанном прославленном в боях космическом корабле наши герои столкнутся со вселенной один на один и сыграют ключевую роль в (   Читать дальше...   )Тип издания: RepackРазработчик: EgosoftЖанр: Simulator (Space), 3D, Privateer, TraderЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD10F5345EF994664B49F50C12FD28BD54FE4B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609330   (990746) от 28.01.2013
+
+Мой парень – псих / Silver Linings Playbook (2012) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная перемена в жизни героя, после того, как жена ему изменяет — что у него диагностируют биполярное расстройство, и он 8 месяцев проводит в психушке. После чего по решению суда не должен с ней встречаться.Жанр: Драма, Мелодрама, КомедияРежиссер: Дэвид О. РасселлПродюсер: Брюс Коэн, Донна Джильотти, Брэдли КуперАктеры: Брэдли Купер, Дженнифер Лоуренс, Роберт Де Ниро, Джеки Уивер, Крис Такер, Анупам Кхер, Джон Ортиз, Ши Уигхэм, Джулия Стайлз, Пол ХерманПеревод: Профессиональный (многоголосый)Продолжительность: 01:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D81BC6BE6F8EBB23CB7F1CCB26597C21048EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432214   (990529) от 06.01.2012
+
+В Швеции копирование информации признано религией
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведская группа, выступающая за свободный обмен цифровой информацией, получила официальную регистрацию в качестве религиозной организации, передает Би-би-си.Группа, которая называет себя "Церковью Копимизма" (от англ. copy и me - "скопируй меня"), говорит, что официальное признание со стороны государства даст ей правовую защиту и свободу "священнодействия".Шведские СМИ отмечают, что "Церковь Копимизма" тесно связана с "Пиратским движением" Швеции, которое выступает за свободное распространение информации и против защиты авторских прав.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432071   (990387) от 06.01.2012
 
 Windows 7 Ultimate SP1 By StartSoft 64bit v 2.1.12 [Русский]
@@ -6,7 +168,7 @@ Windows 7 Ultimate SP1 By StartSoft 64bit v 2.1.12 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990387.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990385.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ Windows 10 Pro VL x64 v.1909.18363.592 3in1 OEM Jan2020 by Generation2 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990357.jpg" />
 </div>
 
 
@@ -84,7 +246,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990351.jpg" />
 </div>
 
 
@@ -110,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>27
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990349.jpg" />
 </div>
 
 
@@ -136,7 +298,7 @@ Adobe Acrobat Pro DC 2019.021.20061 RePack by Diakov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990348.jpg" />
 </div>
 
 
@@ -162,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990347.jpg" />
 </div>
 
 
@@ -188,7 +350,7 @@ BeamNG.drive (2015) [En] (0.18.4.1) Repack Mr_Weegley
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990345.jpg" />
 </div>
 
 
@@ -214,7 +376,7 @@ Windows 10 32in1 (x86/x64) + LTSC +/- Office 2019 by SmokieBlahBlah 16.01.20 [Ru
 >>29
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990344.jpg" />
 </div>
 
 
@@ -243,7 +405,7 @@ Win7 x86-x64 en-ru 26in1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990096.jpg" />
 </div>
 
 
@@ -269,7 +431,7 @@ KMSnano Automatic by Heldigard 19 [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989831.jpg" />
 </div>
 
 
@@ -297,7 +459,7 @@ Dead Space 3 [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 15574) (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989791.jpg" />
 </div>
 
 
@@ -327,7 +489,7 @@ Microsoft Office 2010 Professional Plus SP1 VL 14.0.6023.1000 (x86) Portable [Р
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989775.jpg" />
 </div>
 
 
@@ -355,7 +517,7 @@ uTorrent 3.5.5 (build 45493) Portable by SanLex (Ad-Free) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989592.jpg" />
 </div>
 
 
@@ -381,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989588.jpg" />
 </div>
 
 
@@ -408,7 +570,7 @@ Windows 7 SP1 5in1 x64 Elgujakviso Edition v.20.01.20 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989585.jpg" />
 </div>
 
 
@@ -436,7 +598,7 @@ Dolby Atmos Gaming v3.20602.611.0 / control panel v3.20602.609.0 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989578.jpg" />
 </div>
 
 
@@ -463,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989488.jpg" />
 </div>
 
 
@@ -493,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_989235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_989235.jpg" />
 </div>
 
 
@@ -522,180 +684,13 @@ COWBOY WPI DVD Project II StartSoft 15 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988797.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сборка CowBoy WPI DVD 15 создана на свое усмотрение,  так как представляется автору сборки, основное предназначение которой это установка выбранных программ на чистую операционную систему, только что установленную на ПК. Обязательным условием для начала пользования автоустановщиком программ является установка необходимых драйверов для подключения основных устройств ПК к системе. Не исключается возможность установки программ на систему, в которой уже имеются  установленные   программы,     разумеется,      при условии соблюдения некоторых особенностей по установке программ для обновления    старых. Звук сопровождения установки отключается кнопкой "STOP SOUND".Название программы: COWBOY WPI DVD Project II StartSoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610769   (988784) от 30.01.2013
-
-Джентльмены, удачи! (2012) WEBRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой аниматор детского центра Леша Трешкин — инфантильный и жизнерадостный «хипстер» — оказывается двойником опаснейшего вора и убийцы Смайлика (так его прозвали за привычку улыбаться перед тем, как убить). Смайлик похищает из музея Санкт-Петербурга национальный символ Казахстана — Доспех Золотого Воина. Молодая красивая лейтенант полиции Ирина Славина ловит Трешкина, и «современными» полицейскими методами заставляет его помочь следствию. Выбора нет, иначе Трешкин сядет как настоящий преступник. Так Трешкин оказывается в Египте, где сидят двое подельников Смайлика — молодой воришка-оптимист Муха и матёрый мрачный Шатун. Начинается безумная череда приключений, — побег под прикрытием песчаной бури, гонки на грузовиках, переодевание в паранджи. Пытаясь выкрутиться из создавшейся ситуации, Трешкин неожиданно понимает, что из безответственного слабака превращается в человека, от которого зависит свобода и жизнь других. Но когда реальный Смайлик выходит на сцену, Трешкину придется решиться на настоящий подвиг, чтобы (   Читать дальше...   )Жанр: Комедия, КриминалРежиссер: Александр Баранов, Дмитрий КиселёвПродюсер: Тимур Бекмамбетов, Ива Стромилова, Александра РемизоваАктеры: Сергей Безруков, Гоша Куценко, Антон Богданов, Марина Петренко, Дато Бахтадзе, Кирилл Жандаров, Валентин Смирнитский, Толепберген БайсакаловПеревод: Не требуется (Русский)Продолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6199B9FB102A9344246F8969EEFD7BC3D8F4E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610428   (988780) от 30.01.2013
-
-Metro 2033 / Метро 2033 [En/Multi7] (L) 2010 | PROPHET
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988780.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2013 году мир был разрушен глобальной катастрофой, уничтожившей население Земли и превратившей ее поверхность в отравленную пустошь. Горстка выживших нашла убежище в глубинах московского метро, а человеческая цивилизация вновь погрузилась в Темные века.
-Сейчас на дворе 2033-й год. Целое поколение людей родилось и выросло под землей, наблюдая, как их осажденные Города-Метростанции сражаются за выживание друг с другом и с кошмарными мутантами, что ожидают снаружи.
-Атмосферный шутер от первого лица, созданный по мотивам бестселлера Дмитрия Глуховского. Игра «Метро 2033», события которой разворачиваются в разрушенной подземке постапокалиптической Москвы, - это гнетущая история тяжелейшего выживания, где судьба человечества находится в ваших руках.
-Вы - Артем, обычный москвич, рожденный еще до мирового апокалипсиса, но выросший под землей. Никогда до этого он не покидал пределов своей, уже ставшей родной ему станции Метро, но судьба решила по-своему. Теперь он вынужден выполнить миссию всей своей жизни: пробраться в центр московского Метрополитена и предупредить остатки человеческого общества о грядущей опасности, или умереть в пути и обречь выживших на верную гибель.
-Станьте героем книги, и пройдите путь Артема по своему, определите судьбу человечества! (   Читать дальше...   )Тип издания: ЛицензииЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Английский, Multi7Язык интерфейса: Английский, Multi7
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9DD5C5036DD2BB92F467742026CD9B1D509DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610688   (988779) от 30.01.2013
-
-Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, Avira от 29.01.2013
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник ключей для популярных антивирусных программ: ESET NOD32, Kaspersky, Avast, Dr.Web, Avira.Название программы: Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, AviraЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353737   (988700) от 21.01.2020
-
-Илон Маск задумал отправить на Марс миллион человек к 2050 году
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основатель американской компании SpaceX Илон Маск задумал отправить на Марс миллион человек к 2050 году. Об этом пишет Business Insider.Отмечается, что строительство пилотируемого корабля многоразового использования Dragon Crew, над которым в настоящее время работает SpaceX, является частью масштабного плана по колонизации Марса. Маск рассчитывает, что к середине (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353740   (988695) от 21.01.2020
-
-Почему в СССР запрещали каратэ на пике популярности единоборства в стране
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988695.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наше время в России многие мальчишки и мужчины занимаются восточными боевыми искусствами, предполагающими противостояние голыми руками и ногами. Однако в СССР запрещали каратэ долгое время, причём после того, как данный вид спорта ужа стал популярным среди советских людей.Почему в СССР запрещали каратэ, успевшее возыметь популярностьВид боевого искусства, введённый (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 86501   (988272) от 05.01.2010
-
-Macross Frontier / Макросс Фронтир OSTs+OP+ED+Other <mp3 320K>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_988272.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sou dayo.
-2. Starlight Nattou
-3. Dynam Chougoukin
-4. Kaitaku Juuki
-5. Daruma Seminar
-6. Ninjiin Loves you yeah!
-7. Family Mart Cosmos
-8. Koi no Dogfight (Chotto Dake)Жанр: OST
 
 ## Скачать торент
 ```bash

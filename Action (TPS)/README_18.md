@@ -6,7 +6,7 @@ Spec Ops: The Line (2012) [Ru/En] (1.0.6890.0/upd 2/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647087.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Friday the 13th: The Game / Пятница 13 (2017) [Ru/En] (B11030/dlc) Repack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646376.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ One Piece: World Seeker (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644442.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [Ru/Multi] (1.0) Lic
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644335.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Epistory - Typing Chronicles (2015) [Ru/Multi] (1.3.5) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644179.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Saboteur (2009) [Ru] (1.3/dlc) Portable PortGamPC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643264.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Furi (2016) [Ru/Multi] (1.0.46) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643256.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Killer is Dead (2014) [Ru/Multi] (1.0) SteamRip Let'sРlay [Nightmare Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642942.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Evil Tag (2017) [Ru/En] (1.02f) License POSTMORTEM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642450.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Furi (2016) [Ru/Multi] (1.0) Repack Dok2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641409.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ RWBY: Grimm Eclipse (2016) [En] (1.0.01rc2) Repack Dok2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641408.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Prototype (2009) [Ru/En] (1.0.0.1/fix) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641307.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ R.I.P.D. The Game / R.I.P.D.: Призрачный патруль (2013) [Ru/Mul
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637726.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Through the Woods (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Digital Collector'
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636825.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Tomb Raider: Anniversary (2007) [Ru/Multi] (1.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633101.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Blades of Time. Limited Edition  (Steam-Rip) [Ru/Multi7] 2012 | R.G. Игром�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632757.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Hitman: Absolution (2012) [Ru/Multi] (1.0.447.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631241.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629803.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Attack on Titan 2 (2018) [Multi] (1.4.0.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629331.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Outcast [Ru/En] (Repack/1.0.46.7) 1999 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628443.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Silent Hill 4: The Room [Ru] (RePack) 2004 | R.G. Element Arts
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628310.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ The Cursed Crusade (2011) [Ru/En] (Update 7) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627289.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ The Piano (2018) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625865.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ EARTH DEFENSE FORCE 4.1: The Shadow of New Despair (2016) [En/Ja] (1.0) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622283.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Blades of Time / Клинки Времени [Ru/En/Multi7] (RePack/u5) 2012 | R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622245.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ EARTH DEFENSE FORCE 4.1: The Shadow of New Despair (2016) [En/Ja] (1.0) License 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622142.jpg" />
 </div>
 
 

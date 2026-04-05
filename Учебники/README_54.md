@@ -1,3 +1,55 @@
+###  Публикация: 926187   (533412) от 10.08.2015
+
+А.Н. Шихов, Д.А. Шихов | Архитектурная и строительная физика (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533412.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены теоретические основы архитектурного проектирования зданий различного функционального назначения с учетом климатических условий места строительства с целью создания в них комфортных условий проживания и трудовой деятельности. Рассмотрены вопросы климатологии и влияния климатических факторов на архитектурно-планировочное, конструктивное и (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC86332097C91C47D27BCECD10B121D24B203498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926580   (533203) от 10.08.2015
+
+Виктор Барановский | Слесарь-сантехник. Учебное пособие (2000) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессия, которой посвящена эта книга, была и остается сегодня одной из самых востребованных в народном хозяйстве. Достоинством данной книги, бесспорно, является то, что она написана в полном соответствии с Госстандартом Минобразования РФ и охватывает все основные виды деятельности сантехники: санитарно-технические работы, монтаж и ремонт систем отопления, водоснабжения, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8629694A291B0CEC7B238725CB619437ABD5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051069   (532580) от 11.09.2016
 
 Ю.А. Куликов | Переходные процессы в электрических системах (2006) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532580.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532461.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532369.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532128.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531623.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531618.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531369.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528162.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528116.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528032.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528016.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527310.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527264.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526959.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526947.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525901.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524644.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524605.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524603.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524193.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524176.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523375.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523374.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523370.jpg" />
 </div>
 
 
@@ -621,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0849E59388F157B5F9D9C74DED66DE1F65DDAD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928457   (521768) от 17.08.2015
-
-Ю.Ф. Широков | Основы теории радиолокационных систем (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521768.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматриваются физические основы работы радиолокационных систем и комплексов. Рассмотрены методы измерения координат движущихся и неподвижных объектов. Рассмотрены основы статистической теории радиолокации, позволяющие оценить потенциальные радиолокаторов при измерении и разрешении параметров обрабатываемых сигналов.
-Учебное пособие предназначено для студентов (   Читать дальше...   )Жанр: РадиолокацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B299CF8140769D8C35C1BC7558C28BE13967AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928445   (521761) от 17.08.2015
-
-В.И. Смирнов | Проектирование и схемотехническое моделирование микропроцессорных устройств (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены вопросы проектирования микропроцессорных устройств, включая разработку программного обеспечения для микроконтроллеров. Рассмотрение архитектуры микроконтроллеров и особенностей функционирования периферийных устройств ведется на примере популярного микроконтроллера ATmega128 семейства AVR. Для формирования практических навыков работы с микроконтроллерами (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A36A4CB6487F5424B05D98075B9A4ABA6B64B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

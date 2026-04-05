@@ -1,3 +1,55 @@
+###  Публикация: 1540072   (655009) от 28.03.2022
+
+Image2icon - Make your icon‪s‬ 2.17 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image2Icon Pro - простая в использовании утилита для создания иконок файлов и папок. Создание иконок еще никогда не было проще, чем с использованием Image2Icon. Достаточно перетащить нужное изображение, настроить вид стилизованного изображения и выбрать формат экспортируемого файла - и все.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2022Разработчик: © 2022 Shiny Frog Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447FEE1B82683400124147617926FC11D7677812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540208   (654998) от 28.03.2022
+
+ViWizard Audible AA / AAX Converter for Mac 2.3.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654998.jpg" />
+</div>
+
+
+###  Подробнее
+
+ViWizard Audible AA / AAX Converter - один из самых умных конвертеров аудиокниг, с которым может легко справиться любой пользователь Audible. Благодаря передовому и уникальному процессору дешифрования, ViWizard Audible Audiobook Converter для Mac разработан для полной и независимой загрузки любых аудиокниг Audible AA, AAX без предварительной авторизации вашей учетной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2021Разработчик: © 2022 ViWizardПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5A21803E5DD66C075BC45719E3E1F293507C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540212   (654909) от 28.03.2022
 
 Smart Shooter 4 v4.24 [En]
@@ -6,7 +58,7 @@ Smart Shooter 4 v4.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654909.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ StatsBar 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654867.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Simple Recorder Pro 1.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654855.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ IINA 0.0.11 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654682.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ DivX Pro 10.8.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654562.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Lungo 2.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654013.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653942.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Principle 2.1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653672.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Ulysses 2.8.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653572.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Instashare 1.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652775.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ PCalc 4.10.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652762.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Speech 1.9.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652727.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ OmniOutliner Pro 5 v5.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652641.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ JPEG Jackal PRO 2.0.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652640.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ Cockos REAPER for Mac v6.53 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652533.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ WebDrive Enterprise for Mac v2018.0 (Build 18.0.600) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652406.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Tenorshare 4MeKey for Mac 1.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652293.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ Snapheal Pro 1.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651006.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Core Animator 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650922.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ Ace Stream Media Player 3.1.6 (CrossOver) [Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650897.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ HDR Effect 1.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650755.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Live Home 3D Standard 3.5.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650493.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ Tyme 2 v1.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650431.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ TechTool Pro 9.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650273.jpg" />
 </div>
 
 
@@ -641,59 +693,6 @@ TechTool Pro — диагностику заказывали?
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:005DEFDFFE4AC370E383F6C499C098A9ECCFA38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227164   (649899) от 24.05.2018
-
-JetBrains PhpStorm 2018.1.4 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649899.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PhpStorm представляет coбoй легкий и удобный редактор PHP, который максимально повысит вашу производительность. Редактор отлично понимает код, дает удобные подсказки, быструю навигацию и отслеживает ошибки "на лету". IDE всегда готова помочь Вам собрать ваш код, запустить юнит-тесты и обеспечить визуальную отладку. PhpStorm поддерживает PHP, CSS, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.05.2018Разработчик: JetBrainsПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881090CCCAD36887072984280CEBE9386AD518BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541047   (648760) от 01.04.2022
-
-Advanced Duplicate Cleaner 1.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте Advanced Duplicate Cleaner, чтобы просканировать систему и найти как повторяющиеся, так и похожие файлы. Кроме того, чтобы удалить эти файлы, вы выбираете их вручную или можете использовать функцию автоматической метки, чтобы приложение могло выбирать дубликаты, как и вы.
-Это великолепно продуманное приложение. Он сканирует каждый уголок вашего Mac на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2022Разработчик: © 2022 Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCFA631FF1084E30C69CB8F144D595DDEDDC30E
 ```
 
 https://mybot314.ru/tekegram_catalog/

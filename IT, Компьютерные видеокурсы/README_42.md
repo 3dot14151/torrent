@@ -1,30 +1,3 @@
-###  Публикация: 1394521   (763411) от 05.07.2020
-
-Beonmax | Курс ВЕБ-разработчик 2019 - с нуля до результата! (2019) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освой современные инструменты и технологии разработки сайтов и начни зарабатывать на этом!
-На практике научитесь создавать веб-сайты и веб-приложения с применением полученной в курсе всей необходимой теории. Дополнительных знаний не требуется. Все нужные программы установим и настроим в процессе обучения. Курс соответствует современным трендам и стандартам. Основные (   Читать дальше...   )Жанр: Программирование, HTML5, CSS3, Bootstrap 4, JavaScriptПродолжительность: 23:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251FEDFDBA966DD2390D007ED8B2BD35BE78061F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394544   (763406) от 05.07.2020
 
 Beonmax | Курс Linux / GIT (2019) PCRec [H.264/1080p-LQ]
@@ -33,7 +6,7 @@ Beonmax | Курс Linux / GIT (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763406.jpg" />
 </div>
 
 
@@ -61,7 +34,7 @@ Beonmax | Курс WordPress – с нуля до Профи! (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763404.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ Beonmax | Курс PHP / MySQL (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763401.jpg" />
 </div>
 
 
@@ -116,7 +89,7 @@ Beonmax | Курс Полный курс Python для начинающих – 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763394.jpg" />
 </div>
 
 
@@ -143,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762739.jpg" />
 </div>
 
 
@@ -170,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762306.jpg" />
 </div>
 
 
@@ -198,7 +171,7 @@ ITVDN | Онлайн курс Golang (2018) PCRec [H.265]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761473.jpg" />
 </div>
 
 
@@ -224,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760672.jpg" />
 </div>
 
 
@@ -253,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753332.jpg" />
 </div>
 
 
@@ -281,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752953.jpg" />
 </div>
 
 
@@ -309,7 +282,7 @@ ITVDN | HTML5 И CSS3 STARTER (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752513.jpg" />
 </div>
 
 
@@ -335,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751568.jpg" />
 </div>
 
 
@@ -364,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751461.jpg" />
 </div>
 
 
@@ -391,7 +364,7 @@ OTUS | Pазработчик BigData (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749459.jpg" />
 </div>
 
 
@@ -417,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748036.jpg" />
 </div>
 
 
@@ -443,7 +416,7 @@ GeekBrains | Основы сетей передачи данных. Модель
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746404.jpg" />
 </div>
 
 
@@ -472,7 +445,7 @@ Cybrary | Advanced Penetration Testing (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746148.jpg" />
 </div>
 
 
@@ -500,7 +473,7 @@ Udemy | The Complete Android Oreo Developer Course - Build 23 Apps! (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746144.jpg" />
 </div>
 
 
@@ -528,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744256.jpg" />
 </div>
 
 
@@ -554,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744249.jpg" />
 </div>
 
 
@@ -582,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744247.jpg" />
 </div>
 
 
@@ -610,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743407.jpg" />
 </div>
 
 
@@ -639,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743193.jpg" />
 </div>
 
 
@@ -668,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743191.jpg" />
 </div>
 
 
@@ -697,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743190.jpg" />
 </div>
 
 
@@ -710,6 +683,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9F202C19E3FB1DD823EE6EA744DC62370B05E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020658   (742868) от 27.05.2016
+
+Специалист | CEH4. Руководитель службы информационной безопасности и защиты от хакерских атак (2016) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс готовит руководителей верхнего уровня в области информационной безопасности.
+
+Цель курса – получить знания и навыки, необходимые для успешного применения принципов управления информационной безопасностью.Производство: СпециалистЖанр: Информационная безопасностьПродолжительность: 21:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C10A503DF94608F614D790DC8ADCB11DEF7FFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

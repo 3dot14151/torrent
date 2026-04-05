@@ -1,3 +1,32 @@
+###  Публикация: 1201204   (792875) от 24.01.2018
+
+VA - Hed Kandi Beach House (2016) [FLAC|Lossless|tracks] <Funky House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
+02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
+03. O&O Music - Music's Hypnotising [4:22]
+04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 05:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB410304B15554E79EBE76B2B3B1AA641D2856C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100888   (792349) от 31.05.2020
 
 Sraunus - Discography 20 Releases (2010-2020) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal>
@@ -6,7 +35,7 @@ Sraunus - Discography 20 Releases (2010-2020) [FLAC|Lossless|tracks+.cue, tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792349.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - La Voile Rouge : St Tropez (2009) [FLAC|Lossless|tracks] <House, Electro Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792262.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dark Strands - Unknown Truths (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792253.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ DJ Koze - Seeing Aliens (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792233.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791852.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Exos - Indigo (2020) Figure [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791851.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Ferrein - Valentine (2016) Echotourist [FLAC|Lossless|WEB-DL|tracks] <Dub Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791850.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791848.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791846.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Eric Prydz vs. Floyd - Proper Education (2007) Maxi-Single [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791338.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Moby - All Visible Objects (2020) Little Idiot [FLAC|Lossless|WEB--24Bit|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791200.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Danniel Selfmade - Parallel Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791156.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Violetshaped - Violetshaped (2013) Violet Poison [FLAC|Lossless|tracks|Vinyl] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791061.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ The Octagon Man - The Exciting World Of.... (1995) Electron Industries [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791060.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791057.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ VA - Hed Kandi:Back To Love (1999) [FLAC|Lossless|tracks] <House, Garage House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791050.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Lane 8 - Little By Little (2018) [FLAC|Lossless|WEB-DL|tracks] <Vintage Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791049.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Hidden Orchestra - Dawn Chorus Remixes (2018) Tru Thoughts [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791010.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790559.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Max Leonidas - Hotel Martinez v.3 Luxury Life house electro club (2007) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790558.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790557.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Above & Beyond - Group Therapy 300 Live from Hong Kong - Deep Set (2018) DJ Mix 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790472.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ D.M.T. Records - 23 Releases (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790424.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Gerard Hanson (Convextion, E.R.P., Time Light Curve, T/O/L) - Discography 33 Rel
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790018.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Pessimist - Pessimist (2017) Blackest Ever Black [FLAC|Lossless|tracks+.cue] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789949.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Pessimist - Pessimist (2017) Blackest Ever Black [FLAC|Lossless|tracks+.cue] <Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:995C07861E681600096399875847787D0E740D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202426   (789928) от 29.01.2018
-
-VA - Hed Kandi Ibiza (2016) [FLAC|Lossless|tracks] <Deep House, Disco, Tropical House, House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sigala - Give Me Your Love (feat John Newman And Nile Rodgers - radio edit) (3:29)
-02.Gorgon City - All Four Walls (feat Vaults) (3:12)
-03.Tieks - Sunshine (feat Dan Harkna - extended mix) (4:22)
-04.AlunaGeorge - I'm In Control (feat Popcaan - The Magician remix) (4:35)(   Читать дальше...   )Жанр: Deep House, Disco, Tropical House, House, Tech HouseПродолжительность: 06:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FBF7F933FAE72C2C5590E620D175FD227A984F
 ```
 
 https://mybot314.ru/tekegram_catalog/

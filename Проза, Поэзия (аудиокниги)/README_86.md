@@ -1,58 +1,3 @@
-###  Публикация: 1270674   (154508) от 21.12.2018
-
-Владимир Березин | Путь и шествие (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Березин - прозаик, критик, автор книги "Диалоги", романов "Свидетель", "Путевые знаки".
-Роман "Путь и шествие" оценит и читатель с хорошим чувством юмора, и любители классики - в произведении много цитат (иногда тщательно замаскированных) из Гоголя, Пушкина, Льюиса Кэрролла и других знаменитых писателей.
-Герои романа (   Читать дальше...   )Жанр: Современная отечественная прозаПродолжительность: 08:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C9390B65B1D1378ED38DA993058DE152275B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270905   (154449) от 21.12.2018
-
-Лион Фейхтвангер | Симона (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лион Фейхтвангер (1884–1958) — выдающийся немецкий писатель и драматург. В своих произведениях, главным образом исторических романах, обращался к острым социальным проблемам. Им создан новый тип интеллектуального исторического романа, где за описаниями отдаленной эпохи явственно проступает второй план — параллели с событиями современности.
-В настоящее издание вошел (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 09:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE83FAEE084663E431A7D9E741B308D7ABA44057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347117   (154345) от 22.12.2019
 
 Ольга Шамборант | Опыты на себе (2018) [MP3]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154345.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154310.jpg" />
 </div>
 
 
@@ -114,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154241.jpg" />
 </div>
 
 
@@ -140,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154194.jpg" />
 </div>
 
 
@@ -166,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154178.jpg" />
 </div>
 
 
@@ -192,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153940.jpg" />
 </div>
 
 
@@ -218,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153506.jpg" />
 </div>
 
 
@@ -244,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153181.jpg" />
 </div>
 
 
@@ -270,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153112.jpg" />
 </div>
 
 
@@ -296,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152636.jpg" />
 </div>
 
 
@@ -322,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152435.jpg" />
 </div>
 
 
@@ -348,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152367.jpg" />
 </div>
 
 
@@ -375,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151487.jpg" />
 </div>
 
 
@@ -401,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151410.jpg" />
 </div>
 
 
@@ -427,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150493.jpg" />
 </div>
 
 
@@ -455,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150326.jpg" />
 </div>
 
 
@@ -481,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150107.jpg" />
 </div>
 
 
@@ -507,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149937.jpg" />
 </div>
 
 
@@ -534,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148889.jpg" />
 </div>
 
 
@@ -560,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148745.jpg" />
 </div>
 
 
@@ -586,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148723.jpg" />
 </div>
 
 
@@ -613,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148718.jpg" />
 </div>
 
 
@@ -639,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148694.jpg" />
 </div>
 
 
@@ -666,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148681.jpg" />
 </div>
 
 
@@ -677,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4DED8E24D07E36B8C8E60E058209931C8E16507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086545   (148673) от 26.12.2016
+
+Дороти Сэйерс | Рожденный на Царство (1999) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие знают Дороти Л. Сэйерс как автора детективов. Действительно, она их писала, хотя и не так уж много, всего десятка два рассказов и двенадцать с половиной романов. С половиной - потому что роман о браке «Престолы и господства» она начала и бросила. Хотя Дороти Сэйерс всегда верила в Бога, лет с сорока она все больше и больше говорила и писала о христианстве. (   Читать дальше...   )Жанр: Радиоспектакль, зарубежная проза, религияПродолжительность: 11:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB1AC7F17AAAAFF79BF326F9102173312B735F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087017   (148632) от 26.12.2016
+
+Эрленд Лу | Фвонк (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые на русском — новейший роман самого популярного норвежского писателя современности, автора таких бестселлеров, как «Наивно. Супер» и «Во власти женщины», «Лучшая страна в мире» и «У», «Допплер» и «Грузовики „Вольво“», «Сказки о Курте» и «Мулей».
+Героем этой книги — такой же человечной, такой же фирменно наивной и в то же время непростой, как мегахит «Наивно. (   Читать дальше...   )Жанр: PоманПродолжительность: 05:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD94C53FB064DC06D0F6F5B7F3425EC03104645
 ```
 
 https://mybot314.ru/tekegram_catalog/

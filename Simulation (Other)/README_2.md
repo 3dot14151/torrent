@@ -1,3 +1,29 @@
+###  Публикация: 1402454   (1041229) от 11.02.2023
+
+Factorio (2020) [Ru/Multi] (1.1.35) License CODEX
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Factorio — это игра про добычу ресурсов, постройку заводов, автоматизацию производства и борьбу с агрессивной фауной на чужеродной планете. Вы - одинокий выживший в космической экспедиции, оказавшийся на поверхности чужого и враждебного мира. Единственно с камнями и залежами руд под ногами, ваша последняя надежда на выживание - отстроить с нуля автоматические механизмы (   Читать дальше...   )Тип издания: LicenseРазработчик: Wube Software LTDЖанр: Стратегия, Симулятор, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41F0A08D242051B8EAE34B748DC2CB161E4D79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611640   (1040970) от 12.02.2023
 
 Garbage Truck Simulator (2023) [Ru/En] (1.0) License Tenoke
@@ -6,7 +32,7 @@ Garbage Truck Simulator (2023) [Ru/En] (1.0) License Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040970.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Warehouse Simulator: Forklift Driver (2023) [En] (1.0) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040676.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Farming Simulator 19 (2018) [Ru/En] (1.7.1.0/dlc) Repack xatab [Platinum Expansi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035304.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ House Flipper (2018) [Ru/Multi] (1.2366/dlc) License GOG (обновляемая
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034250.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Contraband Police (2023) [Ru/Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033817.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Contraband Police (2023) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033581.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Barotrauma (2023) [Ru/Multi] (1.0.70/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033326.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Crossroads Inn (2019) [Ru/Multi] (2.38-3.0.5/dlc) Repack xatab [Anniversary Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033103.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030829.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ House Flipper (2018) [Ru/Multi] (1.2136/dlc) Repack xatab (обновляема�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029829.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ PC Building Simulator (2018) [Ru/En] (1.10.5/dlc) Repack xatab [Overclocked Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029248.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Police Simulator: Patrol Duty (2019) [Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025166.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Train Station Renovation (2020) [Ru/Multi] (2.2.0.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025148.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack SpaceX [Deluxe Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024692.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack Other s [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024668.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024296.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack SpaceX [Bear 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023963.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023920.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022676.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Crisis in the Kremlin / Кризис в Кремле (2017) [Ru/En] (1.0/dlc) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021679.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Secret Government (2021) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020532.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019192.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.11/dlc) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018484.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Hobo: Tough Life (2021) [Ru/Multi] (1.00.023) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016476.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.00) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016185.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Realpolitiks II (2021) [Ru/Multi] (1.00) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1303001150AE226EB72C9EBAADCA535E9118F0D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473498   (1013648) от 29.05.2021
-
-18 Wheels of Steel: American Long Haul (2007) [En] (1.01) License GOG
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша американская мечта начинается за рулем собственного большого грузовика. Открытые дороги Северной Америки ждут. Вы больше не работаете на кого-либо. Теперь вы владелец собственного бизнеса грузоперевозок и сами принимаете все решения. Выстраивайте свою империю шаг за шагом, чтобы добиться доминирования на дорогах и превзойти конкурентов. Сможете ли вы выдержать (   Читать дальше...   )Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Симулятор, В реальном времени, СовременностьЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C013EA518B6AEA2396EE69A8CA491B6A255C4EE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

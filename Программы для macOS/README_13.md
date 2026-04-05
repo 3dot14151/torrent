@@ -1,3 +1,57 @@
+###  Публикация: 1469960   (1016154) от 14.05.2021
+
+Tipard Blu-ray Player for Mac 6.2.22 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard Blu-Ray Player отличный видеоплеер для воспроизведения Blu-Ray-видео и различных видеофайлов . Программа понимает разные типы Blu-Ray, папки, ISO-образы дисков, Full-HD 1080P-видео и другие популярные аудио и видео форматы, включая MP4, M4V, MOV, FLV, WMV, AVI, MKV и т.д. Плеер сочетает в себе мощные функции воспроизведения и отличное качество картинки. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.05.2021Разработчик: Tipard StudioПоддерживаемая ОС: OS X 10.5 или вышеЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E644992601937FDAD05C29F839A3DEE4FC02DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469944   (1016104) от 14.05.2021
+
+Be Focused Pro - Focus Timer 2.1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Be Focused Pro - создайте задачи, настройте перерывы и отслеживайте свои успехи в течение дня, недели или в произвольный промежуток времени.
+«Помидорная техника» планирования, в основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
+Be Focused Pro - сосредоточьтесь на производительности. Be Focused (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.05.2021Разработчик: Denys YevenkoПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F131ECECD87A101F6EBE4EAE5453723ED78E972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470151   (1015958) от 15.05.2021
 
 Icon Slate 4.6.0 [En]
@@ -6,7 +60,7 @@ Icon Slate 4.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015958.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Malwarebytes for Mac Premium 3.5.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015897.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Reflect Studio 3.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015810.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Byword 2 v2.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015662.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ RAR Extractor Expert Pro 3.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015641.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ Boinx mimoLive 5.10.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015628.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ iconStiX 4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015523.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ FontLab 7 v7.2.0.7649 Beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015478.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Adobe Premiere Rush v1.5.58 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015413.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ Adobe After Effects 2020 v18.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015363.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ Rocket Typist Pro 2.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015336.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Swift Publisher 5 v5.5.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015334.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.3.1980 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015316.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Stats Panel 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015161.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ Hazel 5.0.7 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015122.jpg" />
 </div>
 
 
@@ -409,7 +463,7 @@ ThunderSoft Apple Music Converter 2.12.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015117.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ PCDJ DEX 3.16.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014994.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ Disk Space Analyzer Pro 3 v3.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014547.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ Movavi Video Suite for Mac 2021 v21.3.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014322.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ Focus Magic 5.00 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014225.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ WiFi Explorer Pro 3 v3.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014217.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ timeEdition - Time Tracking 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014053.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ ReadKit 2.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014048.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ Ulysses 22.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013980.jpg" />
 </div>
 
 
@@ -632,59 +686,6 @@ Ulysses разработан преимущественно для писате�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4F0E59D296DBD810562B068F1D40CEC0870AA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473146   (1013891) от 28.05.2021
-
-Simple WebMonitor 1.5.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой WebMonitor - следите за тем, чтобы ваши протоколы IPv4 / IPv6 были всегда в работе. WebMonitor - это инструмент, позволяющий отслеживать интернет протоколы (IP). WebMonitor будет отправлять запросы PING6 / PING / GET / POST на целевые сайты каждые две минуты. WebMonitor будет выдавать уведомления при обнаружении каких-либо ошибок.Тип издания: macOS SoftwareРелиз состоялся: 27.05.2021Разработчик: derjohng.comПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158F3161E02282E7F0D0FE199D6BEB12A4BAF2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474439   (1013064) от 02.06.2021
-
-Glyphs 3 v3.0.2 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glyphs - это профессиональный редактор шрифтов для Mac OS X.
-Грамотно подобранный шрифт очень сильно может сказаться на восприятии приложения или печатного издания. Слишком резкие переходы в глифах не нравятся глазу при чтении, зато легко подойдут к смелому дизайнерскому решению. Плавные линии подчиняются похожей концепции. Восприятие информации через текст очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.06.2021Разработчик: Georg SeifertПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857436510941FE8FABECB29F50F1E3379078B188
 ```
 
 https://mybot314.ru/tekegram_catalog/

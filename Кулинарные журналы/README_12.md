@@ -6,7 +6,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801784.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801777.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801705.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801695.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800707.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800501.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797625.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796954.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796945.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796429.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796402.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796364.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796349.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796336.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796325.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795642.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795597.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794918.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794912.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794822.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794800.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793884.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793517.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792867.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792458.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792219.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1402335   (701031) от 14.08.2020
+
+Kaspersky Internet Security 2020 21.1.15.500 (без KSeC) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Защитите вашу жизнь в интернете
+Kaspersky Internet Security — это оптимальная защита для компьютера. В состав продукта, помимо антивирусной защиты, входит защита интернет-соединения, веб-камеры, платежей в интернете, детей от нежелательной информации, а также возможность блокировки рекламных баннеров, запрета от сбора данных и защиты с помощью аппаратной виртуализации. (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBCEFD95FB0AF68F891FCC7827F08DCB0201E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402457   (701028) от 14.08.2020
 
 Windows 7 SP1 х86-x64 by g0dl1ke 20.08.13
@@ -6,7 +33,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.08.13
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701028.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700784.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700573.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_700303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700303.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ BELite (x86/x64) v.08.05.17 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700232.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Special Edition RePack by -{A.L.E.X
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700212.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700177.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700031.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699454.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699119.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ The Light Remake (2020) [Ru/En] (1.05) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699112.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ COMSS Boot USB 2019-03 Full [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698914.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ Nero 2015 Platinum 16.0.05000 + Content Pack [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698663.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698659.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698658.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698274.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698258.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698245.jpg" />
 </div>
 
 
@@ -487,7 +514,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 04.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698135.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697910.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ Ikkitousen: Xtreme Xecutor / Школьные войны (Сила тысячи)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697887.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ NeuroNation Premium 2.6.0 - 2.6.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697557.jpg" />
 </div>
 
 
@@ -596,7 +623,7 @@ Space Run Galaxy (2016) [Ru/Multi] (1.0.0.4541.5927) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697556.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697552.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (5.09/MP Only/dlc) Rip X-NET [SE5 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697549.jpg" />
 </div>
 
 
@@ -659,32 +686,6 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (5.09/MP Only/dlc) Rip X-NET [SE5 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C27A1AE285A5C4BD0AA0E055C44A446684D682EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016149   (697279) от 28.02.2022
-
-Как поднять миллион. Исповедь Z@drota (2014) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женя живет в маленьком провинциальном городке. Он просиживает за компьютерами сутками, не отвлекаясь на еду и сон. Однажды Женя выясняет: на виртуальной реальности можно неплохо заработать. Начав с порносайтов, юноша вскоре получает свои первые деньги. Это в корне меняет его жизнь: больше он — не школьный изгой. Вчерашние недруги здороваются первыми, а самые красивые (   Читать дальше...   )Производство: Россия, Марс Медиа Энтертейнмент, Магнум ФильмЖанр: ДрамаРежиссер: Клим ШипенкоАктеры: Виктор Грудев, Дмитрий Калязин, Соня Карпунина, Анастасия Акатова, Николай Амосов, Александр Самойленко, Лидия Байрашевская, Михаил Бабичев, Любовь Толкалина, Михаил ДовженкоПеревод: Не требуется (русский)Продолжительность: 01:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB66C039492D4F4403B8D9E70EC0E8531E8C18BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

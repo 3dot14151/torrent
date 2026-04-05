@@ -1,3 +1,31 @@
+###  Публикация: 984918   (937345) от 10.02.2016
+
+Реплика. Главные вопросы валютной ипотеки: кто виноват и что делать? (10.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валютные заемщики, взявшие жилье в ипотеку, продолжают бурно протестовать. 8 февраля их протест докатился до самой верхушки финансовых властей: люди собрались у здания Банка России и пытались даже перекрывать движение по Неглинной улице.
+
+Реплика Александра ПриваловаТелекомпания: Россия 24Жанр: ТелепередачаПродолжительность: 00:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117A01019895AFCB8BCF10213786BAAD8B587BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984825   (937342) от 10.02.2016
 
 В теме. Кандидат на миллиард (09.02.2016) SATRip
@@ -6,7 +34,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937342.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937258.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936664.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935569.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935565.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935562.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935547.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935514.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934134.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934131.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934123.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934109.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934017.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934012.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934006.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933128.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932573.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932314.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931736.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931627.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931081.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930953.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930948.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930908.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930901.jpg" />
 </div>
 
 
@@ -646,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B1FE7C330E86D9D47B3702FF11ECCDE50B70CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365380   (930667) от 07.03.2020
-
-Живая еда с Сергеем Малозёмовым (07.03.2020) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кефир: действительно ли он лечит туберкулез и чем опасна кефирная диета? В «За что такие деньги?» выяснили, какая мятная жвачка лучше освежает дыхание — дорогая или дешевая? И какая жевательная резинка самая вкусная? Анчоусы: почему маленькая рыбка стала общепризнанным деликатесом? Что на самом деле кладут в банки с надписью «Анчоусы», которые можно купить в наших (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E710EDDCD61D29B02B9DF98C16ACBB2907C0DE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

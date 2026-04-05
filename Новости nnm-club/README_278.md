@@ -1,3 +1,58 @@
+###  Публикация: 912446   (55790) от 22.05.2024
+
+Форс-мажоры / Костюмы в законе / Suits (2015) WEB-DLRip (сезон 5, серии 1-16 из 16) NewStudio [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55790.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Форс-мажоры» — сериал о тандеме профессионального юриста Харви Спектра и студента-лжеца Майка Росса.
+Майк и Харви – это команда победителей. Хотя Майк и гений, ему все еще надо много чего узнать о законах. Харви кажется бесстрастной и хладнокровной акулой бизнеса, однако, сочувствие клиентам и озабоченность их делами Майка, поможет Харви вспомнить, зачем он в свое (   Читать дальше...   )Производство: США, Hypnotic, Universal Cable Productions, Dutch OvenЖанр: драма, комедияРежиссер: Майкл Смит, Антон Кроппер, Крис МисианоАктеры: Патрик Дж. Адамс, Гэбриел Махт, Меган Маркл, Джина Торрес, Рик Хоффман, Сара Рафферти, Аманда Шулл и др.Перевод: Двухголосый профессиональный - NewStudioЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: ~00:42:00 серияРеклама: присутствуют аудио вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD95CA1BA16493C70F033A9C85EFA9FD9612A33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725158   (55693) от 23.05.2024
+
+КриптоПро CSP 5.0.13000 + cades/plugin и pkcs#11 (сертифицированная версия) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55693.jpg" />
+</div>
+
+
+###  Подробнее
+
+КриптоПро CSP 5.0 — новое поколение криптопровайдера, развивающее три основные продуктовые линейки компании КриптоПро: КриптоПро CSP (классические токены и другие пассивные хранилища секретных ключей), КриптоПро ФКН CSP/Рутокен CSP (неизвлекаемыe ключи на токенах с защищенным обменом сообщениями) и КриптоПро DSS (ключи в облаке).
+
+Все преимущества продуктов этих (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8ECE4355572A97B220BF238C10882080308783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724642   (55674) от 23.05.2024
 
 Создан гель для восстановления костей со 100% идентичностью
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55674.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Microsoft представила Recall — функцию записи всех
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55666.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55579.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ DDR6 может предложить скорость до 21 Гбит/с. JEDEC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55493.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55487.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55372.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.02) Repack R.G. Механик
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55370.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ Comodo Internet Security Premium 12.3.3.8140 Final  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55276.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55273.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55161.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55073.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55055.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54950.jpg" />
 </div>
 
 
@@ -349,7 +404,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.984.0.0/dlc) Repack Decepticon [Game of the Ye
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54848.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54818.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ Microsoft удалила кодек AC-3 Dolby Digital из Windows 11 24H2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54746.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54739.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54534.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54420.jpg" />
 </div>
 
 
@@ -506,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54336.jpg" />
 </div>
 
 
@@ -532,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54222.jpg" />
 </div>
 
 
@@ -559,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54214.jpg" />
 </div>
 
 
@@ -585,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54022.jpg" />
 </div>
 
 
@@ -611,7 +666,7 @@ Windows 10 Professional 22H2 x64 Game OS 1.7 by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53902.jpg" />
 </div>
 
 
@@ -623,58 +678,6 @@ Windows 10 Professional 22H2 x64 Game OS 1.7 by CUTA [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20ED16EC8CCA5FCD59D68F4ACFF7DD0C0A5296B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728005   (53901) от 09.06.2024
-
-Акулы в Париже / Sous la Seine / Under Paris (2024) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53901.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Сене появляется гигантская акула. Чтобы спасти Париж и гостей города от кровавой бани, пережившая утрату ученая вынуждена обратиться к своему трагическому прошлому.Производство: Франция / Let Me Be, Netflix FranceЖанр: ужасы, боевик, триллер, драма, спортРежиссер: Ксавье ЖансАктеры: Беренис Бежо, Нассим Льес, Анаис Парельо, Иньяки Лартиг, Леа Левиан, Жюльен Жаку, Хосе Антонио Педроса МореноПеревод: Дублированный (Videofilm Int.)Язык озвучки: Русский, французский, украинскийСубтитры: Русские (Forced, 2x Full), английские (SDH), французские (Forced, SDH), украинские (Forced, 2x Full) и др.Продолжительность: 01:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E645AEE8480AE9A9A518D5E89DE3A97F5DEE59CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728601   (53896) от 09.06.2024
-
-Япония готовится запустить первый в мире деревянный спутник LignoSat в сентябре
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киотский университет (Kyoto University) и японская лесозаготовительная компания Sumitomo Forestry совместно разработали экспериментальный спутник LignoSat, запуск которого на МКС запланирован на сентябрь этого года.LignoSat представляет собой небольшой кубсат со стороной 10 сантиметров и весом около 0,9 килограмма. Он изготовлен с использованием традиционных японских (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

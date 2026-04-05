@@ -1,3 +1,29 @@
+###  Публикация: 1446019   (1032862) от 08.02.2021
+
+В Китае детям запретили брать мобильные телефоны в школу
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министерство образования Китая запретило ученикам начальной и средней школы пользоваться мобильными телефонами в учебном заведении. Об этом передает BBC.Ученики не могут принести в школу телефон без письменного согласия родителей. Кроме того, в некоторых китайских школах уже действует внутренний запрет на использование телефонов.Согласно Информационному центру Китая, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619140   (1032835) от 16.03.2023
 
 NordVPN безвозмездно открыла доступ к своему частному туннелю Meshnet для всех желающих
@@ -6,7 +32,7 @@ NordVPN безвозмездно открыла доступ к своему ч�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032835.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032827.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032823.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ RTX 4060 - Будет ли она «народной» видеокартой л
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032426.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Google забанила аккаунт разработчика Terraria. В о�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032384.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032366.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ ChatGPT обманул человека, чтобы решить поставл�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032204.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032183.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Disney закроет студию с 34-летней историей. Она �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032003.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031745.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Ooyuki Umi no Kaina | Kaina of the Great Snow Sea | Кайна в великом
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031524.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Adobe Photoshop 2023 24.3.0.376 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1031515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1031515.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Streets of Rage 4 / Bare Knuckle 4 (2020) [Ru/Multi] (08g-r18163/dlc) License GO
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031512.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ ZOMBI / ZombiU (2015) [Ru/Multi] (1.1) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031454.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031317.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ ChatGPT попытался сбежать от своего разработчи
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031309.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ No Game No Life / Нет игры, нет жизни [2014, TV, 12 эп.] HDTV 7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031307.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030849.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030833.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030819.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030625.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030622.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Outline Client VPN 1.10.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030618.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030536.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Image Uploader 1.3.2 Build 4717 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030534.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Image Uploader - бесплатная программа для Windows c отк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D543E8D6673469CF033EB4178653AFDA9B73544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448643   (1030404) от 19.02.2021
-
-Facebook заблокировал австралийские СМИ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская соцсеть Facebook заблокировала средства массовой информации Австралии из-за споров с австралийскими властями, сообщает агентство Reuters.В частности, страницы государственных телерадиовещательных компаний Австралии и информационных агентств оказались пустыми. Также заблокированы оказались страницы австралийского минздрава и государственного метеорологического (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

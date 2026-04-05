@@ -1,3 +1,29 @@
+###  Публикация: 1178188   (358321) от 27.10.2017
+
+Фрейзер Квилч | TRX Core Strength [Vol.1] (2009) DVDRip [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите полную функциональную тренировку для вашей мышечной системы! Фрейзер Квелч проведет вас через новаторскую программу, которая нацелена на часто и незаслуженно забываемые глубокие мышцы живота и нижней части спины. Крепкий, мощный корсет - это то, что нужно для достижения пика спортивных результатов или для полноценной здоровой жизниЖанр: Функциональный тренинг, фитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96778E9CF7A34008CDFA27B843BE1740D7F41EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178187   (358312) от 27.10.2017
 
 Джастин Прайс | TRX Biomechanics - Healthy Back (2011) DVDRip [EN]
@@ -6,7 +32,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358312.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358127.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357634.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357537.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ CG Cookie | Моделирование, Текстурирование и Шей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356301.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ CG Cookie | Риггинг и Анимация Сундука с сокрови�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356299.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355773.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355772.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ Mark Cheng | Tai Cheng Workout [Master Kit] (2012) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355485.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355261.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355221.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355206.jpg" />
 </div>
 
 
@@ -340,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355126.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355057.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Udemy, Imran Nuruhussen | Rendering For Jewelers With Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354286.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Slurm (Слёрм), Павел Селиванов | Terraform (2022) WEB-DL [К�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353933.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Cubebrush, Pierrick Picaut | Рыцарь Дракон - Полный курс �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353817.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353311.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Oleg Lav | Right Click Enhancer Professional - Редактор контекст
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353156.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Eitan Kramer | Core Workout (2017) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353152.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353148.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353147.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353146.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353048.jpg" />
 </div>
 
 
@@ -676,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353043.jpg" />
 </div>
 
 
@@ -687,33 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387DBA61230612F2F679A03B2CDEF82093A30894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417824   (352987) от 22.10.2020
-
-CG Fast Track | Процедурные шейдеры в Blender 2.90 / Procedural Shader Networks in Blender 2.90 (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание сложных шейдеров для многослойных материалов в Blender 2.90.
-В этом курсе вы научитесь создавать такие материалы как металл, снег, ткань. В завершении мы применим материалы для модели бронированной турели без создания UV-развертки, используя трипланарную проекцию.Производство: CG Fast TrackЖанр: 3D моделирование, ШейдерыПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96835F0B3CFA8B854029F6D7373C3D53CB5A8172
 ```
 
 https://mybot314.ru/tekegram_catalog/

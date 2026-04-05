@@ -1,81 +1,3 @@
-###  Публикация: 1155577   (533029) от 03.08.2017
-
-Закон ночи / Live by Night (2016) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Америке времен сухого закона. Главный герой картины, сын полицейского, зарабатывает бутлегерством, в результате чего он оказывается вовлечен в жизнь криминального мира.Производство: США / Warner Bros. Pictures, RatPac Entertainment, Appian Way, Pearl Street FilmsЖанр: Драма, криминалРежиссер: Бен АффлекАктеры: Бен Аффлек, Крис Мессина, Зои Салдана, Сиенна Миллер, Крис Купер, Эль Фаннинг, Брендан Глисон, Мигель, Ремо Джироне, Роберт ГленистерПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, эстонские, латышские, литовские, португальскиеПродолжительность: 02:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7B5AE600F68E4ADEB3CA3E631F7FCF723E6B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155574   (532898) от 03.08.2017
-
-Финансовый монстр / Money Monster (2016) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма разворачивается вокруг Ли Гейтса, известного телеведущего, чьи финансовые советы сделали его настоящим гуру Уолл-Стрит. Один из зрителей шоу, воспользовавшись неудачным советом Ли, потерял все свое состояние и теперь хочет возмездия. Он берет знаменитость в заложники и тем самым поднимает рейтинги передачи, люди замерли перед экранами в ожидании ответа (   Читать дальше...   )Производство: США / Sony Pictures Entertainment (SPE), TriStar Pictures, Smoke House, LStar Capital, Allegiance TheaterЖанр: Триллер, драма, криминалРежиссер: Джоди ФостерАктеры: Джордж Клуни, Джулия Робертс, Джек О'Коннелл, Доминик Уэст, Катрина Балф, Джанкарло Эспозито, Кристофер Денэм, Ленни Венито, Кристофер Бауэр, Деннис БуцикарисПеревод: Дублированный (лицензия)Субтитры: Русские, английские, арабские, болгарские, хорватские, чешские, иврит, венгерские, исландские, польские, португальские, румынские, сербские, словацкие, словенские, турецкиеПродолжительность: 01:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE25D28D352ACDC8128463BBAA7F60973D313B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050775   (531980) от 11.09.2016
-
-13 часов: Тайные солдаты Бенгази / 13 Hours (2016) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531980.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 год. Бенгази, Ливия. Группа террористов решает «отпраздновать» события 11 сентября нападением на американское посольство. Шестерке бойцов из элитного спецотряда приказано вмешаться только в крайнем случае. Но когда под угрозой десятки жизней, долг и совесть берут верх над субординацией. И мужественные солдаты без колебаний вступают в бой с яростной группировкой (   Читать дальше...   )Производство: США / Paramount Pictures, 3 Arts Entertainment, Bay Films, Dune Films, Latina PicturesЖанр: Боевик, триллер, драма, военныйРежиссер: Майкл БэйАктеры: Джон Красински, Джеймс Бэдж Дэйл, Пабло Шрайбер, Дэвид Денман, Доминик Фумуса, Макс Мартини, Алексия Бальер, Дэвид Костабайл, Пейман Моаади, Мэтт ЛетчерПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, русский, украинскийПродолжительность: 02:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B994257C9AA1EA93C196845F1130F07E1D30AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 368556   (529370) от 27.07.2011
 
 Доверие / Trust (2010) DVD9
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529370.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529119.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528092.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526670.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526014.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524792.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524619.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523721.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523407.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521313.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521129.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520019.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519628.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518701.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518558.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518543.jpg" />
 </div>
 
 
@@ -500,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517195.jpg" />
 </div>
 
 
@@ -526,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516777.jpg" />
 </div>
 
 
@@ -552,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516539.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515364.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513835.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512183.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512114.jpg" />
 </div>
 
 
@@ -668,6 +590,84 @@ https://mybot314.ru/tekegram_catalog/
 Самый известный шпион в мире возвращается к зрителю — и к началу своей бурной деятельности на службе Ее Величества! Первая же миссия в качестве агента 007 становится его величайшим испытанием: ему выпадает сразиться с международной террористической организацией, опутавшей своей сетью всю планету.
 
 Используя богатый шпионский арсенал — от верного пистолета до навороченного (   Читать дальше...   )Жанр: Боевик, Триллер, КриминалРежиссер: Мартин КэмпбеллАктеры: Дэниэл Крэйг, Ева Грин, Мэдс Миккелсен, Джуди Денч, Джеффри Райт, Джанкарло Джаннини, Катерина Мурино, Саймон Абкариан, Исаак Де Банколе, Джеспер КристенсенПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:18:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930632   (511585) от 26.08.2015
+
+Форсаж 7 / Furious Seven (2015) DVD5 [Theatrical cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они покорили Токио и Рио, Лос-Анджелес и Лондон. Но мир больше не играет по их правилам. Зной арабских пустынь, неприлично высокие небоскребы, миллионы долларов на колесах и очень, очень знаменитый злодей. Скорость не знает границ.Производство: США / Universal Pictures, Original Film, Media Rights Capital, China Film Co., One Race FilmsЖанр: Боевик, триллер, криминалРежиссер: Джеймс ВанАктеры: Вин Дизель, Пол Уокер, Джейсон Стэйтем, Мишель Родригес, Дуэйн Джонсон, Тайриз Гибсон, Лудакрис, Натали Эммануэль, Джордана Брюстер, Курт РасселПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, чешский, венгерский, польский, русский, болгарский, хорватский, эстонский, греческий, иврит, латышский, литовский, румынский, словенский, украинскийПродолжительность: 02:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FAB799FEE53C3852E1DF1A3E9B7A7C5D72C6F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 231154   (510673) от 29.08.2010
+
+Центурион / Centurion (2009/2010) DVD5
+
+>>След.
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в 117 году нашей эры. Главный герой — Квинтус Диас — единственный человек, уцелевший после налёта пиктов на пограничную римскую крепость. Вместе с легендарным Девятым легионом он отправляется на север, чтобы стереть с лица земли пиктов и уничтожить их предводителя, Горлакона.Производство: Жанр: Боевик, Триллер, Драма, Приключения, Военный, ИсторияРежиссер: Нил МаршаллАктеры: Майкл Фассбендер, Доминик Уэст, Ольга Куриленко, Ноэль Кларк, Дэвид Моррисси, Джей Джей ФилдПеревод: Профессиональный (дублированный)Продолжительность: 01:33:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377150   (508257) от 19.08.2011
+
+Счастливы вместе / HappyThankYouMorePlease (2010) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэм — молодой нью-йоркский писатель. Как часто бывает в жизни, великий роман ещё не написан, а в личной жизни полный провал. Но все меняется, когда Сэм случайно знакомится с бездомным чернокожим мальчиком, который прилипает к нему, как банный лист. С этого момента жизнь начинает течь быстрее.Производство: Paper Street Films, Tom Sawyer Entertainment, Back Lot Pictures / СШАЖанр: драма / комедияРежиссер: Джош РэднорАктеры: Джош Рэднор, Кейт Мара, Зои Казан, Пабло Шрайбер, Тони Хейл, Фэй Вульф, Мария Елена Рамирез, Малин Акерман, Майкл Альери, Джейкоб Аппельман и др.Перевод: Многоголосый (профессиональный)Язык субтитров: русскийПродолжительность: 01:34:29
 
 ## Скачать торент
 ```bash

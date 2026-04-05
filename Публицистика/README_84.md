@@ -1,3 +1,30 @@
+###  Публикация: 1797335   (18232) от 15.05.2025
+
+Рутгер Брегман | Homo Bonus. Обнадеживающая история человечества (2025) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древние мыслители и современные авторы, психологи и философы, политики правых и левых взглядов сходятся в том, что человек по своей природе плох. Нам твердят, что мы, люди, эгоистичны и руководствуемся в первую очередь личными интересами.
+Но что, если это не так? Рутгер Брегман предлагает взглянуть на человеческую историю по-новому. Он показывает, что мы запрограммированы (   Читать дальше...   )Жанр: публицистика, история, социологияПеревод: А. ГоловинаИздательство: СиндбадФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48433D22F83D2D98B42C221EF5103A809318E00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 172884   (17747) от 20.05.2025
 
 В.А. Лопатин | Матрица Скалигера. Вся мировая история насквозь фальшивая! (2007) [PDF]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17747.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17436.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17416.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16735.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15828.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15481.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15352.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15342.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15180.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14215.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13729.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12230.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10802.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10684.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10645.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10462.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10390.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9651.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9332.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9328.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7719.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7115.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6328.jpg" />
 </div>
 
 
@@ -614,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6302.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5875.jpg" />
 </div>
 
 
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC0FFCF55F86D93EC397FC40783CCB6A08E27149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816788   (4177) от 06.09.2025
-
-Хайс Кесслер | Россия: страна, которая хочет быть другой (2025) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцать лет назад, после распада Советского Союза, Россия устремилась к будущему, надеясь стать страной, открытой миру, с рыночной экономикой и демократией. Но многие из этих надежд так и не реализовались. Почему тридцать лет перемен не принесли россиянам того, что они ожидали? Историк Хайс Кесслер ищет ответ, опираясь на собственный опыт жизни в России: он впервые (   Читать дальше...   )Жанр: Политическая публицистика, политическая социология, Россия глазами иностранцевИздательство: Новое литературное обозрениеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33585DF1DDC2BECD0AD1E2168B9C029B6F22AA33
 ```
 
 https://mybot314.ru/tekegram_catalog/

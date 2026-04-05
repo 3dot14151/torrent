@@ -1,3 +1,107 @@
+###  Публикация: 1840357   (1047289) от 04.12.2025
+
+Exo Player - Видеоплеер и IPTV v2.1.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой видеопроигрыватель с поддержкой 4K и 8К и расширенными возможностями. Позволяет транслировать видео через Google Cast, устанавливать в качестве статуса WhatsApp да воспроизводить оное в плавающем окне. 📱Приложение работает безупречно, что позволяет смотреть видео без задержек и перерывов. Он также оптимизирован для использования аккумулятора, поэтому (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 03.12.2025Разработчик: I N F I N I T YПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D638F318D115917E8F290E2C4758BD29C5155746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840359   (1047287) от 04.12.2025
+
+Цитаты+ — Вдохновение дня v3.7.4а3 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quotes+ — Твой карманный источник ежедневного вдохновения. Наслаждайся более чем 2800+ вдохновляющими цитатами, чтобы поднять настроение, замотивироваться или задуматься. Простой, чистый и красивый дизайн — Quotes+ помогает сосредоточиться на главном.Тип издания: ProРелиз состоялся: 01.12.2025Разработчик: Sashkin AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF4972D4C99AF7BB25101B084376ED6EC0870CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840363   (1047285) от 04.12.2025
+
+Открытки с поздравлениями, gif v1.27.1 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытки и поздравления на все случаи жизни от лидера РУнета - OtkritkiOK.ru. Самый большой каталог красивых открыток с днем рождения, прикольных картинок с поздравлениями, а также стикеры для WhatsApp и ежедневные гифки с добрым утром и спокойной ночи. Более 15 млн. пользователей ежегодно отправляют наши картинки и стикеры (wasticker), порадуйте и вы своих друзей, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 03.12.2025Разработчик: OtkritkiOKПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8007367B31CDA42B2B36E0C9D85892A740870B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840225   (1047172) от 03.12.2025
+
+Horary Chart / Астрология: Хорарная Карта v4.1.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорарная карта - это программа для построения хорарных карт, включающая астрологическую карту с линейкой, расчет событий в пределах знака и отображающая соединения планет и домов с антисами и звездами. Есть функция добавления формул жребиев и выбор из ста звезд.Тип издания: Paid / ProРелиз состоялся: 18.04.2025Разработчик: Roman ShimchenkoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CB8B3840D2657AE978D04ED5B8FA94D5516238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840222   (1047171) от 03.12.2025
 
 Astrological Charts / Астрологические Карты Pro v11.1.10 [Ru/Multi]
@@ -6,7 +110,7 @@ Astrological Charts / Астрологические Карты Pro v11.1.10 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047171.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047170.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047169.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047168.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ SD Card Test Pro v2.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046852.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Grok - ИИ ассистент v1.0.81-release.04 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046709.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Vanced Tube v5.5.80.178 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046707.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ LazyMedia Deluxe v3.417 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046706.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Photo Editor v12.2 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046646.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Photo Editor v12.2 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046645.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046643.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Listen Audiobook Player v5.3.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046604.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ VivaVideo Video Editor v9.32.2 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046595.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Channel - AI Videos and Chat v1.6.1.3174 Mod by kljovyj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046585.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Cozy Timer - Sleep timer v4.0.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046583.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ PhotoRoom v4.1.0 Mod by CXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046249.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Copy Text On Screen v5.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046190.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046186.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ MobileSheets Music Viewer v3.6.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045808.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ SUXOV v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045271.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044176.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043385.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:003F15E38866F6BFC555B4B15226DCCF85AF0F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436682   (1043026) от 01.01.2021
-
-IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощное и функциональное приложение-компаньон для управления домашней техникой посредством IRDA, коли оный имеется в вашем смартфоне. Огромная база устройств. Много настроек.
-Это приложение для использования внутреннего инфракрасного передатчика многих современных смартфонов с долгосрочной целью поддержать большинство устройств с инфракрасным дистанционным управлением (   Читать дальше...   )Тип издания: Пиратка (Mod)Релиз состоялся: 30.12.2020Разработчик: binarymodeПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DF387BEB753D2C64870BB9DB99B803607FCAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609646   (1042860) от 05.02.2023
-
-Справочник рыбака v1.1.4 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042860.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Справочник рыбака» - полезное приложение, содержащее в себе подробное описание наиболее известных видов рыб, обитающих в водоёмах России и ближнего зарубежья. Оно будет полезно как начинающим, так и опытным рыболовам-любителям.Тип издания: AdfreeРелиз состоялся: 04.02.2023Разработчик: VT LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732B5DAC2B674F9141DAA6B4328F65FECB174391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436678   (1042730) от 02.01.2021
-
-Solar System Scope v3.2.4 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Solar System Scope - представляет собой виртуальный 3D планетарий и обсерваторию для Android устройств. Пользователи смогут наблюдать за положением планет и планетарных орбит в режиме реального времени.Тип издания: Пиратка (Premium)Релиз состоялся: 7 апреля 2020 г.Разработчик: INOVE, s.r.o.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6550B0541E4F4DCD0FB4A1488B4C80E410F95C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437215   (1042261) от 04.01.2021
-
-Free Guitar Tuner v4.0.0 Premium [En] - Fender Tune
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fender Tune - это приложение для точного тюнера с рейтингом 5 звезд для гитары, баса и укулеле от самого известного производителя гитар Fender®. Точно настройте свой инструмент с помощью простого в использовании интерфейса Fender Tune, который идеально подходит для всех музыкантов, от новичков до профессионалов.Тип издания: Пиратка (открыт Premium)Релиз состоялся: 7 декабря 2020 гРазработчик: Fender Digital, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4416390A5846D5CC74C2B1263EB4D4E4A97CF49D
 ```
 
 https://mybot314.ru/tekegram_catalog/

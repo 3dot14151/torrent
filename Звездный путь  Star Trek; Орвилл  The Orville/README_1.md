@@ -1,3 +1,55 @@
+###  Публикация: 1433453   (155912) от 21.12.2020
+
+Звёздный путь: Дискавери / Star Trek: Discovery (2018) BDRemux [H.264/1080p] (сезон 2, серии 1-14 из 14) LostFilm
+
+>>Зарубежные сериалы
+>>Звездный путь / Star Trek; Орвилл / The Orville
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155912.jpg" />
+</div>
+
+
+###  Подробнее
+
+За 10 лет до начала истории, описанной в оригинальном сериале «Звёздный путь», экипаж корабля USS Discovery NCC-1031 отправляется в путешествие, чтобы изучать глубокий космос и открыть новые миры и цивилизации.Производство: США / CBS Television Studios, Living Dead Guy Productions, Master Key ProductionЖанр: Фантастика, боевик, драма, приключенияРежиссер: Олатунде Осунсанми, Джонатан Фрейкс, Дуглас АрниокоскиАктеры: Сонекуа Мартин-Грин, Даг Джонс, Энтони Рэпп, Мэри Вайсман, Эмили Куттс, Oyin Oladejo, Патрик Квок-Чун, Ронни Роу, Джулианна Гроссман, Сара Митич и др.Перевод: Многоголосый профессиональный (LostFilm)Субтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EF499DD660C6BF3F7C03CAD76F33F139131A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433451   (155777) от 21.12.2020
+
+Звёздный путь: Дискавери / Star Trek: Discovery (2017) BDRemux [H.264/1080p] (сезон 1, серии 1-15 из 15) SDI Media, LostFilm
+
+>>Зарубежные сериалы
+>>Звездный путь / Star Trek; Орвилл / The Orville
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155777.jpg" />
+</div>
+
+
+###  Подробнее
+
+За 10 лет до начала истории, описанной в оригинальном сериале «Звёздный путь», экипаж корабля USS Discovery NCC-1031 отправляется в путешествие, чтобы изучать глубокий космос и открыть новые миры и цивилизации.Производство: США / CBS Television Studios, Living Dead Guy Productions, Master Key ProductionЖанр: Фантастика, боевик, драма, приключенияРежиссер: Олатунде Осунсанми, Джонатан Фрейкс, Дуглас АрниокоскиАктеры: Сонекуа Мартин-Грин, Даг Джонс, Энтони Рэпп, Мэри Вайсман, Эмили Куттс, Oyin Oladejo, Патрик Квок-Чун, Ронни Роу, Джулианна Гроссман, Сара Митич и др.Перевод: Многоголосый профессиональный (SDI Media, LostFilm)Субтитры: Русские (Forced, Full), Английские (Forced, Full)Продолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A801C6F6C4816A4B5976D75338E5E8E1A12461FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271479   (149148) от 23.12.2018
 
 Звёздный путь: Дискавери / Star Trek: Discovery (2017) BDRip [H.264/1080p-LQ] (сезон 1, серии 1-15 из 15) films.club
@@ -6,7 +58,7 @@
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149148.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147144.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54406.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2285.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2278.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2251.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1375.jpg" />
 </div>
 
 

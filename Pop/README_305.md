@@ -1,177 +1,3 @@
-###  Публикация: 454433   (160935) от 05.11.2023
-
-Евгений Мартынов - Я Тебе Весь Мир Подарю (2001) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я тебе весь мир подарю (3:45)
-02. Письмо отца (3:22)
-03. Слушайте красавицы (3:00)
-04. Баллада о матери (4:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6A2EC182F66DA54D4B158D79AA570B1A5BFDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667715   (160925) от 05.11.2023
-
-ВИА «Добры Молодцы» - 6 Альбомов (1996-2008) [APE|Lossless]<Retro, Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Как счастливым быть (В.Добрынин – И.Шаферан)"
-02. "Я еду к морю (Д.Тухманов – В.Харитонов)"
-03. "Днём и ночью (Ю.Саульский – М.Танич)"
-04. "Татьянин день (Ю.Саульский – Н.Олев)"(   Читать дальше...   )Жанр: Retro, Советская эстрадаПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F40011F407F8366433BF58673D7191685BDB1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591935   (160922) от 05.11.2023
-
-Аида Ведищева - Корабль воспоминаний (Лучшее) (2007) 2CD [APE|Lossless|image + .cue]<Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мелодия любви (Helms Norma, C.Morgan - Д.Чашников)
-2. Песенка вполголоса (С.Заславский - М.Пляцковский)
-3. Чёрный кофе (В.Шаинский - А.Алшутов)
-4. Помоги мне (А.Зацепин - Л.Дербенёв)(   Читать дальше...   )Жанр: RetroПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DDBBB7363352903DBC9DB4E719190167B8C22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323702   (160918) от 05.11.2023
-
-Георг Отс - Мистер Икс (1962) [FLAC|Lossless]<Классика, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ария Мистера Икса
-2.Песня Раджами
-3.Я Вас любил
-4.Я помню вальса звук прелестный(   Читать дальше...   )Жанр: Классика, РетроПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE170FA1C674B2F5EE1D31CCA945351AE70EDDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658650   (160911) от 05.11.2023
-
-Юрий Антонов - Серия «Большая Российская Музыкальная Энциклопедия» (2000) [FLAC|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "На улице Каштановой (Ю. Антонов - И. Шаферан)"
-02. "На высоком берегу (Ю. Антонов - С. Алиханов, Ю. Антонов)"
-03. "Крыша дома твоего (Ю. Антонов - М. Пляцковский)"
-04. "Белый теплоход (Ю. Антонов - В. Дюнин)"(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058EE9A697E715A5CF53E96CFB96F7EE29DE82FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484824   (160910) от 05.11.2023
-
-Алла Пугачева - Миллион роз (1988) Japan reissue 1983 / Victor Musical Industries [APE|Lossless]<Pop, Ballads>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Миллион роз (Р.Паулс – А.Вознесенский) (5:33)
-02. Я больше не ревную (А.Пугачёва – О.Мандельштам) (5:16)
-03. Дежурный ангел (А.Пугачёва – И.Резник) (4:34)
-04. Лестница (А.Пугачёва – И.Резник) (3:54)(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3695C260208147994DDD2D9A4B77ADB67E715AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582056   (160908) от 05.11.2023
 
 Старинные танго (2010) [FLAC|Lossless]<Retro>
@@ -180,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160908.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160906.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160904.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ V.A. - Комсомольская Юность Моя (2008) [FLAC|Lossless]<Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160902.jpg" />
 </div>
 
 
@@ -302,7 +128,7 @@ VA - 130 Original Hits - 70's (2009) 6CD[FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160900.jpg" />
 </div>
 
 
@@ -337,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160897.jpg" />
 </div>
 
 
@@ -366,7 +192,7 @@ V. A. - Russian Collection (Лучшие Песни 1969-89) Vol. 3-6 (1995-1997
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160891.jpg" />
 </div>
 
 
@@ -395,7 +221,7 @@ VA - Сделано в С.С.С.Р. 10xCD (2007-2010) [FLAC|Lossless] <Retro, Po
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160881.jpg" />
 </div>
 
 
@@ -424,7 +250,7 @@ VA - Let´s Go Dancing All Night (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160852.jpg" />
 </div>
 
 
@@ -453,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160730.jpg" />
 </div>
 
 
@@ -482,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160723.jpg" />
 </div>
 
 
@@ -511,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160718.jpg" />
 </div>
 
 
@@ -540,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160711.jpg" />
 </div>
 
 
@@ -566,7 +392,7 @@ VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160646.jpg" />
 </div>
 
 
@@ -595,7 +421,7 @@ VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160641.jpg" />
 </div>
 
 
@@ -624,7 +450,7 @@ VA - Hit News Vol. 9 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160637.jpg" />
 </div>
 
 
@@ -653,7 +479,7 @@ Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160635.jpg" />
 </div>
 
 
@@ -682,7 +508,7 @@ VA - The Very Best of Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160577.jpg" />
 </div>
 
 
@@ -711,7 +537,7 @@ VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160263.jpg" />
 </div>
 
 
@@ -740,7 +566,7 @@ VA - THE BEST OF EFFECTIVE RECORDS 2022 (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160070.jpg" />
 </div>
 
 
@@ -754,6 +580,180 @@ VA - THE BEST OF EFFECTIVE RECORDS 2022 (2022) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182F22F51E3684D57A4BBB3B104EF52DA0A77D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599562   (159857) от 23.12.2022
+
+VA - Broken Beat & Nu Disco The Best Of (2022) CD, Compilation [MP3|320 Kbps] <Soulful, Nu Disco, Indie Dance, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vito Lalinga (Vi Mode inc project) - Angola (Zane Wayne Massey Saxophone)
+02. Vito Lalinga (Vi Mode inc project) - Legend
+03. Vito Lalinga (Vi Mode inc project) - Driving
+04. Vito Lalinga (Vi Mode inc project) - Party Groove(   Читать дальше...   )Жанр: Soulful, Nu Disco, Indie Dance, FunkПродолжительность: 01:53:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D8DD1412BD6003FA612254572B57A54CC3FD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599310   (159743) от 23.12.2022
+
+ВИА ''Здравствуй, песня'' - 4 Albums (1979-1982) LP [MP3|320 Kbps] <Rock, Funk-Soul, Pop, Disco>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159743.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Здравствуй, песня» - советский вокально-инструментальный ансамбль (ВИА). Формирование коллектива началось в городе Макеевка Донецкой области, когда музыканты Донецкого музыкального училища во главе с Аркадием Хаславским получили предложение создать ВИА при крупном заводе города Донецка. Предложение было принято. Ансамбль назывался «Калейдоскоп» и все музыканты получали (   Читать дальше...   )Список альбомов:
+1979 - Здравствуй, песня
+1979 - Мы любим диско
+1981 - Вокруг любви(   Читать дальше...   )Жанр: Rock, Funk-Soul, Pop, DiscoПродолжительность: 02:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34A89E0CF2006678450C91F2B9F5EF65D3F9FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599573   (159637) от 24.12.2022
+
+VA - Nu-Disco & Re-Edits Vol.1 (2022) [MP3|320 Kbps] <Deep Disco, Funky, Soulful, Nu Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chewy Rubs - Strange Love
+02. Chewy Rubs - The Game
+03. Chuggin Edits - I Get Satisfied
+04. Chewy Rubs - Garage Disco (Chewy Rubs Dub)(   Читать дальше...   )Жанр: Deep Disco, Funky, Soulful, Nu DiscoПродолжительность: 03:58:09 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CAB046A74402C296E576E3414426FCB1C1341A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599713   (159632) от 24.12.2022
+
+Gwen Stefani - You Make It Feel Like Christmas (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells
+02. Let It Snow
+03. My Gift Is You
+04. Silent Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E520513669F6920A062BD2143E7A4EF1B740241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599917   (159365) от 25.12.2022
+
+VA - Winter Chill 2023 (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Lewis - How Do I Say Goodbye (2:43)
+02. Olivia Rodrigo - drivers license (4:02)
+03. Taylor Swift - Anti-Hero (3:20)
+04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 04:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28D6BCAD3F4FA413BFEE63E5BCC74BA46355771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599997   (159334) от 25.12.2022
+
+Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Di La (2:57)
+02. Volare (3:20)
+03. Mala Femmina (2:31)
+04. Mama (2:03)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305C7B4EAA3A5B0EA02452C8B703E2737B66ECDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

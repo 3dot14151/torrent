@@ -1,135 +1,3 @@
-###  Публикация: 1367489   (917242) от 15.03.2020
-
-А. Ангаров и др. | Хрестоматия по государственному устройству СССР (1928) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая хрестоматия, составленная группой слушателей правового отделения Института Красной Профессуры, содержит в себе материал не только для изучения государственного строя Советского Союза и РСФСР, но и для ознакомления с учением Маркса и Ленина о государстве и диктатуре пролетариата. В первую вводную часть хрестоматии вошли отрывки из „Происхождения семьи, частной (   Читать дальше...   )Жанр: История, политология, публицистика, экономика, социология, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA796DAACCDF2050C9C24C27030FE8E59FBAE597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367425   (917234) от 15.03.2020
-
-Казимир Валишевский | Павел I (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека проекта «История Российского государства» – это рекомендованные Борисом Акуниным лучшие памятники исторической литературы, в которых отражена биография нашей страны от самых ее истоков.
-
-Павел I, самый неоднозначный российский самодержец, фигура оклеветанная и трагическая, взошел на трон только в 42 года и царствовал всего пять лет. Его правление, бурное (   Читать дальше...   )Жанр: Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB840D30E9B8B545DF91B6C85AA3578B61B3CA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367327   (917229) от 15.03.2020
-
-С.С. Бакулевская и др. | Основы автоматизированного проектирования. Элективный курс (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элективный курс «Основы автоматизированного проектирования» содержит материалы по истории проектирования, системам автоматизированного проектирования, области их применения и значения для развития инженерной деятельности и экономики страны. В нем рассмотрены основные принципы построения чертежей и трехмерных моделей в отечественной САПР "T-FLEX САD". Курс (   Читать дальше...   )Жанр: Электроника, компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FD6111DECAFC9FF5559717F19D8DC7CC84FA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096330   (917167) от 25.01.2017
-
-Каспар Хендерсон | Книга о самых невообразимых животных. Бестиарий XXI века (2015) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальные животные бывают причудливее самых невероятных фантазий и завораживают нас не меньше, чем иллюстрации средневекового бестиария. Эта мысль побудила Каспара Хендерсона написать преисполненную нежности и тревоги о нашей планете книгу. Чем больше мы изучаем природу, тем более поразительные открытия делаем. Живущего почти в кипятке краба йети ученые обнаружили (   Читать дальше...   )Жанр: Образовательная литература, научно-популярная литератураФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC864DB0A8A99A46C6A32DDB2059E50F884CE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367222   (917105) от 15.03.2020
-
-Андрей Сазонов | Фильтруй! Как работают наши печень и почки (2020) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Печень и почки выполняют в нашем организме роль естественных фильтров, основное – печень разрушает яды нашего организма, почки выводят из него продукты этого разрушения. Ни об одном другом органе не создано столько мифов, сколько о печени или почках. Чего стоит одна только уринотерапия, великая и ужасная! Этому шарлатанско-мифическому методу лечения будет посвящена (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицинеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCC67DE8F2600A403C4337DAE5BB97212E87CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096915   (917054) от 25.01.2017
 
 Уайлдер Пенфилд | Мозг. Тайны разума (2016) [FB2]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917054.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917025.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916962.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916953.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916917.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916875.jpg" />
 </div>
 
 
@@ -298,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916848.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916682.jpg" />
 </div>
 
 
@@ -351,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916043.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915652.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915572.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915149.jpg" />
 </div>
 
 
@@ -456,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915038.jpg" />
 </div>
 
 
@@ -482,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915000.jpg" />
 </div>
 
 
@@ -508,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914836.jpg" />
 </div>
 
 
@@ -534,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914204.jpg" />
 </div>
 
 
@@ -560,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913873.jpg" />
 </div>
 
 
@@ -586,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913811.jpg" />
 </div>
 
 
@@ -612,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913790.jpg" />
 </div>
 
 
@@ -638,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913549.jpg" />
 </div>
 
 
@@ -665,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913539.jpg" />
 </div>
 
 
@@ -676,6 +544,144 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1CBD55E0C520684EECD76F213D6084EB04109E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990209   (913297) от 24.02.2016
+
+Евгений Примаков (ред.)  | Очерки истории российской внешней разведки. Том 2 (2014) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй том шеститомного издания  "Очерки истории российской внешней разведки" 
+
+Во втором томе освещаются становление и укрепление советской внешней разведки (1917–1933 годы) как части политической системы качественно иного государства, которая, однако, сохранила приоритетные задачи и направления деятельности российской внешней разведки — охрану национальных (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72140F4FE20BE5CC6F7A30782092B673EB527475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990214   (913270) от 24.02.2016
+
+Евгений Примаков (ред.) | Очерки истории российской внешней разведки. Том 3 (2014) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий том шеститомного издания  "Очерки истории российской внешней разведки" 
+
+Третий том знакомит читателей с работой «легальных» и нелегальных резидентур, крупными операциями и судьбами выдающихся разведчиков в 1933–1941 годах. Деятельность СВР в этот период определяли два фактора: угроза новой мировой войны и попытка советского государства предотвратить (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF45C4ED11BDD72569C52EFED0A0E41C65094FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 290743   (913096) от 03.02.2011
+
+Фрэнк Неттер | Атлас анатомии человека [2003] [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирно известный «Атлас анатомии человека» Ф.Неттера переведен и издан в 10 странах. Это самый популярный в мире атлас анатомии, выпущенный общим тиражом более миллиона экземпляров и ставший учебным пособием для огромного числа студентов, преподавателей и врачей.
+ Этот атлас станет для студента незаменимым учебным пособием, а преподавателю будет помогать в повседневной работе, когда сложное надо объяснить просто и доступно, что и позволяют сделать иллюстрации атласа.
+ Высокое качество и наглядность иллюстраций, а также многолетний опыт использования этого атласа студентами, преподавателями и практикующими врачами за рубежом стали предпосылками перевода на русский язык издания «Атласа анатомии человека».Жанр: Медицина, анатомияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BB2A6215468BAF6C459A2E82E60CD7224E2F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097764   (912362) от 28.01.2017
+
+А. А. Богданов | Начальный курс политической экономии [Введение в политэкономию в вопросах и ответах] (1923) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начальный популярный курс марксистской политической экономии в вопросах и ответах. В более общем виде смотреть. Для принципиальных марксистов-ленинистов нечитавших "Капитала": Богданов здесь нигде не отступает от линии марксизма-ленинизма, он в одном пункте говорит о невозможности победы социализма в Англии или Германии из-за экономических причин на тот (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A4E3D2C7F3DCD221BBAA7CC4CB75695970016A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990173   (912317) от 25.02.2016
+
+А. Оджалан | Социализм и проблемы революции (1997) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга подготовлена на основе отдельных выступлений лидера Рабочей партии Курдистана (РПК) Абдуллы Оджалана по проблемам социализма и практической деятельности.
+
+Книга показывает подход РПК к социализму и методы его рассмотрения. Изучая взгляды на социализм различных сил и способы их претворения в жизнь, данный труд позволяет извлечь из прошлого конкретные уроки. (   Читать дальше...   )Жанр: История, политологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8F793CB3814E2A908EA1C5218C2D9F74C09876
 ```
 
 https://mybot314.ru/tekegram_catalog/

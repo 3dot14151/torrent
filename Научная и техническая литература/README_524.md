@@ -1,137 +1,3 @@
-###  Публикация: 1651291   (206991) от 06.08.2023
-
-М.Я. Выгодский | Справочник по элементарной математике (1954) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит все определения, правила, формулы и теоремы элементарной математики, а также математические таблицы. Предметный указатель и подробное содержание позволяет легко и быстро получать необходимую информацию.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E3A5A067A70C9C3EBEBE1CE24A8052CBB61476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579836   (206977) от 29.09.2022
-
-Д. Кентербери | Бушкрафт 101: Современное руководство по искусству выживания в дикой природе (2022) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты можешь быть бесконечно крут, но какой в этом толк, если при первом же походе в лес ты не знаешь, что делать?
- Ты готов к выживанию в дикой природе?
- Что ты знаешь о том, как остаться в живых при любых условиях?
- Главная проблема человечества в заблуждении. Самонадеянно веря: «Уж со мной-то точно ничего плохого не случится», — они попадают в чрезвычайные ситуации (   Читать дальше...   )Жанр: Самооборона. ВыживаниеПеревод: А. АмелинаЯзык: РусскийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1676CF0ABAEE2F37C76DF8CE8DDA3F1138122F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651714   (206916) от 07.08.2023
-
-Л.В. Городняя | Основы функционального программирования (2-е изд.) (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе изложены основы функционального программирования и методы его применения при решении сложных задач на стыке искусственного интеллекта и системного программирования. Студенты познакомятся с основами символьной обработки информации, слабо отраженными в отечественной литературе, а также с эффективными методами преобразования информации, реализация которых требует (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A031D5EB4753773DAF3C9BA63DFDD00B912D619F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651741   (206895) от 07.08.2023
-
-М.Я. Выгодский | Справочник по высшей математике  (1973) [PDF] [10-е издание]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга составляет продолжение Справочника по элементарной математике того же автора и включает весь материал, входящий в программу основного курса математики высших технических учебных заведений (механико-машиностроительных, строительных, авиационных, транспортных, электротехнических, энергетических и горнометаллургических).Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20913BFB77DD130D07339A824764E70F82AE25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651576   (206892) от 07.08.2023
-
-А.Х. Шень | Методы построения алгоритмов. Практикум (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практикум содержит задачи по программированию различной трудности. Большинство задач приводятся с решениями. Цель издания — научить основным методам построения корректных и быстрых алгоритмов.
-Практикум будет полезен учителям информатики, старшеклассникам, студентам младших курсов высших учебных заведений. Может быть использован на кружковых и факультативных занятиях (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF0520B82C28A930EFF4E201716346C72B65BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400896   (206874) от 08.08.2023
 
 Susan Southard | Nagasaki: Life After Nuclear War / Нагасаки: жизнь после атомной войны (2015) [EPUB] [EN]
@@ -140,7 +6,7 @@ Susan Southard | Nagasaki: Life After Nuclear War / Нагасаки: жизнь
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206874.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206867.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206842.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206794.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206776.jpg" />
 </div>
 
 
@@ -274,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206726.jpg" />
 </div>
 
 
@@ -300,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206718.jpg" />
 </div>
 
 
@@ -326,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206698.jpg" />
 </div>
 
 
@@ -352,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206697.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ Ken Xiao | Talk English - The Secret To Speak English Like A Native In 6 Months 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206691.jpg" />
 </div>
 
 
@@ -405,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206689.jpg" />
 </div>
 
 
@@ -431,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206679.jpg" />
 </div>
 
 
@@ -457,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206672.jpg" />
 </div>
 
 
@@ -483,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206606.jpg" />
 </div>
 
 
@@ -510,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206473.jpg" />
 </div>
 
 
@@ -537,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206447.jpg" />
 </div>
 
 
@@ -564,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206391.jpg" />
 </div>
 
 
@@ -590,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206383.jpg" />
 </div>
 
 
@@ -617,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206382.jpg" />
 </div>
 
 
@@ -643,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206360.jpg" />
 </div>
 
 
@@ -669,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206359.jpg" />
 </div>
 
 
@@ -683,6 +549,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C932F49512A4056C9CA8DFD9DE27C56E22D6D036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653073   (206357) от 14.08.2023
+
+Д. Гильберт, С. Кон-Фоссен | Наглядная геометрия (1981) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой одно из лучших и исторически одно из первых популярных произведений по математике, написанных крупными математиками. В книге содержится, действительно, очень наглядный, но достаточно строгий рассказ о геометрических науках и теориях, в частности о геометрической кристаллографии, о геометрической сущности кинематики и о топологии. Книга вполне (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F2634DF119D7D622E06497C09EA73A3CABBEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653060   (206348) от 14.08.2023
+
+А.А. Бельчусов | Разработка интерактивных сайтов с помощью Microsoft Visual Web Developer (2-е изд.) (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программных продуктов ориентированных на их создание имеется много: больше всего известны Microsoft SharePoint Designer (Microsoft Front Page) и Macromedia Dreamweaver. Однако сегодня все больше фирм и частных лиц хотят иметь не просто сайт, а разместить в сети некий сервис, который мог бы осуществлять интерактивное взаимодействие с посетителем сайта.Часто, этот (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30ED59550669B9ABAD2A41AD830CCA14A131ADD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653051   (206341) от 14.08.2023
+
+М.Р. Богданов | Перспективные языки веб-разработки (2-е изд.) (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс посвящен теоретическим и практическим вопросам использования новых технологий веб-разработки, известных как HTML5.
+Учащиеся, освоившие предлагаемый курс, смогут разрабатывать высококачественные мультимедиа-приложения, познакомятся с методами программирования трехмерной графики и создания зрелищных визуальных эффектов, научатся разрабатывать офф-лайн приложения, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B3B14DFE6C73C9C4CC936B5F119CDEAE2F8DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652940   (206332) от 13.08.2023
+
+С. Рейнак | Аполлонъ (1913) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всеобщая исторiя пластическихъ искусствъ. Лекции, читанныя въ высшей школѣ при Луврѣ. Свыше 650 рисунковъ.Жанр: ИскусствоведениеИздательство: Проблемы эстетикиФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0762E30629B6E889FA7E8488750F1A8A084060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615790   (206300) от 27.02.2023
+
+Р. Аски, Р. Рой, Дж. Эндрюс | Специальные функции (2013) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является учебником по теории специальных функций, отражающим существенный прогресс в этой области, достигнутый во второй половине XX в. Значительную часть изложенного материала нельзя найти в стандартных монографиях и справочниках. Основной предмет книги - одномерные гипергеометрические функции в широком смысле слова (в том числе функции Гаусса, Куммера, Бесселя, (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617577C55D6EAB04E2F284C8CF9E8059FC93F024
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1639338   (211591) от 13.06.2023
+
+Hellstorm - Into the Mouth of the Dead Reign (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Some Flowers In The Graveyard
+02 - Dead Walk
+03 - The Deepest Night
+04 - Corpsehunters(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976B1C46F46F762314027DFE431C11933EAD4EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639423   (211575) от 13.06.2023
 
 Imminent Reign - The Legend of Prometheus (2023) [MP3|320 Kbps] <Epic Heavy Metal>
@@ -6,7 +35,7 @@ Imminent Reign - The Legend of Prometheus (2023) [MP3|320 Kbps] <Epic Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211575.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Play - Rock Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211566.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Imminent Reign - The Legend of Prometheus (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211565.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dynasty - Step By Step (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211511.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211386.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Paul Gilber - The Dio Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211333.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Creeping Death - Boundless Domain (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211327.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Scar Symmetry - Сollection (2005 - 2023) 7 CD [FLAC|Lossless|image + .cue|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211322.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211308.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Whoopie Cat - Weight In Gold (2023) [MP3|320 Kbps] <Classic Rock, Hard Rock, Blu
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211306.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Church Of Misery - Born Under a Mad Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211301.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211291.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211288.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Miscellen - 4 Albums (2020-2023) [MP3|320 Kbps] <Heavy Alternative Rock, Psyched
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211159.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ CEN-ProjekT (Chris Engels) - 8 Albums (2019-2023) [MP3|320 Kbps] <Progressive Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211150.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ King Gizzard & The Lizard Wizard - PetroDragonic Apocalypse; or, Dawn of Eternal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211114.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Dio - Holy Diver (1983) 4 x CD, Reissue, Remastered, 2022, Rhino Records [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211094.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Rock Ladies (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210999.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Road Trip Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210984.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Carnal Ghoul - Back From The Vault (2022) [APE|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210966.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210961.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Last Times - Last Times (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal with P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210826.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Rainover - NOX (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Country, Vocal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210823.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Iggy Pop - Every Loser (2023) Scene [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210819.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [FLAC 2.0|4
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210813.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [FLAC 2.0|4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:919997E5C7355AE8D77F31933B025E5804C46C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436686   (210806) от 05.01.2023
-
-Mechina - 3 Albums (2021-2023) [MP3|320 Kbps] <Epic, Symphonic, Industrial, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Siege
-2022 - Venator
-2023 - CenotaphЖанр: Epic Symphonic Industrial Death MetalПродолжительность: 3 CD, 02:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0644E13B37ADDA43EF3243A6E63630D9B26C8B20
 ```
 
 https://mybot314.ru/tekegram_catalog/

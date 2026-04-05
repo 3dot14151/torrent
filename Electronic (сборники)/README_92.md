@@ -1,3 +1,61 @@
+###  Публикация: 1136494   (673130) от 23.05.2017
+
+VA - LUXEmusic - Dance Super Chart Vol.118 (2017) [MP3|320 Kbps] <Club House, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Lambert - Another Lonely Night (No Hopes & Misha Klein Remix) 4:55
+002. Adele - Hello (DJ Denis Rublev Remix) 4:25
+003. Artik & Asti, Kolya Dark x DJ Kolya Funk & DJ Eduardo Versace - Никому Не Отдам (Alex Cyber Mash Up) 4:57
+004. Anton Liss feat. Гейдар Багиров - Океаны (Radio Edit) 3:44(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 03:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8109D2FFDF1CD6F7576DDDA29C23094BFD233272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136514   (673129) от 23.05.2017
+
+VA - Syndrome Butterfly: Techno Party (2017) [MP3|320 Kbps] <Techno, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Depth Perception - Movement (Original Mix) (Original Mix) 6:53
+002. Tech Duo - Few Hearts But Techno 5:56
+003. Dual Me - Celestial (Original Mix) 7:13
+004. Mitekss - Synthetic (Original Mix) 7:12(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 12:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C803F323C043FA5139AD31983AED1BF98D25E584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136505   (673004) от 23.05.2017
 
 VA - Deep House Collection Vol.122 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -6,7 +64,7 @@ VA - Deep House Collection Vol.122 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673004.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Bаss Kіllеr (2017) [MP3|320 Kbps] <Trap , Dubstep , Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672870.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beatport Techno: Sound Pack #503 (2022) [MP3|320 Kbps] <Techno, Electro, Mi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672786.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Beatport Synth Electronic: Sound Pack #502 (2022) [MP3|320 Kbps] <Synthwave
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672668.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Beatport Psychedelic Trance: Sound Pack #504 (2022) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672665.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Chartboxx 4 (2016) [MP3|256 Kbps] <R&B, Latin, Dance-Pop, Tropical>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672413.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Soft Clouds Over Paradise (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672411.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sunset Breeze: Chill and Lounge Collection Vol.13 (2016) [MP3|320 Kbps] <Do
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672410.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Desert Dream Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672404.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Country Fever (2016) [MP3|320 Kbps] <Blues, Folk, Gospel, Soft Rock>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672403.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Cafe del Mar: Best of the Best (2019) [MP3|320 Kbps] <Lounge, Future-Jazz, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672210.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Running Hits & EDM (Non-Stop for Fitness & Workout) (2016) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672173.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Red Rythm Evolution (2018) [MP3|320 Kbps] <Eurodance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671639.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Synthetic  vol.6 (2017) [MP3|320 Kbps] <Synth Pop, EBM, Dark Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671135.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Atomic Pulse: Psy Trance Euphoria (2022) [MP3|320 Kbps] <Psychedelic Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670965.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Stardust 01: Vocal House Mixed (2022) [MP3|320 Kbps] <Vocal House, Dance, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670872.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Stardust 02: Vocal Trance Mixed (2022) [MP3|320 Kbps] <Vocal Trance, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670865.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Deluxe Clubbing House (2022) [MP3|320 Kbps] <Tech House, Dance, Club, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670740.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dubstep Top 2012 (February) (2012) [MP3|256 kbps] <Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670554.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Сегодня на радио хиты FM Vol.5 (2019) [MP3|256 Kbps] <Pop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670493.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Loungers 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670478.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Chill out Summer Sounds (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670471.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ DJ AFFecta - Dream About You (2016) [MP3|320 Kbps] <Deep House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670252.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ VA - Kamasutra Erotic and Sexy Compilation 2016: Love Making Music (2016) [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670239.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ VA - Kamasutra Erotic and Sexy Compilation 2016: Love Making Music (2016) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:696DBA56948BC748580A0CF2E21C23F7EDD976EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030810   (670238) от 02.07.2016
-
-DJ AFFecta - МиксоПляс выпуск №1 (2016) [MP3|320 Kbps] <Dance Pop, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) Tiлsto & Don Diablo ft. Thomas Troelsen - Chemicals (Original Mix) Musical Freedom
-2) Madcon Feat. Ray Dalton-Don't Worry (Mikis Remix)
-3) Imany-Don't Be So Shy (Freaky DJs & DJ Andrew Butler Remix)
-4) Icona Pop-Emergency (Hot Loud & Lis Remix)(   Читать дальше...   )Жанр: Dance Pop, HouseПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B716F865450C846DB5A04C15C5857CE6D31FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291492   (670030) от 24.03.2019
-
-DJ Mixx - Everybody Dance (Free Ends Guest Mix) (2014) unmixed [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Paige - Crush (David Morales Club Mix) (1998)
-02. Mya - Movin' On (Ralphi's Vox Club) (1998)
-03. Deep Dish Pres. Prana - The Dream (Sharam's Deep Dish Dreamscape) (1994)
-04. Fire Island Feat. Mark Anthoni - If You Should Need A Friend (Fire Island Club Mix) (1995)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB55291BCC39E891D16CAFC7005BAF4C0D0D8F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

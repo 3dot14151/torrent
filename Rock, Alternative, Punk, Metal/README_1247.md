@@ -1,3 +1,32 @@
+###  Публикация: 1739188   (48776) от 26.07.2024
+
+Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imperium (Live at the Forum / 2023) (1:41)
+02. Kaisarion (Live at the Forum / 2023) (4:58)
+03. Rats (Live at the Forum / 2023) (4:28)
+04. Faith (Live at the Forum / 2023) (5:10)(   Читать дальше...   )Жанр: MetalПродолжительность: 01:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43A91DE32B0C47E4A33EC5AB01C43497E11E47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739758   (48500) от 29.07.2024
 
 Bon Jovi - Forever (2024) [FLAC|Lossless|tracks + .cue] <Rock>
@@ -6,7 +35,7 @@ Bon Jovi - Forever (2024) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48500.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ironflame - Kingdom Torn Asunder (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48481.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Yesterday's Top Hits: Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48383.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Seven Steps To The Green Door - The?Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47650.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Seven Steps To The Green Door - The ? Truth (2024) [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47649.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (202
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47439.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Rhapsody Of Fire - Challenge The Wind (2024) Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47436.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ HammerFall - Avenge The Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47431.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47426.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Mantle - Violent Cosmic Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47336.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Kaisas - Ieria (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47334.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ A Rising Force - Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47331.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Avi Rosenfeld - Black Rock Mountain (2023) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47329.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ HammerFall - Avenge The Fallen (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47318.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47113.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Bill Wyman - Drive My Car (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47025.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Rewind - I'm In Rewind (2024) Compilation [MP3|320 Kbps] <Hard 'n' Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47022.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Black Jack - Black Jack (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47019.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Mark Knopfler - Unplugged (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46933.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46887.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Phantom Vision - 3 Albums (2005-2019) [MP3|320 Kbps] <gothic rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46813.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Jane Getter Premonition - Division World (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46499.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Mojo Thunder - The Infinite Hope (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46498.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Act Of Creation - Moments To Remain (2024) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46290.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Fast Train Union - Analog Outliers (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46289.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Fast Train Union - Analog Outliers (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA5F0F75086AC4FCBCFB048A6F7ECB0C0D1CE056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744011   (46285) от 19.08.2024
-
-Diamantide - Diamantide (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness [00:06:20]
-02. Poor Kings [00:04:50]
-03. Faces [00:08:12]
-04. Fear [00:06:51](   Читать дальше...   )Жанр: Progressive Metal, Melodic MetalПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2A4AA182726C1015AA4F1F0167947B9BD4565D
 ```
 
 https://mybot314.ru/tekegram_catalog/

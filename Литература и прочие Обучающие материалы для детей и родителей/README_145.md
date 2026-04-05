@@ -1,3 +1,29 @@
+###  Публикация: 1016399   (770352) от 14.05.2016
+
+Мери Мейп Додж | Ханс Бринкер, или Серебряные коньки (1960) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая повесть американской писательницы о жизни голландских школьников, о том, как трудолюбие, упорство, целеустремленность брата и сестры Ханса и Гретель помогли им преодолеть все испытания и стать творцами своего счастья.Жанр: Детская прозаПеревод: Мелитина Клягина-КондратьеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCC68500448C326D06D2BF7AA95AC04A216BAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016417   (770349) от 14.05.2016
 
 Александр Белогоров | Большая книга ужасов - 18 [сборник] (2009) [FB2]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770349.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770321.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770295.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770293.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770282.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770057.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769742.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769697.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769640.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769638.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769621.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769545.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769524.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769522.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769492.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769252.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769062.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768995.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768992.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768990.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768988.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768986.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768982.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768981.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768980.jpg" />
 </div>
 
 
@@ -663,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE0D55529FE66B70F1241FF5CE7550A813D14F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393020   (768979) от 28.06.2020
-
-Майкл Бакли | Сестры Гримм. Необычные подозреваемые (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городок Феррипорт-Лэндинг населяют как люди, так и сказочные персонажи, и потому Сабрина и Дафна Гримм готовы ко всему. Но что-то совершенно странное начинает происходить в их школе – школьники сидят на уроках полусонные, ссоры вспыхивают с полуслова, а на физкультуре разрешены только вышибалы. Когда же на одного из учителей нападает гигантский паук, Сабрина и Дафна (   Читать дальше...   )Жанр: Фэнтези, Приключения для детейПеревод: Галина ЕгороваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868826E88FA91DB5ADA6C5AA481798962CB326F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

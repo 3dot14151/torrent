@@ -1,135 +1,3 @@
-###  Публикация: 1430372   (170742) от 10.12.2020
-
-В.В. Щербаков и  др. | Общая химия. Сборник задач (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170742.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены задачи по основным разделам теоретических основ химии — строению вещества, энергетике химических процессов, растворам, реакциям окисления-восстановления и комплексным соединениям. В каждом разделе приводится краткое теоретическое введение, рассматриваются примеры решения задач и даются задачи для самостоятельного решения.
-Для студентов образовательных (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB80B0EE8F627E9EB770AF64CB2BBED6CA8BF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430575   (170638) от 10.12.2020
-
-Брайан Свитек | Кости: скрытая жизнь. Все о строительном материале нашего скелета, который расскажет, кто мы и как живем (2019) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кость – это чудо. Это крепкий и способный к адаптации строительный материал, существующий более 500 миллионов лет эволюции. Возможно, ни одна другая составляющая человеческого тела не имеет такого научного и культурного значения. Кость наполнена жизнью, и одновременно она является общеизвестным символом смерти. Брайан Свитек рассказывает о костях с особым шармом (   Читать дальше...   )Жанр: Научно-популярная литература, Анатомия и физиологияПеревод: Иван ЧорныйФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2520AD595760777839AC16C1EFD7536CF509E57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430399   (170569) от 10.12.2020
-
-В.Н. Шунков | Ракетное оружие (2003) [DJVU, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, иллюстрированная фотографиями и схемами, содержит сведения о ракетном оружии, использовавшемся во 2-й мировой войне, а также о современном ракетном оружии сухопутных войск различных стран мира.
-Для широкого круга читателей, интересующихся развитием военной техники.Жанр: военная техника, энциклопедияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDACF945A64554AB18C37AC7B5991C6ED110AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430574   (170553) от 10.12.2020
-
-Алексей Козлов | Посмертные приключения. Что может случиться с вашим телом после смерти? (2020) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что есть жизнь после смерти? Хоть мы и живем в XXI веке, в эпоху высоких технологий, ответа на этот вопрос у нас до сих пор нет. Возможно, те различные изменения, которые претерпевают тела мертвых, причем не только запрограммированные природой, но и заданные самим человеком, это и есть та самая жизнь. Оказывается, она может быть вполне себе увлекательной. Человеческие (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицинеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA02F34F54C40083928C94609A8997937DBA3B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430632   (170549) от 10.12.2020
-
-Джеймс Глик | Хаос. Создание новой науки (2021) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170549.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хаос. Создание новой науки» – мировой бестселлер американского журналиста Джеймса Глика, переведенный более чем на два десятка языков, в котором он рассказывает историю возникновения науки о хаосе. Начав со случайного открытия метеоролога Эдварда Лоренца, пытавшегося создать модель долгосрочного прогноза погоды, Глик последовательно реконструирует всю цепочку внезапных (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Екатерина Барашкова, Михаил НахмансонФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C595C579CDAADA284F02798E8DC866384A435B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430577   (170499) от 10.12.2020
 
 Сью Армстронг | Зачем мы стареем. Наука о долголетии: как продлить молодость (2020) [EPUB]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170499.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170488.jpg" />
 </div>
 
 
@@ -192,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170454.jpg" />
 </div>
 
 
@@ -218,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170409.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170388.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170366.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170365.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170248.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170160.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170145.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170063.jpg" />
 </div>
 
 
@@ -431,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169777.jpg" />
 </div>
 
 
@@ -459,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169710.jpg" />
 </div>
 
 
@@ -485,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169705.jpg" />
 </div>
 
 
@@ -511,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169604.jpg" />
 </div>
 
 
@@ -538,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169589.jpg" />
 </div>
 
 
@@ -564,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169567.jpg" />
 </div>
 
 
@@ -590,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169547.jpg" />
 </div>
 
 
@@ -617,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169543.jpg" />
 </div>
 
 
@@ -643,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169407.jpg" />
 </div>
 
 
@@ -670,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169070.jpg" />
 </div>
 
 
@@ -683,6 +551,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7A233066006B3B846E40F3E0D03D8403E90B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672515   (169022) от 28.10.2023
+
+И.И. Ляшко и др. | Графики функций. Справочник (1979) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит основные сведения о функциях и методах построения графиков функций, в частности сведения о построении графиков функций элементарными способами и с помощью производной. Впервые в литературе систематизированы сведения о построении графиков не только в декартовой, но ив полярной системе координат, рассматриваются основные принципы теории геометрического (   Читать дальше...   )Жанр: МатематикаИздательство: Наукова думкаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C7AB1BFC5828A0871DAB810176E1FAE5C7E13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596573   (169013) от 11.12.2022
+
+В.И. Верескун, А.С. Сафонов | Электротехника и электрооборудование судов (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169013.jpg" />
+</div>
+
+
+###  Подробнее
+
+В соответствии с программой рассмотрены основы теории электрических к магнитных цепей, электромагнитных устройств и электрических измерений. Приведены схемы судового электрооборудования - автоматизированных электростанций и электроприводов.
+Предназначена для студентов не электротехнических специальностей, а также инженерно-технических работников, занимающихся проектированием (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2A26FF87B46D5ADA815FEB59B25562AAB3D8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596556   (169005) от 11.12.2022
+
+Г.Б.Редько | Учебное телевидение на уроках физики (1986) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие посвящено различным аспектам теории и практики применения учебного телевидения на уроках физики в средней школе.
+На основе результатов многолетних исследований и практического опыта автор приводит разработки уроков с учетом использования телеинформации и дает методические рекомендации по использованию учебных телепередач для повышения качества обучения физике (   Читать дальше...   )Жанр: физика, пособие для учителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D82539A576D004E8C4F11CE05C3EF148A4337FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344908   (168883) от 12.12.2019
+
+Александр Архангельский | Путеводитель по классике. Продленка для взрослых (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как жаль, что русскую классику мы проходим слишком рано, в школе. Когда еще нет собственного жизненного опыта и трудно понять психологию героев, их счастье и горе. А повзрослев, редко возвращаемся к школьной программе. «Герои классики: продлёнка для взрослых» – это дополнительные курсы для тех, кто пропустил возможность настоящей встречи с миром русской литературы. (   Читать дальше...   )Жанр: Философские науки, ЛитературоведениеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C3BB502FBA6BB77AF61111CCE64ABB7988A302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596651   (168818) от 11.12.2022
+
+Е.А.Безденежных, И.С.Брикман | Физика в живой природе и медицине (1976) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168818.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге в соответствии с программой по физике средней общеобразовательной школы рассматриваются физические явления, встречающиеся в биологии, биологические явления, объясняемые физическими законами, использование законов физики в медицинской науке и в практике здравоохранения. Книга написана для учащихся старших классов средних общеобразовательных школ, но будет (   Читать дальше...   )Жанр: физика, биология, медицина, научно-популярноеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBA647462ADD879C4C189A89E413E0A9208A3AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

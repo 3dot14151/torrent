@@ -1,31 +1,3 @@
-###  Публикация: 1593310   (180614) от 26.11.2022
-
-ProductStar, Денис Соболев и др. | Курс "Аналитик данных" (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните свою карьеру в анализе данных на курсе "Аналитик данных". Освойте все необходимые для аналитика навыки: от Google-таблиц до Python, SQL и Power BI.
-Сейчас на рынке более 5400+ вакансий Аналитиков от ведущих компаний (с которыми мы сотрудничаем) — Яндекс, Skyeng, Nimax, Ingate, RedKeds, Selectel, Avito и другие.
-Мы поможем вам получить необходимые (   Читать дальше...   )Производство: ProductStarЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 85:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C12A1DD4E86D4F2FB36DEEB330C0E8DD8DC508C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428154   (180557) от 01.12.2020
 
 Udemy, Mike X Cohen | Master Math by Coding in Python (2020) WEB-DL [En / En Sub]
@@ -34,7 +6,7 @@ Udemy, Mike X Cohen | Master Math by Coding in Python (2020) WEB-DL [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180557.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ infostart, Александр Кунташов | Системы контроля
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180519.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180297.jpg" />
 </div>
 
 
@@ -117,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180269.jpg" />
 </div>
 
 
@@ -143,7 +115,7 @@ Slurm (Слёрм), Николай Колядко | Чистая архитек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180110.jpg" />
 </div>
 
 
@@ -172,7 +144,7 @@ Slurm (Слёрм), Владислав Килин, Кирилл Борисов |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180089.jpg" />
 </div>
 
 
@@ -201,7 +173,7 @@ Udemy, YouRa Allakhverdov | Android разработка - с нуля до пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180082.jpg" />
 </div>
 
 
@@ -230,7 +202,7 @@ Infostart | INFOSTART EVENT (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179005.jpg" />
 </div>
 
 
@@ -258,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178756.jpg" />
 </div>
 
 
@@ -285,7 +257,7 @@ Softwaretesting, Арсений Батыров | Chrome DevTools: Инструм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178728.jpg" />
 </div>
 
 
@@ -312,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178639.jpg" />
 </div>
 
 
@@ -338,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178613.jpg" />
 </div>
 
 
@@ -364,7 +336,7 @@ Udemy, BHM Engineering Academy, Israel Gbati | ARM GNU Assembly Programming From
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177950.jpg" />
 </div>
 
 
@@ -392,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177881.jpg" />
 </div>
 
 
@@ -421,7 +393,7 @@ GeekBrains, Александра Чижова и др. | Анализ данны
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177825.jpg" />
 </div>
 
 
@@ -450,7 +422,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177521.jpg" />
 </div>
 
 
@@ -476,7 +448,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177509.jpg" />
 </div>
 
 
@@ -502,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177214.jpg" />
 </div>
 
 
@@ -530,7 +502,7 @@ Changellenge, Семен Бохер и др. | Excel для карьеры и п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177151.jpg" />
 </div>
 
 
@@ -559,7 +531,7 @@ Skillbox, Артём Володкин, Андрей Неляпин, Михаил
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177126.jpg" />
 </div>
 
 
@@ -588,7 +560,7 @@ Udemy, Илья Фофанов | Алгоритмы и структуры дан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177046.jpg" />
 </div>
 
 
@@ -614,7 +586,7 @@ Softwaretesting | Подборка курсов по тестированию (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176970.jpg" />
 </div>
 
 
@@ -643,7 +615,7 @@ HolyJS 2020 Moscow | Конференция для JavaScript-разработч
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176449.jpg" />
 </div>
 
 
@@ -670,7 +642,7 @@ Slurm (Слёрм), Пётр Щербаков | Микросервисы: про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176379.jpg" />
 </div>
 
 
@@ -696,7 +668,7 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176368.jpg" />
 </div>
 
 
@@ -707,6 +679,33 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D29B993691D4BC63DA32D8A0A450CAFD4EDBCEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667633   (176360) от 08.10.2023
+
+Rebrain, Алексей Рябов | HashiCorp Vault (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176360.jpg" />
+</div>
+
+
+###  Подробнее
+
+HashiCorp Vaultэто инструмент с открытым исходным кодом, который обеспечивает безопасный и надежный способ хранения и распространения секретов, таких как ключи API, токены доступа и пароли. Программное обеспечение, такое как Vault, может быть критически важным при развертывании приложений, требующих использования секретов или конфиденциальных данных.
+✅10 живых (   Читать дальше...   )Производство: RebrainЖанр: ПрактикумЯзык озвучки: РусскийПродолжительность: 15:28:40Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A59DFB139E10E1849B7EC8E81386DF3ABA91A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

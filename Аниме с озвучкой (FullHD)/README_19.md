@@ -1,3 +1,109 @@
+###  Публикация: 1312988   (319990) от 17.10.2019
+
+Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорда Эль-Меллоя II [2019, TV + Special] [13+1 из 13+1] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319990.jpg" />
+</div>
+
+
+###  Подробнее
+
+С незапамятных времён бок о бок с людьми втайне существует Ассоциация магов — общество чародеев, постигающих загадки мира за спинами у несведущей публики. Однако даже этим магам не чуждо ничто человеческое, и среди них также нередки зависть, распри и политическая борьба за власть. Подобные преступления нередко выпадает расследовать Вейверу Вельвету, ныне более известному (   Читать дальше...   )Производство: Япония, TROYCAЖанр: Мистика, Сверхъестественное, Фэнтези, ПриключенияРежиссер: Като МакотоЯзык озвучки: Японская и русская
+1) дубляж от ТО "Студийная Банда"Субтитры: надписи, неотключаемыеПродолжительность: 14 эп. по ~24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC440184C06988C454223CEBBBDD87FCD80603F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259698   (315767) от 05.11.2018
+
+Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 ep] WEB-DL 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцатилетняя девочка по имени Рэйчел просыпается в подвале здания, не помня, как она попала туда и не зная причин, по которым оказалась в таком затруднительном положении.
+Блуждая по зданию в поисках выхода, девочка встречается с Заком — серийным убийцей с бандажом на лице и косой в руках. Отрешённая и лишённая любых стремлений к жизни, Рэйчел просит нового знакомого (   Читать дальше...   )Жанр: триллер, ужасыРежиссер: Судзуки КэнтароЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 16 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECC230B8CA2A511563316BDA748D5991991A8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261245   (304417) от 10.11.2018
+
+Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная плеяда [2018, TV, 12 ep] WEB-DL 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внутри популярной MMORPG Union некогда существовала группа под названием «Субару», состоявшая из знакомых друг с другом в реальной жизни учеников младших классов и считавшаяся легендарной из-за непревзойдённых способностей в использовании системы «Чувств» — основы игровой механики. Но однажды один из игроков умер, находясь внутри игры, что привело к отключению серверов (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Нисёдзи ЁсихитоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A52C50218586AC7B68EFC4A155C66B4265ECB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333917   (298239) от 27.10.2019
+
+Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специальные эпизоды [1994, OVA, 2 из 2] BDRip 1080p raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новость о необычном животном, обнаруженном в лесу Рюгэнзава, всколыхнула далёкие детские воспоминания Аканэ об отдыхе вместе с семьёй в тех краях. Заблудившись в лесу, она наткнулась на то самое существо, но была спасена таинственным мальчиком. До сих пор считавшая эту встречу лишь обычным сном, Аканэ в одиночку отправляется в Рюгэнзаву на поиски мальчика, чтобы (   Читать дальше...   )Производство: Studio DEEN / スタジオディーンЖанр: приключения, комедияРежиссер: Нисимура ДзюндзиСубтитры: русские (полные)Продолжительность: 2 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC2DC774D380A34984470B82A291CF4BFE56C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333903   (298237) от 27.10.2019
 
 Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: One Flew Over the Kuno's Nest | Ранма 1/2: Команда Ранмы против Легендарного феникса [1994, Movie] BDRip 1080p raw+rus
@@ -6,7 +112,7 @@ Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298237.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298235.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298233.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298231.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Ranma 1/2 | Ranma Nibun no Ichi | Ранма 1/2 [1989, TV, 161 из 161] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298229.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт девочек-волшебни
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290697.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286904.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ Bounen no Xamdou | Xam'd: Lost Memories | КсамД: Позабывший не�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280478.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Gyakusatsu Kikan | Орган геноцида | Genocidal Organ [2017, Movie + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266518.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262766.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [TV-1] [2017, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262645.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257549.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256544.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255491.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255462.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250244.jpg" />
 </div>
 
 
@@ -434,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250129.jpg" />
 </div>
 
 
@@ -460,7 +566,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247535.jpg" />
 </div>
 
 
@@ -486,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247493.jpg" />
 </div>
 
 
@@ -513,7 +619,7 @@ Kuma Kuma Kuma Bear Punch! | Ми-ми-ми-мишка [TV-2] [2023, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247475.jpg" />
 </div>
 
 
@@ -540,7 +646,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World With My Smartphone 2 | В 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247436.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247434.jpg" />
 </div>
 
 
@@ -578,113 +684,6 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A168F22CF0219CCDA0C38AD8448B21593A0BD00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624543   (247411) от 23.06.2023
-
-В лоферах вприпрыжку | Долой безделье! | Skip to Loafer | Skip and Loafer [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня сериала Мицуми Ивакура, закончив сельскую среднюю школу, покидает родные пенаты и поступает в престижную старшую школу в Токио, сдав вступительные лучше всех. Но если в учёбе она и правда хороша, то её социальные навыки оставляют желать лучшего. Да и жизнь в новой школе начинается неважно: сначала она опаздывает на вступительную церемонию, а потом (   Читать дальше...   )Производство: Япония / Студия P.A. WorksЖанр: Комедия, романтика, повседневностьРежиссер: Дэай КотомиЯзык озвучки: Русский многоголосый, закадровый; Японский
-- HectoR, Kroxxa, Renie, Stasia Rem (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A054B712976435A9F977F3035091F872388DCED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628461   (247406) от 23.06.2023
-
-Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247406.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где монстры из ада периодически устраивают атаки на человеческий мир, обычный фермер Тока Скотт решает уберечь себя от напастей самым простым способом: наставить ловушки против демонов. Вот только попадает в них местный герой, должный это самое нашествие остановить. И почему-то все винят в этом Току. А ведь он не просил героя лезть в свой огород…Производство: Япония, студия Liden FilmsЖанр: приключения, комедия, фэнтези, эттиРежиссер: Кудзё РионЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F377F2664FCE8CB1D076A785B5B9E4A06F001E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624096   (247215) от 03.07.2023
-
-Читерский навык из другого мира | Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Level Up wa Jinsei o Kaeta [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Юи Тэнджо не заладилась с самого детства: в школе его травили сверстники, а семья считала обузой. Лишь дедушка, который говорил ему никогда не сдаваться и улыбаться несмотря ни на что, любил мальчика. Но вот дедуля покидает этот мир, и парень остаётся один на один с суровой реальностью. В наследство от дедушки Юе достаётся его старый дом, и родители решают (   Читать дальше...   )Производство: Япония / Студия Millepensee, lXlXlЖанр: Приключения, фэнтезиРежиссер: Итагаки СинЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Derenn, Hoopoe, NeoNoir, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CF6801D197CD72EEBAF4A74BAF18FDAB417C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625515   (247135) от 07.07.2023
-
-Мобильный воин Гандам: Ведьма с Меркурия [ТВ-2] | Kidou Senshi Gundam: Suisei no Majo (2023) | Mobile Suit Gundam: The Witch from Mercury (2023) [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космос будущего — тёмное, холодное и опасное место. Мегакорпорации плетут интриги в борьбе за власть и прибыль, а напряжение между землянами и жителями космоса уже выросло настолько, что угрожает перерасти в настоящую войну. Сулетта и Миоринэ со своими друзьями и новоявленной корпорацией Ганд-Арм невольно оказываются в водовороте из подковёрных интриг, предательств (   Читать дальше...   )Производство: Япония / Студия Sunrise, GraphinicaЖанр: приключения, фантастика, мехаРежиссер: Кобаяси ХиросиЯзык озвучки: Русский многоголосый закадровый, Японский
-- Frederica Izzard, Hekomi, Lobanow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DF602DB8920128F036ED43541CC927E85EAA16
 ```
 
 https://mybot314.ru/tekegram_catalog/

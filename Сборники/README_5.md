@@ -1,3 +1,81 @@
+###  Публикация: 1809114   (10056) от 28.07.2025
+
+Сборники - Design Syndrome - Holographix Gradient Pack [PSD, GRD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем набор градиентов Holographix — комплексный набор инструментов, призванный наполнить ваши творческие проекты завораживающим очарованием голографических градиентов. Этот набор идеально подходит для дизайнеров и художников, стремящихся добавить в свои работы футуристический, переливающийся штрих, сочетая абстрактные формы с яркими градиентными картами для (   Читать дальше...   )Формат: PSD, GRD, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB0CFF976C3797513550F3F6F5312880D0502C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809116   (10042) от 28.07.2025
+
+Сборники - Creative Market - Metamodernist Toolkit - Vol. 1 - 7162126 [AI ,EPS, FIG, PNG, SVG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metamodernist Toolkit — это набор из 100 элементов и 3 фонов, представляющих собой высококачественные объекты в стиле брутализма 2000 года, предлагающие абсолютное разнообразие форм и идей для вашего следующего проекта. Каждый элемент коллекции имеет функцию редактирования штрихов , а узоры в этом наборе бесшовные , поэтому вы также можете создавать прекрасные фоны. (   Читать дальше...   )Формат: AI ,EPS, FIG, PNG, SVG, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C99358C1B4C912511CFCF4CB672E3D807E94EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809655   (9724) от 31.07.2025
+
+Сборники - Creative Market - Cello - Plastic Texture Collection - 3688526 [PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cello от Studio Yorktown — это универсальная коллекция изображений высокого разрешения, тщательно сфотографированных и отредактированных, которые помогут вам реалистично имитировать в своих макетах пластиковую упаковку, термоусадочную пленку, пищевую пленку, целлофан, вакуумную упаковку, блистерную и пузырчатую пленку.Формат: PNG, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F105ED6C203388EA11FE5E2C9485FDF24E253759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810662   (9229) от 05.08.2025
 
 Сборники - UI8 - InkJar People Illustrations - Pack 1 [AI, FIG, PDF, PNG, PSD, SVG]
@@ -6,7 +84,7 @@
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9229.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8781.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5983.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4483.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4305.jpg" />
 </div>
 
 
@@ -143,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4132.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3894.jpg" />
 </div>
 
 
@@ -197,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2317.jpg" />
 </div>
 
 
@@ -223,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1452.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_970.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_769.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_529.jpg" />
 </div>
 
 

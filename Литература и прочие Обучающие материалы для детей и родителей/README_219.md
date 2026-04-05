@@ -1,3 +1,55 @@
+###  Публикация: 915392   (592286) от 05.07.2015
+
+В. Брунс, Ю. Селю | Корабли и лягушки (1938) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник по складыванию из бумаги встроен в сюжетную — и даже отчасти приключенческую рамку. Завязка, по нынешним временам, жутковатая: в праздничный день две маленькие девочки оказываются заперты в застрявшем лифте с неизвестным взрослым парнем, одетым и замаскированным клоуном. Ничего ужасного, однако, не происходит. Девочки несколько куксятся, да ещё и заняться (   Читать дальше...   )Жанр: Поделки из бумагиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B763F84BF3DB68DB0157ADCC2B10A57F103615D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915384   (592279) от 05.07.2015
+
+Е. и М. Быковские | Картонажная игрушка (1927) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картонажная игрушка - таким именем называются игрушки, сделанные из картона и различных сортов цветной бумаги. Это самая легкая из работ, доступных детям. Начертить, обдумавши, конечно, заранее то, что хочется сделать, вырезать из картона и оклеить той или иной цветной бумагой, — дело очень несложное и быстрое, не требующее ни дорогих материалов, ни инструментов, (   Читать дальше...   )Жанр: Поделки из бумаги, самоделкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3935ADDCF948E1EBB8B3ACB1947D352FB50AC533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915625   (592271) от 05.07.2015
 
 Мария Иванова | Мои первые 250 английских слов (2007) [DJVU]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592271.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592267.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592244.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592226.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592057.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591968.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591966.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591964.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591961.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591958.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591893.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591671.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591635.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591443.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591436.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591380.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591373.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591339.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591306.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590952.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590939.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590921.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590900.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590887.jpg" />
 </div>
 
 
@@ -621,60 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5975A807BBA50459C5739339798DB65CFBF501A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916513   (590882) от 08.07.2015
-
-Ф. Будников | Самодельный телескоп и микроскоп (1935) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590882.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказано об устройстве телескопа и микроскопа и различные этапы их изготовления в домашних условиях из подручных средств и материалов.Жанр: Сделай сам, самоделкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91C480FE36AFB8395030057B015C5CA087BAD96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916594   (590860) от 08.07.2015
-
-Александр Сергеевич Пушкин | Собрание сочинений в пяти томах (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Сергеевич Пушкин Собрание сочинений в пяти томах: (Стихотворения, Драматические произведения, Поэмы, романы, повести в стихах, Сказки в стихах, Повести, рассказы в прозе.
-Стихотворения: 802 стихотворения, отсортированные по названию.
-Драматические произведения: Борис Годунов, Каменный гость, Моцарт и Сальери, Пир во время чумы, Русалка, Скупой рыцарь, Сцены (   Читать дальше...   )Жанр: Классика, детская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1D2B777E33EB4B797FCD91625ADBBB86070646
 ```
 
 https://mybot314.ru/tekegram_catalog/

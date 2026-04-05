@@ -1,3 +1,55 @@
+###  Публикация: 1791435   (21427) от 14.04.2025
+
+Джуманджи / Jumanji (1998-1999) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-14 из 14) СТС [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе со своими любимыми героями Джуди, Питером и Аланом Пэрришом зритель вновь отправится в волшебный мир самой непредсказуемой игры, где его ждут новые удивительные приключения и неожиданные встречи.Производство: США / Adelaide Productions Inc., Columbia TriStar Children's Television, Columbia TriStar Television, Interscope, Interscope Communications, Teitler FilmЖанр: мультфильм, фэнтези, боевик, триллер, комедия, приключения, семейныйРежиссер: Боб Хэчкок, Энди Том, Дэвид ШварцАктеры: Билл Фагербакки, Деби Дерриберри, Эшли Джонсон, Мелани Чартофф, Шерман Ховард, Тим Карри, Дэнни Манн, Ричард Алан, Билли Уэст, Уильям СэндерсонПеревод: Дублированный (СТС)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8619D9C7E95F3C57BF7530E0C7672931DA890B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791432   (21412) от 14.04.2025
+
+Джуманджи / Jumanji (1996-1997) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-13 из 13) СТС [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе со своими любимыми героями Джуди, Питером и Аланом Пэрришом зритель вновь отправится в волшебный мир самой непредсказуемой игры, где его ждут новые удивительные приключения и неожиданные встречи.Производство: США / Adelaide Productions Inc., Columbia TriStar Children's Television, Columbia TriStar Television, Interscope, Interscope Communications, Teitler FilmЖанр: мультфильм, фэнтези, боевик, триллер, комедия, приключения, семейныйРежиссер: Боб Хэчкок, Энди Том, Дэвид ШварцАктеры: Билл Фагербакки, Деби Дерриберри, Эшли Джонсон, Мелани Чартофф, Шерман Ховард, Тим Карри, Дэнни Манн, Ричард Алан, Билли Уэст, Уильям СэндерсонПеревод: Дублированный (СТС)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DDB95E557B9F72847AE310004A83393504910A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792037   (21158) от 17.04.2025
 
 Я есть Грут / I Am Groot (2022-2023) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1-2, серии 1-10 из 10) Red Head Sound, Jaskier [hand made Upscale AI]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21158.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20228.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19957.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19736.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19732.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18488.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18265.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17929.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17813.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17684.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17683.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17588.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17587.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17577.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17541.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17486.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17464.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17389.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17383.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17315.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17305.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17257.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17249.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17095.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F5C238E61175A4D2F9BBCF54FB6BC4D18BB68C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797705   (16942) от 26.05.2025
-
-Любовь, смерть и роботы / Love, Death & Robots (2025) WEB-DL [H.264/1080p] (сезон 4, серии 1-10 из 10) Delta Dubbing
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Любовь, смерть и роботы - это отдельный вид искусства. Сериал представляет собой великолепную смесь историй, представленных в совершенно различных жанрах. Здесь вас ожидает столкновение с классическими элементами научной фантастики, необычным юмором, удивительным фэнтезийным миром и по-настоящему пробирающим до мурашек ужасом. Каждый из персонажей в проекте (   Читать дальше...   )Производство: США / Blur Studio, NetflixЖанр: мультфильм, фантастика, комедия, боевик, ужасы, триллер, фэнтези, криминал, для взрослыхРежиссер: Эмили Дин, Дэвид Финчер, Энди Лион, Патрик ОсборнАктеры: Антонио Альварес, Стефан Капичич, Хейли МакЛафлин, Хелен Сэдлер, Илэйн Тан, Алексия Докс, Нолан Норт, Мэттью Кинг, Джош Бренер, Генри Даутуэйт, Грэхэм Хэмилтон, Эмили О’Брайэн, Адам Бартли, Мэделин НайтПеревод: Многоголосый любительский (Delta Dubbing)Язык озвучки: русский, английскийСубтитры: русский, английскийПродолжительность: ~00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA8A4D7D49335CD7E94D7E141E9DCC5DB807C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799737   (16321) от 30.05.2025
-
-Утиные Истории / DuckTales / Duck Tales (1988-1989) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2 из 4, серии 10 из 10) Первый канал [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрудж Макдак и его племянники Билли, Вилли и Дилли попадают в захватывающие приключения, из которых всегда с честью выбираются.Производство: США, Тайвань, Япония / Walt Disney Television AnimationЖанр: мультфильм, комедия, детский, приключения, семейныйРежиссер: Боб Хэчкок, Джеймс Т. Уолкер, Алан ЗасловАктеры: Алан Янг, Расси Тейлор, Чак МакКанн, Теренс МакГоверн, Фрэнк Уэлкер, Хэл Смит, Джоан Гербер, Хэмилтон Кэмп, Джун Форэй, Питер КалленПеревод: Дублированный (Первый канал)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22676A82FEE0460A1EF12B3DE6B7635498F74173
 ```
 
 https://mybot314.ru/tekegram_catalog/

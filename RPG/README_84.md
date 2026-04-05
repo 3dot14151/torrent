@@ -1,3 +1,55 @@
+###  Публикация: 1754410   (5310) от 30.08.2025
+
+ELDEN RING (2022) [Ru/Multi] (1.16.1/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FBD093AAEFDE70BAED10DB773C583C2D41AF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683120   (5309) от 30.08.2025
+
+Legends of Amberland II: The Song of Trees (2023) [En] (1.24) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legends of Amberland 2: The Song of Trees - это увлекательная РПГ, напоминающая о классике конца прошлого века. Являясь продолжением высоко оцененной первой части, она предлагает захватывающий опыт, которым можно наслаждаться как самостоятельным приключением. Игра имеет перспективу от 1-го лица, движение по сетке и пошаговую систему сражений. Одним из основных преимуществ (   Читать дальше...   )Тип издания: LicenseРазработчик: Silver Lemur GamesЖанр: Ролевая игра, Пошаговая, Open WorldЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C658B4F235400317E7205EF48353DFF99315E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596614   (5307) от 30.08.2025
 
 Kynseed (2018) [En] (1.2.11.14505) License GOG
@@ -6,7 +58,7 @@ Kynseed (2018) [En] (1.2.11.14505) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5307.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Caves of Lore (2023) [En] (1.8.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5306.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Knights of the Chalice 2 (2022) [En] (1.91) License GOG [Archmage Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5304.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Legends of Amberland: The Forgotten Crown (2019) [Ru/Multi] (1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5284.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5257.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Soulstice (2022) [Ru/Multi] (1.1.0+219971/dlc) Repack Let'sРlay [Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5066.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5060.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Abyss Eschaton Survivors (2025) [Ru/Multi] (1.00.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5050.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5028.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4900.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11500) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4891.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4873.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Secrets of Grindea (2024) [En] (1.10h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4596.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4517.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.77/dlc) Repack Let'sРlay [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4508.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4234.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4233.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.0.0.1/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3985.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (1.8.8/dlc) Scene Tenoke [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3981.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.67) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3673.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3549.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3540.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Shattered Pixel Dungeon (2022) [Ru/Multi] (3.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3533.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Look Outside (2025) [Ru/En] (1.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3521.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Look Outside - это ролевая игра в жанре Survival Horror, д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71DC1B48EE8B3830D092AE73083B9767F10EB46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799345   (3420) от 11.09.2025
-
-Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3420.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом остросюжетном шутере на двустиковом управлении с элементами «рогалика» вам предстоит распутать целый клубок тайн. Вы - агент корпорации S2P. Разберитесь с кризисом в самом секретном отделе компании, основная обязанность которой - хранить секреты. Выбирайте снаряжение, накапливайте улучшения и отправляйтесь на подземную базу в одиночку или с двумя друзьями.Тип издания: RepackРазработчик: Ocean Drive Studio, Inc.Жанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62237DC2528701A4C39B97EB06CE52BADF047710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775670   (3415) от 11.09.2025
-
-Darkest Dungeon II (2023) [Ru/Multi] (2.03.79909 HF/dlc) Repack Let'sРlay [Resolute Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkest Dungeon II - это путешествие в жанре рогалик, в которое отправляются обречённые души. Создайте отряд героев, снарядите Дилижанс и идите спасать мир, освещая умирающие земли последней искрой надежды. Но помните, что главные угрозы приходят не извне. Соберите всю смелость в кулак и погрузитесь в хаос разрушающегося мира. Между тьмой и спасением — лишь четверо (   Читать дальше...   )Тип издания: RepackРазработчик: Red Hook StudiosЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A020E8F94D5F07FD5B71D2651ED740D8F576C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

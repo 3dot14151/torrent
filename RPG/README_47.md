@@ -1,3 +1,55 @@
+###  Публикация: 1698153   (118667) от 08.02.2024
+
+Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundle]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legendary Hoplite использует сеттинг, вдохновленной греческой мифологией. У проекта есть своя история, лор и секреты, которые открываются по мере получения достижений. По сюжету вернувшийся из Трои Одиссей недолго правил Итакой, потому что его убил собственный незаконнорожденный сын. После этого город-государство был взят в осаду легионами мертвых. Защищать полис (   Читать дальше...   )Тип издания: RepackРазработчик: TripleBricksGamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ВьетнамскийЯзык субтитров: Русский, Английский, Вьетнамский, Французский и другиеЯзык интерфейса: Русский, Английский, Вьетнамский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575E15430D0F8CB72847E841532962ED70C24A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698415   (118483) от 09.02.2024
+
+River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118483.jpg" />
+</div>
+
+
+###  Подробнее
+
+River Town Factory – а что вы скажете на то, чтобы открыть фабрику, заняться переработкой нефти или же построить настоящий большой компьютера? И все это в условиях древнего времени? Ведь после того как на Ривер-Таун случайно упал метеорит, у вас появилась собственная мастерская. И отсюда начнется вершится история… Во-первых, займитесь созданием различных автоматизированных (   Читать дальше...   )Тип издания: RepackРазработчик: iFAction StudioЖанр: Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0489AB7F4FA17BDB4FD2CADF99EB7E2FA1CC0CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696128   (118383) от 10.02.2024
 
 Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/dlc) Scene Tenoke
@@ -6,7 +58,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118383.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118381.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118377.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Ocean's Heart (2021) [Ru/Multi] (1.0.3(5)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118335.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Pixel Noir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118334.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Realms of Arkania: Blade of Destiny (Remake) (2013) [Multi] (1.36) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118195.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118040.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117896.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117482.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ GRAVEN (2021) [Ru/Multi] (16864) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117121.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116808.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116799.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Trinity Fusion (2023) [Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116621.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.3.1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116464.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ ELEX II (2022) [Ru/Multi] (1.05c) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116460.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116107.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116095.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Akumi Wars (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116077.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Scene SKID
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116043.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115284.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (13566803/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115142.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Secrets of Grindea (2024) [En] (13601958) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114900.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114783.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled (2004) [Ru/Multi] (2.2.b) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114758.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Bard's Tale ARPG: Remastered and Resnarkled - фэнтезийное хак-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4001A0B457780D5FACC62B659E374FCE5A4EB8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704384   (114454) от 04.03.2024
-
-Granblue Fantasy: Relink (2024) [Multi] (1.0.4/dlc) Repack FitGirl [Special Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Granblue Fantasy: Relink - приключение в просторах Небесного царства, где острова парят среди безбрежных лазурных просторов. В роли капитана небесного корабля вы отправитесь в путешествие, полное тайн, магии и товарищества. Вместе со своими верными спутниками, такими как энергичный дракон Вирн и загадочная Лирия, вы отправитесь на Эсталусию - мифический остров, окутанный (   Читать дальше...   )Тип издания: RepackРазработчик: Cygames, Inc.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Японский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BE6D6E48D9A42F721E1811394AAAE3C03F20E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704703   (114266) от 05.03.2024
-
-The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Multi] (4.04a_Launcher/dlc) Repack Decepticon [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте в самую совершенную и полную версию самой прославленной игры 2015 года, «Ведьмак 3: Дикая Охота» - издание «Игра года». Теперь - со всеми дополнениями и новыми материалами. Станьте профессиональным убийцей чудовищ и отправляйтесь в по-настоящему эпическое путешествие! Сразу после выхода в свет игра «Ведьмак 3: Дикая Охота» стала классикой жанра, она удостоилась (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCE6041222655554FC6A7A901BEF384FD9EB4CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

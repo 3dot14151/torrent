@@ -1,3 +1,32 @@
+###  Публикация: 1517057   (164484) от 13.12.2021
+
+Wolftooth - Blood & Iron (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahab (07:03)
+02. Hellespont (05:21)
+03. Blood & Iron (07:08)
+04. A King's Land (04:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BF6D25C7A56EBC0FDCDAA3C63E7FCCE620D411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346251   (164472) от 18.12.2019
 
 Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Classic Rock, Pop Rock, Soft Rock>
@@ -6,7 +35,7 @@ Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164472.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Empyrios - Zion (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164439.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Crimson Cry - Playing Gods (2020) [MP3|320 Kbps] <Progressive Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164438.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164434.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Bow - City Race (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164430.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rock Legends - Metal Christmas (2015) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164423.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164422.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Cats In Space - Diamonds - The Best Of Cats In Space (2021) Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164417.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Universal Mind Project - The Jaguar Priest (2016) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164414.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Mr R. - Ere Long (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164411.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Def Leppard - On Through The Night (1980) Remastered, 2018, [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164394.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Angel - A Woman's Diary - Chapter II (2020) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164391.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Mad Pilot - Нет любви (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164390.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Volbeat - Live In Deutschland (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164386.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ DragonForce - Re-Powered Within (2018) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164380.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Epica - Omega Alive (2021) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164375.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Sanguine Hum - А Тrасе Оf Меmоrу (2020) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164370.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164351.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Vega - Grit Your Teeth (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164348.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ BBoy Звезда - Удар по невежеству (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164347.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Clouds of Clarity - Superficial Society (2022) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164341.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Tol Galen - Swamp Castle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164326.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Soniq Circus - Chapter 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164325.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Iron Savior - Skycrest (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164316.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Witchcult - Witchcult (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Doom>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164314.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Witchcult - Witchcult (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Doom>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D08F61DBBA1EBFEF9BE54A8C15EA1E6B95E482D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598180   (164301) от 17.12.2022
-
-Mostly Autumn - Back in These Arms (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow Dies (Live) (07:04)
-02. Spirit of Mankind (Live) (04:49)
-03. Nowhere to Hide (Live) (04:19)
-04. Spirit of Autumn Past (Live) (05:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742253BE137580B482023F2E31251D98BC96D40E
 ```
 
 https://mybot314.ru/tekegram_catalog/

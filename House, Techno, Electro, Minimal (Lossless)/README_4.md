@@ -1,3 +1,32 @@
+###  Публикация: 1118236   (1025865) от 17.03.2021
+
+Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biomechanics (06:45)
+ 02. Pawasaris Uzh Lango (04:41)
+ 03. Earth's Core (06:42)
+ 04. Bounce 06 (12:16)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno, Minimal •Продолжительность: 21:38:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A2C08DB402A4C8FAE579E82D1C58576C655C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455236   (1025821) от 18.03.2021
 
 Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
@@ -6,7 +35,7 @@ Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025821.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025738.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Marsh - Lailonie (The Remixes: Part 1-2) (2021) [FLAC|Lossless|WEB-DL|tracks] <M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025310.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Espectrum II: The Avantroots Dub Techno Compilation (2021) AvantRoots [FLAC
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025288.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Jon Gaiser | Void | Fraktion  - Discography 20 Releases (2006-2017) M_nus [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025284.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Andy Stott - Discography 23 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024855.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ VA - A Call Too Close (2021) Brokntoys [FLAC|Lossless|WEB-DL|tracks] <Electro, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024612.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ VA - Schneeweiss 12 (Presented by Oliver Koletzki) - 2021 [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024436.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ Rone - Discography 40 Releases (2008-2021) Infiné [FLAC|Lossless|tracks+.cue, t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024313.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ Martin Nonstatic | EskoStatic - Discography 34 Releases (2011-2021) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024285.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023861.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Lycoriscoris - Chiyu (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023822.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Ellen Allien - Discography 72 Releases (2000-2021) BPitch Control [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023552.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023165.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ nthng | Trancemaster  - Discography 13 Releases (2014-2021) Lobster Theremin, M�
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023101.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Gradient - Discography Discography 17 Releases (2009-2021) U-Cover, Greyscale, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022411.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Faithless - All Blessed (2020) [FLAC|Lossless|image + .cue] <Dance, House, Tranc
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021951.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ Ferrein - Openclose (2012) Farver [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dow
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021450.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ VA - Monstercat Instinct Vol. 7 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021137.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Scooter - God Save The Rave (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardst
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020783.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Kymelle - Show  That Body Baby (1996) Maxi-Single [FLAC|Lossless|image + .cue] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020326.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Zzzzra - Сollection 23 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019279.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ Scooter - God Save The Rave (2021) [FLAC|Lossless|tracks + .cue] <Techno, Hardst
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019101.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Greg Nairo - Alma (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018292.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Disclosure - Settle (Special Edition) (2014) [FLAC|Lossless|WEB-DL]<House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015585.jpg" />
 </div>
 
 
@@ -711,35 +740,6 @@ Disclosure - Settle (Special Edition) (2014) [FLAC|Lossless|WEB-DL]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D84A0C9DC23769AB05814E6853CE8392C9C0D24C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470972   (1015476) от 18.05.2021
-
-Felix Raphael - Innersense (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Raphael; Stéphane Salerno; Seasoul - Foreword
-02. Felix Raphael - The Way
-03. Felix Raphael; Allies for Everyone - Safe
-04. Felix Raphael; Yannek Maunz - Won't Miss(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1D1C2BA5B5BF4A1A3FCD0F426AE01E6164F227
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1609124   (203196) от 02.02.2023
+
+Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш проект называется "Lust Academy" и не секрет, что мы были сильно вдохновлены книгами о Гарри Поттере и сериалом "Волшебники". Lust Academy - это сюжетно-ориентированная 3d визуальная новелла, где вы играете за молодого 18-летнего парня, который только что узнал, что он волшебник. В настоящее время у нас есть два режима игры: Песочница и Визуальная (   Читать дальше...   )Тип издания: LicenseРазработчик: Bear in the NightЖанр: Adventure, Role-playing, NarrativeЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D4BB27AA6F119E6146B0BEAA215BD5809EFC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610045   (203058) от 05.02.2023
+
+Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовьтесь: настало время Охоты! В Monster Hunter Rise - новой игре всемирно известного бестселлера Monster Hunter - вас ждет история, в которой вы станете охотником и отправитесь исследовать невиданные прежде карты и расправляться с кровожадными монстрами с помощью целого арсенала оружия. В версии для ПК, помимо всего прочего, особое внимание уделено оптимизации (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action-RPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856DFB342704FD4DA257EA2D362D5E40D976F8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611558   (202742) от 12.02.2023
 
 Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
@@ -6,7 +58,7 @@ Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202742.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202524.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202471.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202336.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Queen's Wish: The Conqueror (2019) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202250.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.01.53364) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202192.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202112.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201899.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201810.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201520.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200920.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Phantom Brigade (2023) [Ru/Multi] (10688478) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200760.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ SuccuSeka: Resist Succubus Temptation (2023) [Multi] (1.0a/dlc) License GOG [18+
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200613.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ DeathKeep (1995) [En] (3.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200541.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198990.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Cursed Mansion (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198757.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Saga of Sins (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198674.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Edelweiss (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198455.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Gone Rogue (2023) [Ru/Multi] (1.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197788.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Fuga: Melodies of Steel 2 (2023) [Multi] (1.02/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197479.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197385.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197372.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Legend of Radiance (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197342.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Bastard Bonds (2016) [En] (1.2.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197334.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Bastard Bonds - это тактическая ролевая игра с пер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADD1C47E1CB4ABD7DFAF3AE5F323FF0913739783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638479   (197258) от 09.06.2023
-
-Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197258.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой оригинальной ролевой игре о взрослении вы окунетесь в жизнь Нини - подростка, который только что прибыл на Землю, в причудливый японский городок Асихара. На дворе август 1983 года. Исследуйте городок, подружитесь с жителями и бейтесь с кегаями в пошаговых сражениях. Их исход зависит от отношений, которые вы построите, и решений, которые вы примете. У Нини (   Читать дальше...   )Тип издания: SceneРазработчик: Marvelous Inc.Жанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883BFB08D4D915AD37C7E2F3B74BCE259450D6B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640049   (196935) от 16.06.2023
-
-Mask of the Rose (2023) [En] (1.2.664) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mask of the Rose - это увлекательная визуальная новелла в жанре симулятора свиданий с необычным и многогранным игровым процессом. История берет начало в альтернативной версии викторианского Лондона, который по неизвестной причине ушел глубоко под Темзу, куда не пробиваются солнечные лучи. Королева Виктория ни разу не покидала свой дворец, поэтому страной правят загадочные (   Читать дальше...   )Тип издания: LicenseРазработчик: Failbetter GamesЖанр: Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59200F4FE0C287E614CC4CA7C56EB61F45D7B4A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

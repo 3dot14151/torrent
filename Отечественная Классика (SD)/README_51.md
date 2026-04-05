@@ -1,3 +1,55 @@
+###  Публикация: 660270   (189820) от 10.11.2022
+
+Планета бурь (1961) DVDRip [H.264]
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189820.jpg" />
+</div>
+
+
+###  Подробнее
+
+На планету Венера отправляется первая советская космическая экспедиция из трех кораблей. При подходе к Венере один из кораблей гибнет. Экипажи двух других кораблей, среди которых находятся иностранец и робот «железный Джон», благополучно совершают посадку. Две группы движутся по направлению друг к другу. При этом на орбите остается один корабль с космонавтом на борту. (   Читать дальше...   )Производство: СССР, Ленинградская киностудия научно-популярных фильмовРежиссер: Павел КлушанцевАктеры: Владимир Емельянов, Георгий Жжёнов, Геннадий Вернов, Юрий Саранцев, Георгий Тейх, Кюнна ИгнатоваПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8577F39E452E6291815F1CFFBEFB8B45555E51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585066   (184984) от 20.11.2022
+
+Жизнь сначала (1961) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закончилась Вторая мировая война. С победой в Москву приезжают фронтовые друзья: Антонина Ивановна, Федор и Алексей. Они селятся в огромной квартире Федора, которая опустела еще в первые годы войны, когда от него ушла жена. Алексей всю жизнь любил Антонину, но когда узнал, что она любит его друга Федора, незамедлительно уехал на родину, в Сибирь. Все было бы замечательно, (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драмаРежиссер: Лев РудникАктеры: Лидия Сухаревская, Иван Дмитриев, Станислав Чекан, Ольга Красина, Эльза Леждей, Леонид Чубаров, Нина Гребешкова, Евгения Мельникова, Константин Барташевич, Кирилл СтоляровСубтитры: отсутствуютПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44266D998678918000189AC74805B90BE938B606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585283   (184138) от 21.11.2022
 
 Прости (1986) DVDRemux
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184138.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182172.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181230.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181047.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180770.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180605.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179547.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179456.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178303.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177794.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177315.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177299.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176483.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176458.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176275.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176266.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176259.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176257.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175683.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174935.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173713.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171692.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170864.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170464.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4BCBD02CBE62CC3C6626419C3A7C03EAA425CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328195   (168322) от 12.12.2020
-
-Убийство на улице Данте (1956) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма (по сценарию Евгения Габриловича и Михаила Ромма) разворачивается в годы второй мировой войны на территории оккупированной Франции. В центре событий – судьба французской актрисы Мадлен Тибо, принявшей активное участие в движении Сопротивления. Она случайно узнает, что ее сын завербован фашистами. Все ее попытки пробудить в сыне патриотические чувства (   Читать дальше...   )Жанр: ДрамаРежиссер: Михаил РоммАктеры: Евгения Козырева, Михаил Козаков, Георгий Вицин, Валентин Гафт, Иннокентий Смоктуновский, Николай Комиссаров, Максим Штраух, Ростислав Плятт, Владимир Муравьев, Николай Горлов, Александр Пелевин, Олег ГолубицкийПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2D99EC57626E2E6822E25CE9F3379EAA4FAC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484717   (168162) от 12.12.2020
-
-Гараж (1979) DVDRip [Реставрация КП]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168162.jpg" />
-</div>
-
-
-###  Подробнее
-
-На заседании гаражного кооператива предстоит выбрать четырех «крайних», которые должны сами отказаться от будущего собственного гаража. Что чувствуешь, голосуя за список отверженных, в котором нет твоей фамилии? Неловкость и облегчение. А если фамилия есть? Смирись, ведь все уже согласовано. Но произошел бунт…Производство: СССР, МосфильмЖанр: Драма, комедияРежиссер: Эльдар РязановАктеры: Лия Ахеджакова, Ия Саввина, Светлана Немоляева, Валентин Гафт, Георгий Бурков, Вячеслав Невинный, Андрей Мягков, Леонид Марков, Игорь Костолевский, Ольга Остроумова, Анастасия Вознесенская, Глеб Стриженов, Наталья Гурзо, Борислав Брондуков, Семен Фарада, Алла Будницкая, Эльдар Рязанов, Людмила Цветкова, Вадим Захарченко, Михаил Кокшенов, Татьяна Рогозина, Анатолий (   Читать дальше...   )Перевод: Оригинальный (русский)Субтитры: ОтсутствуютПродолжительность: 01:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2405154A6989B38E3E6E7E1D46B59BDD70A3C5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

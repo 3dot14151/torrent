@@ -1,3 +1,81 @@
+###  Публикация: 1004166   (732307) от 29.05.2016
+
+1979 Revolution: Black Friday (2016) [Ru/En] (1.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732307.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1978 году в процветавшем и относительно демократичном в культурном плане Иране случилась так называемая Исламская революция, в результате которой шах Мохаммед Реза Пехлеви был свергнут, монархия упразднена, а к власти пришло мусульманское духовенство.Тип издания: LicenseРазработчик: iNK StoriesЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560B048909424F7E2E6BE8ACE22226FFD3627E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997895   (731271) от 30.05.2016
+
+Tiny Knight (2016) [En] (1.2) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tiny Knight - трехмерный платформер про сражения с монстрами и решение паззлов.Тип издания: LicenseРазработчик: ConvexЖанр: AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CDA7AE9048DC66172BB3FC0B585B8DD2FEC321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284106   (730509) от 19.02.2019
+
+Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – художник, путешествующий по острову Ист-Шейд. У вас с собой только мольберт, а перед вами - неописуемая красота природы. Вам предстоит знакомиться с местными жителями, заводить друзей и помогать тем, кто в этом нуждается. Преодолевайте естественные препятствия и находите всеми забытые уголки острова! Узнайте, как ваши действия могут повлиять на мир вокруг вас.Тип издания: RepackРазработчик: Eastshade StudiosЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478FD70090DD8500E2D2AED51E42F21751C49518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284256   (729704) от 20.02.2019
 
 Detective Gallo (2018) [Ru/Multi] (1.2) Repack R.G. Catalyst
@@ -6,7 +84,7 @@ Detective Gallo (2018) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729704.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ STEINS;GATE ELITE (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729578.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729575.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) R.G. Catalyst [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729235.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728014.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Don't Starve Together (2016) [En] (214437) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725742.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ What Remains of Edith Finch (2017) [Ru] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725740.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724903.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) License CPY [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724062.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ The Alien Cube (2021) [Ru/Multi] (Build 8187558) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723975.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ INFERNIUM (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722836.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722318.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Pacify (2019) [Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720518.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Devotion (2019) [Multi] (1.0.5) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720389.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Lust from Beyond (2022) [Ru/Multi] (01.02.2022) License GOG [M Edition] [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720145.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ What Remains of Edith Finch (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719976.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718981.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Returner 77 (2018) [Ru/Multi] (4102018) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718974.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ The Long Dark (2017) [Ru/Multi] (1.29) License RELOADED [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718966.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Nancy Drew: Midnight in Salem / Нэнси Дрю: Полночь в Сейле�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718534.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) Repack xatab [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718371.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ KAPIA (2022) [Ru/Multi] (1.266) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718176.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Scarf (2021) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718172.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Scarf - это приключенческая игра, сочетающая г�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A98EB4536C39D401C2FD12D95FD4456A97F8F088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999469   (717242) от 08.06.2016
-
-Day of the Tentacle Remastered (2016) [En/Multi] (1.3.11) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Day of the Tentacle Remastered — одна из легенд золотого века приключенческих игр, подарившего нам Grim Fandango, Monkey Island, Sam & Max и Full Throttle. Явившись в мрачное будущее, наш 2016 год, прямиком из начала 90-х, она готова поразить своим великолепием тех, кто не застал той эпохи, и утешить тех, кто тоскует по ней.Тип издания: LicenseРазработчик: Double Fine ProductionsЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE529C09893590FBBC8C536C189BF0A7C2307A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219090   (716916) от 12.04.2018
-
-The Road to Hades (2018) [En] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716916.jpg" />
-</div>
-
-
-###  Подробнее
-
-TRTH (Дорога к хадесам) – приключенческая игра ужасов, наполненная азиатскими мифами и искусством. Ваша задача заключается в безопасном сопровождении мертвой девушки. Игра приглашает вас в мир, полный ужасающих существ и потрясающих сцен. Новая красота и ужас ждут вас сейчас.Тип издания: LicenseРазработчик: AUTOSAVEЖанр: Adventure (Horror), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFD4617FCD609C1B87E553354606E42BAF6CD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400516   (716584) от 06.08.2020
-
-Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716584.jpg" />
-</div>
-
-
-###  Подробнее
-
-На далёком таинственном острове на берег выбросило череп, и местное божество пробудило его. Череп получил имя Skully, и теперь он должен остановить войну между тремя родственниками божества, потому что она угрожает их родному острову.Тип издания: LicenseРазработчик: Finish Line GamesЖанр: Adventure, Casual, Platformer, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEDCF5E65706055C4776E169F84F8C34DE48D1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

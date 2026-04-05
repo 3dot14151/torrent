@@ -1,29 +1,3 @@
-###  Публикация: 947038   (422663) от 15.10.2015
-
-Советские мафии. Бизнес орденоносцев (2015.10.14) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Павленко дошёл до Берлина, был увенчан орденами и медалями и под носом у НКВД и СМЕРШа во время войны организовал преступный синдикат, ворочающий миллионами. Начальник сухопутных войск Иван Пересыпкин отгрохал дачу за 330 тысяч рублей. Почему при великом и ужасном Сталине в армии было много примеров шокирующей коррупции?Телекомпания: Россия, ОАО "ТВ Центр"Жанр: Документальный, ТелепередачаПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9085A7F400FA91DCF49293A7ABF414E671F48134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613165   (422599) от 27.09.2020
 
 Терра Аль-Каида (2013) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422599.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422565.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422054.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421626.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421382.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421297.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420718.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420075.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419663.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419245.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418253.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418168.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417981.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417843.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417813.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417653.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417282.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417054.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416853.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416266.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416265.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416126.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415841.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415750.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414763.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13909D19B4E34F140228365DDB68757E56EE9BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948370   (413842) от 19.10.2015
+
+Честный детектив. Последний нерест (19.10.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Честный детектив" в очередной раз отправилась на Сахалин в поисках браконьеров, чтобы своими глазами увидеть, как разворовывают биоресурсы нашей страны на Дальнем Востоке. Там сейчас вовсю идет нерест кеты. На острове своя жизнь, свои законы, целые браконьерские деревни и отлаженный десятилетиями нелегальный икорный бизнес. Столичных репортеров (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйРежиссер: Константин МантуровскийПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3388443E55E1702A25BB75FBFE75756AA8CDC3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

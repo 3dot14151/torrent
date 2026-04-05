@@ -1,3 +1,67 @@
+###  Публикация: 295059   (896546) от 13.02.2011
+
+VA - Record Super Chart № 177 (2011) [MP3|320 kbps]<House, Electro House, Trance, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_896546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex - Kill Everybody (Original Mix) (4:57)
+02. Swedish House Mafia and Tinie Tempah - 02. Swedish House Mafia feat. Tinie Tempah - Miami 2 Ibiza (2:49)
+03. Tiesto vs Diplo feat. Busta Rhymes - C'Mon (Catch 'Em By Surprise) (3:32)
+04. Armin Van Buuren Feat. Christian Burns - This Light Between Us (5:09)
+05. Black Eyed Peas - The Time (5:09)
+06. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix) (8:10)
+07. Deadmau5 & Wolfgang Gartner - Animal Rights (6:15)
+08. Matisse & Sadko - Hi Scandinavia! (2:11)
+09. Nadia Ali - Rapture (Avicii New Generation Extended Mix) (7:08)
+10. Pendulum - The Vulture (4:03)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 03:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6A0B34E2EA94F31E9A8810995B3700BD6A9C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101126   (896418) от 06.02.2017
+
+VA - The Beautiful World Of Ambient Vol.1 (2017) [MP3|320 Kbps] <Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Sakin & Loungeside - Shadow of Dreams (Electronica Mix)  7:50
+02.  Loungeside - Wildberries (Dreamland Edit)  8:37
+03.  Loungeside - Ambient World (World off Mix)  6:36
+04.  Loungeside - Tale of Us (The Martian Edit)  8:07(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 02:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B12738FEAF47DBB3F48EA880634074A0738642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101476   (896296) от 06.02.2017
 
 VA - Pure Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +70,7 @@ VA - Pure Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896296.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ VA - Chillout February 2017: Top 10 February Relaxing Chill Out and Lounge Music
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896292.jpg" />
 </div>
 
 
@@ -65,7 +129,7 @@ VA - Chillify The Best In Chillout & Lounge (2016) [MP3|320 кб/с] <Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895864.jpg" />
 </div>
 
 
@@ -94,7 +158,7 @@ Paul van Dyk - Live @ Main Stage, Exit Festival, Serbia (2021-07-10) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895618.jpg" />
 </div>
 
 
@@ -123,7 +187,7 @@ Little Jam - Alone in the Desert (1997) [FLAC|Lossless|tracks + .cue] <Electroni
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895457.jpg" />
 </div>
 
 
@@ -152,7 +216,7 @@ Headkube - Live in Turin (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895289.jpg" />
 </div>
 
 
@@ -181,7 +245,7 @@ Kadebostany - Pop Collection (2013) [FLAC|Lossless|WEB-DL|tracks] <Electronic, P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895270.jpg" />
 </div>
 
 
@@ -210,7 +274,7 @@ Giulio Aldinucci - Shards Of Distant Times (2020) Karlrecords [FLAC|Lossless|WEB
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895237.jpg" />
 </div>
 
 
@@ -239,7 +303,7 @@ Various Artists - Underground Sound Of Miami Series 2 (2013) [MP3|320 кб/с]<T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895235.jpg" />
 </div>
 
 
@@ -274,7 +338,7 @@ In'R'Voice - Infinite Sunset (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Pro
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895207.jpg" />
 </div>
 
 
@@ -303,7 +367,7 @@ Craig Connelly - Trance Classics Golden Years Mix (1997-2002) 2020-03-23 [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895201.jpg" />
 </div>
 
 
@@ -332,7 +396,7 @@ Dj Arthur Project - Лето Уйдёт (2006) [MP3|192 Kbps] <House, Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895190.jpg" />
 </div>
 
 
@@ -361,7 +425,7 @@ Steve O'Sullivan & Mike Schommer - Submerged (2020) Mosaic [FLAC 2.0|44.1/24|tra
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895143.jpg" />
 </div>
 
 
@@ -388,7 +452,7 @@ Secede - Discography 7 Releases (2003-2019) Merck, Sending Orbs [FLAC|Lossless|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895112.jpg" />
 </div>
 
 
@@ -417,7 +481,7 @@ VA - Cafe Del Mar Essentials (Vol. 2) (2020) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895088.jpg" />
 </div>
 
 
@@ -446,7 +510,7 @@ VA - Silencio Collection Vol.1 Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894844.jpg" />
 </div>
 
 
@@ -475,7 +539,7 @@ VA - Deep Red Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894842.jpg" />
 </div>
 
 
@@ -504,7 +568,7 @@ VA - Sensual Lounge Affair: Selected Lounge and Chillout Vibes for Love (2017) [
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894834.jpg" />
 </div>
 
 
@@ -533,7 +597,7 @@ VA - Last Night On Ibiza (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894816.jpg" />
 </div>
 
 
@@ -562,7 +626,7 @@ VA - Deephouse From Tomorrow (2017) [MP3|320 Kbps] <Deep House, Funky House, Sou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894804.jpg" />
 </div>
 
 
@@ -591,7 +655,7 @@ Fobee - Equilibrium (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894798.jpg" />
 </div>
 
 
@@ -620,7 +684,7 @@ VA - Look Back To See The Future (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894792.jpg" />
 </div>
 
 
@@ -649,7 +713,7 @@ VA - Apres Ski Vocal House (2017) [MP3|320 Kbps] <House, Tech House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894785.jpg" />
 </div>
 
 
@@ -678,7 +742,7 @@ GMO vs. Dense - Tales from the Yellow Kangaroo (2012) [FLAC|Lossless]<Downtempo,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894678.jpg" />
 </div>
 
 
@@ -697,64 +761,6 @@ GMO vs. Dense - Tales from the Yellow Kangaroo (2012) [FLAC|Lossless]<Downtempo,
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101442   (894612) от 07.02.2017
-
-Schaltkreis Wassermann - Psychotron (1982) Reissue, 2005, Hyperdisc [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychotron (7:16)
-02. Schwerkraft (3:13)
-03. Mutanten (Tanzen Rock'n'roll) (3:40)
-04. Spaced Out (2:32)(   Читать дальше...   )Жанр: Electro, Synth-pop, MinimalПродолжительность: 01:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D13450499AFA261CCB18D75042849A7BFF7BBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101526   (894430) от 07.02.2017
-
-VA - Urban Dance Vol.19 (2017) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Will Sparks, Tyron Hapi & Luciana - Gorilla
-02 W&W - Caribbean Rave
-03 Tujamo - BOOM!
-04 MAKJ & Timmy Trumpet Feat. Andrew W.K. - Party Till(   Читать дальше...   )Жанр: HouseПродолжительность: 03:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57FE358654B2543CF54A2DE3588D41D8467C300
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,183 +1,3 @@
-###  Публикация: 520689   (631134) от 09.07.2012
-
-Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631134.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cor De Ouro
-2. Balada
-3. Demais Da Conta
-4. Eu Vou Tentando Te Agarrar
-5. Arrasta
-6. Fora Do Comum
-7. Refém
-8. Tornado
-9. Calafrio
-10. Inventor Dos Amores(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D01583042BB518012D4A56E19381FD552052B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144122   (631059) от 20.06.2017
-
-Время и Стекло - Обратный отсчёт (2017) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На Стиле
-02. Навернопотомучто
-03. Песня 404
-04. Имя 505(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D7D54AACAC8A01141EE32091B3E049F3000B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035151   (630301) от 15.07.2016
-
-Bananarama - The Greatest Hits Collection (1999) [MP3|320 Kbps] <Europop, Euro House, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Venus  3:42
-02.  I Heard A Rumour  3:27
-03.  Love In The First Degree  3:31
-04.  I Can't Help It  3:31(   Читать дальше...   )Жанр: Europop, Euro House, Synth-popПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE075337903DE1252871C6837D986DEB52EEDE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035128   (630195) от 15.07.2016
-
-M People - Best Of (Unknown Year) Unofficial Release [APE|Lossless|image + .cue] <Progressive House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving On Up
-02. Angel St.
-03. Dreaming
-04. One Night In Heaven(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D054936C41571B8C2B92F2935EDBE25C9CE6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294366   (629993) от 07.04.2019
-
-Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Swing All Night Long With You
-02 - Stronger Than The Truth
-03 - Storm In A Shot Glass
-04 - Tammy Wynette Kind Of Pain(   Читать дальше...   )Жанр: CountryПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294373   (629976) от 07.04.2019
-
-VA - Let's Dance - Das Tanzalbum (2019) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629976.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Queen - I Want To Break Free (Foxtrott - Cha Cha)
-02. Rick James - Super Freak (Cha Cha)
-03. Santana Feat. Rob Thomas - Smooth (Radio Edit) (Cha Cha)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD340D008E915E0BE93E1D409DEC05AF91D6ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229209   (629968) от 04.06.2018
 
 The Hornettes - 2 Albums (1982, 1994) [MP3|320 Kbps] <Electronic, Europop, Disco, Schlager>
@@ -186,7 +6,7 @@ The Hornettes - 2 Albums (1982, 1994) [MP3|320 Kbps] <Electronic, Europop, Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629968.jpg" />
 </div>
 
 
@@ -215,7 +35,7 @@ Two Man Sound - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Lati
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629912.jpg" />
 </div>
 
 
@@ -244,7 +64,7 @@ VA - NRJ Urban Hits 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629911.jpg" />
 </div>
 
 
@@ -273,7 +93,7 @@ VA - Magic 90s (2018) 4CD [MP3|320 Kbps] <Pop, Rock, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629887.jpg" />
 </div>
 
 
@@ -302,7 +122,7 @@ VA - NRJ Summer Hits Only (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629849.jpg" />
 </div>
 
 
@@ -331,7 +151,7 @@ Kim Wilde - The Singles Collection 1981-1993 (1993) Japan Edition [FLAC|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629746.jpg" />
 </div>
 
 
@@ -360,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629635.jpg" />
 </div>
 
 
@@ -389,7 +209,7 @@ VA - Summer Wedding 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629526.jpg" />
 </div>
 
 
@@ -418,7 +238,7 @@ ESTRADARADA - 3 Singles (2015-2016) [FLAC|Lossless|WEB|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629354.jpg" />
 </div>
 
 
@@ -447,7 +267,7 @@ Kany Garcia - Limonada (2016) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628668.jpg" />
 </div>
 
 
@@ -476,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628666.jpg" />
 </div>
 
 
@@ -511,7 +331,7 @@ VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628527.jpg" />
 </div>
 
 
@@ -541,7 +361,7 @@ Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628525.jpg" />
 </div>
 
 
@@ -567,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628514.jpg" />
 </div>
 
 
@@ -596,7 +416,7 @@ Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628376.jpg" />
 </div>
 
 
@@ -625,7 +445,7 @@ VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628373.jpg" />
 </div>
 
 
@@ -654,7 +474,7 @@ Captain & Tennille - Love Will Keep Us Together (1975) CD, Album, Remastered, 20
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628368.jpg" />
 </div>
 
 
@@ -683,7 +503,7 @@ Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628361.jpg" />
 </div>
 
 
@@ -712,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628350.jpg" />
 </div>
 
 
@@ -741,7 +561,7 @@ Monarchy - 3 Albums + 2 EP + 5 CDM + Singles (2010-2015) [MP3|162-320 кб/с]<E
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628344.jpg" />
 </div>
 
 
@@ -752,6 +572,180 @@ Monarchy - 3 Albums + 2 EP + 5 CDM + Singles (2010-2015) [MP3|162-320 кб/с]<E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0605242C25E0F4E69BB1BAB7F7BA8F69C2365A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035308   (628312) от 16.07.2016
+
+Andy Bell (Erasure) - 7 Albums (2005-2016) [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эндрю Айвэн «Энди» Белл (англ. Andy Bell, полное имя Andrew Ivan Bell, род. 25 апреля 1964) — британский музыкант, вокалист английского синтипоп-дуэта Erasure. Начиная с 2005 года также строит собственную сольную карьеру, выпуская, параллельно с работой в группе, предлагаемые альбомы.Список альбомов:
+2005 - Andy Bell - Electric Blue
+2010 - Andy Bell - Non-Stop
+2014 - Andy Bell - Torsten the Bareback Saint(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 06:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B8B18B2B3C1E9BB470A6EF8777FBB351B31114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294642   (628251) от 08.04.2019
+
+Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Battle Of The Sexes (Feat. Rod Stewart)
+03. Slow Walk
+04. Seven Waves Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AC673E73AED26F165703F145DB3448A24DD88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294606   (628245) от 08.04.2019
+
+VA - Танцы со вкусом (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вика Воронина - Угги (3:24)
+02. Мари Краймбрери - Полюби меня пьяную (3:04)
+03. Александр Шоуа - Как жаль (4:00)
+04. Витас - 7-й элемент (Седьмой элемент) (4:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B2AA9281314943439FDA0DABA1152A530D19CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229362   (628217) от 05.06.2018
+
+VA - Ballermann Sommerparty (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628217.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Lorenz Büffel - Beate, die Harte
+02. Ina Colada - Ein schöner Tag
+03. Almklausi & Specktakel - Mama Laudaaa(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8E910D406B56E9459B7E4272720A16D118E6B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909428   (628206) от 17.06.2015
+
+Mania - Рассвет (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (02:44)
+02. Рассвет (02:24)
+03. Серым облакам (02:46)
+04. Отец (02:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F87DF9383CC590AD3A3E1073B245785490A03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909001   (628055) от 17.06.2015
+
+VA - Heat Summer Anthems (2015) 3CD [MP3|320 кб/с]<Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628055.jpg" />
+</div>
+
+
+###  Подробнее
+
+41. Rita Ora-I Will Never Let You Down
+42. Lady Gaga-Born This Way
+43. Nelly-Hot In Herre
+44. Calvin Harris-I Need Your Love(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 03:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D7005E8B7C77CCCB770998A58D3A42C430CDEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

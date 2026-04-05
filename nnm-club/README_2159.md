@@ -1,22 +1,313 @@
-###  Публикация: 1483966   (1006523) от 16.07.2021
+###  Публикация: 1483214   (1007026) от 12.07.2021
 
-Бобби Бампс и его щенок / Bobby Bumps and His Pointer Pup (1916) WEBRip
+Reverend Jack - A Mile from Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Seed (03:42)
+02. Fire Down Below (03:19)
+03. Greed (03:39)
+04. Crawling Inside (03:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83557EA491FAE5A5794D749F68539A2CD1068ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483191   (1007025) от 12.07.2021
+
+Heavy Smasher - Heavy Smasher (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Angels (03:54)
+02. Heavy Smasher Sound (04:03)
+03. Sunrise Rebel (04:59)
+04. Clash of the Gods (03:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE5E63CE07600350802B019E8CB59D0DCFB596A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483120   (1007024) от 12.07.2021
+
+Helevorn - 4 Albums (2005-2019) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helevorn — это готик-дум формация из избалованных солнцем Балеарских островов.Список альбомов:
+2005 - Fragments
+2010 - Forthcoming Displeasures
+2014 - Compassion Forlorn(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 03:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B77DDA2F9D5EF1304EA956CC8E5C7D6E24D663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483102   (1007023) от 12.07.2021
+
+VA - D&B Master Box (2021) [MP3|320 Kbps] <Drum & Bass, Dubstep, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007023.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Slk - Game Changer
+002. Afterlife - Still Jazzy
+003. Annix & Fade Black - Dismantle
+004. Arxiva - Full Cycle(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, BasslineПродолжительность: 07:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129554836050A968433733084B1FF9F2489AF175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483195   (1007022) от 12.07.2021
+
+Blessed Child - Monolith (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolith 04:22
+02. A Little Rift Within the Lute 04:37
+03. Point Nemo 04:12
+04. Hang upon a Wretched Tree 04:13(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D0A99178B106B7CDA3ADC9EE611196D3AC6A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483205   (1007021) от 12.07.2021
+
+Chris Geith - Invisible Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Reality (4:22)
+02. Whispers in the Night (5:10)
+03. Alive (4:16)
+04. Love Anchors the Soul (4:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABD87BC9800924774DC3DD3C8229D07BFA1D572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483210   (1007020) от 12.07.2021
+
+Dean Fraser - Flat Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassia Park (3:43)
+02. Anajara (4:10)
+03. Flat Bridge (4:13)
+04.Жанр: Reggae, JazzПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B5DCFD6430A2FF77E9E43E955E18763E2872A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483213   (1007019) от 12.07.2021
+
+Gary Smith - My Romance (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Romance (4:38)
+02. Everything's Just About You (4:38)
+03. Am I Blue (3:04)
+04. It's a Good Day (3:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0A026B464B6641B10FD695BC66545ECA5F7B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483193   (1007018) от 12.07.2021
+
+Twisted - Minds (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Buffon (05:02)
+02. Screaming Silence (04:21)
+03. One, Two, Thrash! (03:58)Twisted
+04. Invula (05:21)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB80382B2DE6A2A605EC620C5B844061A6AE9ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483101   (1007017) от 12.07.2021
+
+VA - Electro House: Late Night Party (2021) [MP3|320 Kbps] <House, Electro, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007017.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tuba Twooz - To Our Early Pioneers
+002. Bez - Nature
+003. The Golden Boys - The Class In Dallas
+004. Frank Schwarz - Waven(   Читать дальше...   )Жанр: House, Electro, Club, DanceПродолжительность: 10:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA828DF16000DDE6387E580FAD5B844A9F8D841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482269   (1007016) от 12.07.2021
+
+Истоки анимации.  Дад-мечтатель (Дад решил не курить) / Dreamy Dud (He Resolves Not to Smoke) (1915) DVDRip
 
 >>Мультфильмы
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В рамках нашего небольшого цикла о первых годах анимации-мультипликации хочу представить вам еще один поджанр анимации - мультсериалы с постоянными персонажами. На мой взгляд, этот поджанр наиболее естественно зародился от предшественника. Кто предшественник? А что такое анимация? Последовательность картинок, изображающих какую-то историю. А в следующем выпуске мультсериала, (   Читать дальше...   )Производство: США, J.R. Bray StudiosЖанр: Рисованная анимация, детскийРежиссер: Эрл ХердПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:06:04
+Была снята целая серия мультиков про Дада-мечтателя. Весьма популярная. Вот один из этих мультов.
+Дад утащил трубочку у дедушки, чтобы попробовать покурить. Вот только не покидает подозрение, что в трубочке непростой был табачок. Видать и дедушка непрост... (я шучу)Производство: СШАЖанр: Короткометражный, немое кино, анимацияРежиссер: Уоллес А. КарлсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:05:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA31F6D4E77A97114A4439B7883AD55701C45FF2
+magnet:?xt=urn:btih:F544CB76724C3187B45B042C2CD11C1A3E721034
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +315,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483861   (1006522) от 16.07.2021
+###  Публикация: 1483261   (1007015) от 12.07.2021
 
-Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+Истоки анимации. Первый цирк / The First Circus (1921) DVDRip
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Electrostatics (06:19)
- 02. Sun Power (06:23)
- 03. Electrodynamics (07:31)
- 04. Retrigger (07:26)Жанр: Deep House, Tech HouseПродолжительность: 00:27:39
+Продолжим доисторическую тему? Что же, наши далекие предки только и делали что решали романтические проблемы посредством "дубинкой по голове"? О, нет. Был у них и культурный досуг, например цирк. Да, да, цирк. Смотрим.
+Короткометражечка снята в нечасто встречающейся манере театра теней.Производство: СШАЖанр: Рисованная анимация, короткометражныйПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:06:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D142EDE32F574B5559CBAF694AE98FCBC50DF2A4
+magnet:?xt=urn:btih:616F02FD1057B39E84667B014DB4674DDF19487D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,24 +342,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483863   (1006521) от 16.07.2021
+###  Публикация: 1483275   (1007014) от 12.07.2021
 
-Lynn Cannon - Let's Go! (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+WhatsApp 2.2126.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Let's Go! (4:23)
-02. The Sands of Time! (4:21)
-03. Next Level Funk! (3:56)
-04. Stay with Me! (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:17
+WhatsApp Messenger - кроссплатформенный мобильный мессенджер, который позволяет обмениваться сообщениями без платы за SMS. WhatsApp для iPhone и Android предлагает сквозное (end-to-end) шифрование для чатов и голосовых вызовов.
+Пользователи получают обычный интерфейс WhatsApp Web на Windows с несколькими параметрами, которые позволяют активировать
+уведомления в звуковые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA062E2CBCE771285D1162C844CB5F31D2385257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482068   (1007013) от 12.07.2021
+
+Истоки анимации. Ожившие комиксы / Cartoons on Tour (1915) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец и дочь развлекаются просмотром комиксов, которые оживают для зрителей. А между тем, дочь планирует тайно сбежать с молодым человеком.Производство: СШАЖанр: Короткометражный, анимация, немое киноРежиссер: Рауль БаррАктеры: Максин Браун, William Chalfin, Джонни УолкерПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D31FCB96EE12DC8E9BC68BCEB4BA98AA6578B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483206   (1007012) от 12.07.2021
+
+Darron "Cookie" Moore - Let It Brew (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Brew (4:00)
+02. Pressure Point (3:48)
+03. Dining In (3:35)
+04. Other Places (3:55)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:46:23
 
 ## Скачать торент
 ```bash
@@ -82,25 +425,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483965   (1006520) от 16.07.2021
+###  Публикация: 1483220   (1007011) от 12.07.2021
 
-Telegram Desktop 2.8.9 + Portable [Multi/Ru]
+Firefox Browser ESR 78.12.0 [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8C1964449AEA03D085FC8BB009270216286F32C
+magnet:?xt=urn:btih:23FA65B36828348D3911D2C7761E16798A13CAC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +451,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483959   (1006519) от 16.07.2021
+###  Публикация: 1483254   (1007010) от 12.07.2021
 
-Burning Witches - The Witch of the North (2021) Japanese Edition [MP3|320 kbps] <Heavy Metal, Power Metal, Female vocal>
+Мэйбл Норманд. Роза в пыли / Raggedy Rose (1926) DVDRip
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Winter's Wrath (01:41)
-02. The Witch of the North (05:29)
-03. Tainted Ritual (04:38)
-04. We Stand as One (05:11)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Female vocalПродолжительность: 01:01:08
+Девушка романтического склада Роза, которая работает на скупого мелкого торговца барахлом, мечтает о принце. Вы уже догадались, что однажды она его встретит? :)Производство: СШАЖанр: Комедия, немое киноРежиссер: Ричард УоллесАктеры: Мэйбл Норманд, Карл Миллер, Макс Дэвидсон, Джеймс Финлейсон, Анита Гарвин, Laura La Varnie, Джерри Мэнди, Альта Аллен, Сэмми Брукс, Теодор фон ИлтцПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:53:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C45FD710159B1BC8BF6D0908ABD2326A6251B257
+magnet:?xt=urn:btih:8D951AF6B91D2EF11C6C4D02013BB084219B7983
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,136 +477,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483856   (1006518) от 16.07.2021
+###  Публикация: 1483251   (1007009) от 12.07.2021
 
-Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium (07:24)
- 02. Diffusion (07:44)
- 03. Automotif (06:02)
- 04. Mood Swing (06:57)(   Читать дальше...   )Жанр: Deep Techno, Ambient, Dub TechnoПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A23C1B0DF903E135CD1B27CFEBF138E113239EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483949   (1006517) от 16.07.2021
-
-Metalite - 3 Albums + 4 Singles (2017-2021) [MP3|320 kbps] <Modern Metal, Power Metal, Female vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название Metalite возникло, когда я искал новое современное звучание для первой песни. Конечно, это метал, но металл в стиле «l33t» или «1337», что означает «Elite» на онлайн-языке «Leet», который использовался в системе BBS, а сейчас – в онлайн играх. Так что Metalite означает металл с современным уклоном и привкусом.
-Я бы определил его скорее как «современный металл». (   Читать дальше...   )Жанр: Modern Metal, Power Metal, Female vocalПродолжительность: 02:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3709E7D70EB7BAB24F4E288D8B6F67D573BBE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483893   (1006516) от 16.07.2021
-
-Ben Jud - Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope (Intro) (1:36)
-02. Glad You Made It (3:43)
-03. In My Chest (3:48)
-04. Believe in Myself (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE390F5F5E4C562AA328AC7E9B1F8860F57751D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483848   (1006515) от 16.07.2021
-
-Google Chrome 91.0.4472.164 Portable by Cento8 [Ru/En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483860   (1006514) от 16.07.2021
-
-Telegram Desktop 2.8.8 + Portable [Multi/Ru]
+Sumatra PDF 3.4.13619 Pre-release + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
+Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
+Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E38A04D66AA9DE1E0E7B3AE666A370FF25107214
+magnet:?xt=urn:btih:5A364B336D7E6A04FE2FF5D06AEDE7EEB2FA24EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,138 +504,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483895   (1006513) от 16.07.2021
+###  Публикация: 1483221   (1007008) от 12.07.2021
 
-Vivaldi 4.0.2312.41 + Автономная версия (standalone) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D033F1175B94F2FECE7CCFB928A876E288C66833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483958   (1006512) от 16.07.2021
-
-OCCT 9.0.0 Final Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD44833946A09F49E392216B61ADB81E6FA60FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483907   (1006511) от 16.07.2021
-
-Группа VIP - New-York (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New-York (3:30)
- 02. Пассажирский поезд (4:11)
- 03. Я одна (4:04)
- 04. Не отпускай (3:46)(   Читать дальше...   )Жанр: EDM, PopПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030B124979F3DE7F7ABBAF245826313DCA9516C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483787   (1006510) от 16.07.2021
-
-Bellatrix - Space Exploration (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Italo-Disco>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contact With The Satellite (5:11)
-02. Space Exploration (5:52)
-03. Sky Glider (5:11)
-04. The Usual Light Path (6:20)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Italo-DiscoПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483891   (1006509) от 16.07.2021
-
-VA - Coffee & Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (2021) [FLAC|Lossless|WEB-DL|tracks] <Lounge>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - Nuii (03:50)
-02. Brass - Love and Passion (04:22)
-03. Pier-O - Quartier Latin (03:49)
-04. Schwarz & Funk - Pardon Me (05:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:19
+01. Love Me Tender (2:41)
+02. Secret Love (3:05)
+03. Moon River (3:13)
+04. All I Have To Do Is Dream (2:59)(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:25:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4C1100EDF62051095FF45E3E9081F3E818C0443
+magnet:?xt=urn:btih:E57299D978E0A6380EDC584CA03902243B5E165D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +533,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483903   (1006508) от 16.07.2021
+###  Публикация: 1483266   (1007007) от 12.07.2021
 
-CC Clevenger - A Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Hibike! Euphonium | Sound! Euphonium | Играй, эуфониум! [ТВ-1 и ТВ-2] [2015, TV, 26 эп. + 1 OVA] BDRip 720p raw
 
->>
->>
+>>Аниме с субтитрами
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gonna Have a Good Time Tonight (2:52)
-02. Just Who I Am (3:16)
-03. I Don't Have to Like You (4:15)
-04. Love You Till the End of Time (3:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:55
+Духовой оркестр Северной старшей школы городка Удзи переживает не лучшие времена. Выпускники, составляющие основу, утратили огонек, ребят второго года совсем мало, о конкурсах пришлось забыть. Надежда пришла в виде нового учителя музыки – молодого, но уже известного в нужных кругах Нобору Таки, и, конечно, вместе с новичками – ведь рядом Киото, культурная столица (   Читать дальше...   )Производство: Kyoto AnimationЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: Sa4koЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. + OVA по 25 мин.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0B009214D0028624AA3708C72B9D189AB4FB19FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,83 +559,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483906   (1006507) от 16.07.2021
+###  Публикация: 1483215   (1007006) от 12.07.2021
 
-Chris King Robinson - Chris King Robinson (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track You Down (3:31)
-02. Why Don't You Give Me Your Love? (4:41)
-03. Million Miles Away (4:21)
-04. Going My Own Way (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F0994829D0F46931BB3E71D19BA11E817A89AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483897   (1006506) от 16.07.2021
-
-Betty Hartmann & The Kozmic Experience - Crime Scene Earth (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer of Mother Earth (7:44)
-02. Gone (4:22)
-03. Land of The Working Poor (4:34)
-04. Dust´n Bones (4:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483945   (1006505) от 16.07.2021
-
-AAF DCH Optimus Sound v6.0.9191.1 Realtek Mod by AlanFinotty [En]
+Firefox Browser 90.0 [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одном". При установке AAF DCH Optimus Sound Realtek Mod есть варианты установки; Realtek Audio Console + Sound Blaster Connect, Dolby Atmos, Nahimic, Sonic Studio. Цель проекта AAF DCH Optimus Sound Realtek Mod - извлекать превосходное качество звука из музыки, фильмов, игр или другого контента под (   Читать дальше...   )Язык интерфейса: Английский
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C64DE30C5306D160756D90982A6C9F09516D55DA
+magnet:?xt=urn:btih:61F0B52FD1DAC35841F83EDEC5132065A246565B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,28 +585,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483979   (1006504) от 16.07.2021
+###  Публикация: 1483222   (1007005) от 12.07.2021
 
-Ансамбль солистов "Русский фестиваль" -  Музыка Цыганкова, Трояновского, Иванова, а также  русские народные песни. (1993) [FLAC|Lossless|image + .cue] <Folk>
+Научные сенсации. Заповедный могильник. Карское море (2020) HDTVRip [H.264/720p-LQ]
 
->>Other Styles
->>Folk (Lossless)
+>>Документалистика и Телепередачи
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Цыганков - Русский сувенир (попурри) (6:50)
-02. Жар - Тема Лары из музыки к к/ф "Доктор Живаго" (3:58)
-03. Цыганков - Мар дяндя (2:42)
-04. Фомин-Подревский - Дорогой длинною (романс) (4:24)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:10:17
+Сотни лет эти воды были абсолютно заповедными. Но человек превратил их в подобие адской пучины. Наше поколение пожинает горькие плоды чужой беспечности. Но если мы потеряем Арктику - мы потеряем планету.Производство: Россия / Единая Медиа ГруппаЖанр: ДокументальныйРежиссер: Алексей ЧукаревЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:44:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D10EA6348041E2E0E49B65D343EB4EA4843ED81
+magnet:?xt=urn:btih:5B77CE17C6708BC8D5FF2AB67CB6C43BB9E2FF92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,28 +611,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483522   (1006503) от 16.07.2021
+###  Публикация: 1483106   (1007004) от 12.07.2021
 
-Joy - In Love (Deluxe Edition) (2021) [AAC|~316 Kbps] <Pop, Disco>
+Истоки анимации. 10000 лет до нашей эры / RFD 10000 BC (1917) WEBRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Candle In The Wind (3:23)
-02. Japanese & Russian Girls (4:11)
-03. I'm In Love (3:29)
-04. Night Of The Nights (4:24)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:30:21
+Еще одна история из доисторических времен. И опять романтическое соперничество. Только на этот раз один из соперников доисторический почтальон, который злоупотребляет своим служебным положением для подмены доисторических почтовых отправлений. И вообще, как-то слишком уж наши предки были озабочены всей этой любовной романтикой.
+И да, пластилин в анимации использовался (   Читать дальше...   )Производство: СШАЖанр: Рисованная анимация, КороткометражныйРежиссер: Уиллис Х. О’БрайэнПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:12:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:033430F77C66D03B38465662C48B601940182812
+magnet:?xt=urn:btih:9E01212D1870A3215864123CAC6CA8E3AC9A40F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,109 +638,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477851   (1006502) от 16.07.2021
+###  Публикация: 1483280   (1007003) от 12.07.2021
 
-Неправильное воспитание Кэмерон Пост / The Miseducation of Cameron Post (2018) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация одноименного романа Эмили М. Дэнфорт рассказывает о девушке-подростке Кэмерон Пост, которую ее набожная тетя отправила в школу-интернат по исправлению гомосексуальных подростков после того, как узнала о связях племянницы с другой девушкой на выпускном вечере. Там Кэмерон подвергается сомнительным методам борьбы с однополым влечением, но эта необычная обстановка (   Читать дальше...   )Производство: США / Beachside Films, Parkville PicturesЖанр: ДрамаРежиссер: Дезире АкхаванАктеры: Хлоя Грейс Морец, Дженнифер Эль, Джон Галлахер мл., Саша Лэйн, Форрест Гудлак, Эмили Скеггс, Мелани Эрлих, Оуэн Кэмпбелл, Куинн Шепард, Марин АйрлэндПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Focs ненормативная лексика), английские, французские, испанскиеПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A76D4C0B838D9326E8012F3A736C034DDA4C16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483901   (1006501) от 16.07.2021
-
-Brian Walton - Still Got My Mojo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakey Ground (3:28)
-02. Crossfire (4:25)
-03. Born Under a Bad Sign (4:42)
-04. A Good Fool Is Hard to Find (4:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7285D6413F804D24E33898345AA35263CFC14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483980   (1006500) от 16.07.2021
-
-Future Synth - Exoplanet (2021) [MP3|320 Kbps] <Synthpop, Spacesynth, Space-Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Horizon of the Galaxy (6:01)
-02. Touch of Light (5:52)
-03. Exoplanet (6:38)
-04. Dreaming of Space (6:26)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Space-DiscoПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFD59CAE7224A5CF82B27E03E80BD13813733F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483849   (1006499) от 16.07.2021
-
-Internet Download Manager 6.39 Build 1 RePack by KpoJIuK [Multi/Ru]
+Extreme Picture Finder 3.55.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Extreme Picture Finder - программа для автоматического поиска, загрузки и сохранения любых файлов (картинки, видео, музыка, архивы, флэш и т.д.) с Интернет сайтов, а также для поиска картинок в Интернет по ключевым словам. Extreme Picture Finder позволит Вам автоматически загрузить только нужные Вам файлы, избавив от просмотра назойливой рекламы, всплывающих окон (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3346BA8A1D8B7D8FFE73EB68453EAD4A168CC92
+magnet:?xt=urn:btih:0180202E927DE914A610969DBD131ED4A532139C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,25 +664,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483840   (1006498) от 16.07.2021
+###  Публикация: 1483264   (1007002) от 12.07.2021
 
-Google Chrome 91.0.4472.164 Stable + Enterprise [Multi/Ru]
+Brave Browser 1.26.74 Portable by Cento8 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский и другие
+Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:375EF01F7CBF59801926536EE6A3C7574B7E477B
+magnet:?xt=urn:btih:DB9461562BDED57645A56455D9190093A72BD7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483244   (1007001) от 12.07.2021
+
+Path Finder 10 v10.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2021Разработчик: CocoatechПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21AD59CD6605B8416E478963FCEC8A8F5831BBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

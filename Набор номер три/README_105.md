@@ -1,3 +1,167 @@
+###  Публикация: 989759   (914543) от 23.02.2016
+
+Мария Струтинская | Новый урок по обработке (2016) PCRec [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый урок по обработке фотографий от Марии Струтинской.
+
+15 фотографий, которые вызвали наибольший интерес у зрителей.
+(   Читать дальше...   )Жанр: Обработка фотографийПродолжительность: 06:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1048D101D892005C88B7B8FC659AC66847D90754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977468   (914538) от 23.02.2016
+
+Scrap Mechanic (2016) [En] (beta 0.1.17) Steam Early Access
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrap Mechanic – креативный симулятор выживания, в котором нужно строить различные механизмы, добывать ресурсы и сражаться против «ретробайтов» - сумасшедших роботов. Фабула игры такова: вы – механик-робототехник, которого послали на полностью автоматизированную сельскохозяйственную планету для обслуживания и ремонта техники.Тип издания: Steam Early AccessРазработчик: Axolot GamesЖанр: Инди, Экшн, ПесочницаЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9801CEDF0CC651A64335DA9B566DA0A4DB53241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979513   (914533) от 23.02.2016
+
+Секретные материалы / The X-Files (2016) WEB-DL [H.264/1080p-LQ] (сезон 10, серии 1-6 из 6) ТВ3
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США / 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Дублированный - ТВ3Субтитры: NotabenoidЯзык субтитров: русский (полные - 1, 2 серии, форсированные - 3-6 серии), английскийПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62060B0273FB672C5DCFEC9FF524D086937447C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537323   (914401) от 01.02.2015
+
+Секретные материалы + бонусы / The X-Files + bonuses + «Борьба за будущее» / Fight the Future (сезон 1-9, серий 201) (1993-2002) DVD-Remux
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914401.jpg" />
+</div>
+
+
+###  Подробнее
+
+В девятом сезоне «Секретных материалов» 19 эпизодов. Для того чтобы обеспечить безопасность Дане Скалли и их сыну Уильяму, экс-спецагенту Фоксу Малдеру приходится их покинуть. В проекте «Секретные Материалы» тоже перемены – новой напарницей Джона Доггета становится Моника Рейс. Зрители увидят как за сыном Скалли и Малдера продолжают охотиться суперсолдаты – результат (   Читать дальше...   )Производство: 20th Century FoxЖанр: ФантастикаРежиссер: Крис Картер/Chris CarterАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилегги, Уильям Б. Дэвис, Том Брэйдвуд, Дин Хаглунд, Брюс ХарвудСубтитры: Формат: MKV
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633047   (913992) от 23.03.2013
+
+Очередное достижение: 2000 релизов от nikollo2013
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913992.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вот и еще один виновник торжества, благодаря которому по сетям проходит все больше и больше трафика.
+Уважаемый член клуба, Покровитель Талантов - nikollo2013 создал свой 2000 релиз.
+Благодаря таким энтузиастам наш ресурс получает свежие и интересные фильмы, игры, музыку, книги.  Мы от всей души желаем Николаю не терять бодрости, задора и инициативы, не останавливаться на достигнутом и продолжать дарить радость сотням тысяч людей. Честь, хвала и наш низкий поклон новому члену элитного клуба 2000+!!!
+Браво, Николай!
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525556   (913978) от 23.03.2013
+
+Обычное Шоу / Regular Show (2010-2011) WEB-DL [H.264/720p-LQ] (Сезон: 1, серии 1-12 из 12, Сезон: 2 серии: 19 из 28) (Обновляемая раздача)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о приключениях двух 23х-летних приятелей-раздолбаев — голубой сойки по имени Мордекай и енота Ригби.
+Устроившись в парк смотрителями, они целыми днями отлынивают от работы и ищут новые способы себя развлечь, что часто влечет за собой непредсказуемые (и сюрреалистические) последствия. За это они часто попадают под немилость своего босса Бенсона (живой автомат с жевательной резинкой), однако с помощью мудрого йети Скипса практически все проблемы удается разрешить.Жанр: мультфильм, комедия, приключенияПеревод: Любительский (дублированный)Формат: MKVПродолжительность: ~ 00:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B81ADD05E82F8771CC02EB32EF12080DD6A0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097545   (913542) от 27.01.2017
 
 Cumulative Update KB3216755 for Windows 10 Final [Ru/En]
@@ -6,7 +170,7 @@ Cumulative Update KB3216755 for Windows 10 Final [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913542.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913375.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913371.jpg" />
 </div>
 
 
@@ -84,7 +248,7 @@ Dead Space (2008) [Ru/En] (1.0.0.222) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913363.jpg" />
 </div>
 
 
@@ -110,7 +274,7 @@ Windows 10 Pro 1909 b18363.720 x64 by SanLex (edition 2020-03-16) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913325.jpg" />
 </div>
 
 
@@ -136,7 +300,7 @@ Windows 7 Ultimate SP1 x64 3in1 OEM March 2020 by Generation2 (Multi-7/Ru)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913316.jpg" />
 </div>
 
 
@@ -162,7 +326,7 @@ Windows 10 Enterprise LTSC 8in1 (x86/x64) +/- Office 2019 by Eagle123 (03.2020) 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913314.jpg" />
 </div>
 
 
@@ -188,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913312.jpg" />
 </div>
 
 
@@ -214,7 +378,7 @@ TeamViewer 15.3.8497 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913304.jpg" />
 </div>
 
 
@@ -240,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913298.jpg" />
 </div>
 
 
@@ -266,7 +430,7 @@ Forza Horizon 4 (2018) [Ru/Multi] (1.401.912.2/dlc) Repack ElAmigos [Ultimate Ed
 >>22
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913295.jpg" />
 </div>
 
 
@@ -292,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913260.jpg" />
 </div>
 
 
@@ -320,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913253.jpg" />
 </div>
 
 
@@ -346,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913247.jpg" />
 </div>
 
 
@@ -372,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913243.jpg" />
 </div>
 
 
@@ -398,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913083.jpg" />
 </div>
 
 
@@ -424,7 +588,7 @@ Call of Duty: Black Ops (2010) [Ru] (upd6) Rip R.G. ReCoding
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913076.jpg" />
 </div>
 
 
@@ -451,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912907.jpg" />
 </div>
 
 
@@ -478,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912833.jpg" />
 </div>
 
 
@@ -504,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912811.jpg" />
 </div>
 
 
@@ -515,162 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:825FBDF30D99E5F5713737730AD127B15B8D2FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957653   (912807) от 24.02.2016
-
-Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru] (1.40/dlc) SteamRip Let'sРlay [Gold Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон, 1868 год. Индустриальная революция, эпоха невероятных изобретений. Немыслимые ранее технологии меняют жизнь миллионов. Люди устремляются в Лондон, вдохновленные новыми возможностями, жаждущие стать частью нового мира, над которым будут не властны короли, императоры, политики и священники, мира, где деньги сравняют всех.Тип издания: SteamRipРазработчик: Ubisoft EntertainmentЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E47A9090BD64C2C97CAC6880D5C1244C004B438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977615   (912806) от 24.02.2016
-
-Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.0.3/dlc) SteamRip Let'sРlay
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Homeworld: Deserts of Kharak - стратегия в реальном времени, которая является приквелом к серии Homeworld. Игра предлагает отправиться в экспедицию и разузнать тайны пустыни Харака. Сюжет крутиться вокруг девушки по имени Рейчел С-Джет, являющейся опытной исследовательницей. В распоряжении игроков окажется множество военной техники, включая небольшие штурмовые машины, (   Читать дальше...   )Тип издания: SteamRipРазработчик: Blackbird InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD79662FDC870CC5BFE627D605D2D3F41629FBDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979511   (912804) от 24.02.2016
-
-Секретные материалы / The X-Files (2016) WEB-DLRip [H.264] (сезон 10, серии 1-6 из 6) ТВ3, Кравец
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фокс Малдер и Дана Скалли снова вместе. На них выходит ведущий интернет-канала Тэд О'Малли, специализирующийся на расследовании государственных секретов. По словам О'Малли, он близок к раскрытию международного заговора, скрывающего от населения всю правду об инопланетянах. Малдер готов поверить О'Малли, Скалли как всегда скептична, но, как минимум, готова выслушать (   Читать дальше...   )Производство: США / 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пиледжи, Уильям Б. Дэвис, Робби Амелл, Том Брэйдвуд, Дин Хэглунд, Брюс Харвуд, Джоэл МакХэйл, Лорен Эмброуз и др.Перевод: Дублированный (ТВ3), многоголосый закадровый, профессиональный (Кравец)Субтитры: отсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF64026E9CBE77631A93572EFC5C3F00BBC367A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989448   (912803) от 24.02.2016
-
-God of War III (2010) [PS3] [EUR] 3.41/3.55/4.21+ [Repack / 1.03 / ALL DLC] [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой - Кратос - бывший спартанец, бросивший вызов самим небожителям, оказывается в самом центре кровавой бойни. Его ждет восхождение на вершину Олимпа и путешествие в глубины ада - предавших его богов мститель настигнет везде. Вооруженный уникальным оружием и магическими способностями, не представленными в предыдущих эпизодах серии, воин готов ко всему. (   Читать дальше...   )Тип издания: RepackРазработчик: SCE Santa Monica StudioЖанр: Hack & Slash, Action-AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCDBCC40B648AB45A28E2E83A31D4CADAC4E483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989813   (912801) от 24.02.2016
-
-Microsoft Windows 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 02.2016 2DVD [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912801.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборки на основе оригинальных русских образов операционной системы Windows 8.1 (Pro VL editions) (x86/x64) - DVD (Russian) Final (msdn) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64) и встроенным пакетом обновления Update 3. Установка полностью "вручную" с выбором параметров установки ОС. Интегрированы: последние (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D08CCAC5D957F62269059166D0EFBBDEB2F2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989944   (912799) от 24.02.2016
-
-В сердце моря / In the Heart of the Sea (2015) HDRip [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912799.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада, Cott Productions, Enelmar Productions, Imagine EntertainmentЖанр: Биография, Приключения, ДрамаРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:01:37Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B367D30B272C379DDCBDC4BE0932DF92F057B8E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

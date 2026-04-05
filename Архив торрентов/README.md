@@ -7,7 +7,7 @@ Throne (ex. NekoRay / NekoBox) 1.1.0 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060507.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060082.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057595.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Seikai no Senki | Banner of the Stars | Звёздный флаг [2000, TV, 13 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057066.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Seikai no Danshou: Tanjou | Crest of the Stars: Birth | Утерянная гл�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057065.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Seikai no Monshou | Crest of the Stars | Звёздный герб [1999, TV, 13
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057064.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ MAX Desktop 26.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057063.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Noblesse | Дворянство [2020, TV, 13 эп.] WEBRip 1080p rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053864.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ YT Downloader 10.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053863.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ XYplorer 23.90.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046415.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ RJ TextEd 15.73.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046409.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Telegram for Android 9.3.2 (3023) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046404.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ One Commander Pro 3.29.2.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046394.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046385.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ AAF DCH Optimus Audio 10.11.2347.9452 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046368.jpg" />
 </div>
 
 
@@ -395,32 +395,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601905   (1046339) от 02.01.2023
-
-Sandboxie 5.61.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1046339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3226C796E0D0055548A2249B1F1E28FBB0E3E7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601904   (1046333) от 02.01.2023
 
 PrivaZer 4.0.61 Free + Portable [Multi/Ru]
@@ -429,7 +403,7 @@ PrivaZer 4.0.61 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046333.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Telegram Desktop 4.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046330.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ Sandboxie plus 1.6.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046324.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ RegCool 1.324 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046310.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ QOwnNotes 23.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046195.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ Auslogics Registry Cleaner Pro 10.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046187.jpg" />
 </div>
 
 
@@ -579,58 +553,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602265   (1046180) от 04.01.2023
-
-Opera 94.0.4606.54 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A2FA708C70B643A1B27735CF82844F8ECC78A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602223   (1046170) от 04.01.2023
-
-Auslogics BoostSpeed 13.0.0.3 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A821EE5A2B1533C46CBAB9D0274F3229D762283D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602352   (1046091) от 05.01.2023
 
 Firefox Browser 108.0.2 [Ru]
@@ -639,7 +561,7 @@ Firefox Browser 108.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046091.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ Opera GX 93.0.4585.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046029.jpg" />
 </div>
 
 
@@ -678,6 +600,84 @@ Opera GX - это специальная версия браузера Opera, с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1365A4020EE4643E1F25831B957FE5511810928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602627   (1046028) от 06.01.2023
+
+YT Downloader 7.19.2 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046028.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89775FFBB8C30CBDA0A8EFA55A05F842DD60E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602653   (1046019) от 06.01.2023
+
+Aiseesoft Screen Recorder 2.6.18 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите самый простой, но профессиональный способ записывать экран и делать с него снимки. Aiseesoft Screen Recorder - лучшее программное обеспечение для записи экрана, позволяющее фиксировать любую активность на компьютере Mac или Windows. Он может работать как хороший рекордер видеоигр, захватывать видеозвонки и многое другое для захвата любой области экрана. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F88648EDF3DFE6B7AB73E1648FB938345B9668A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602641   (1045998) от 06.01.2023
+
+WinUtilities Professional Edition 15.84 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045998.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0940DB45C4CD239EA29C2F2A2B2F6A8124F36C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

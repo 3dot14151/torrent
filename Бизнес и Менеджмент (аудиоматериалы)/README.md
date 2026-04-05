@@ -1,4 +1,85 @@
 https://t.me/izofen
+###  Публикация: 1863354   (1063924) от 
+
+Александр Степановский | Партнерство в бизнесе. Системный подход к построению бизнеса (2026) [MP3, Юрий Сельчихин]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – практическое руководство по построению крепких и эффективных партнерских отношений в бизнесе, основанное на многолетнем опыте автора. Она структурирована как система проверенных принципов и инструментов, где каждая глава последовательно раскрывает ключевые аспекты успешного сотрудничества.
+Автор подробно разбирает, как создать прочную основу для партнерства: (   Читать дальше...   )Жанр: БизнесИздательство: КнигиумПродолжительность: 05:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AF3FDE31A8398CAA78461BFE491104858ABE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862577   (1063320) от 
+
+Кирилл Кудинов | Через тернии к звездам. История создания самой большой сети апарт-отелей. Начало (2024) [MP3, Дмитрий Чепусов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешные бизнес-проекты нередко представляются обывателю делом само собой разумеющимся, а результаты их инициаторов – легкодостижимыми. На деле немногие понимают, через какие тернии проходит честный российский предприниматель в борьбе за триумф и достойное место на рынке.
+Можно ли сегодня удерживать лидерство в своей сфере и одновременно оставаться порядочным человеком? (   Читать дальше...   )Жанр: БизнесИздательство: БомбораПродолжительность: 12:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751156D45B32E9CB0D00847C753191D2D8239FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862389   (1063127) от 
+
+Алексей Гуреев, Алексей Горячев | Бизнес как система отношений (2026) [MP3, Илья Усачев]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как расти в карьере, бизнесе и жизни, инвестируя в людей и себя.
+Книга о том, как выстраивать устойчивые отношения, которые становятся главным капиталом и двигателем роста в бизнесе и карьере. Правильно выстроенные и осознанно проработанные связи определяют успех предпринимателя и CEO. Авторы, Алексей Горячев и Алексей Гуреев, предлагают начать с себя – выстроить (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 07:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE043BEEB947817DB1EA5AF56A4D5672C711033F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861997   (1063099) от 
 
 Ирина Марьевич | Четвертая форма денег (2026) [MP3, Наталья Кузнецова]
@@ -7,7 +88,7 @@ https://t.me/izofen
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063099.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062951.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062532.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062373.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061509.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061482.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061062.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061059.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060743.jpg" />
 </div>
 
 
@@ -251,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060577.jpg" />
 </div>
 
 
@@ -278,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059843.jpg" />
 </div>
 
 
@@ -307,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059498.jpg" />
 </div>
 
 
@@ -334,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059432.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059374.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059119.jpg" />
 </div>
 
 
@@ -414,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059022.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058884.jpg" />
 </div>
 
 
@@ -469,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058880.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058763.jpg" />
 </div>
 
 
@@ -521,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058760.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058354.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058173.jpg" />
 </div>
 
 
@@ -599,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058172.jpg" />
 </div>
 
 
@@ -610,86 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18EFB27E53E8CA58B72C8E4F27BC028EB118AE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855090   (1058069) от 23.02.2026
-
-Сергей Бехтерев, Виктория Бехтерева | Спиральная динамика для бизнеса. Как создать сильную и быструю компанию (2024) [MP3, Сергей Бехтерев, Вадим Демчог]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы адаптировали для России и усилили классическую концепцию Дона Бека. На этой основе мы создали практические инструменты, которые помогли сотням коммерческих и некоммерческих организаций.
-Ваш бизнес застрял в бесконечных проблемах: кризисы, безразличные сотрудники, выгорание и авторитарное управление? Существует код к развитию, скрытый в уровнях сознания вашей компании. (   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРАПродолжительность: 12:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A953998D470E024DCD178DD9FE92318DCF0DBF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854844   (1058068) от 23.02.2026
-
-Джеб Блаунт | Стабильные продажи. Стратегии, которые работают даже при падении спроса (2025) [MP3, Иван Забелин]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильные продажи: стратегии, которые работают даже при падении спроса.
-Тысячи предпринимателей, продажников и фрилансеров задают один и тот же вопрос: «Где взять клиентов, если никто не хочет тратить деньги?» Ответ в этой книге! «Стабильные продажи» – это 55 мощных, проверенных на практике стратегий, которые помогут сохранить доход и расти в любых условиях. Простые (   Читать дальше...   )Жанр: БизнесИздательство: БомбораПродолжительность: 03:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE363EBA0EDAABD0715E003C722F36E89F97B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854470   (1057730) от 19.02.2026
-
-Александр Кравцов | Персональная инфраструктура. Книга для тех, кто собрался на самый верх (2022) [MP3, Стефан Барковский]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того, чтобы достичь выдающихся результатов в карьере или бизнесе, получить или реализовать серьезный мандат в сфере государственного строительства или любой другой сфере деятельности, необходимо вначале выстроить эффективную персональную инфраструктуру. На высших уровнях социальной пирамиды между собой конкурируют уже не отдельные люди и не их группы. Борьбу (   Читать дальше...   )Жанр: БизнесИздательство: BookwingsПродолжительность: 04:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8887A7E00F105E953225B0454D97A1C1DCD073
 ```
 
 https://mybot314.ru/tekegram_catalog/

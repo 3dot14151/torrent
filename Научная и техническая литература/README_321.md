@@ -1,137 +1,3 @@
-###  Публикация: 1045019   (561678) от 22.08.2016
-
-Евгений Абалаков | На высочайших вершинах Советского Союза (1963) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга знаменитого советского альпиниста Е.Абалакова. Его имя (вместе с братом Виталием) гремело в СССР в 30-е - 40-е годы. Талантливый спортсмен, художник, писатель, исследователь, географ рассказывает в своей книге о своих восхождениях.
-
-Иллюстрирована работами автора.Жанр: Путешествия и ГеографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C73627391E3C22C593A1652A72B710F874C742C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044999   (561669) от 22.08.2016
-
-Аркадий  Виноградов | Вокруг света на «Заре» (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы зачитывались книгами о кругосветных путешествиях, мечтали побывать на необитаемых островах, посетить описанные Джеком Лондоном и другими писателями таинственные Соломоновы острова и хоть раз в жизни увидеть Южный Крест.
-
-Для многих это так и остается мечтой. А героям этой книги посчастливилось побывать в этих южных широтах, пройти Полинезию и Океанию, посетить (   Читать дальше...   )Жанр: Путешествия и География. Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C10A8456B03DAE096737E5F053225330DEBEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304698   (561569) от 27.05.2019
-
-Г.И. Житомирский | Конструкция самолетов (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены вопросы, связанные с назначением, внешними формами и параметрами самолетов и их агрегатов; рассмотрены силы, действующие на агрегаты самолета, и работа конструкции под нагрузкой. Приведены конструктивные схемы агрегатов самолета, даны их анализ и сравнительная оценка. Изложены требования к самолету и его агрегатам, показаны пути дальнейшего совершенствования (   Читать дальше...   )Жанр: АвиастроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB9C9CBF293E912CF447F5F78D19C3375860BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043615   (561396) от 22.08.2016
-
-Степан Александрович Богомолов | Актуальная бесконечность. Зенон Элейский, Исаак Ньютон, Георг Кантор (1934) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые „апории“ Зенона Элейского более 2000 лет привлекают к себе внимание ученых и философов; всё снова и снова стараются их опровергнуть. Пройти мимо апорий Зенона, объявив их пустыми софизмами, было бы совершенно неправильно; здесь элейская школа с необыкновенной силой и глубиной критиковала возможность движения; а ведь понятие движения лежит в основе механики (   Читать дальше...   )Жанр: История, философия, науковедение, математикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4CAEDF0140548FE0276CE1A55FB8E0B97EED80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153039   (561318) от 25.07.2017
-
-В.С. Новичков, И.Ю. Каширин | От Си к Си++ (2012) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит необходимые теоретические сведения и набор упражнений и задач различной степени сложности, позволяющих приобрести навыки практического программирования на алгоритмических языках С и C++ (Си и Си++) и проконтролировать усвоение материала. Практические задания для программирования на C++ имеют "сквозную" структуру - распределены по (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B64CEE63E67F726951A5A43B9E70EDE046ECC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153055   (561314) от 25.07.2017
 
 Ж. Гед, П. Лафарг | Программа рабочей партии, ее основания и комментарии к ней (1917) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561314.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ Elaine N. Marieb, Simone Brito | Anatomy and Physiology Coloring Workbook: A Com
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561312.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561040.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561038.jpg" />
 </div>
 
 
@@ -244,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561002.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560997.jpg" />
 </div>
 
 
@@ -300,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560978.jpg" />
 </div>
 
 
@@ -328,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560976.jpg" />
 </div>
 
 
@@ -355,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560905.jpg" />
 </div>
 
 
@@ -382,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560589.jpg" />
 </div>
 
 
@@ -408,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560583.jpg" />
 </div>
 
 
@@ -434,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560529.jpg" />
 </div>
 
 
@@ -462,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560515.jpg" />
 </div>
 
 
@@ -489,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560314.jpg" />
 </div>
 
 
@@ -515,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559957.jpg" />
 </div>
 
 
@@ -541,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559794.jpg" />
 </div>
 
 
@@ -567,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559680.jpg" />
 </div>
 
 
@@ -595,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559573.jpg" />
 </div>
 
 
@@ -622,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559566.jpg" />
 </div>
 
 
@@ -648,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559565.jpg" />
 </div>
 
 
@@ -675,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559554.jpg" />
 </div>
 
 
@@ -687,6 +553,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB192BCC9204CBA06DB6CB1988972B7A58B4981A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153373   (559552) от 26.07.2017
+
+НОУ "Интуит" | Разработка и защита баз данных в Microsoft SQL Server 2005 (2-е издание) (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программный пакет Microsoft SQL Server 2005 предоставляет надежную платформу для реализации собственных баз данных. SQL Server 2005 включает простые в применении функции, которые создают идеальную рабочую среду.
+Этот курс предназначен для разработчиков и администраторов баз данных, которые уже знакомы с SQL Server и хотят изучить новейшие функциональные возможности, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A8FB76BD64708EE08BC189AEA2A7C3A1B1A69D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304948   (559511) от 28.05.2019
+
+Ксения Клименко | В лабиринтах уха, горла и носа (2019) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как работает ухо, горло и нос? Какие тайны заключает в себе эта триада? Самый известный российский врач оториноларинголог-хирург Ксения Клименко легко и понятно объясняет функционирование ключевых органов, особенности нашего восприятия и секреты, которые таят эти вроде бы простые части нашего тела.Жанр: МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA8590054947DEC685E83822E49583862B8DA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305018   (559502) от 28.05.2019
+
+Владимир Струг (сост.) | 5000 слов, одинаковых на русском и английском языках (2019) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит 5000 слов одинаковых на русском и английском языках. Она создана для упрощения жизни и для экономии времени при пополнении своего словарного запаса английскими словами. Вы обязательно узнаете для себя что-то новое.Жанр: Иностранные языкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D5DB46CB7FD100BB2B1CEB61DD463C248F6790B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153297   (559449) от 26.07.2017
+
+Ч.А. Кариев | Технология Microsoft ADO .NET (2-е издание) (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматривается использование технологии ADO.NET для взаимодействия с базами данных Microsoft SQL Server 2000 и Microsoft Access, а также библиотекой .NET Framework. Более 90 готовых примеров на языке Visual C#, доступных для скачивания, позволят освоить практические методы решения наиболее распространенных задач.
+ Вводятся понятия, необходимые для освоения основного (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD58B55736781502FC21459CEA14707F6C085D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045483   (559438) от 23.08.2016
+
+В. А. Невский | Что и как читать молодым коммунистам? (1919) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все книги расположены в порядке их чтения (от более популярных и общих к более серьезным и специальным). Книги, которые должны быть прочитаны в первую очередь (каждым коммунистом), отмечены звездочкой (*).Жанр: История, политология, экономика, философия, естествознание, психология, этика, логика, искусство, математика, литературоведение, справочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383393D15BE8512EEF33A90F2672417B43A64E28
 ```
 
 https://mybot314.ru/tekegram_catalog/

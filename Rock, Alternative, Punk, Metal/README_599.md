@@ -1,3 +1,32 @@
+###  Публикация: 939315   (475048) от 21.09.2015
+
+Tracktor Bowling - Бесконечность (2015) [MP3|320 кб/с]<Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смерти Нет
+ 02. Вниз или Вверх
+ 03. Натрон
+ 04. Я Жива(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACC7512DE0F41243382E0FCB56EAFFEEB2D4BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406313   (475034) от 03.09.2020
 
 Delain - Apocalypse & Chill (2020) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Metal>
@@ -6,7 +35,7 @@ Delain - Apocalypse & Chill (2020) Limited Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475034.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Marilyn Manson - We Are Chaos (2020) [MP3|~245 Kbps (V0)] <Alternative Metal, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474756.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ NIRVANA - Nevermind (1991) [MP3|320 kbps]<Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474686.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Dangerkids - Collapse (2013) [MP3|320 кб/с]<Rap Rock / Alt. Rock / Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474665.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ Turbo - Tozsamosc (2004) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474548.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Mordred - The Noise Years (2021) 3xCD, Compilation [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474543.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474433.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Mutharoad - Midnight Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474429.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ The Ragged Saints - The Sound Of Breaking Free (2013) Reissue, 2021, Lions Pride
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474427.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Sex Pistols - The Original Recordings (2022) [FLAC|Lossless|tracks + .cue] <Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474250.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ VA - Охота 74 (2017) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474139.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Dagoba - 7 Альбомов (2003-2017) [MP3|320 кб/с]<Groove Metal, Industri
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474137.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Ultraphonix - Original Human Music (2018) [FLAC|Lossless|tracks + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474097.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Korpiklaani - Live At Masters Of Rock (2017) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474025.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474014.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473998.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473996.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ VA - American Road Trip (2017) [MP3|~241-291Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473919.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Dio - Singles Box Set (2012) Anthology [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473733.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Lacrimosa - Testimonium (2017) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473645.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473462.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473455.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Tetrafusion - Altered State (2010) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473382.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Cortez The Killer - Car Crash Music (2009) EP [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473295.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Stage - Stage (2003) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473294.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Stage - Stage (2003) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74B1B5993F9CA71A249F9DFF312DAB4CDB19F0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320078   (473267) от 17.08.2019
-
-King Gizzard And The Lizard Wizard - Infest the Rats' Nest (2019) [WEB] [FLAC|Lossless|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet B (03:56)
-02. Mars for the Rich (04:11)
-03. Organ Farmer (02:39)
-04. Superbug (06:43)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520DEABA08B016B74E628DCD1CE4121731C1E18B
 ```
 
 https://mybot314.ru/tekegram_catalog/

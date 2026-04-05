@@ -1,3 +1,29 @@
+###  Публикация: 1008949   (810925) от 20.04.2016
+
+Pinnacle Studio Ultimate 19.5.0 + Bonus Content [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоредактор Pinnacle Studio 19 Ultimate очень популярен среди пользователей, которые занимаются созданием и редактированием видеоконтента. Представляем обновленную версию этой программы от мирового лидера в сфере профессиональных видео- и аудиотехнологий - компании Corel. Скорость просчета в новой версии возросла до 10-ти раз благодаря обновленному «движку» и поддержке (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCE2859F4DF2F6DE71DFC10EB74BCB4945185C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118182   (810565) от 26.03.2017
 
 Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810565.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810553.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810488.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809473.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ KMS Tools Portable by Ratiborus 18.10.2021 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809471.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809470.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679) Repack =nemos= [Warmastered Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809397.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ HTML Academy | Интенсивный онлайн-курс «Базовый HTM
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809394.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809391.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Cимуляторы офисных звуков с чавкающими колл
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_809248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809248.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Windows 10 Pro 1909 b18363.836 x64 ru by SanLex (edition 2020-05-15) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809234.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809232.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Uninstall Tool 3.4.5 Build 5430 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809221.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ UC Browser 5.6.11651.1013 Portable by Sitego [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809216.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_808980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_808980.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ WinPE 10 Sergei Strelec (x86/x64) 2016.04.21 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808972.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Nero 2016 Platinum 17.0.04500 Retail + ContentPack [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808969.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808887.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Jetbrains PhpStorm 2017.1 Build #PS-171.3780.104 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808548.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Geekbrains | PHP. Уровень 1 Основы веб-разработки (201
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808475.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807883.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807667.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Skype 8.13.0.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807634.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807614.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ BioShock Remastered Dilogy (2016) [Ru] (1.0.122872/1.0.122864) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807611.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ BioShock Remastered Dilogy (2016) [Ru] (1.0.122872/1.0.122864) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C6970473B67161DA9DD0247D8A2270B9FD33D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009584   (807299) от 22.04.2016
-
-Uninstall Tool 3.4.5 Build 5432 Final RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2467B2D9BAB7F68FDA7710FE8ECBB909DB513635
 ```
 
 https://mybot314.ru/tekegram_catalog/

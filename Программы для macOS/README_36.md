@@ -1,3 +1,56 @@
+###  Публикация: 1501982   (831900) от 12.10.2021
+
+Clearview 2.3.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clearview - приложение для удобного чтения электронных книг на вашем Mac.
+Приложение работает с такими форматами, как PDF, EPUB, CHM, и MOBI. В процессе чтения вы можете добавлять аннотации, ставить закладки и использовать поиск по тексту. Чтобы добавить книги в вашу библиотеку - просто перетащите содержащую их папку в окно программы и вся информация будет быстро (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2021Разработчик: Canoe SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79E634D75F7DB1541E532C27991139B6F151247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502026   (831813) от 12.10.2021
+
+Aquarium HD Screensaver 3.3.0 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите ваш экран в красивый аквариум. Запускайте сцены аквариума вручную или в качестве экранной заставки.Тип издания: macOS SoftwareРелиз состоялся: 11.07.2021Разработчик: Voros InnovationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D214EEBDB5D7A4639FDCF5A2E6E18E3C8C7DD1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501950   (831741) от 12.10.2021
 
 Topaz DeNoise AI for Mac 3.3.3 [En]
@@ -6,7 +59,7 @@ Topaz DeNoise AI for Mac 3.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831741.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Wondershare Video Converter Ultimate 5.7.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831591.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ TextFridge 1.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830390.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Disk Drill Entreprise 2.4.441 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830281.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ TextMate 2 v2.0.23 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830212.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Sharks 3D 2.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829887.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Movavi Screen Capture Studio 4 v4.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829442.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Page Booth 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829075.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ Warp 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828981.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ MYStuff Pro 2.0.24 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828975.jpg" />
 </div>
 
 
@@ -279,7 +332,7 @@ Nevercenter CameraBag 2021.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828406.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ Poedit Pro 1.8.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828216.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ FireStream 1.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827962.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ TouchDesigner Pro 2021.15240  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827953.jpg" />
 </div>
 
 
@@ -387,7 +440,7 @@ Fantastical 2.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827159.jpg" />
 </div>
 
 
@@ -414,7 +467,7 @@ Postico 1.0.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827095.jpg" />
 </div>
 
 
@@ -443,7 +496,7 @@ BookShelf 2 v5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826998.jpg" />
 </div>
 
 
@@ -472,7 +525,7 @@ BookStore 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826983.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ OmniGraffle Pro 7 v7.18.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826808.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ Ringer - Ringtone Maker 2.0.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826640.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ USB Network Gate 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826532.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ MovieIcon - Adds cover art to your movie files 2.9.50 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826351.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ Imagineer System Mocha VR Standalone 5.5.1 & Plug-in [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825896.jpg" />
 </div>
 
 
@@ -635,7 +688,7 @@ Roadblock - Content Blocker 1.8.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825266.jpg" />
 </div>
 
 
@@ -647,62 +700,6 @@ Roadblock доступен для Mac, iPhone и iPad. Профили и нас�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4305721D92DF5631F0050267700851E3A0166B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503009   (825032) от 16.10.2021
-
-Helper for GoPro Files 2.6 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_825032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Helper for GoPro Files - небольшая утилита, которая поможет оптимизировать файлы экшен-камеры GoPro.
-• Автоматическая сортировка видео и фото файлов в папке на каждый день
-• Автоматическое переименование видео и фото файлов
-• Автоматическое удаление файлов * .lrv и * .thm(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2021Разработчик: © Marvin WagnerПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCC4DE3A6CEFCAAFDD6C5F0E0666E278370D259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115986   (824668) от 19.03.2017
-
-Little Audio App 2.0 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little Audio App -  упрощенное воспроизведение и экспорт
-Little Audio App представляет собой удобный инструмент для воспроизведения и экспорта практически любого файла, который содержит аудио. Он может обрабатывать почти все, если файл содержит аудио в той или иной форме. Используя Little Audio App 2 вы можете создавать, редактировать и сохранять плейлисты m3u. Это (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 марта 2017Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC067C7F9F7978B29CB93B4057804485C6385E38
 ```
 
 https://mybot314.ru/tekegram_catalog/

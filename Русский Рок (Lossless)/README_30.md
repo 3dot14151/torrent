@@ -1,122 +1,3 @@
-###  Публикация: 1407609   (462425) от 09.09.2020
-
-АукцЫон - Мечты (2020) [WavPack|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Догоняя волны (03:57)
-02. Сердце (04:43)
-03. Мечты (07:56)
-04. Очень белые глаза (05:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88677CD248138A64ECC7806082F08352D4A39121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 825219   (462301) от 26.09.2014
-
-Парк Горького - Gorky Park II (Moscow Calling) (1993) [FLAC|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moscow Calling   (5:10)
-02.  All Roads   (5:12)
-03.  Politics Of Love   (4:06)
-04.  Tomorrow   (5:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE46AD1499FBEABFA67BF1593864EC0EAA05A2DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242022   (457710) от 02.10.2010
-
-Ленинград - Последний Концерт Ленинграда (2010) [FLAC|Lossless]<Ska Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, Moscow
-02. МДМ
-03. ИТД
-04. Паганини
-05. Когда нет денег
-06. Группа крови
-07. xxxасы
-08. Дача
-09. Свобода
-10. WWW(   Читать дальше...   )Жанр: Ska RockПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868761   (456500) от 02.09.2017
-
-Чебуратор - 18 альбомов (2005-2016) [FLAC|Lossless|tracks]<Brutal death metal, Grindgore, Goregrind>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Brutal death metal, Grindgore, GoregrindПродолжительность: 22:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C8BB120139A62208962A939BCDAF42025493B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060336   (454817) от 07.10.2016
 
 VA - Рок на костях. 25+25. Посвящается 25-летию независимой российской звукозаписи (2001) [FLAC|lossless|image + .cue] <Rock>
@@ -125,7 +6,7 @@ VA - Рок на костях. 25+25. Посвящается 25-летию не�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454817.jpg" />
 </div>
 
 
@@ -154,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453860.jpg" />
 </div>
 
 
@@ -186,7 +67,7 @@ Lumen - Акустика (Концерт в центре им. Вс. Мейер�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453072.jpg" />
 </div>
 
 
@@ -217,7 +98,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451366.jpg" />
 </div>
 
 
@@ -246,7 +127,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449567.jpg" />
 </div>
 
 
@@ -275,7 +156,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449032.jpg" />
 </div>
 
 
@@ -310,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448860.jpg" />
 </div>
 
 
@@ -339,7 +220,7 @@ VA - Greenpeace Rocks (1993) [FLAC|lossless|image + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448857.jpg" />
 </div>
 
 
@@ -368,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447361.jpg" />
 </div>
 
 
@@ -397,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447201.jpg" />
 </div>
 
 
@@ -426,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444746.jpg" />
 </div>
 
 
@@ -455,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444704.jpg" />
 </div>
 
 
@@ -484,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444359.jpg" />
 </div>
 
 
@@ -513,7 +394,7 @@ VA - Свободная культура. Звуки Северной столи
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441971.jpg" />
 </div>
 
 
@@ -544,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441783.jpg" />
 </div>
 
 
@@ -573,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441411.jpg" />
 </div>
 
 
@@ -602,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440378.jpg" />
 </div>
 
 
@@ -631,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440355.jpg" />
 </div>
 
 
@@ -660,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440285.jpg" />
 </div>
 
 
@@ -686,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438057.jpg" />
 </div>
 
 
@@ -715,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437903.jpg" />
 </div>
 
 
@@ -744,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437718.jpg" />
 </div>
 
 
@@ -758,6 +639,122 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149DF65D42AC777BAD2DE526EF23B5686A2A0D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165014   (437387) от 11.09.2017
+
+NRKTK - Black (2009) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гори, Ведьма, Гори (1:59)
+02. Я Убиваю Себя (4:08)
+03. Сатана, Возьми Мои Вены (2:06)
+04. Аллилуйя  (4:20)(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17FD6B212EE36E3B9B8F3AC8FC42E305FBF89F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410442   (436160) от 21.09.2020
+
+Ларец Заточения - Эпоха Хаоса (2020) [FLAC|Lossless|image + .cue] <Symphonic Rock, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Перерождение (3:48)
+2. Ларец Заточения (4:18)
+3. Изгнанник (4:23)
+4. Апокалипсис (3:41)(   Читать дальше...   )Жанр: Symphonic Rock, Black MetalПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FBCAE4AF572DFBC648EC10D912E4C226D8CE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165096   (435228) от 12.09.2017
+
+NRKTK - Разочарование Года (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молись, Андрей! (04:14)
+ 02. Биеннале Каждый День (03:38)
+ 03. Маленький Ублюдок (03:37)
+ 04. Не Говори Со Мной (04:49)(   Читать дальше...   )Жанр: Electronic, Hip Hop, RockПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D195CC8E1F386A9E65FF91B8BC3F3FE3386BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063414   (432065) от 17.10.2016
+
+Мельница - Алхимия (2015) [FLAC|lossless|image + .cue] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaudete (03:02)
+02. Анестезия (04:35)
+03. Марсианский экспресс (04:03)
+04. Никогда (05:18)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E30A8FF7FDA742126BF4DFDF1A3CD66F7D3638
 ```
 
 https://mybot314.ru/tekegram_catalog/

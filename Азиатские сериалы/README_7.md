@@ -1,3 +1,30 @@
+###  Публикация: 1573350   (207641) от 19.09.2022
+
+Болтун / Bik mauseu / Big Mouth (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) SOFTBOX
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странные вещи происходят, когда третьесортный адвокат случайно берется за дело об убийстве и старается докопаться до скрытой правды. Это история битвы, с которой столкнулся юрист из низшего класса, который должен стать злее, чем сами злодеи, чтобы защитить себя и свою семью и наказать плохих парней в мире, полном заговоров и алчности.
+Пак Чан Хо – юрист, который (   Читать дальше...   )Производство: Южная Корея, MBC ProductionsЖанр: детектив, криминалРежиссер: О Чхун-хванАктеры: Ли Джон-сок, Лим Юн-а, Ян Гён-вон, Ким Джу-хон, Ок Ча-ён, Квак Тон-ён, О И-щик, Ли Ю-джун, О Рюн, Чон Гук-хванПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: русский, корейскийПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5497E9F8E6E566B7E5759B700A38200DAE7B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600350   (207232) от 16.02.2023
 
 Невероятные / Великолепные / Потрясающие / Deo paebyulleoseu / The Fabulous (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Softbox
@@ -6,7 +33,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207232.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207224.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207186.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207119.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206309.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205871.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205033.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204437.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204131.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203668.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203219.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203006.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202191.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202050.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201716.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201361.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201235.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201110.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200844.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200789.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200556.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200283.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200112.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200066.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199957.jpg" />
 </div>
 
 
@@ -647,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796497B84E4ECE76848C381A1084A24EB825AE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619074   (199648) от 17.04.2023
-
-Ее личная жизнь / Geunyeoui Sasaenghwal / Her Private Life (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16) Мобильное Телевидение
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сон Док Ми живёт двойной жизнью онf куратор художественной галереи и активный фанат и автор фан сайта поп айдола Си Ана. Она профессионал в обоих аспектах своей жизни, но фанатская деятельность очень мешает личной жизни. Райан новый директор галереи, где работает Док Ми. В прошлом известный художник, сейчас он наслаждается размеренной жизнью и новой карьерой. И вот (   Читать дальше...   )Производство: Корея Южная | «Bon Factory», «Studio Dragon», «tvN»Жанр: Комедия, мелодрамаРежиссер: Хон Джон-чханАктеры: Пак Мин-ён, Ким Джэ-ук, Ан Бо-хён, Ким Ми-гён, One, Хон Со-ён, Пак Чин-джу, Ким Сон-ён, Мэн Сан-хун, Пак Мён-щинПеревод: Многоголосый профессиональный (Мобильное Телевидение)Язык озвучки: РусскийСубтитры: Корейские (forced hardsub)Продолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE88E2FE6A807BDC41040888E2277FC22A6C59F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

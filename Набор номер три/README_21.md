@@ -1,3 +1,159 @@
+###  Публикация: 1610543   (1031299) от 23.03.2023
+
+Фишер (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1986 год. В районе правительственных дач на Рублевском шоссе одного за другим убивают подростков. Интеллигентный следователь Валерий Козырев, его дерзкий напарник из Ростова Евгений Боков и совсем молодая следователь Наталья Добровольская начинают расследование, даже не подозревая, как сильно оно изменит судьбу каждого из них. Единственный свидетель, способный опознать (   Читать дальше...   )Производство: Россия / Арт Пикчерс ВижнЖанр: детектив, драма, криминал, триллерРежиссер: Сергей Тарамаев, Любовь ЛьвоваАктеры: Иван Янковский, Александра Бортич, Александр Яценко, Сергей Гилев, Анна Снаткина, Роман Евдокимов, Ольга Озоллапиня, Алексей Гришин, Станислав Соломатин, Диана МилютинаПродолжительность: ~01:04:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0C822A871EF9BC99D47C391C1B47DBD042427A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547240   (1031298) от 23.03.2023
+
+Dune: Spice Wars (2022) [Ru/Multi] (0.4.20.22997) Repack Other s
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стратегия в реальном времени с 4X-элементами создана разработчиками знаменитой Northgard. Действие игры происходит в невероятной вселенной «Дюны» Фрэнка Герберта. Вам предстоит возглавить фракцию и сражаться за контроль над суровой пустынной планетой Арракис.Тип издания: RepackРазработчик: Shiro GamesЖанр: Strategy (Real-Time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17D1C7561046323A7DF5F2EB5C056CD71B9E03B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396593   (1031236) от 15.02.2021
+
+Spotify Music v8.6.0.830 MOD [Ru/Multi] (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушать песни в Spotify можно совершенно бесплатно. Здесь вы можете без труда найти музыку любимых исполнителей и создать персональный плейлист, в который могут войти ваши избранные композиции, например, музыка из фильмов и сериалов или песни о любви.Тип издания: Пиратка (Mod)Релиз состоялся: 09.02.2021Разработчик: Spotify Ltd.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C99D51B893B8137531A0E8CFE3F622B2A65314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443765   (1031233) от 15.02.2021
+
+MultiBoot HDD 2021 Final [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных,установки Windows,Linux.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B520FF667AB70A241D8AB6D8761621E140B2AED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447822   (1031085) от 16.02.2021
+
+Роспотребнадзор зарегистрировал первый в мире тест для британского COVID-19
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпидемиологи Роспотребнадзора разработали и зарегистрировали тест-систему на выявление мутации коронавируса N501Y (так называемого британского штамма), сообщается в понедельник на сайте надзорного ведомства.«Набор реагентов успешно прошел клинические испытания и зарегистрирован для использования в Российской Федерации (Регистрационное удостоверение № 2021/13517), (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602245   (1031080) от 24.03.2023
+
+Tensei Oujo to Tensai Reijou no Mahou Kakumei / Магическая революция перерожденной принцессы и гениальной юной леди [2023, TV, 12] WEBRip 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031080.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлой жизни принцесса Анна-София мечтала о магических способностях и, попав в фэнтезийный мир, разработала на основе своих воспоминаний магикологию — уникальную магическую теорию. Во время тестового полёта на метле она видит, как её брат расторгает помолвку с Эуфиллией. Тогда Анна-София решает сделать её свой ассистенткой, что предполагает совместное проживание (   Читать дальше...   )Жанр: фэнтези, комедия, юрятина.Режиссер: Тамаки СингоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA8D534969BDF55B6B17FF0B70E4317CAACF956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447823   (1031017) от 16.02.2021
 
 Названы регионы России с самым высоким качеством жизни
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031017.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031014.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Adobe Photoshop 2021 22.2.0.183 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031000.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030849.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030833.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030819.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Windows 10 PRO 20H2 x64 Rus by OneSmiLe [19042.804]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030767.jpg" />
 </div>
 
 
@@ -191,7 +347,7 @@ Adobe Photoshop 2021 v22.2+ Neural Filters [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030766.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030632.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030626.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030625.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030622.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ Outline Client VPN 1.10.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030618.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030560.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030536.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ Image Uploader 1.3.2 Build 4717 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030534.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ Total War: THREE KINGDOMS (2019) [Ru/En] (1.5.3/dlc) Repack West4it
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030533.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.0.9) Repack xatab (обновля
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030532.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 20H2 RU by OVGorskiy 01.2021
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030531.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ Facebook заблокировал австралийские СМИ
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030404.jpg" />
 </div>
 
 
@@ -514,165 +670,6 @@ Facebook заблокировал австралийские СМИ
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620102   (1030396) от 27.03.2023
-
-Нападение на Рио Браво / Gunfight at Rio Bravo (2023) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030396.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1873 году небольшой приграничный городок в Восточном Техасе подвергается нападению злобной, кровожадной банды преступников, известной как «Адские гончие». Иммигрант из России, русский полковник лейб-гвардии Российской Империи Иван Турчанинов, маршал округа и шериф города бесстрашно противостоят нашествию жестоких убийц.Производство: США / Hollywood Storm, ETA Films, San Rafael ProductionsЖанр: боевик, вестернРежиссер: Джо КорнетАктеры: Александр Невский, Оливье Грюнер, Джо Корнет, Маттиас Хьюз, Натали Денис Шперл, Керри Гудвин, Трэвис Миллс, Уильям Карр, Джон Маррс, Роберт ЛивингстонПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:20:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B234C4DEB5B905989EB2DA2FEECACB108FDC48F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620902   (1030385) от 27.03.2023
-
-Windows 11 Pro x64 Version 22H2 Build 22621.1413 by Igors_VL [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка Windows 11 Pro x64 Version 22H2 Build 22621.1413 с самыми нужными настройками, блокировкой телеметрии, автоматической установкой и автоактивацией (Активация требует подключения интернета, либо активируется при подключении интернета)Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF9726E0D87C86610C7A4FA49957A2AE8936D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448753   (1030371) от 19.02.2021
-
-Перебои в энергоснабжении в Техасе вынудили Samsung приостановить фабрику по производству полупроводниковых чипов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Samsung была вынуждена временно приостановить производство чипов на своей фабрике в Остине, штат Техас. Причиной тому стало отключение энергоснабжения в штате после зимней бури Uri. Сообщается, что буря оставила без электричества около 200 000 техасцев.Энергетическая компания Austin Energy попросила Samsung отключить энергопотребление на своей фабрике по (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408961   (1030326) от 19.02.2021
-
-Служебный роман (1977) BDRip [H.264/1080p-LQ] [реставрация]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Ефремович Новосельцев, рядовой служащий одного статистического управления, — человек робкий и застенчивый. Для него неплохо бы получить вакантное место зав. отделом, но он не знает как подступиться к этому делу. Старый приятель Самохвалов советует ему приударить за Людмилой Прокофьевной Калугиной, — сухарем в юбке и директором заведения…Производство: СССР / МосфильмЖанр: Драма, мелодрама, комедияРежиссер: Эльдар РязановАктеры: Андрей Мягков, Алиса Фрейндлих, Светлана Немоляева, Олег Басилашвили, Лия Ахеджакова, Георгий Бурков, Зоя Исаева, Людмила Иванова, Петр Щербаков, Мария ВиноградоваСубтитры: ОтсутствуютПродолжительность: 02:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87CF2044F99133461905AFA60CCFF2B8299136D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 41577   (1030297) от 19.02.2021
-
-Психоактивная аудиопрограмма | Выделение астрального тела (2000) [FLAC]
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хемисинк. Gateway Sound Studio 2000 год.
-
-Данные упражнения помогут Вам развить навыки выделения тонкого тела. Методика основана на разработках знаменитого мастера астральных путешествий Роберта Монро.
-(   Читать дальше...   )Жанр: Психоактивная аудиопрограммаПродолжительность: 67:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2FE17775BFCD38710FDFB6A6E7451FB6B8E9E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448900   (1030296) от 19.02.2021
-
-Аферистка / I Care a Lot (2020) WEB-DLRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марла руководствуется принципом «побеждает сильнейший». Она искусно пользуется людьми, прикрываясь заботой о них, и наловчилась безнаказанно обдирать своих богатых клиентов за счет редкого обаяния и немалой доли цинизма. Но её новая подопечная не так проста, как кажется, и сладкая жизнь аферистки скоро превратится в игру на выживание.Производство: Великобритания, Black Bear Pictures, Crimple BeckЖанр: Триллер, Комедия, КриминалРежиссер: Дж. БлэйксонАктеры: Розамунд Пайк, Питер Динклэйдж, Эйса Гонсалес, Дайэнн Уист, Крис Мессина, Исайя Уитлок мл., Мэйкон Блэр, Алисия Уитт, Дэмиэн Янг, Николас ЛоганПеревод: Дублированный (по заказу Netflix)Субтитры: Русские (Forced, Full) отдельным файломПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B5589C965B6AA237F33D93F4A7A476699FFDC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

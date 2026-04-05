@@ -1,3 +1,32 @@
+###  Публикация: 1857222   (1059589) от 04.03.2026
+
+VA - Шансон 90-х, Часть 4 (Избранные песни десятилетия) (2026) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mikhail Krug - Фраер (Ремастеринг 2017) (2:54)
+02.  Иван Кучин - В таверне (4:22)
+03.  Катя Огонёк - Я ревную тебя (4:40)
+04.  Владимир Асмолов - Я иду в кабак (3:14)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE40583E8241F91E7228D5551A8740A1BB54944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856756   (1059190) от 02.03.2026
 
 iSenin - Ветры (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
@@ -6,7 +35,7 @@ iSenin - Ветры (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059190.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058927.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058926.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058925.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058498.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057673.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ VA - Александр Асмолов - Старый рубль (2026) AI-gener
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057655.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ VA - Красивый шансон (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055460.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055459.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ VA - Новые хитовые песни 2026, Часть 1 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055314.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ VA - Русский Шансон_ Сборник крутых песен otKOSTE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055313.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ VA - Самые новые песни о любви 12 (2026) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055312.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ VA - Шансон премьера 2026 январь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055310.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054012.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 K
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054010.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Cha
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054008.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052801.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Vayper - Песни на стихи Юнны Мориц (2025) [MP3|~190 Kbps (V
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051443.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Vayper - Песни на стихи Николая Рубцова (Volume 1) (20
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051442.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ VA - Дискотека радио шансон (2025) [FLAC|Lossless|WEB-DL|tra
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051038.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - Шансон новое 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051037.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ VA - Шансон премьера 2025 (Лучшие песни) (2025) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051036.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Vayper - Песни на стихи Н. Гумилева (2025) [MP3|~190 Kbps (
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050838.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - 50 песен радио шансон, Часть 9 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050346.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050345.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE569480341FFAF30BB8F35E7EEF41A96469522F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845052   (1050344) от 29.12.2025
-
-Доктор Шансон - Пятница в электричке (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ковалько (2:43)
-02.  В пятницу гуляем! (3:21)
-03.  Ты не пришла (2:58)
-04.  Когда молод был (2:15)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05826E7E247FA374695020203284ABE57E8C1E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

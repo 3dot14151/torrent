@@ -1,81 +1,3 @@
-###  Публикация: 959601   (313831) от 25.11.2015
-
-Николай Прохоренок, Владимир Дронов | Python 3. Самое необходимое [+ приложение] (2016) [PDF, DOC]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описан базовый синтаксис языка Python 3: типы данных, операторы, условия, циклы, регулярные выражения, встроенные функции, классы и объекты, итераторы и перечисления, обработка исключений, часто используемые модули стандартной библиотеки. Даны основы SQLite, описан интерфейс доступа к базам данных SQLite и MySQL, в том числе посредством ODBC. Рассмотрена работа с (   Читать дальше...   )Жанр: Языки и системы программированияФормат: PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7F5BDB24A2DB4BDA92F8198B39EE1707521963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182474   (313725) от 11.11.2017
-
-Пол Бэрри | Изучаем программирование на Python (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоело продираться через дебри малопонятных самоучителей по программированию? С этой книгой вы без груда усвоите азы Python и научитесь работать со структурами и функциями. В ходе обучения вы создадите свое собственное веб-приложение и узнаете, как управлять базами данных, обрабатывать исключения, пользоваться контекстными менеджерами, декораторами и генераторами. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3403DECA1E92AA71279C206EADDEBE5214DF796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076559   (312892) от 25.11.2016
-
-Алексей Васильев | Программирование на C++ в примерах и задачах (2017) [PDF, DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга включает в себя полный набор сведений о языке C++, необходимых для успешного анализа и составления эффективных программных кодов. Материал излагается последовательно и дополняется большим количеством примеров, практических задач и детальным разбором их решений. К каждому разделу прилагается обширный список задач для самостоятельного решения.Жанр: Программирование на C++Формат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7260170536C3F90F397DB6F9F1E4A18308FBD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422352   (307953) от 09.11.2020
 
 Владимир Дронов | Django 3.0. Практика создания веб-сайтов на Python (2021) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307953.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305038.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301742.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301679.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300573.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298344.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293980.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292683.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ James Cook / Джеймс Кук | LibGDX Game Development By Example / LibGDX �
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292508.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292468.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281842.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281519.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281516.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273150.jpg" />
 </div>
 
 
@@ -457,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272193.jpg" />
 </div>
 
 
@@ -483,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271995.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271985.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271896.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271890.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271874.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269263.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268689.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266583.jpg" />
 </div>
 
 
@@ -679,6 +601,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39B5856A216860901E5C7DFD326FC9E8216F1290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340724   (263430) от 24.11.2019
+
+Е.Г. Канель, З. Фрайман | Основы программирования на Java. Для школьников... и не только (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Основы компьютерных наук для средней школы» - это базовый курс по основам программирования. Данное издание рассчитано на учеников старших классов (9–11), не имеющих опыта в написании компьютерных программ или имеющих минимальный опыт. Данный подход позволяет использовать этот учебник и в рамках коллективных занятий (на уроках, факультативах или кружках), и (   Читать дальше...   )Жанр: Информатика, программированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4944A6404F2F9127B414848BC1CFC6441205F635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192481   (262669) от 18.12.2017
+
+Д.М. Златопольский | Программирование. Типовые задачи, алгоритмы, методы (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262669.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлены методики решения типовых задач по программированию, не привязанные к конкретному языку. Методика решения задач и программ приводятся на школьном алгоритмическом языке.
+Книга адресована школьникам и студентам, начинающих изучать программирование, а также будет полезной преподавателям различных учебных заведений и студентам педагогических (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B74B1FBA1B1E2ED62B1168596A88C28D9D3A8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839095   (261687) от 27.11.2025
+
+С. Наков и др. | Python. Основы программирования (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Python. Основы программирования» знакомит читателя с написанием программного кода в среде разработки (IDE) на начальном уровне, то есть дает базовые навыки программирования. С ее помощью начинающий программист освоит использование переменных и данных, операторов и выражений, научится работать с консолью (считывание входных данных и вывод выходных данных), (   Читать дальше...   )Жанр: Учебное пособиеЯзык: РусскийИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A408B996AC426BC75A81C3CF3DA532C935FEB86B
 ```
 
 https://mybot314.ru/tekegram_catalog/

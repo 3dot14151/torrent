@@ -1,3 +1,30 @@
+###  Публикация: 1001097   (853851) от 28.03.2016
+
+Лев Толстой | Утро помещика (2016) [MP3, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853851.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Утро помещика» — рассказ автобиографического характера о молодом помещике, желающем «сделать счастие своих крестьян». Девятнадцатилетний юноша ушел из университета и навсегда переехал в деревню, где его грандиозный план подвергся суровому испытанию на практикеЕ Милая тетушка.»
+Я принял решение, от которого должна зависеть участь всей моей жизни. Я выхожу из университета, (   Читать дальше...   )Жанр: Повесть, Отечественная классикаИздательство: Творческая группа «СамИздат»Продолжительность: 01:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2411D8858A1D181EF86BD86C764FD363A2E29FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110129   (853760) от 02.03.2017
 
 Александр Пушкин | Станционный смотритель (2017) [MP3]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853760.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853751.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853174.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852902.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851630.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850298.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846926.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846920.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846663.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842776.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840523.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840192.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839107.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838287.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835883.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835782.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833474.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833338.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833167.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833166.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831966.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830459.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829761.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829509.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829076.jpg" />
 </div>
 
 
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1558D3D90E4B26AA88AD07A69D5D4F157A1B39D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195741   (828653) от 26.04.2010
-
-Уильям Шекспир | Гамлет (Радиоспектакль) [2005] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принцу Гамлету является призрак его отца, чтобы открыть страшную тайну: король умер не своей смертью, он был отравлен собственным братом, который стремился завладеть его короной и королевой. Гамлет клянется отомстить за отца и разоблачить отчима, но на его стороне лишь признание бестелесного духа, невидимого остальным людям? Да и убийца, заподозрив неладное, пытается (   Читать дальше...   )Жанр: Трагедия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5553CDF555F487E826825652C5D174C4C4BDB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

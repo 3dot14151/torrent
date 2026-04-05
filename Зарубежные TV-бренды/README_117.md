@@ -6,7 +6,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142982.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142716.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Служба безопасности аэропорта: Первый кл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142622.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Animal Planet: Удивительный мир животных (часть 2) /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142392.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip [H
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142284.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142204.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142202.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip (1
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142144.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Discovery: Секс у тираннозавров / Tyrannosaurus sex (2010) HDT
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141574.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141028.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC: Итальянские сады с Монти Доном / Monty Don’s It
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141020.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140947.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140791.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140331.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Нострадамус / Nostradamus (2006) IPTVRip [H.264]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139635.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ History Channel: Тайны египетских пирамид / Lost Secrets o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139630.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139041.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Discovery. Опасная работа / Hard to Kill (2018) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138825.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) WEBRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138650.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138635.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138540.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137573.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137378.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137154.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135026.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134709.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1507603   (798294) от 05.11.2021
+
+Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - The Business (SWACQ Remix)
+02. FETISH - The Door
+03. Kriss Reeve & Repiet - Anybody
+04. Keanu Silva - King Of My Castle (Don Diablo Edit)(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507500   (798293) от 05.11.2021
+
+VA - Live @ ABGT 450, (The Drumsheds London, United Kingdom) (2021-09-04) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Above & Beyond @ ABGT 450 (Deep Warm Up Set), River Lea London, United Kingdom:
+01. Ben Bohmer feat. lau.ra - Erase
+02. Powel - Chapek 9
+03. Fehrplay - ID(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 09:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607FC8BD3F0B493C485619A1407ACC949A947BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507617   (798289) от 05.11.2021
 
 CamelPhat - Live @ The Palms, CRSSD Fest, United States (2021-09-25) [MP3|320 Kbps] <Progressive House, Deep House>
@@ -6,7 +64,7 @@ CamelPhat - Live @ The Palms, CRSSD Fest, United States (2021-09-25) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798289.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jean-Michel Jarre - Welcome To The Other Side - Live in Notre Dame VR (2021) [FL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798098.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Johan Tronestam - Space Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797985.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Johan Tronestam - Space Collection (2017) [MP3|320 Kbps] <Berlin-School, Space M
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797980.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Gagarin Selection 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797978.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Gagarin Selection 2021 (2021) [MP3|320 Kbps] <Spacesynth, Synthpop, Synthwa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797971.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Olive - CD Коллекция (4 CD, 2 Albums) (1997-2000) [FLAC|Lossless|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797970.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797873.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Aurolab - Anna (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Nu-Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797813.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797811.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Testpattern - Apres-Midi (1982) Reissue CD, 1990, Yen Records [MP3|320 Kbps] <El
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797810.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ V.A. - Coffee Bar Lounge, Vol. 19 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Lis
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797807.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Erotic Lounge Essential Summer (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797803.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797801.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Deep Erotica - Love is in the Air. Making Love Music Background (2020) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797763.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Progressive Guide Vol.1 (2016) [MP3|320 кб/с] <House, Progressve House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797701.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Finest 30 Chill Out Multibundle (2016) [MP3|320 кб/с] <Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797666.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Global DJ Broadcast Top 20 April (2016) [MP3|320 кб/с] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797665.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797660.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Pro
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797537.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797534.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797532.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797530.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ DJ Licious - Tomorrowland Friendship Mix (2021-11-04) [MP3|320 Kbps] <Dance, Ele
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797518.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ DJ Licious - Tomorrowland Friendship Mix (2021-11-04) [MP3|320 Kbps] <Dance, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C350A70971D2BE9D678E0FD27C318BA9B0CD797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199849   (797501) от 18.01.2018
-
-VA - Aly & Fila - Future Sound of Egypt 531 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jody Wisternoff ft. Hendrik Burkhard - For All Time
-02. Wellenrausch & Gai Barone - Heroes Of Light (Jerome Isma-Ae & Alastor Remix)
-03. Pablo Artigas - Daybreak
-04. Kastis Torrau - Glice Glice(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E76CBAC77B47F5EF9B55BCBB9B0AEE6EBA7DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199773   (797499) от 18.01.2018
-
-VA - Back To The Future, Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasse - On My Mind (Metrica Remix) (05:32)
-02. Benny Grauer - Falling (Markus Homm Remix) (07:18)
-03. Frankey, Sandrino - Cephei (Locked Groove Remix) (09:13)
-04. Ben La Desh - 2912 (Original Mix) (07:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EC2D2E634A739539FF1BB439CE73E9956A781C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sarah-Jane Morris - August (2001) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470031.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Elisabeth Kontomanou - Brewin' the Blues (2008) [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469978.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Robin Grant & The Standard - Good Girl (2017) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469900.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Jazz Ballads (1993) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469862.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Nina Simone - The Amazing Nina Simone (2005) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469810.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wes Montgomery - Bumpin' On Sunset (2007) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469535.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ray Bryant - Through The Years, vol.2 (1992) /1992, Nippon/[FLAC|image+.cue]<Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469355.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469350.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Kathy Sanborn - Lights Of Laniakea (2015) [FLAC|image+.cue]<Vocal Jazz, World>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469340.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ The Alan Broadbent Trio - Pacific Standard Time (1995) /PAR Media Music/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469321.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Louis Armstrong - Hear Me Talkin' To Ya (1995) /Castle Communications/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469155.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Cannonball Adderley - Sophisticated Swing The EmArcy Small Group Sessions [FLAC]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469147.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Chuck Loeb - Unspoken (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468836.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Wynton Marsalis Septet - United We Swing: Best of the Jazz at Lincoln Center Gal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468610.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Dexter Gordon - Nights at the Keystone, Vol.3 (1979) 1990, Blue Note [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468373.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Jamie Cullum Trio - Heard It All Before (1991) 1999, Jamie Cullum [APE|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468130.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ V.A. - My Girl Light Soothing Jazz Temptations Tunes (2022) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468027.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ AMM - AMMMusic: 1966 (1966) Reissue, 1989 [FLAC|Lossless|tracks + .cue] <Jazz, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467964.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kenny Drew - Four Classic Albums (1953 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467896.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Giuseppe Milici Quartet - Jazz Tribute to Michael Jackson (2010) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467659.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Forum West - Modern Jazz From West Germany: Wewerka Archive 1962-1968 (2004
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467646.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Wynton Kelly - Piano (1958) /2004, Riverside/ [FLAC|tracks+.cue]<Hard Bop, Piano
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467294.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Billie Holiday - Jazz Masters (1996) /Mandarim Records/[FLAC|tracks+.cue]<Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467191.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Ali Auger - Soft & Furry (2001) 2006, Castle Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466726.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Tony Bennett & Lady Gaga - Cheek To Cheek [18 tracks version] (2014) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466620.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ VA - Accustic Arts - Uncompressed World Vol 2 (2010) [FLAC|Lossless]<Jazz, Audio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466597.jpg" />
 </div>
 
 

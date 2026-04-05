@@ -1,3 +1,165 @@
+###  Публикация: 1384353   (803736) от 19.05.2020
+
+Adobe Photoshop 2020 21.1.3.190 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8342A029112D8A3EEC3710B4092014EA24E103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009522   (803316) от 24.04.2016
+
+LockScreen 2.0 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа LockScreen предназначена для блокировки компьютера путем установки горячих клавиш.Блокируются клавиатура и мышка.Стандартная блокировка(Win+L) не блокируется.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EA21DE7216BB538C4922A02310AC26E0A1012A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010332   (803232) от 24.04.2016
+
+Bandicam 3.0.4.1036 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D887A9AF096B55F0C5AB421BBF1F9030C127D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471317   (803220) от 24.04.2016
+
+Joe Bonamassa - 23 альбома (2000-2016) Официальная дискография [FLAC|Lossless|image + .cue]<Blues Rock, Hard Rock, Rock and Roll>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studio Albums:
+2000 A New Day Yesterday
+2002 So, It's Like That
+2003 Blues Deluxe(   Читать дальше...   )Live Albums:
+2002 A New Day Yesterday Live
+2008 Live from Nowhere in Particular
+2009 Live from the Royal Albert Hall(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Rock and RollПродолжительность: 31:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627B252B19779145C0D0A534144055130CFD4418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905695   (803208) от 24.04.2016
+
+Супердевушка / Супергёрл / Supergirl (2015) HDTVRip, WEB-DLRip [H.264/1080p-LQ] (сезон 1, серия 1-20 из 20) (LostFilm)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803208.jpg" />
+</div>
+
+
+###  Подробнее
+
+В двенадцать лет Кара Зор-Эл была вынуждена покинуть родную планету Криптон. На Земле её приютила семья Дэнверс. Всю свою земную жизнь она тщательно скрывала свои сверхспособности. Сейчас Каре 24 года, она работает в крупной медийной корпорации помощником руководителя. Никто из её знакомых не знает о том, кто она на самом деле, и девушку это вполне устраивает. Но (   Читать дальше...   )Производство: СШАЖанр: фантастика, боевик, приключенияРежиссер: Глен ВинтерАктеры: Мелисса Бенойст, Дерек Мио, Бен Бегли, Лаура Бенанти, Мехкад Брукс, Дин Кэйн, Калиста Флокхарт, Тони Френч, Роберт Гант, Дэвид Хэрвуд и др.Перевод: многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~ 00:46:00 серияРеклама: присутствуют заставка и логотип LostFilm.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF79E3770BA612A74CB4EC99A83F428FD0B81CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010271   (803207) от 24.04.2016
+
+Помнить / Remember (2015) HDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие годы Зев Гутман старается забыть все то, что произошло с ним в Освенциме. Прошло уже семьдесят лет: Зев обзавелся семьей, построил уютную и спокойную жизнь, и сейчас он находится на заслуженном отдыхе в доме престарелых. Но он так и не смог преодолеть ужас, пережитый в лагере смерти. Макс, его старый друг, вышел на след человека, мучившего их обоих в Освенциме...Производство: Канада, Германия, Serendipity Point Films, Egoli Tossell FilmЖанр: Триллер, ДрамаРежиссер: Атом ЭгоянАктеры: Кристофер Пламмер, Дин Норрис, Мартин Ландау, Джеймс Кейд, Юрген Прохнов, Генри Черни, Бруно Ганц, Натали Крилл, Питер ДаКуна, Джанет Портер, София Уэллс, Дуан МюррэйПеревод: Дублированный (iTunes)Продолжительность: 01:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB62F700F981EC38353ECB858FACD307AF389A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989382   (803203) от 24.04.2016
 
 КВН-2016. Высшая лига (2016.04.24) SATRip
@@ -6,7 +168,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803203.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ VA - Erotic Desires Volume 401-500 (2015-2016) [MP3|320 кб/с]<Vocal Trance> (
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803202.jpg" />
 </div>
 
 
@@ -61,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803142.jpg" />
 </div>
 
 
@@ -87,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803141.jpg" />
 </div>
 
 
@@ -113,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803138.jpg" />
 </div>
 
 
@@ -139,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803137.jpg" />
 </div>
 
 
@@ -165,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803136.jpg" />
 </div>
 
 
@@ -191,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_802907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_802907.jpg" />
 </div>
 
 
@@ -218,7 +380,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.4 Build 286 Stable + Portable 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802878.jpg" />
 </div>
 
 
@@ -246,7 +408,7 @@ Malwarebytes Anti-Malware Premium 3.0.6.1469 DC 29.03.2017 RePack by KpoJIuK [Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802864.jpg" />
 </div>
 
 
@@ -272,7 +434,7 @@ Sticky Password Premium 8.0.11.49 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802860.jpg" />
 </div>
 
 
@@ -299,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802833.jpg" />
 </div>
 
 
@@ -325,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802823.jpg" />
 </div>
 
 
@@ -351,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_802820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_802820.jpg" />
 </div>
 
 
@@ -377,7 +539,7 @@ Dead Space Anthology (2008-2013) [Ru/Multi] Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802812.jpg" />
 </div>
 
 
@@ -403,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802808.jpg" />
 </div>
 
 
@@ -429,7 +591,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/u3) OriginRip Let'sPlay [Digit
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802806.jpg" />
 </div>
 
 
@@ -455,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802803.jpg" />
 </div>
 
 
@@ -481,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802662.jpg" />
 </div>
 
 
@@ -507,7 +669,7 @@ Heroes of Might & Magic III HD 1.1.5 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802658.jpg" />
 </div>
 
 
@@ -518,163 +680,6 @@ Heroes of Might & Magic III HD 1.1.5 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5190DFFD369752AC962915EB94DF069C92DC937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198619   (802372) от 14.01.2018
-
-Telegram создаст свою криптовалюту, заменит ею биткоин и потеснит Visa и Mastercard
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_802372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда Telegram, возглавляемая Павлом Дуровым, намерена создать блокчейн-платформу с собственной криптовалютой, сообщают «Ведомости» со ссылкой на документ, описывающий планы развития сервиса.По мнению Дурова и Ко, нынешние блокчейн-сети в силу ряда ограничений не способны стать альтернативой тем же Visa и Mastercard из-за своей медлительности и сложности для обычных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505554   (802205) от 28.10.2021
-
-В России запретили сайты о топорах
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_802205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Районный суд Саратова заблокировал сразу три сайта с инструкциями по изготовлению топоров, в том числе каменных. В решении суда сказано, что на блокировке настоял прокурор Воскресенского района, действовавший в интересах неустановленных третьих лиц. При этом Рунет переполнен подобного рода инструкциями – в выдаче «Яндекса» их сотни, так как в России подобная информация (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505693   (802200) от 28.10.2021
-
-Adobe Photoshop Lightroom Classic 11.0.0.10 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78D7F38FFD523B3ECA8CF331F3E1EA12E3DE459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505685   (802191) от 28.10.2021
-
-Adobe Photoshop 2022 23.0.0.36 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2022 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7300406DAFDD58FE6DBD139E727BD612E7FB30C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502960   (802190) от 28.10.2021
-
-Windows 11 16in1 +/- [x86] Office 2019 by SmokieBlahBlah 2021.10.16 [Ru/En]
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802190.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 редакции Windows 11 (русские и английские) с обновлениями по октябрь 2021, основанных на оригинальном английском дистрибутиве и интегрированными системными библиотеками
-+4 таких же редакции со встроенным MS Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8A131257A0E81DC52E151EB02C5B36616C2A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405013   (802189) от 28.10.2021
-
-Wasteland 3 (2020) [Ru/Multi] (1.6.9.420.309496/dlc) License GOG [Colorado Collection]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802189.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Wasteland 3 вам предстоит возглавить отряд пустынных рейнджеров — законников разрушенного ядерной войной мира, пытающихся возродить общество из пепла. После ядерной войны прошло более ста лет. Вы ведёте безнадёжную борьбу в надежде сохранить свою любимую Аризону.Тип издания: LicenseРазработчик: inXile EntertainmentЖанр: Ролевая игра, Стратегия, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E23DE54B1529C74988D143C37B7CE6F7552BF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

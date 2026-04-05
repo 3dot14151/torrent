@@ -1,29 +1,3 @@
-###  Публикация: 1212004   (774203) от 14.03.2018
-
-Джордж Массер | Нелокальность. Феномен, меняющий представление о пространстве и времени (2018) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена истории феномена нелокальности в физике. Она представляет собой захватывающий обзор фактов, указывающих на то, что пространство-время является производным свойством Вселенной, а не ее фундаментальным элементом. Автор показывает, что нелокальность может быть матерью всех загадок и головоломок, с которыми сталкиваются физики в наши дни, - это не (   Читать дальше...   )Жанр: Физика, Общие работы по физикеПеревод: Вячеслав Ионов, Мария ТомсФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22A8195B5518A43B2127B18BDA35DC835551E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278268   (773010) от 24.01.2019
 
 Грегори Бернс | Что значит быть собакой. И другие открытия в области нейробиологии животных (2019) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773010.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772496.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770616.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768335.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767081.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767027.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766974.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764528.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764522.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764442.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764259.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763723.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762979.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761989.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761862.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761651.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761417.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760510.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760120.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758629.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758236.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757012.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756500.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756472.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755075.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB59FDD0D240781AD1CA82C0E328B7AEC1CFD91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395338   (753643) от 11.07.2020
+
+Виталий Егоров | Делай космос (2018) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покорители далёких планет часто становятся героями книг или фантастических фильмов. Они пересекают пояса астероидов, проносятся мимо живописных планет-гигантов, поднимаются на склоны инопланетных гор и любуются внеземными закатами… Будущее наступило, но не такое, как мы хотели. Теперь изучают и открывают космос настоящие покорители – роботы. Вместе с ними люди, не (   Читать дальше...   )Жанр: Научно-популярная литература, АстрономияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188942EEA3B056424F6284E23475F05A2EECA809
 ```
 
 https://mybot314.ru/tekegram_catalog/

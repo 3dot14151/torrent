@@ -1,3 +1,61 @@
+###  Публикация: 1206400   (782572) от 13.02.2018
+
+VA - Clinique Mixed XV (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alfonso Muchacho  -  Wasteland (Original Mix)  7:56
+02.  Kai Van Crash  -  Cold Tea (Teil Remix)  8:32
+03.  Kade B  -  Shemyaza (Original Mix)  7:05
+04.  JohnnyV  -  Ray Gun (Original Mix)  7:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05034D52769A43BF995E0EAA825EC7B6AAA0195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206281   (782564) от 13.02.2018
+
+VA - Chillhouse Factory (Discover Deephouse Rhythms) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Natural Soul  -  Get Ready (Phisicall Lover Mix)  3:34
+02.  K Tonique  -  Give At To Me (Ibiza Night Mix)  3:33
+03.  Vibe Lovers  -  Reason For Leaving (Cool Rhythms Mix)  3:35
+04.  Deep Kings  -  Retroguard (The Fashion Mix)  3:30(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 01:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85391F5BD47DB0623EA3AB08C7348D1306E1331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206248   (782557) от 13.02.2018
 
 VA - Melodic Beats Vol.1 (2018) [MP3|320 Kbps] <House, Progressive House. Deep House>
@@ -6,7 +64,7 @@ VA - Melodic Beats Vol.1 (2018) [MP3|320 Kbps] <House, Progressive House. Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782557.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Best Workout Love Boy (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782262.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782261.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Club Music (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782251.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - House Life Vol.19 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782168.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Delicihouse (The Sound Of Deep House) (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782167.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Music Lovers 2018 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782163.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Club Masters Vol.15 (2018) [MP3|320 Kbps] <Future House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782157.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Deep Progressive House Set (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782150.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Workout Music, Vol. 8 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782123.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781337.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, P
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781323.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Ro
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781319.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Running Electronica, Vol. 10 (For a Cool Rush of Blood to the Head) (2018) 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780850.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Vocal House Traxx Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780419.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Nothing But... Essential House Music Vol.01 (2018) [MP3|320 Kbps] <House, D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780304.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Sam Feldt - After The Sunset (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780285.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Power Sounds (Volume 1) (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780129.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Deep House Look in the Mirror, Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779818.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Sexy Miami Beach, Vol. 2 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779810.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - FG Top 10 February 2018 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779301.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Faces Of House Vol.4 (2018) [MP3|320 Kbps] <House, Funky House, Groove Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779300.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Mount Everest: The Base Camp Mix (Mixed by Paul Oakenfold) (2018) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779262.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Dance All Night Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779157.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Dance All Night Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6A9419BB1D692474AD09ECA38D3D4E738BFF654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209803   (779152) от 28.02.2018
-
-VA-Artistic Dance Zone 14 (2018) [MP3|320 Kbps] <House, Tech House, Deep House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinechain - Discoking (Radio Edit)
-02. Rheinkraft - Glow the Freeker
-03. DJ Anady - Dale Mas
-04. DIMES - Turn It Up(   Читать дальше...   )Жанр: House, Tech House, Deep House, FunkyПродолжительность: 02:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CF48B50EA4B52A2A99F4C7E0A0C8FA639C85DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210392   (778869) от 02.03.2018
-
-VA - Armada Miami (2018) [MP3|320 Kbps] <House, Progressive, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren feat. Conrad Sewell  -  Sex, Love & Water (Extended Mix)  5:54
-02.  Lost Frequencies & Zonderling  -  Crazy (Mr. Belt & Wezol Extended Remix)  4:51
-03.  Showtek & Moby  -  Natural Blues (Extended Mix)  4:30
-04.  DubVision & Afrojack  -  New Memories (Extended Mix)  5:01(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9FBB7F773A7B608CE5B85EAFC05CC68C648BFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

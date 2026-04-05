@@ -6,7 +6,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pure Collector's Edition / Pure Коллекционное издание [Ru/En
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132952.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FUEL [Ru/En] (L) 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132906.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ World Racing 2 (2022) [Multi] (1.5.3-20231108) License GOG [Champion Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131930.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131711.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128562.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack Decepticon [Collector's Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128514.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Need for Speed: Most Wanted (2005) [Ru/Multi] (1.3) Repack Decepticon [Black Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128507.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Need for Speed: Underground (2003) [Ru/En] (1.4.0) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128333.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128189.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127921.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127750.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127730.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127537.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127535.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127527.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127161.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Need for Speed: The Run (2011) [Ru/En] (1.1.0.0/dlc) Repack Decepticon [Limited 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127024.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127001.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack Decepticon [Lim
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126720.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126691.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126571.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126380.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364/dlc) Repack Decepticon [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125669.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Bootlegger's Mafia Racing Story (2024) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123494.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123191.jpg" />
 </div>
 
 

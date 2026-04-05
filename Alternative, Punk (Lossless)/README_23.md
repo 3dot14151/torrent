@@ -6,7 +6,7 @@ If These Trees Could Talk - Above The Earth, Below The Sky (2009) [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682922.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fever Feel - Fever Feel (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie, Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682164.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Fall - Bend Sinister | The Domesday Pay-Off Triad Plus! (2019) RM. [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682087.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Le Butcherettes - bi/MENTAL (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682078.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Young Gods - Data Mirage Tangram (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682075.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Elysian Fields - The Afterlife (2009) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682074.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Karen O & Danger Mouse - Lux Prima (2018) [FLAC|Lossless|tracks + .cue] <Electro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682071.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Messer Chups - Mondo Harp (2019) [FLAC|Lossless|tracks + .cue] <Punk, Surf, Tras
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681981.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Amanda Palmer - There Will Be No Intermission (2019) [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681879.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Red Hot Chili Peppers - Transmission Impossible (2016) 3CD, Remastered, Compilat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681878.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Linkin Park - One More Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680538.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ritual Howls - Rendered Armor (2019) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680439.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Martha - Love Keeps Kicking (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678492.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ American Football - American Football (LP3) (2019) [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678482.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ U137 - Chapter Two (2019) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Ep
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678373.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Desert Planet - My Biggest Dream (2017) EP [FLAC|Lossless|tracks + .cue] <Hard R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676597.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Professor Tip Top - Hybrid Hymns (2019) [FLAC|Lossless|tracks + .cue] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676581.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Nine Inch Nails - 17 Альбомов (1989 - 2007)  [FLAC|Lossless]<Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_676223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676223.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Papa Roach - Crooked Teeth (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674492.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Living Hour - Softer Faces (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, Psyc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674453.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Papa Roach - Crooked Teeth (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670766.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ One Hundred Thousand - The Forms In Which They Appear (2016) [FLAC|Lossless|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670467.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Metric - 5 albums, 1 single (2003 - 2012) [FLAC|Lossless] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_669943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669943.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Muse - Muscle Museum (1999) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669138.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Kristin Hersh - Possible Dust Clouds (2018) [FLAC|Lossless|tracks + .cue] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668915.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Lucy's Drive - Pair Of Sounds (Red) (2019) [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668913.jpg" />
 </div>
 
 

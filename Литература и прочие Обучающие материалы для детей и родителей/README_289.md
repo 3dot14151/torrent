@@ -1,3 +1,58 @@
+###  Публикация: 947921   (415227) от 18.10.2015
+
+Г.Т. Егораева | ОГЭ 2016. Русский язык. 9 класс. Основной государственный экзамен. Типовые тестовые задания (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит 10 вариантов типовых тестовых заданий Основного государственного экзамена.
+Назначение пособия — отработка практических навыков учащихся при подготовке к экзамену (в новой форме) в 9 классе по русскому языку.
+В сборнике даны ответы на все варианты тестов.Жанр: Образовательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4031A602938C33C29B887BE4D61456DD0A21DD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946729   (415218) от 18.10.2015
+
+Ю. Б.Голицынский | Английский язык. Грамматика. Сборник упражнений (2011) [DOCX]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный документ не является точной копией печатного варианта - это его электронный версия.
+Сборник упражнений по всем разделам английской грамматики. Упражнения основаны на несложной лексике. Они содержат достаточно материала для запоминания основных грамматических форм и выработки навыков их применения. Дополнен теоретическим материалом и словарем.Жанр: Сборник упражненийФормат: DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179064EFE9F9427BB21C50FA91A9F5287B577D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167588   (415186) от 21.09.2017
 
 Морис Фомич Поцхишвили | Хохотун и хохотунья (1985) [PDF, DJVU]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415186.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415080.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415079.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415050.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415027.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414961.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414949.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414869.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414850.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414824.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414776.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414718.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414712.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414381.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414170.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414073.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413924.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413878.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413854.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413844.jpg" />
 </div>
 
 
@@ -536,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413755.jpg" />
 </div>
 
 
@@ -563,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413745.jpg" />
 </div>
 
 
@@ -589,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413743.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413514.jpg" />
 </div>
 
 
@@ -628,61 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B7E57477903D009677D2DC02387EDF231866D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412784   (413322) от 01.10.2020
-
-Д.М. Златопольский | 400 вопросов по информатике на логику и смекалку (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413322.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приведены более 400 вопросов по информатике, которые можно предложить учащимся при проведении классных и школьных конкурсов «Что? Где? Когда?» и «Брейн-ринг» и других внеклассных мероприятий. Ряд вопросов может быть использован и на уроках. Вопросы охватывают многие темы школьного курса информатики, имеют разный уровень сложности. В приложениях представлены (   Читать дальше...   )Жанр: Компьютерная литература, Учебные пособияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21FA15BD30E5E211F29BA81E80512A7BFE7EB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167927   (412704) от 22.09.2017
-
-ИЗО РОК | Памятка юной санитарки (1934) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы РОККа юные друзья
-Ведем борьбу за санкультуру.
-Всегда мы бодры, всегда здоровы.
-На зов Соввласти всегда готовы!(   Читать дальше...   )Жанр: Медицина, первая помощьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C40D88E7EA8E25E4389967F53EE72A3AC90893
 ```
 
 https://mybot314.ru/tekegram_catalog/

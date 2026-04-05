@@ -1,136 +1,3 @@
-###  Публикация: 1738240   (49305) от 21.07.2024
-
-Джон Бергер | Искусство видеть (2012) [PDF, FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49305.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Искусство видеть» Джона Бергера – это одна из самых обсуждаемых и влиятельных книг об искусстве, когда либо изданных в мире. Она написана по мотивам знаменитого фильма BBC и впервые была опубликована вслед за его премьерным показом в 1972 году. В том же году критик Sunday Times писал: «Бергер не просто открывает нам глаза на то, как мы видим произведения изобразительного (   Читать дальше...   )Жанр: изобразительное искусство, культурология, психология творчестваПеревод: Eвгения ШрагаИздательство: Вимбо, КлаудберриФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426B11D6C687EC67F40996120FCD9A10B42BF7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737805   (49274) от 22.07.2024
-
-Б. Дженсен, Ч. Фридман | Готов ко всему. Навыки и приемы, которые спасут вам жизнь (2024) [FB2]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш личный гид по выживанию в непредсказуемом мире! Никто не застрахован от внезапных угроз и вызовов судьбы, но только вам решать: слепо верить в лучшее или взять ситуацию под контроль.
-
-Рекомендации и практические советы из этой книги научат вас: распознавать потенциальные угрозы и избегать их в привычной жизни, путешествиях и информационном пространстве; управлять (   Читать дальше...   )Жанр: РуководстваИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64E2E607DCDCF59DACBB99B19368F5CE904244E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738298   (49251) от 22.07.2024
-
-Д. Волнухина | Библия электрика. ПУЭ, ПОТЭЭ, ПТЭЭП [10-е издание] (2023) [PDF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное, единственное на рынке издание: содержит актуальные тексты ПУЭ, ПОТЭЭ, ПТЭЭП с последними изменениями и дополнениями. В этой книге - все нормативы и правила, необходимые в работе сотрудникам организаций, занятых техническим обслуживанием электроустановок, выполняющих строительные, монтажные, наладочные и ремонтные работы.
-10-е издание.Жанр: Прочие законы, кодексы и комментарииИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:137FCBA114EEE0DD74171457212C8B5274D77C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399557   (49227) от 22.07.2024
-
-Ольга Шестова, Лев Иноземцев | 30 нобелевских премий. Открытия, изменившие медицину (2020) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая известная и почётная в мире премия — Нобелевская — ежегодно присуждается за выдающиеся научные исследования, революционные изобретения, вклад в культуру или развитие общества. В этой книге речь пойдёт о лауреатах премии по физиологии или медицине. На момент написания книги вручено 210 премий 219 лауреатам. Из них мы отобрали 30 — тех, чьи работы широко используются, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина нон-фикшнФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE2A560EDE538F935E2254CB62FEA28B62FCDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738631   (49117) от 23.07.2024
-
-Т. Кармацкий | Висцералка. Техника самомассажа для восстановления организма. Самая полезная книга про живот (2024) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая полезная книга возвращается! У кошек, собак и маленьких детей животы мягкие и абсолютно безболезненные — им даже приятно, когда их щупают. И у вас когда-то был такой же, но со временем — в силу тех или иных конкретных причин — живот становится более напряженным, и это отражается на продолжительности жизни, вашей эффективности и внешнем виде! Только представьте, (   Читать дальше...   )Жанр: Медицина и здоровьеИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3473BB2539E98AF9BC7FA9CEE6A15A764FDE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738496   (49108) от 23.07.2024
 
 Н.И. Данилов | Единицы измерений (1961) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49108.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49078.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49037.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49031.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49021.jpg" />
 </div>
 
 
@@ -274,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48994.jpg" />
 </div>
 
 
@@ -300,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48964.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48918.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48751.jpg" />
 </div>
 
 
@@ -378,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48730.jpg" />
 </div>
 
 
@@ -404,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48658.jpg" />
 </div>
 
 
@@ -430,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48647.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48642.jpg" />
 </div>
 
 
@@ -485,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48610.jpg" />
 </div>
 
 
@@ -511,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48601.jpg" />
 </div>
 
 
@@ -540,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48579.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48542.jpg" />
 </div>
 
 
@@ -595,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48391.jpg" />
 </div>
 
 
@@ -621,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48371.jpg" />
 </div>
 
 
@@ -647,7 +514,7 @@ D. Thompson, P. Falla et al (еditors) | The Oxford Russian Dictionary. Third ed
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48287.jpg" />
 </div>
 
 
@@ -673,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48188.jpg" />
 </div>
 
 
@@ -686,6 +553,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00832DAF0312DDF299D6DD36786C33D1DA0F4036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740225   (48158) от 01.08.2024
+
+В.С. Попов | Теоретическая электротехника (1990) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описаны физические явления н процессы, происходящие в электрических и магнитных полях, в электрических и магнитных цепях, в различных электротехнических приборах и устройствах. Рассмотрены основные методы расчета линейных и нелинейных электрических и магнитных цепей постоянного, переменного токов и цепей с распределенными параметрами. Описаны простейшие методы измерения (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A5C49E0B5C1BDD11F567F2847948BF6125099D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272749   (48128) от 02.08.2024
+
+А. Окороков | Особый фронт. Немецкая пропаганда [2007] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48128.jpg" />
+</div>
+
+
+###  Подробнее
+
+О Второй мировой войне написаны тысячи книг и статей. Однако до недавнего времени существовала область, выпадавшая из орбиты внимания исследователей - материалы, созданные немецкими пропагандистскими службами с целью разложения частей Красной армии, психологической обработки советских граждан, оказавшихся под властью германских оккупационных властей, работавших в (   Читать дальше...   )Язык: РусскийФормат: PDFКачество: Черно-белый скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85592CFA580D08C61E36A4BCF69DFF26D3EE1406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740579   (48111) от 02.08.2024
+
+Пол Биглер | Мозг и боль. Как сознание влияет на наши ощущения (2024) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как два слова помогают избавиться от ужасных болевых ощущений? Почему люди могут испытывать мучительную боль от царапины веткой, но игнорировать укус ядовитой змеи? Каким образом виртуальная реальность способствует отказу от обезболивающих и антидепрессантов? На эти и многие другие вопросы отвечает Пол Биглер, ученый, специалист в области неотложной медицины, который (   Читать дальше...   )Жанр: Медицина и здоровьеИздательство: БомбораФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC35364EC7453D16099B32B9A9EA04E46B43E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740646   (48110) от 02.08.2024
+
+Павел фон Винклер | Иллюстрированная история оружия: С древнейших времен до начала XIX века (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из первых монументальных трудов, посвященных истории ручного оружия с древнейших времен до XIX века и написанных на русском языке. За 130 лет, прошедших с момента ее первого выхода в свет, книга не утратила актуальности и значения, став неоднократно переиздающейся классикой. На основании множества коллекций в русских музеях и зарубежных собраниях П. П. фон Винклер (   Читать дальше...   )Жанр: ИсторияИздательство: КоЛибриФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92ADC5EB1F61FEAE55E381C83187B7812096B7F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740593   (48071) от 02.08.2024
+
+Fyodor Dostoevsky | Dostoevsky: Letters and Reminiscences (1923) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48071.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides a collection of letters and reminiscences about the life and work of the famous Russian writer Fyodor Dostoevsky.
+This work has been selected by scholars as being culturally important, and is part of the knowledge base of civilization as we know it.
+Scholars believe, and we concur, that this work is important enough to be preserved, reproduced, (   Читать дальше...   )Жанр: Историческая публицистика, мемуары, эпистолярный стильПеревод: S.S. Kotelianskay, J.M. MurryЯзык: английскийИздательство: London: Chatto & WindusФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7ADD29A9D6E8AC967E66397FBF2F6799A1C06FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

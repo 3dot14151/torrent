@@ -6,7 +6,7 @@ Deftones - The Studio Album Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370113.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|image+.cue]<Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369892.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Stranglers - Aural Sculpture (1984) [FLAC|Lossless]<Punk, Post-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367897.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ XURL - Deity (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367836.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Collective Soul - Collective Soul (2009) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366246.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Born Of Osiris - Soul Sphere (2015) [FLAC|Lossless]<Progressive Metalcore,Electr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365983.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Coldrain - Vena (2015) [FLAC|tracks+.cue]<Alternative Rock,Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365855.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ TIRDUS - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365388.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ La Dispute - Somewhere At The Bottom Of The River Between Vega And Altair (2009)
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364367.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Magic Band - Back To The Front (2003) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364365.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Maine - You Are OK (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363714.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ PIG - Mobocracy (2019) EP [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indus
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363711.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Von Wegen Lisbeth - Sweetlilly93@hotmail.com (2019) [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363585.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Star Insight - 2 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363173.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Hollywood Undead - Five (2017) [FLAC|Lossless|tracks] <Rapcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362689.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Devil Wears Prada - Color Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Christ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361882.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Defeater - Lost Ground (2009) EP [FLAC|Lossless|tracks + .cue] <Melodic Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361841.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fires of Waco - Old Ghosts Never Sleep (2011) [FLAC|Lossless|tracks + .cue] <Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361794.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Defeater - Travels (2008) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361785.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Defeater - Empty Days & Sleepless Nights (2011) [FLAC|Lossless|tracks + .cue] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361771.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Beck - One Foot in the Grave (1994) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361684.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Parcels - Parcels (2018) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Funk, Electro>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361631.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nothing - Dance on the Blacktop (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361498.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ House Vs. Hurricane - Forfeiture (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359186.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Rock Sound: 100% Volume No. 147 (2011) [FLAC|Lossless|tracks + .cue] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359166.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Creux Lies - The Hearth (2018) Cleopatra Records [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359133.jpg" />
 </div>
 
 

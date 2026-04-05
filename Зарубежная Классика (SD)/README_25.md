@@ -1,3 +1,56 @@
+###  Публикация: 994560   (862515) от 23.03.2016
+
+Ночь генералов / The Night of the Generals (1967) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862515.jpg" />
+</div>
+
+
+###  Подробнее
+
+В оккупированной нацистами Варшаве в 1942 году убивают проститутку. В ходе расследования убийства подозреваемыми становятся три известных генерала вермахта. Дело спускают на тормозах, а обвиняемых спешно переводят в Париж. Однако вскоре и здесь обнаруживают труп девушки легкого поведения. Майора Грау, взявшегося за это таинственное дело, вынуждают прекратить дальнейшее (   Читать дальше...   )Производство: Великобритания, Франция, Columbia Pictures, Filmsonor S.A., Horizon Pictures (II)Жанр: Военный, Детектив, ТриллерРежиссер: Анатоль ЛитвакАктеры: Питер О`Тул, Омар Шариф, Том Кортни, Дональд Плезенс, Джоанна Петтет, Филипп Нуаре, Чарльз Грей, Корэл Браун, Джон Грегсон, Найджел Сток, Кристофер Пламмер, Жюльетт Греко, Ив Брэнвиль, Саша Питоефф, Шарль МийоПеревод: Многоголосый закадровый, одноголосый закадровыйПродолжительность: 02:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2249DEB16E191525D0E1D49233F77DC9FE0E15E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871336   (862477) от 03.03.2015
+
+Займемся любовью / Let's Make Love (1960) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллиардер Жан-Марк Клеман — потомственный бизнесмен и привлекательный мужчина. Он умеет делать деньги и очень любит женщин. Жан-Марк привык блистать в обществе и считает, что для него нет ничего невозможного.
+Получив шокирующее известие о том, что он — «гений бизнеса» — станет объектом насмешек в юмористическом спектакле, Клеман решает самостоятельно разобраться (   Читать дальше...   )Производство: США / Jerry Wald ProductionsЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Джордж КьюкорАктеры: Мэрилин Монро, Ив Монтан, Тони Рэндалл, Фрэнки Вон, Уилфрид Хайд-Уайт, Дэвид Барнс, Майкл Дэвид, Мара Линн, Дэннис Кинг мл., Джо БессерПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1516BD2A7512A91362F10F6969992FE9704791C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994549   (862429) от 23.03.2016
 
 Адела еще не ужинала / Adla jeste nevecerela (1978) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862429.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862191.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861624.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860841.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860576.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859881.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859082.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859080.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859018.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859013.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859010.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859008.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859006.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858907.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858869.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858770.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858109.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857244.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857227.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857081.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856532.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855891.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855648.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855454.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35AD2C0C2AE8EE0422E49167F4C2A0ACB4162B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107651   (855319) от 01.03.2017
-
-Побег в никуда / Ride in the Whirlwind (1966) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот вестерн рассказывает историю о том, как невиновный человек может оказаться вне закона. Три ковбоя оказались в ненужном месте не в то время и были приняты за банду линчевателей. Двое из ковбоев убиты и последний становится вне закона. Если он останется жить…Производство: СШАЖанр: ВестернРежиссер: Монте ХеллманАктеры: Кэмерон Митчелл, Милли Перкинс, Джек Николсон, Кэтрин Скуайр, Джордж Митчелл, Руперт Кроссе, Гарри Дин Стэнтон, Джон Хэкетт, Том Файлер, Брэндон Кэрролл ...Перевод: Профессиональный многоголосый (DVD Магия)Субтитры: ОтсутствуютПродолжительность: 01:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19EE0DD3A45937B85F2CACA36D70860419FB64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110063   (855228) от 01.03.2017
-
-Большой Джейк / Big Jake (1971) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейкоб МакКендл после долгого отсутствия возвращается домой и узнаёт от жены скверные вести — пока его не было, на ранчо заявилась банда отморозков и, похитив его маленького внука, начала требовать за него миллион долларов выкупа.Производство: США, Мексика / Batjac Productions, Cinema Center FilmsЖанр: Боевик, Драма, Криминал, ВестернРежиссер: Джордж Шерман, Джон УэйнАктеры: Джон Уэйн, Ричард Бун, Патрик Уэйн, Кристофер Митчем, Брюс Кэбот, Бобби Уинтон, Гленн Корбетт, Джон Дусетт, Морин О’Хара, Джим ДэвисПеревод: Многоголосый закадровый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E245D117EAFF0272C3F775F097DD092E74A6321B
 ```
 
 https://mybot314.ru/tekegram_catalog/

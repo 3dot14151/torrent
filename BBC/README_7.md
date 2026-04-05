@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773017.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771722.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Да Винчи: Утерянное сокровище / Da Vinci: The Lost
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769491.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC. Планета муравьёв: Взгляд изнутри / Planet Ant: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769487.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC. Наука и ислам / Science and Islam (2009) HDTVRip [H.264/720p] [3
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769485.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC. Порядок и беспорядок / Order and Disorder (2012) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769473.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC. Викинги / Vikings (2012) BDRip [H.264/720p-LQ] [Серия 1-3 из 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769470.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC. Horizon: Возможно ли создать звезду на Земле?
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762635.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC. Horizon. Как развить творческие способности?
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762630.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761726.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC. Все о космосе / The Complete Cosmos (1998) DVDRip [1, 2 сери
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761318.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761299.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC. Древний Египет: Жизнь и смерть в Долине Ц�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760691.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC Horizon: Остановить мужские самоубийства / Stop
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760255.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Рождение человечества. Битва за планету �
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759540.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC: Тайны Тихого океана (6 серий из 6) / BBC: South Pac
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759394.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759303.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758975.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ BBC. США: Великая история и большое надувател�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758497.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758193.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758149.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ BBC: Египет. Тайны, скрытые под землей. Часть 2 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757918.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ BBC: История хирургии. Запасные части [3 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757914.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ BBC: Амазонка - Великая река мира / BBC: Amazon: super ri
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757840.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ BBC. Тайны мозга. Патология / The Brain: A Secret History. Br
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757763.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ BBC. Horizon: Не верь глазам своим / Is Seeing Believing? (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757658.jpg" />
 </div>
 
 

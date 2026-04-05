@@ -1,3 +1,55 @@
+###  Публикация: 1711278   (61451) от 29.03.2024
+
+The KMPlayer 4.2.3.10 repack by cuta (build 1) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61451.jpg" />
+</div>
+
+
+###  Подробнее
+
+The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB8CAF0B93AE995AD0A89813A0090B31E0E8478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691529   (61371) от 30.03.2024
+
+Saijaku Tamer wa Gomi Hiroi no Tabi o Hajimemashita. / The Weakest Tamer Began a Journey to Pick Up Trash / Слабейшая укротительница в путешествии по сбору мусора [2024, TV, 12] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61371.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Айви совсем нет времени на отдых. Она переродилась в мире RPG, обладая самым слабым классом и, что еще хуже, самым слабым рангом. Айви — слабейшая укротительница. Даже родители не хотят иметь с ней ничего общего и бросили её на произвол судьбы. За Айви гонятся люди которые хотят убить проклятое дитя, что в итоге приводит Айви в лес, где ей удаётся приручить первое (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Ямаути СигэясуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F7DB9821DE74F72FBB1222A0B6756118A87FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689946   (61361) от 30.03.2024
 
 Mahou Shoujo ni Akogarete | Вoсхищaясь дeвушкaми-вoлшeбницaми | Становясь волшебницей| Gushing Over Magical Girls [2024, TV, 13 из 13] WEBRip 1080p rus+raw
@@ -6,7 +58,7 @@ Mahou Shoujo ni Akogarete | Вoсхищaясь дeвушкaми-вoлшeбниц
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61361.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61355.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61344.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61260.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61041.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60949.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60934.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60926.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60833.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Autodesk 3ds Max 2025 RePack by xetrin [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60832.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60831.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60730.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ SpaceX запустила две ракеты Falcon 9 менее чем за ч
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60688.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60618.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Shaman King Flowers | Король-шаман: Цветы [2024, TV, 13 эп.] W
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60605.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60599.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60519.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60414.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60412.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60411.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60409.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60311.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3447]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60216.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ Windows 7 PE SE NVDA Paragon-HDM-15 USB 3.0 аварийный для незря
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60204.jpg" />
 </div>
 
 
@@ -627,61 +679,6 @@ Windows 7 PE SE NVDA Paragon-HDM-15 USB 3.0 аварийный для незря
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4445946C91AEBC9006ECE5AB9FAE09D6262C5B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010716   (60202) от 10.04.2024
-
-Силиконовая долина / Кремниевая долина / Silicon Valley (2016) HDTVRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) Кубик в кубе, Greb&CGC, BaibaKo
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60202.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о группе гиков, готовящих к запуску собственные стартапы в высокотехнологичном центре Сан-Франциско.Главные герои сериала бесплатно проживают в доме местного миллионера, но взамен им придётся отдать по 10% прибыли от будущих проектов.Производство: США, 3 Arts Entertainment, Judgemental Films Inc.Жанр: комедияРежиссер: Майк ДжаджАктеры: Аманда Крю, Эли Мави, Джэйк Бродер, Энди Бакли, Порша Коулмэн, Джимми Оуянг, Остин Абрамс, Джилл Е. Александр, Бобак Бахтиари и др.Перевод: двухголосый закадровый, профессиональный - Кубик в кубе (ненормативная лексика);
-многоголосый закадровый, профессиональный - студия "Greb&CGC" по заказу Amedia, BaibaKoСубтитры: русские, английские
-
-Внимание! Присутствует ненормативная лексика.Продолжительность: ~ 00:28:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B176CBA1DEDADB8DADA7E06F26E12D95D37A4B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908909   (60094) от 11.04.2024
-
-Чёрная материя / Тёмная материя / Dark Matter (2015) WEB-DL [H.264/720p] (сезон 1, серии 1-13 из 13) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заброшенный космический корабль. Шесть человек выходят из состояния стазиса и понимают, что все они потеряли память. Никто из героев не помнит собственного имени, а также того, как и с какой целью он оказался на борту. Каждый из членов экипажа имеет свои способности и навыки, которые, несмотря на амнезию, остались при них. И лишь объединившись в единую команду и (   Читать дальше...   )Производство: КанадаЖанр: Фантастика, триллер, драмаРежиссер: Рон Мерфи, Т.Дж. Скотт, Паоло БарзменАктеры: Марк Бендавид, Мелисса О’Нил, Энтони Лемке, Алекс Маллари мл., Джодель Ферланд, Роджер Р. Кросс, Зои Палмер, Дэвид Хьюлетт, Джессика Сайпос, Расселл Юэнь и др.Перевод: Профессиональный многоголосый (LostFilm)Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDFBB6137BD1CCF43305D45B2B39D535197C3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

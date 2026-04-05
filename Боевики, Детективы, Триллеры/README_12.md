@@ -1,3 +1,109 @@
+###  Публикация: 974307   (976930) от 11.01.2016
+
+Рут Ренделл, Арнольд Беннетт | Волк на заклание. Отель "Гранд Вавилон" [сборник] (1997) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976930.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли романы английской писательницы Рут Рэнделл «Волк на заклание» и американского писателя, драматурга Арнольда Беннета «Отель „Гранд Вавилон“».
+
+Оба романа, написанные в жанре классического детектива, являются высокохудожественными произведениями. Захватывающие и увлекательные сюжеты заинтересуют самого взыскательного читателя.Жанр: Детектив, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DF9F2066143621265584D902A1632D2AAFB60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974466   (976875) от 11.01.2016
+
+Энн Перри | Грехи волка (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976875.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Эстер Лэттерли безупречная репутация: медсестра, участница Крымской войны, спасавшая раненых солдат вместе с легендарной Флоренс Найтингейл. Благодаря недюжинному уму и смелости она помогла раскрыть не одно дело Уильяму Монку – прежде полицейскому, а ныне частному детективу. Но кто-то решил, что из сиделки выйдет отличный козел отпущения – и вот очередная пациентка (   Читать дальше...   )Жанр: Классические детективы, Зарубежные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07F38A3AA02B95DF3A608BB6CF5BE09A5F03B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974381   (976800) от 11.01.2016
+
+Вячеслав Миронов | Кровь земли (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский Разведчик внедрен в США. Его задача – выяснить возможность подрыва заброшенных нефтяных скважин в Техасе, чтобы нейтрализовать расположенные рядом с ними военные объекты. Для начала Разведчик решил приобрести нефтяной участок со скважинами, однако выяснилось, что земля уже куплена никому не неизвестной фирмой. Следом всплыл странный факт: заброшенные скважины (   Читать дальше...   )Жанр: Боевики: ПрочееФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8146ED66F16D30C51E0F2FC98CBDD533860B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356890   (976762) от 01.02.2020
+
+Джонатан Келлерман | Жертвы (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Между убитыми нет ничего общего. Скромная бухгалтерша и любвеобильная разведенка, сколотившая приличное состояние на азиатском ширпотребе. Но обеих постигла одна и та же участь: изысканная предсмертная трапеза и жестокая гибель. Чутье детектива Майло Стёрджиса и психолога Алекса Делавэра подсказывает – это извращенный почерк нового серийного убийцы…Жанр: Детектив, ТриллерПеревод: Сергей СамуйловФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B205682EF0A814301142080765FCD22727918F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356929   (976674) от 01.02.2020
 
 Джонатан Келлерман | Кости (2017) [FB2]
@@ -6,7 +112,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976674.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976567.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975624.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975537.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975284.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974461.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974327.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973043.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972959.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972850.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972177.jpg" />
 </div>
 
 
@@ -302,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972019.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972017.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971934.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970813.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970812.jpg" />
 </div>
 
 
@@ -434,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969698.jpg" />
 </div>
 
 
@@ -460,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969693.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969691.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969655.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968700.jpg" />
 </div>
 
 
@@ -570,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968635.jpg" />
 </div>
 
 
@@ -583,115 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E99474DFC63966136A03EE471FCBAC7658488E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358506   (968510) от 08.02.2020
-
-Дэн Браун | Инферно (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый роман цикла о Роберте Лэнгдоне.
-
-…Оказавшись в самом загадочном городе Италии – Флоренции, профессор Лэнгдон, специалист по кодам, символам и истории искусства, неожиданно попадает в водоворот событий, которые способны привести к гибели все человечество… И помешать этому может только разгадка тайны, некогда зашифрованной Данте в строках бессмертной эпической (   Читать дальше...   )Жанр: Детективы, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9FB13B63CE275290A68324633632D985658D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299451   (968501) от 08.02.2020
-
-Джон Харт | Цикл "Джонни Мерримон"  [2 книги] (2019 - 2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Харт – единственный писатель в истории, дважды подряд получивший одну из главных остросюжетных литературных наград – премию Эдгара Аллана По. Его произведения переведены на 30 языков и продаются в 17 странах мира.
-Перед вами – история, достойная пера Стивена Кинга. Феноменальная история потери и надежды, обретения себя, стойкости перед лицом зла.
-Детство Джонни (   Читать дальше...   )Жанр: Детектив, триллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE092FE23B3E5A013DD0912AEB5EB6D32CED0FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976893   (967825) от 19.01.2016
-
-Эд Макбейн и др. | Игра в безумие [сборник] (1996) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интригующая непредсказуемость сюжета, эффектные разоблачения, великолепное видение авторами проблем и парадоксов западного образа жизни — вот черты, объединяющие три столь разные детектива сборника.Жанр: Криминальный детективПеревод: И. В. ТопольФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88ADA4E0E882CAFE6208B2FAC806F4B280D6DB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358924   (967242) от 09.02.2020
-
-Гарольд Мазур | Такая богатая, такая красивая и такая мертвая [3 книги] (2004) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарольд Мазур в своих детективах использует форму романа-загадки, в чем схож с Россом Макдональдом. Его постоянный персонаж — адвокат Скотт Джордан — по заданию клиента углубляется в изучение очередного запутанного дела и оказывается в центре преступления.
-Лучшие романы Мазура, представленные в этом сборнике, — «Зарой меня глубже», «Такая богатая, такая красивая (   Читать дальше...   )Жанр: Крутой детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FB1BF8F3A526753A25446AA2DE48533070FE64
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1113375   (680947) от 19.05.2017
+
+Мастерская «Фантом Уоркс» / FantomWorks (2014) HDTVRip [H.264/1080p] (сезон 2, серии 1-6 из 6) [AD]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Корот, бывший пилот-испытатель, надеется, что Fantomworks станет самой крупной в США мастерской по восстановлению классических автомобилей, которая работает с военной точностью. Вместо этого он выясняет, что при создании старых автомобилей «лучше, чем новые» - ничего не идет по плану. Очень качественно и довольно подробно рассказывают о том что делают.Производство: США. New Dominion PicturesЖанр: Реалити-шоу, автомобили, реставрация автомобилейПеревод: Одноголосный закадровый, профессиональныйПродолжительность: ~ 00:44:00 каждая серияРеклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0226A81322220D7DC6D2A0F6B83AECDAB992D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135709   (678828) от 20.05.2017
 
 Главная дорога (2017.05.20) SATRip
@@ -6,7 +32,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678828.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676738.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675137.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673293.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672777.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672204.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672068.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670576.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666655.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665422.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663357.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Discovery: Братья Дизель / Diesel Brothers (2017) HDTVRip [H.264/108
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661203.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659095.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658965.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2014) 
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658584.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657987.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657804.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657776.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657159.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655764.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655728.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650312.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649358.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648504.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647547.jpg" />
 </div>
 
 
@@ -647,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41424C3C199B3A50C143B5961CAE5A8FEBCA87FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541237   (646769) от 02.04.2022
-
-Главная дорога (02.04.2022) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способы задержать пьяного водителя и подготовка машины к весне.
-«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422BB6D64069080EA1B8044B0F779BAA871E6345
 ```
 
 https://mybot314.ru/tekegram_catalog/

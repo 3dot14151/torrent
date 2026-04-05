@@ -6,7 +6,7 @@ Soulstance - One Note Bossa Instrumentals, Vol. 2 (2022) [AAC|~364 Kbps] <Nu Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699558.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Electro Swing Deluxe (2013) [AAC|~336 Kbps] <Electro Swing, Nu Jazz, Broken
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699555.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Best of Electro Swing Elite Compilation (2017) [AAC|~318 Kbps] <Electro Swi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699554.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699547.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699542.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699541.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699378.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699366.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Avril Lavigne - Love Sux (2022) [AAC|~333 Kbps] <Pop, Punk, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699322.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699316.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Electro Blues, Vol. 2 (2014) [AAC|~273 Kbps] <Electro, Blues, Swing>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699314.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699270.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699267.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699101.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698772.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698590.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698503.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698502.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698480.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698395.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698393.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698277.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698153.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Motorhead - Clean Your Clock (Live in Munich 2015) (2016) [AAC|WEB-DL|256 кб/�
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698131.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698035.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698006.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66810.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66806.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66805.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [ha
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66794.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66750.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Suzy - Come back (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66749.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66745.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66621.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66487.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66303.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Miyeon - Drive (Live) (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65428.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65305.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ NEMOPHILA. Zepp Tour 2022 at Zepp Osaka Bayside (2022) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64512.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ NEMOPHILA 4th Anniversary. -Rizing NEMO- at KOBE KOKUSAI HALL (2023) [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63887.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62011.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61197.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60968.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60593.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60574.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60453.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Lovebites: Heavy Metal Never Dies (2021) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60138.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59980.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Elton John and Bernie Taupin: The Library of Congress Gershwin Prize for Popular
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59706.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59696.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ AC/DC / No Bull (1996/2008) BDRip [H.264/1080p] [Director's Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59685.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ The Offspring - Live in Lollapalooza Brazil (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59627.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1190974   (265608) от 11.12.2017
+
+VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF vol. 13 (2017) [MP3|320 Kbps] <Electro, Deep, Techno, House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Adam Lambert - Ghost Town (RAFO Remix) [4:52]
+02.	Awolnation - Run (Highsociety Remix) [4:00]
+03.	Bebe Rexha feat. Lil Wayne - The Way I Are (Dance With Somebody) [3:08]
+04.	Bengro - Basskiller [4:02](   Читать дальше...   )Жанр: Electro, Deep, Techno, House, TranceПродолжительность: 06:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88793FAC8FDFA21354E8B58F553294270B1A4FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339496   (265346) от 20.11.2019
+
+VA - Different Space: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265346.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shock Therapy - Paradise Moments
+002. Monod - Forbidden Dreams
+003. Mirage, Mental Flow - Subliminal Message
+004. Ital - Strange Light(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED018D6957AF8713D4EE12571DC102F95D4A288C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339562   (265345) от 20.11.2019
 
 VA - Night In The Jungle (2019) [MP3|320 Kbps] <Jungle, D&B>
@@ -6,7 +64,7 @@ VA - Night In The Jungle (2019) [MP3|320 Kbps] <Jungle, D&B>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265345.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Big City Trance (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264955.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Bass Killer (2015) [MP3|320 кб/с] <Electro House, Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264399.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Trance Elegance On This Year 015 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264182.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Euphoric Format: Vocal Trance Set (2017) [MP3|256-320 Kbps] <Vocal Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264174.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Vocal Trance Collection Vol.6 (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264135.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Take On The Best Of Vocal Synthwave (2017) [MP3|320 Kbps] <Synthwave, Retro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264112.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Retro House (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263891.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Just One Touch: 130 Lounge Time (2017) [MP3|320 Kbps] <Lounge, Downtempo, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263885.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Children Of The Sea: Pacific Chill Area (2017) [MP3|320 Kbps] <Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263853.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Умная Электроника (Музыка Поднимающая На
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263710.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Record Super Chart 614 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263610.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Empire Records - Vanilla Sky (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263530.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Trance Nation: Cyber Party (2017) [MP3|320 Kbps] <Progressive, Uplifting, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263525.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Techno Disco (2017) [MP3|320 Kbps] <House, Electro, Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263523.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Zone Remixes - Fundamental Trance (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263245.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Record Super Chart #516 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263199.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Sounds Of New Generation (2019) [MP3|320 Kbps] <Electronic, Synth Electroni
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262938.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Luky Number: Electronic Euphoria (2019) [MP3|320 Kbps] <Electronic, Synthet
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262911.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Empire Records - Classic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262828.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Empire Records - Classic 2 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262750.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Classic Trance Vocals (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262614.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Amazing Vocal Future Bass 2 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262530.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Innovations Deep House (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262494.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Innovations Deep House (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F0F903FA864485BB1D40465DF618761121E761A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192996   (262493) от 19.12.2017
-
-VA - Deep House Collection vol.148 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1Click feat. Sting - Running Down Again (Mason Extended Remix) 5:58
-02. A-Mase & Sharliz - I Never Felt So Right (Original Mix) 5:38
-03. Abity - Love Parttern (Original Mix) 7:07
-04. Alex Panchenco, Bogdan Shuvalov - Escobar (Original Mix) 6:24(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE4B9B05F978DDCFDAE82EFDFBD0B1046E9EF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193029   (262482) от 19.12.2017
-
-VA - Amazing Vocal Future Bass 3 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aero Chord & Anuka — Incomplete (4:17)
-02. Anevo feat. Heather Sommer — Can’t Stop (Original Mix) (3:25)
-03. Armin van Buuren & Garibay feat. Olaf Blackwood — I Need You (ANGEMI Extended Remix) (5:00)
-04. Audien + 3LAU feat. Victoria Zaro — Hot Water (YOOKiE Remix) (3:23)(   Читать дальше...   )Жанр: Future Bass, ElectronicПродолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87359491134A5236646604C607933BAD944184D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

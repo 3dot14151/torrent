@@ -1,32 +1,3 @@
-###  Публикация: 1848975   (1053182) от 20.01.2026
-
-Christina Aguilera - Stripped (2002) [FLAC|Lossless|image + .cue] <Pop, Soul, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stripped - четвёртый студийный альбом американской певицы Christinы Aguilerы, вышедший 22 октября 2002 года лейблом RCA Records. Стремясь отойти от подросткового поп-стиля своего дебютного альбома (1999), Aguilera взяла на себя полный творческий контроль над Stripped, как в музыкальном, так и в лирическом плане, она также создала свой новый публичный имидж. В музыкальном (   Читать дальше...   )01. Stripped (intro) (1:39)
-02. feat. Lil’ Kim - Can’t Hold Us Down (4:15)
-03. Walk Away (5:47)
-04. Fighter (4:05)(   Читать дальше...   )Жанр: Pop, Soul, R'n'BПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23B6E37434FB2524A906626A9D69CDD37AFBBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848799   (1053096) от 18.01.2026
 
 VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
@@ -35,7 +6,7 @@ VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053096.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053084.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Robbie Williams - Britpop (2026) [MP3|320 Kbps] <Pop, Soft Rock, Dance-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052842.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Robbie Williams - BRITPOP (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052695.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Dj Bobo - The Great Adventure (2026) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052693.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Richard Marx - After Hours (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Pop 
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052690.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052293.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Blue - Reflections (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052089.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - ДЖЕМ Дискотека 85/98 (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052086.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - ДЖЕМ Дискотека 85/98 (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051941.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - AM Gold 1973 (1992) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051667.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - AM Gold 1974 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051665.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - AM Gold 1975 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051664.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - AM Gold 1976 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051573.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - AM Gold 1977 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051572.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - AM Gold 1978 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051571.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - AM Gold 1979 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051570.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - AM Gold - The '60s Generation (2001) [OGG Vorbis|480 Kbps] <Rock, Funk / So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051540.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - AM Gold - TV Themes Of The '60s (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051539.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Modern Synth Pop (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051518.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Modern Synth Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051517.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Bee Gees - Still Waters (1997) [FLAC|Lossless|image + .cue] <Pop, Disco, Soft ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051515.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - AM Gold 1970 (1990) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051364.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - AM Gold 1971 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051363.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - AM Gold 1972 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051362.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - AM Gold 1972 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB30492469AD4587A9F1B8B2F90430CB7C6BAF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846110   (1051246) от 06.01.2026
+
+VA - AM Gold 1967 (1991) [OGG Vorbis|480 Kbps] <Rock & Roll, Folk Rock, Soft Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fifth Dimension - Up-Up And Away
+02. The Turtles - Happy Together
+03. The Monkees - Daydream Believer
+04. The Mamas & The Papas - Dedicated To The One I Love(   Читать дальше...   )Жанр: Rock & Roll, Folk Rock, Soft Rock, Pop RockПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F554A06D60F5AE7EA4BA32E1EB1A3AC58A0638
 ```
 
 https://mybot314.ru/tekegram_catalog/

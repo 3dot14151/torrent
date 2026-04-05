@@ -1,3 +1,58 @@
+###  Публикация: 1292876   (643198) от 31.03.2019
+
+Бьярне Ройтер | Кольцо принца Файсала (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический роман, от которого не оторваться. Мир XVII века, каким его воссоздал наш современник. Пиратские нравы, рабовладельческие суда, очарование странствий – и всё это от первого лица, как в крутой видеоигре. Вот какая удивительная книга у вас в руках!
+Том Коллинз заглядывает в морскую пучину. И ловит там взгляд – пронзительный, завораживающий. С этого начинаются (   Читать дальше...   )Жанр: Приключения для детей, Исторические приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4328D12C3BD42D7C0D48A883FABE32BD5A531549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292871   (643192) от 31.03.2019
+
+Луиджи Баллерини | Синьорина Корица (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Едва ли найдётся любитель сладостей, который не останется в восторге от кондитерской Синьорины Корицы. Хотя отыскать её совсем не просто! Магазинчик притаился в глубине пустынной улицы, около заброшенной фабрики. Зато он распространяет на всю округу чудесные ароматы.
+
+Когда двенадцатилетняя Марта забрела сюда, она сразу влюбилась в эти запахи, в аккуратные, но почему-то (   Читать дальше...   )Жанр: Приключения для детей, СказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C112AC4D0E98A7459755E67DA3B4F3E01B5295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292880   (643190) от 31.03.2019
 
 Крис Колфер | Как быть королевой. Руководство от Красной Шапочки (2019) [FB2]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643190.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643154.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643146.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643144.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643141.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643130.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643125.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643097.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643071.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643063.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642995.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642989.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642965.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642923.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642877.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642852.jpg" />
 </div>
 
 
@@ -433,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642848.jpg" />
 </div>
 
 
@@ -459,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642828.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642736.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642731.jpg" />
 </div>
 
 
@@ -539,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642098.jpg" />
 </div>
 
 
@@ -565,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641905.jpg" />
 </div>
 
 
@@ -591,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641847.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641846.jpg" />
 </div>
 
 
@@ -628,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5A7D15E3D86EE951407D035F702C2907DF049FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906909   (641841) от 10.06.2015
-
-Вера Иванова | Засекреченное счастье (2009) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юля собиралась на дачу как в ссылку: еще бы, три месяца без друзей и развлечений! Но неожиданно все изменилось, ведь Юля встретилась с Ним. Девочка раньше и подумать не могла, что какой-то другой человек — парень, с которым они познакомились совсем недавно! — может значить для нее так много. И только для того, чтобы еще раз его увидеть, она готова будет осуществить (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11FE801D89055696102E609E6E50A7EDEB84F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032947   (641793) от 09.07.2016
-
-Давид Златопольский | Удивительные превращения. Детям о секретах земного притяжения (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор комплекта пособий кандидат технических наук Д.С.Злато-польский дает возможность родителям и воспитателям ответить на сот­ни "почему" детей старшего дошкольного возраста, открыв им дорогу в загадочный и удивительный мир науки и техники.
-Работая с тетрадью под руководством взрослых, ребенок получит первоначальные знания о физических явлениях и технических (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3C4798F20B0FA1534234150846EEED4E4AB2E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

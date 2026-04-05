@@ -1,3 +1,55 @@
+###  Публикация: 1643592   (208765) от 17.07.2023
+
+Желтый роллс-ройс / The Yellow Rolls-Royce (1964) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три новеллы о любви и разлуке. Объединяет их «Роллс-ройс» - именно он служит пристанищем для влюбленных. Увы, их первое свидание в силу разных обстоятельств обычно оказывается и последним, после чего владелец машины предпочитает избавиться от нее, но, похоже, этот «Роллс-ройс» заколдован - с каждым следующим покупателем происходит то же самое...Производство: Великобритания / De Grunwald Productions, Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрама, комедияРежиссер: Энтони ЭсквитАктеры: Ингрид Бергман, Рекс Харрисон, Ширли Маклейн, Жанна Моро, Джордж К. Скотт, Омар Шариф, Ален Делон, Арт Карни, Джойс Гринфел, Эдмунд ПурдомПеревод: Многоголосый профессиональный, одноголосый любительскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD755C06D72D7997F522C6B031B413E36AFE11B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647302   (208616) от 18.07.2023
+
+Инцидент на границе / Border Incident (1949) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о совместной операции американской и мексиканской иммиграционных служб с целью пресечения незаконной переправки мексиканских сельскохозяйственных рабочих для работы на американских ранчо. Для реализации этого плана мексиканский агент и его американский коллега под прикрытием внедряются в банду, действующую по обе стороны границы, в итоге разоблачая (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: фильм-нуар, триллер, драма, криминалРежиссер: Энтони МаннАктеры: Рикардо Монтальбан, Джордж Мерфи, Ховард Да Сильва, Джеймс Митчелл, Арнольд Мосс, Альфонсо Бедойа, Тереза Челли, Чарльз МакГроу, Хосе Тровей, Джон РиджлиПеревод: Одноголосый любительский (Andy Green)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E2FC17508CE5D43FB446419B0326E07D0D4B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605528   (208524) от 01.02.2023
 
 Белое рабство / White Savage (1943) BDRip [H.264] [VO]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208524.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208391.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208382.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208334.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208140.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207927.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207924.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207767.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207689.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207665.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207425.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207406.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207330.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206859.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206827.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206683.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206668.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206193.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206185.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205877.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205719.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204424.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204196.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203977.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2C31EC9A75BCA64D39BFFBFFF7A4A6C372F818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478037   (203957) от 16.01.2023
-
-Фанфан-Тюльпан / Fanfan la Tulipe (1952) DVDRip [H.264 Colorized]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой красавец Фанфан идет в армию, чтобы избежать насильственной женитьбы и осуществить предсказание цыганки, нагадавшей ему славу воина и невесту королевской крови. На деле очаровательная предсказательница оказывается дочерью офицера, вербующего крестьян в армию.Узнав про эту хитрость, Фанфан не отступается от своей мечты и, полный надежд на исполнение предсказаний (   Читать дальше...   )Производство: Франция, Италия/ Amato Produzione, Filmsonor, Les Films ArianeЖанр: Мелодрама, комедия, приключения, военныйРежиссер: Кристиан-ЖакАктеры: Жерар Филип, Джина Лоллобриджида, Марсель Эрран, Оливье Юссено, Нерио Бернарди, Женевьева Паж, Жоржетт Ани, Анри Роллан, Люсьен Калламан, Жиль ДеламарПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосыйСубтитры: РусскиеПродолжительность: 01:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81853C6E6449A83F86158F4EA06C6EF69EE56BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517420   (203914) от 17.01.2023
-
-Соломон и Шеба (Соломон и царица Савская) / Solomon and Sheba (1959) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот библейский эпос, поставленный режиссером Кингом Видором является кинематографическим осмыслением плотских грехов и языческих богопреклонений. Картина, снятая в Испании, запечатлела подвиги незабвенных персонажей. Юл Бриннер олицетворяет здесь сильного и идеалистического Соломона. А чувственная Джина Лоллобриджида - великолепна в роли величественной и соблазнительной (   Читать дальше...   )Производство: США / Edward Small ProductionsЖанр: Драма, Мелодрама, Военный, ИсторияРежиссер: Кинг ВидорАктеры: Юл Бриннер, Джина Лоллобриджида, Джордж Сэндерс, Мариса Паван, Дэвид Фаррар, Джон Кроуфорд, Финлэй Карри, Гарри Эндрюс, Хосе Ньето, Маручи ФресноПеревод: Многоголосый профессиональный, двуголосый профессиональный, авторскийСубтитры: Английские (Full, SDH)Продолжительность: 02:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24B232F685AA270ACFD3065F9EE9D03ED71A4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

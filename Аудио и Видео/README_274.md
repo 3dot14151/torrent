@@ -6,7 +6,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140723.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140657.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Greta Van Fleet - From The Fires (2017) [AAC|~330 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140615.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Greta Van Fleet - Anthem Of The Peaceful Army (2018) [AAC|~340 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140605.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Greta Van Fleet - Always There (2019) [AAC|~344 Kbps] <Rock, Score>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140562.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140478.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Greta Van Fleet - The Battle at Garden’s Gate (2021) [AAC|~332 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140474.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140461.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140386.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140282.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140120.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139682.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Sharam Jey pres. BEST OF BUNNY TIGER 2021 (2021) [AAC|~328 Kbps] <Dep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139349.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Gateways, Vol. 2 (2021) [AAC|~335 Kbps] <Melodic House & Techno, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139332.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - UNDERGROUND VIBES Compilation (2021) [AAC|~313 Kbps] <Tech House, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139320.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Gateways, Vol. 1 (2020) [AAC|~318 Kbps] <Melodic House & Techno, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139312.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Best of 2021 Desert Hearts Black (2021) [AAC|~327 Kbps] <Melodic House & Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139309.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Faderhead - Years Of The Serpent (2021) [AAC|~330 Kbps] <EBM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139301.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Best of 2020 Desert Hearts Black (2021) [AAC|~312 Kbps] <Melodic House & Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139283.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - The Collection 2021 Electronic Tree (2021) [AAC|~330 Kbps] <Progressive Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139259.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139087.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139042.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139000.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138791.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138193.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - New Day: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138183.jpg" />
 </div>
 
 

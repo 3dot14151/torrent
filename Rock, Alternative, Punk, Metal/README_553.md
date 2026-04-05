@@ -1,3 +1,90 @@
+###  Публикация: 928415   (522524) от 16.08.2015
+
+The Doors - Weird Scenes Inside The Gold Mine (1972) 2CD/2014,Elektra/[FLAC|image + .cue]<Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break On Through (To The Other Side) [2:28]
+02. Strange Days [3:07]
+03. Shaman's Blues [4:48]
+04. Love Street [2:50](   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 01:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7795505CEEF19C9CD3A6F4C7EDCCECDF45024A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928103   (522517) от 16.08.2015
+
+Revolution Saints - Revolution Saints (2015) [FLAC|image + .cue]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back On My Trail
+02. Turn Back Time
+03. You're Not Alone
+04. Locked Out Of Paradise(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4860CBF52C8C1B56BFFE7BEB5A656BFFA56BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927992   (522514) от 16.08.2015
+
+Celldweller - End Of An Empire (Chapter 04: Death) (2015) [FLAC|Lossless]<Industrial, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Faction 10  00:44
+02 - New Elysium  06:53
+03 - Precious One  06:49
+06 - New Elysium (Zardonic Remix)  05:06(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA847F05C963A10703A75894B0408481CA27CEFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313890   (522354) от 11.07.2019
 
 The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Rock, Lo-Fi>
@@ -6,7 +93,7 @@ The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522354.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ The Kills - Blood Pressures (2011) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522328.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ The Kills - Midnight Boom (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522327.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ The Kills - Ash & Ice (2016) [FLAC|Lossless|tracks + .cue] <Garage Rock, Lo-Fi, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522326.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ The Kills - No Wow (2005) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522324.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Вечное Лето (2004) [FLAC|Lossless|tracks] <Rock, Alternative Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522311.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ The Kills - Keep On Your Mean Side (2003) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522269.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ L.A. Guns - Electric Gypsy Live (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522263.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Firkin - Whup (2010) [FLAC|Lossless|tracks + .cue] <Folk-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522203.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Batushka (Батюшка) - Hospodi (2019) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522188.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Theatre Of Tragedy - Remixed (2019) [MP3|320 Kbps] <Gothic Metal, Industrial Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522187.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Helix - Wild In The Streets (1987) Remastered, 2011 [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522145.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Purveyor - Ruminations (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522056.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Bongskrap - Bong Voyage (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522051.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Shrooms Circle - The Constant Descent (2022) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522049.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Arttu Wiskari - Sirpaleet (2014) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522039.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Space Druids - 3 Relise (2019-2022) [MP3|320 Kbps] <Vintage Space, Psychedelic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522033.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Thobbe Englund - From the Wilderness (2015) [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521990.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Final Light (Perturbator X Johannes Persson) - Final Light (2022) [MP3|320 Kbps]
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521957.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Alestorm - Seventh Rum of a Seventh Rum (2022) 3CD, Deluxe Version, Napalm Recor
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521899.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521856.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Joseph - Stoned Age Man (1970) [MP3|320 кб/с]<Hard Rock, Psychedelic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521792.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521791.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD64FA218C861E0CEF3CBFFEE51E065C5DDB61CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928674   (521780) от 17.08.2015
-
-New Politics - Vikings (2015) [OGG| 411-540 кб/с]<Alternative, Indie Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everywhere I Go (Kings and Queens) (03:25)
-02. West End Kids (03:32)
-03. Girl Crush (02:54)
-04. Lovers in a Song (03:12)(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE18950682F554F9DEB8EF8E96438B983C4D2028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928800   (521779) от 17.08.2015
-
-Orpheus Omega - Partum Vita Mortem (2015) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Conception
-2. I, Architect
-3. Karma Favours The Weak
-4. Practice Makes Pathetic(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1639693F667FC2896A435BFBC90FC1E3732D072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928880   (521752) от 17.08.2015
-
-Eric Clapton - Eric Clapton & Friends (2014) [MP3|320 кб/с]<Classic rock, Blues, Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Clapton - You Can't Judge a Book by It's Cover (2:54)
-02. Eric Clapton - Let It Rock (2:15)
-03. Eric Clapton - Putty in Your Hands (2:18)
-04. Eric Clapton - Little Red Rooster (3:36)(   Читать дальше...   )Жанр: Classic rock, Blues, GuitarПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172420F2B9837357C1756BD8B3B5FE3512535254
 ```
 
 https://mybot314.ru/tekegram_catalog/

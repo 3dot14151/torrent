@@ -1,3 +1,32 @@
+###  Публикация: 1833256   (246177) от 01.11.2025
+
+Mammoth - The End (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Of A Kind (5:29)
+02. The End (3:33)
+03. Same Old Song (4:07)
+04. The Spell (3:29)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8739985EA7EC21163EF17C0EF35555DBEC1EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833264   (246174) от 01.11.2025
 
 Elettra Storm - Evertale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -6,7 +35,7 @@ Elettra Storm - Evertale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246174.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Galactic Empire - Cinemetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246170.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Avatar - Don’t Go In The Forest (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246159.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246139.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Rock Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246132.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Florence + The Machine - Everybody Scream (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246111.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Sybreed - 5 Albums, 3 EP (2004-2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246098.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Despised Icon - Shadow Work (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246071.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kaasin - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246068.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ David Knopfler - Songs Of Loss And Love (2020) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246040.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Oughton Tanera - Under Crystal Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246027.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Erdling - Bestia (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246017.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Cradle of Filth - Trouble and Their Double Lives (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246002.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Frank Stallone - Frank Stallone (1984) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246000.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245966.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Jesse Damon - Damon's Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245955.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Black Rabbit - Hypnosomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245950.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245948.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ The Steve Miller Band - Your Saving Grace (1969) Reissue, 1987, Capitol [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245939.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245934.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ HammerFall - Dominion (2019) Japanese Edition [WavPack|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245917.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Highway Chile - Keeper Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245916.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ City and Colour - The Love Still Held Me Near (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245905.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Roxanne - Stereo Typical (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245899.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Rhapsody - Dawn Of Victory (2000) Reissue, 2005, Limb Music Products [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245873.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Dawn of Victory («Рассвет победы») — третий студий�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0538F316F6E48BFBE57D93252864F88703CBC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608048   (245863) от 29.01.2023
-
-Project - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Red Moon [00:04:08]
-02. Down And Dirty [00:04:18]
-03. Lay It All On The Line [00:03:32]
-04. Wake Up [00:03:44](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0B1F8D84CB4B137F532B0EDEDC02B5A189D8EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

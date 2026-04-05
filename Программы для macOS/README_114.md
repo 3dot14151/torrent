@@ -1,3 +1,60 @@
+###  Публикация: 1080391   (290340) от 06.12.2016
+
+Graphics for iWork 3.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graphic Styles  содержит набор высококачественных изображений, которые помогут вам создать  уникальные презентации в Keynote для иллюстрации ваших слайд-шоу, информационных бюллетеней или любого другого контента. Эта великолепная коллекция придаст вашим презентациям эксклюзивность если включить в неё оригинальные рамки, символы, графический шрифт и т.д.
+
+Все изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B08CB0369F2A49D71AC4EE3E23F3C95084FF19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080388   (290089) от 06.12.2016
+
+M4VGear DRM Media Converter 4.2.5 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для снятия защиты DRM с видео, купленных или арендованных в iTunes Store
+M4VGear может сохранить AC3 Dolby 5.1 аудио при удалении DRM из iTunes видео и кроме того, многоязычные субтитры и звуковые дорожки iTunes видео также могут быть сохранены.
+
+M4VGear перенимает инновационную технику дешифрования DRM, что делает его самым быстрым приложением способен (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 декабря 2016Разработчик: M4VGear Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7745CB7633AF9CBD96A12C7C316C6BEC3077F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263210   (289917) от 18.11.2018
 
 WidsMob Montage 1.11 (1190) [Multi/Ru]
@@ -6,7 +63,7 @@ WidsMob Montage 1.11 (1190) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289917.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ WidsMob Viewer 2.8 (1259) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289913.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ Paperless 3.0.71 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289878.jpg" />
 </div>
 
 
@@ -85,7 +142,7 @@ AirPlayer Pro 2.5.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289756.jpg" />
 </div>
 
 
@@ -111,7 +168,7 @@ PDF Plus - Merge & Split PDFs 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289737.jpg" />
 </div>
 
 
@@ -137,7 +194,7 @@ Video Repair Software 2.0.0.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289482.jpg" />
 </div>
 
 
@@ -163,7 +220,7 @@ iNet Network Scanner 2.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288478.jpg" />
 </div>
 
 
@@ -190,7 +247,7 @@ Grabber : Screenshot Master 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288386.jpg" />
 </div>
 
 
@@ -219,7 +276,7 @@ Espionage 3.7.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288016.jpg" />
 </div>
 
 
@@ -245,7 +302,7 @@ PhotoSweeper 3.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287907.jpg" />
 </div>
 
 
@@ -271,7 +328,7 @@ AudioSwitcher 2.99.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287881.jpg" />
 </div>
 
 
@@ -297,7 +354,7 @@ Coolmuster Android Assistant 3.0.189 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287831.jpg" />
 </div>
 
 
@@ -323,7 +380,7 @@ Digital Clock 3D 1.1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287829.jpg" />
 </div>
 
 
@@ -349,7 +406,7 @@ Templates for MS Word by GN 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287798.jpg" />
 </div>
 
 
@@ -377,7 +434,7 @@ KMPlayer 0.3.2 Beta [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287616.jpg" />
 </div>
 
 
@@ -403,7 +460,7 @@ MailTab Pro for Gmail 7.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287325.jpg" />
 </div>
 
 
@@ -430,7 +487,7 @@ IconBox 2.6.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287311.jpg" />
 </div>
 
 
@@ -457,7 +514,7 @@ MenuTab Pro for Facebook 6.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287144.jpg" />
 </div>
 
 
@@ -486,7 +543,7 @@ Image-Line FL Studio Producer Edition 20.0.5.91 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287101.jpg" />
 </div>
 
 
@@ -512,7 +569,7 @@ Logoist 2.6.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286891.jpg" />
 </div>
 
 
@@ -538,7 +595,7 @@ Temp Monitor 1.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286446.jpg" />
 </div>
 
 
@@ -564,7 +621,7 @@ PowerTunes 1.4.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286341.jpg" />
 </div>
 
 
@@ -590,7 +647,7 @@ Dropshelf 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286230.jpg" />
 </div>
 
 
@@ -618,7 +675,7 @@ MacFamilyTree 9 v9.0.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286171.jpg" />
 </div>
 
 
@@ -631,58 +688,6 @@ MacFamilyTree 9 предлагает множество вариантов за�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D087C0C4F89A5449DD4A24158D285CC600F0E7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263694   (284502) от 21.11.2018
-
-Videoloupe 1.2.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Videoloupe - программный продукт совмещающий продвинутый медиаплеер с профессиональным инструментарием для редактирования. Программа предлагает уникальное сочетание средств управления воспроизведением, инструментов редактирования и опций экспорта.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2018Разработчик: Corduroy Code Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B32359558FED7AD838D0BF3D52F659727A99C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081254   (284442) от 09.12.2016
-
-GarageBand 10.1.4 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью обновленная программа GarageBand с новым интерфейсом и замечательными новыми функциями — это самый простой способ создавать великолепно звучащие песни на Вашем компьютере Mac. Добавляйте в песни реалистичные, безупречно исполненные и записанные барабанные ритмы с использованием Drummer. С легкостью корректируйте звучание любого инструмента в фонотеке, используя (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2016Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3AD06570073920F423016108B1166F53845511
 ```
 
 https://mybot314.ru/tekegram_catalog/

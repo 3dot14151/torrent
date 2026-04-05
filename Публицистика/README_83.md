@@ -1,3 +1,29 @@
+###  Публикация: 1762587   (36032) от 26.11.2024
+
+Н.А. Цаголов (ред.) | Закон стоимости и его роль при социализме (1959) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опыт социалистического строительства показывает, что планомерное развитие народного хозяйства и сохранение товарного производства не вступают в безысходный конфликт. Успехи планового развития народного хозяйства, грандиозная программа развернутого строительства коммунистического общества, содержащаяся в тезисах Н. С. Хрущева о семилетием плане, требуют еще более (   Читать дальше...   )Жанр: История, политология, экономика, науковедениеИздательство: ГоспланиздатФормат: PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2B7F621CBBAEA9D3FB776A872C803336606761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763831   (35352) от 03.12.2024
 
 П. Васюков | Дембель неизбежен! Армейские были. О службе с юмором и без прикрас (2023) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35352.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32638.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31575.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31268.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31265.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31248.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30738.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28271.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28246.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ ADMIN RSOTM | Оборотная сторона медали. Книга вто�
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27499.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27293.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27291.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27223.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26377.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25356.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25209.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24924.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24908.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24675.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23655.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23536.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22613.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22391.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21022.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20049.jpg" />
 </div>
 
 
@@ -656,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC6A0F4CCD69F22156E7D4229107B79B2830EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797335   (18232) от 15.05.2025
-
-Рутгер Брегман | Homo Bonus. Обнадеживающая история человечества (2025) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древние мыслители и современные авторы, психологи и философы, политики правых и левых взглядов сходятся в том, что человек по своей природе плох. Нам твердят, что мы, люди, эгоистичны и руководствуемся в первую очередь личными интересами.
-Но что, если это не так? Рутгер Брегман предлагает взглянуть на человеческую историю по-новому. Он показывает, что мы запрограммированы (   Читать дальше...   )Жанр: публицистика, история, социологияПеревод: А. ГоловинаИздательство: СиндбадФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48433D22F83D2D98B42C221EF5103A809318E00C
 ```
 
 https://mybot314.ru/tekegram_catalog/

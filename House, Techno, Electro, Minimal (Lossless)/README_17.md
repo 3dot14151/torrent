@@ -1,3 +1,32 @@
+###  Публикация: 1007791   (819747) от 16.04.2016
+
+Timboletti - Hintersee (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coconut Kingdom (Original Mix) (6:05)
+02. Coconut Kingdom (Al Lindrum Remix) (7:07)
+03. Helva Selva (Original Mix) (6:28)
+04. Helva SelvaЖанр: Techno, HouseПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68AD2D286EB310724537EAF6790B0ECE7A9EF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007547   (819552) от 16.04.2016
 
 Jonas Blue - Fast Car (feat. Dakota) (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -6,7 +35,7 @@ Jonas Blue - Fast Car (feat. Dakota) (2016) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819552.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ VA - Urban Dance, Vol. 16 (2016) Scene [FLAC|Lossless|WEB-DL|tracks] <Dance, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819453.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819205.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Christos Fourkis - Personal Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819199.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ VA - Solitude Of The Forest Compilation (2020) Insectorama [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817515.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ Leftfield - Open Up (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816112.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ The Disco Biscuits - Dominican Holidaze, Punta Ca (2015) Live [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815826.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ David Guetta Feat. Nicki Minaj, Bebe Rexha & Afrojack - Hey Mama (2015) Remixes 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815508.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ VA - Maretimo Sessions Edition Jazz House - Smooth Grooves Deluxe (2016) [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813674.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ Drumcell - Collection 7 Releases (2012-2016) CLR, Droid Recordings [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812135.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ VA - Spring Tube Vocal Themes, Vol.12 (2017) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812134.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Oliver Schories - Fields Without Fences (2015) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811788.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Tiesto - The London Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Future House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809969.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807576.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807279.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ Floog - Ambele EP (2018) [FLAC|Lossless|Vinyl|tracks] <Techno, Tech House, Minim
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806378.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ Michał Wolski (Michal Wolski) - Collection 8 Releases (2012-2017) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806374.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ VA - Dream Minimal (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802013.jpg" />
 </div>
 
 
@@ -519,7 +548,7 @@ Hed Kandi - World Series: Tokyo (2010) [FLAC|Lossless|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801843.jpg" />
 </div>
 
 
@@ -548,7 +577,7 @@ Hed Kandi - Beach House (2010) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801834.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ Nikosf. - Discography 8 Releases (2008-2014) MOSHItaka, Dewtone, Etoka Records [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800856.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ VA - Schneeweiss VII (Presented By Oliver Koletzki) - 2017 [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800509.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ VA - Antoine Clamaran - Lafayette V.O. La Compil' (2006) [FLAC|Lossless|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800450.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ VA - A Decade Ilian Tape (2017) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Breakb
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800449.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ VA - Hed Kandi - Twisted Disco (2009) [FLAC|Lossless|tracks] <Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800446.jpg" />
 </div>
 
 
@@ -707,35 +736,6 @@ VA - Hed Kandi - Twisted Disco (2009) [FLAC|Lossless|tracks] <Progressive House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBBD014A08AA0605029241CFF7F5517F58BCE771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199361   (800415) от 17.01.2018
-
-VA - Hed Kandi - The Mix: Summer (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro, Deep House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basement Jaxx - Raindrops
-  02. Freemasons Feat. Sophie Ellis-Bextor - Heartbreak (Make Me A Dancer)
-  03. Booty Luv - Say It (Warren Clarke Vocal Mix)
-  04. Chicane - Poppiholla(   Читать дальше...   )Жанр: Progressive House, House, Electro, Deep House, DiscoПродолжительность: 03:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11742E6A185B59CD3828D906495381D13B3967B
 ```
 
 https://mybot314.ru/tekegram_catalog/

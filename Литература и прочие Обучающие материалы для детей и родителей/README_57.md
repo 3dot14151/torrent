@@ -1,3 +1,31 @@
+###  Публикация: 1470131   (1013236) от 01.06.2021
+
+Вера Полозкова | Ответственный ребёнок (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013236.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Все, кто знает и любит стихи Веры Полозковой, и все, кто знает и ворчит про стихи Веры Полозковой, – то есть примерно все, кто вообще способен читать на русском языке и отличать стихи от прозы, – спрашивали себя и друг друга: о чем же будет писать Вера, когда про несчастную любовь ей будет уже неинтересно?
+
+Эта книжка – ответ. Это не стихи про какую-нибудь другую (   Читать дальше...   )Жанр: Детские стихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18C454C5092C728CF9331757D892E56901417A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470114   (1013225) от 01.06.2021
 
 Надежда Лустина | Сказки из маминого сундучка. Терапевтические сказки (2019) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +34,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013225.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013217.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013204.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013187.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013165.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013158.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012887.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012733.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012707.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012681.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012680.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012564.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012536.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012427.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012420.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012379.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012369.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012348.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012261.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012249.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012231.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012153.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012143.jpg" />
 </div>
 
 
@@ -613,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012137.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011978.jpg" />
 </div>
 
 
@@ -651,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28F48A6210C576624DE72595C7395910728BA463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717548   (1011822) от 10.06.2021
-
-Хуберт Ширнек | Последние новости о семи гномах (2012) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем известна история о Белоснежке и семи гномах. Но никто не знает, как сложилась жизнь сказочных человечков после того, как их подруга вышла замуж за прекрасного принца. А гномам пришлось совсем не сладко…
-Об этом — ироническая сказка известного австрийского писателя Хуберта Ширнека.Жанр: Ироническая сказкаПеревод: А. ЛившицФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A36DCD3F2E6E8E944C6490D9AC3DD23186A2C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

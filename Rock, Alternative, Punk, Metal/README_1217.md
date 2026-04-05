@@ -1,3 +1,32 @@
+###  Публикация: 1784163   (69627) от 09.03.2025
+
+Lizzy Morisson - Succubi Smile (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:00)
+02. Succubi Smile (4:24)
+03. Танцующая в пламени (4:21)
+04. Ненавижу (4:05)(   Читать дальше...   )Жанр: Folk-Rock, Gothic RockПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A645B23A22DFDF8C38F6FEBAC1607F2FD65ACA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784221   (69615) от 09.03.2025
 
 Irony Of Fate - Equinox (2025) [MP3|320 Kbps] <Melodic Death Metal, Female Vocal>
@@ -6,7 +35,7 @@ Irony Of Fate - Equinox (2025) [MP3|320 Kbps] <Melodic Death Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69615.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Drunkskull - Realive (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69602.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Edge of Paradise - Prophecy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69591.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Irony Of Fate - Equinox (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69573.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Jinjer - Duel (2025) [FLAC|Lossless|tracks + .cue] <Metalcore, Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69560.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Saor - Origins (2022) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69555.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ HolyName - Rock Against Traffic (Live In Pomona) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69528.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rainbows Are Free - Silver And Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69526.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ All Empires Fall - Chronicles of the Unseen (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69524.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Narrow Cold - Burning Tears (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69523.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Hamer - Бивни (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69501.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Warbringer - Wrath And Ruin (2025) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69492.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Guns N' Roses - The Lost Acoustic Album (Unplugged & Unphased) (2025) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69461.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Dark Horizon - 9 Ways To Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69452.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69445.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69444.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Impurity - The Eternal Sleep (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69409.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Athiel - Maw of the Curse (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69408.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Darghl - Satan Obscure. Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69405.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Tierra Santa - Todos Somos Uno (2023) 2 x CD [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69397.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Opeth - Pale Communion (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69352.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Death Angel - The Enigma Years (1987 - 1990) (2020) Box Set, Compilation, Reissu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69349.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Coheed and Cambria - The Father of Make Believe (2025) [MP3|320 Kbps] <Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69329.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Wombbath - Beyond the Abyss (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69294.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Tito & Tarantula - !Brincamos! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69277.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Tito & Tarantula - !Brincamos! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3B4CCC5462F7FBC0B4174CB7279C5B1735348F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785627   (69271) от 16.03.2025
-
-Soulspell - Spirits of Ghosts (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirits of Ghosts [00:08:06]
-02. Dragon Waltz [00:05:38]
-03. Castle of Illusions [00:04:34]
-04. Queen's Gambit [00:04:09](   Читать дальше...   )Жанр: Symphonic Power Metal, Metal OperaПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25F31A97F141F65C901220FD8D88F0506BB4A5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

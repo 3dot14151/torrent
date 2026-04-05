@@ -1,3 +1,133 @@
+###  Публикация: 1427578   (47797) от 05.08.2024
+
+Черноснежка / Hofeher (1984) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все поставлено с ног на голову в этом полнометражном мультике. Если Вы смотрели или читали историю про красавицу Белоснежку и ее друзей, то Вы по достоинству оцените весь юмор этого нового мультфильма. Черноснежка – это Белоснежка, только все наоборот. Злые ведьмы превращаются в добрых волшебниц, а добрые гномы в «злобливых» карликов.Производство: Венгрия, Pannonia FilmЖанр: Фэнтези, КомедияРежиссер: Йожеф НеппПеревод: Двуголосый профессиональныйСубтитры: нетПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A982C99BE0DFA02D209E669F83E67884277EB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740487   (47717) от 06.08.2024
+
+Спасти Бикини-Боттом: Фильм Сэнди Чикс / Saving Bikini Bottom: The Sandy Cheeks Movie (2024) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Бикини-Боттом выкапывают из недр океана, белка-ученая Сэнди Чикс и ее друг Губка Боб отправляются в Техас, чтобы спасти родной город.Производство: США, Великобритания, Канада / Nickelodeon Animation Studios, Nickelodeon Movies, United Plankton PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Лиза ДжонсонАктеры: Кэролин Лоуренс, Том Кенни, Мистер Лоуренс, Мэри Джо Кэтлетт, Клэнси Браун, Билл Фагербакки, Лоретта Дивайн, Роджер Бампасс, Ди Брэдли Бейкер, Кристофер Хэйген, Рио Александр, Райан Бегей, Илайя Изорелис Паулино, Мэтти Кардаропл, Лиза ОртисПеревод: Дублированный (Videofilm Int.)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, 2x Full), английские, украинские (Forced, Full) и др.Продолжительность: 01:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26F6591C12812C087835168EEB2EF724A0508C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741285   (47691) от 06.08.2024
+
+Приключения Тинтина: Тайна единорога / The Adventures of Tintin (2011) HybridRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — молодой газетный репортёр Тинтин. Благодаря своей профессии он путешествует по всему миру и становится участником увлекательных приключений.Производство: США, Новая Зеландия / Amblin Entertainment, Columbia Pictures, Hemisphere Media Capital, Nickelodeon Movies, Paramount Pictures, The Kennedy/Marshall Company, WingNut FilmsЖанр: мультфильм, боевик, детектив, приключения, семейныйРежиссер: Стивен СпилбергАктеры: Джейми Белл, Энди Серкис, Дэниэл Крэйг, Саймон Пегг, Ник Фрост, Дэниэл Мейс, Гад Эльмалех, Тоби Джонс, Джо Старр, Энн РейтелПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962BE93214072E45E9625F94084955EA964DE6FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741283   (47662) от 06.08.2024
+
+Наруто 4 / Наруто: Ураганные хроники. Фильм / Gekijouban Naruto Shippuuden / Naruto Shippuuden The Movie (2007) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Был освобождён древний демон, и если его не запечатать обратно, он разрушит мир. Демон посылает своих приспешников, чтобы убить единственного человека, который способен его запечатать. Но до этого в Конохе узнают о демоне и высылают Наруто, Сакуру, Ли и Неджи, чтобы защитить Шион - монашку, которая может запечатать демона. Еще она может видеть будущие смерти людей, (   Читать дальше...   )Производство: Япония / Studio PierrotЖанр: аниме, мультфильм, боевик, комедия, приключенияРежиссер: Хадзимэ КамэгакиАктеры: Дзюнко Такэути, Тиэ Накамура, Ёити Масукава, Коити Тотика, Аюми Фудзимура, Ёсинори Фудзита, Даисукэ Кисио, Фумико Орикаса, Хидэтоси Накамура, Тэцуя КакихараПеревод: Двухголосый любительский (Ancord & Hotaru)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: 01:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB71FA1E0A7E15E51C8CF655E6DD0F85AF79EFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741280   (47659) от 06.08.2024
+
+Ночь живых страхов / Night of the Living Dread (2021) WEBRip [H.264/1080p] [MVO] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка никак не может заснуть. К ней приходят призраки прошлого в виде её самой в разные годы жизни. Они напоминают ей о самых стыдных ситуациях, в которых она оказывалась.Производство: Великобритания / National Film and Television School (NFTS)Жанр: кукольный, для взрослых, короткометражный, ужасы, комедияРежиссер: Ида МелумАктеры: Джессика Дэннис, Стивен Фрай, Romy HayhurstПеревод: Многоголосый любительский (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 00:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5C8B56C5CBFE7F01ACCE507A1B070F72FD32BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741284   (47629) от 06.08.2024
 
 Братец медвежонок 2: Лоси в бегах / Brother Bear 2 (2006) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47629.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47627.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47595.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47566.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47542.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47539.jpg" />
 </div>
 
 
@@ -166,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47529.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47465.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47452.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47397.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47368.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47302.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47290.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47287.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47269.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47264.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47224.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47212.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47176.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47106.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47064.jpg" />
 </div>
 
 
@@ -545,136 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E0FD3DF35013EBC01FF26DF722FF26514581586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742683   (47036) от 12.08.2024
-
-Ученик чудовища / Bakemono no Ko / The Boy and the Beast (2015) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47036.jpg" />
-</div>
-
-
-###  Подробнее
-
-9-летний мальчик Рэн остался без родителей, сбежал от опекунов и скитался по улицам Токио. Там он встречает великого воина Медвежута — похожее на медведя чудище, явившееся из параллельного мира, чтобы найти себе ученика. Им и становится Рэн. В мире чудовищ мальчик получает имя Девята и под началом Медвежута начинает тренировки, чтобы стать мастером боевых искусств.Производство: Япония / Studio ChizuЖанр: аниме, мультфильм, фэнтези, драма, боевикРежиссер: Мамору ХосодаАктеры: Сёта Сомэтани, Кодзи Якусё, Кумико Асо, Судзу Хиросэ, Мамору Мияно, Аои Миядзаки, Сумирэ Морохоси, Кэиси Нагацука, Каппэи Ямагути, Кадзухиро ЯмадзиПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC38658EC0C22B0D62530D13BD1D685348408018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742682   (47004) от 12.08.2024
-
-Русалочка: Начало истории Ариэль / The Little Mermaid: Ariel's Beginning (2008) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте далекие времена, задолго до того, как Ариэль познакомилась с Принцем Эриком и вышла на сушу - времена, когда музыка была еще под запретом в подводном королевсте Атлантики. Разрываясь между семейными обязанностями и любовью к музыке, Ариэль должна сделать самый трудный выбор в своей жизни.Производство: США, Канада, Филиппины / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, мюзикл, фэнтези, драма, комедия, приключения, семейныйРежиссер: Пегги ХолмсАктеры: Джоди Бенсон, Сэмюэл Э. Райт, Джим Каммингс, Салли Филд, Паркер Горис, Тара Стронг, Дженнифер Хейл, Грэй Гриффин, Джефф Беннетт, Кари УолгренПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623A5F8053BDA285375DA503FB8AFBB2063DC0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475696   (46982) от 13.08.2024
-
-Смешарики. Новый сезон (2020-2022) WEBRip (серии 1-113 из 119) (обновляемая)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений любимых круглых героев в формате 2D. Это трогательные ироничные сюжеты о жизни, близкие и понятные детям и взрослым. Любопытные до всего нового Смешарики будут попадать в неожиданные ситуации или создавать их сами, в характерах персонажей зрители традиционно узнают себя.Производство: Россия | Студия Анимации «Петербург», Riki GroupЖанр: Мультфильм, детский, семейныйРежиссер: Денис Чернов, Алексей Горбунов, Александра АверьяноваАктеры: Вадим Бочанов, Антон Виноградов, Сергей Мардарь, Владимир Постников, Светлана Письмиченко, Михаил Черняк, Владимир Маслаков, Максим Сергеев, Игорь Яковель, Денис ЧерновСубтитры: ОтсутствуютПродолжительность: ~00:07:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9A24B34636557EC52F51FAD3F3884A48289800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742816   (46958) от 13.08.2024
-
-Отель Хазбин / Hazbin Hotel (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-9 из 9) НеаДекват Records
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отель Хазбин рассказывает о Чарли, принцессе Ада, которая преследует свою, казалось бы, невыполнимую цель - перевоспитать демонов, чтобы мирно сократить перенаселение в своем королевстве. После ежегодного истребления, навязанного Небесами, она открывает отель в надежде, что покровители будут "выписываться". после того, как докажут, что их души можно искупить.Производство: США, A24, SpindleHorse Toons See moreЖанр: для взрослых, комедия, минисериал, музыкальныйРежиссер: Вивьенн МедраноАктеры: Джилл Харрис, Элси Лавлок, Моника Франко, Майкл Ковач, Сет Аткинсон, Эдвард БоскоПеревод: Дублированный (♫НеаДекват Records♫)Язык озвучки: РусскийПродолжительность: ~00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147FFC33AF9FC43B2D812ECF79A9E229FD4A87A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742882   (46938) от 13.08.2024
-
-Вольт / Bolt (2008) BDRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пес по кличке «Вольт» всю жизнь снимается в телевизионном сериале, где его герой – суперпес – спасает человечество, используя свои необычайные способности. Сам Вольт свято верит в собственную неуязвимость, невероятную силу, и умение летать. Когда же судьба забрасывает его в полный опасностей Большой Город, он все еще думает, что это – лишь очередной эпизод телесериала...Производство: США, Япония / Walt Disney Pictures, Walt Disney Animation StudiosЖанр: мультфильм, фантастика, драма, комедия, криминал, приключения, семейныйРежиссер: Байрон Ховард, Крис УильямсАктеры: Джон Траволта, Майли Сайрус, Сьюзи Эссман, Марк Уолтон, Малкольм Макдауэлл, Джеймс Липтон, Грег Джерманн, Дидрих Бадер, Ник Свардсон, Жан-Поль МаноПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776BCD0D11E77E3F656B559F0C5FA8A8FD942E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

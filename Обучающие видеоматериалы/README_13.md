@@ -1,3 +1,29 @@
+###  Публикация: 1438007   (1041415) от 07.01.2021
+
+Udemy, Tim Buchalka's Learn Programming Academy и др. | Освойте CI/CD для React Native / Master CI/CD for React Native (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041415.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы изучите основы CI/CD, что является сокращением от Continuous Integration / Continuous Delivery, и сможете применить эти основы в процессе разработки приложения React Native. Слово «развертывание» часто используется вместо «доставка», но фактически означает то же самое. Эти навыки необходимы для максимального раскрытия вашего карьерного потенциала (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 08:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14594FD5AE5F0359A384915584AA861EC9652DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438097   (1041407) от 07.01.2021
 
 Ирина Белозёрская | Секреты «Альфы»: Большие деньги навсегда (2016) PCRec
@@ -6,7 +32,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041407.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Joel Bradley | 3ds Max 2018: Mastering UVW Mapping (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041402.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Udemy, Musab Zayadneh | Python For Ethical Hackers 2021 (2020) PCRec [En / En Su
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041385.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Udemy, Samuel Boylan-Sajous | Deep Learning Course with Flutter & Python - Build
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041375.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041349.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Udemy, Davis Jones и др. | Career Hacking: Резюме, LinkedIn, Интер
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041345.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Sean Fowler | Zbrush 4R8: Hard Surface Sculpting for all Levels (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041340.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Udemy, Hamza Sheikh | Network Ethical Hacking for beginners (Kali 2020 - Hands-o
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041281.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041276.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ CGMA, Vidya Vinnakota др. | Intro to Production Modeling (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041267.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041033.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041030.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041024.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041019.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ The StationX Cyber Security School, Aleksa Tamburkovski | Complete Python 3 Ethi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041008.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Udemy, Ardit Sulce | The Python Mega Course: Build 10 Real World Applications (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041004.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ John Lynch | Houdini 17 Masterclass: Advanced Vellum Workflows (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040821.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040734.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040733.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040730.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040721.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040719.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040718.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040716.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide [2021 Edi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040715.jpg" />
 </div>
 
 
@@ -679,32 +705,6 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide [2021 Edi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95ACACBBC079DACA4822366D7581BFA01128D65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438687   (1040714) от 09.01.2021
-
-Специалист, Хрущ Игорь | Введение в статистику (2020) PCRec
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существующие на сегодняшний день статистические компьютерные программы позволяют проводить статистический анализ, не имея серьезной математической подготовки. Такие мощные системы как SPSS, SAS, R и др. дают возможность  использовать сложные  статистические методы. Не зная о степени применимости используемых статистических тестов к конкретным данным эксперимента, исследователь (   Читать дальше...   )Производство: СпециалистЖанр: СаморазвитиеПродолжительность: 08:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E9BFF0EB94A86859EF94FDE765EF045474897B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1345598   (1003909) от 03.01.2020
+
+Айболит-66 (1966) WEBRip [H.264/720p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003909.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам сказки Корнея Ивановича Чуковского.
+Эксцентрическая музыкальная комедия с элементами цирка и пантомимы, остроумная и изобретательная, о добром докторе Айболите, обезьянке Чичи, собаке Авве, разбойнике Бармалее и его помощниках. Этот яркий остроумный фильм весело и ненавязчиво рассказывает о добре и зле, о справедливости и настоящей дружбе. Рассказывает (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Музыкальная комедия, сказка, экранизацияРежиссер: Ролан БыковАктеры: Ролан Быков, Олег Ефремов, Лидия Князева, Евгений Васильев (II), Леонид Енгибаров, Константин Худяков, Гурген Джанибекян, Георгий Совчис, Юрий Мартынов, Владимир Пицек, Владимир Протасенко, Алексей Смирнов, Фрунзик МкртчянСубтитры: Русские, АнглийскиеПродолжительность: 01:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5002B835DC90EBB2F0E37765ED2EF0A8C0CA700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485368   (1002786) от 08.08.2021
+
+Последний выстрел (2021) WEBRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002786.jpg" />
+</div>
+
+
+###  Подробнее
+
+После очередной ссоры с отцом Антона отправляют работать в детский лагерь. Там он знакомится с девушкой Дашей, которая работает вожатой. Вскоре Антон попадает в непростую ситуацию и Даша решается ему помочь.Производство: Россия / Детская студия КиноНиваЖанр: Короткометражный, боевик, драма, детскийРежиссер: Олег ЗахаровАктеры: София Огородник, Максим Гусев, Анастасия Трепутина, Рустам КульбаевСубтитры: ОтсутствуютПродолжительность: 00:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3229C5088307C37DA7484A94155FA47FB3F3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488106   (1002490) от 09.08.2021
+
+Деловые люди (1962) DVDRip [H.264/1080p] [hand made colored]
+
+>>След.
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник короткометражных фильмов по новеллам О'Генри: «Дороги, которые мы выбираем», «Родственные души», «Вождь краснокожих».
+Наибольшая популярность выпала на долю последней новеллы - столь уморительны оказались злоключения незадачливых похитителей юного сорванца.
+Фильм полностью колоризован.Производство: СССР / МосфильмЖанр: драма, комедия, вестернРежиссер: Леонид ГайдайАктеры: Ростислав Плятт, Георгий Вицин, Юрий Никулин, Алексей Смирнов, Сергей Тихонов, Александр Шворин, Георгий Милляр, Виктор Громов, Владимир Пицек, Виктор УральскийСубтитры: ОтсутствуютПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F505C9D3A123F2E59CCF7FCC71FCCC8E3A7C914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424044   (1002456) от 09.08.2021
 
 Деловые люди (1962) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
@@ -6,7 +87,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002456.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002055.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001137.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993241.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987230.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985473.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960658.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948244.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944139.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942603.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925790.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918233.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893389.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887154.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874217.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858546.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851835.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834762.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832824.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832819.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824729.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820623.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813783.jpg" />
 </div>
 
 
@@ -595,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E5BE708C128C88038FDB5AEEEFB1D8061B9147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505814   (802394) от 28.10.2021
-
-Конёк-Горбунок / Upon the Magic Roads (2021) BDRip [H.264/720p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван - не царевич, не богатырь, не красавец, а старшие братья и вовсе его дураком считают. Но всё меняется, когда у Ивана появляется друг и верный помощник - Конёк-Горбунок. Пусть он ростом невелик, зато умный и смелый. С таким другом никакой враг не страшен. Ну, почти никакой. С таким помощником и ничего невозможного нет. Ну, почти, нет. Ивану с Коньком предстоит (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», Кинокомпания CTB, Компания CGFЖанр: Приключения, фэнтези, комедияРежиссер: Олег ПогодинАктеры: Антон Шагин, Павел Деревянко, Михаил Ефремов, Паулина Андреева, Ян Цапник, Олег Тактаров, Владимир Дикун, Виталий Копнин, Екатерина Байгозина, Алина НедобиткоПеревод: Не требуется (Русский) ЛицензияСубтитры: Русские (full), Украинские (full)Продолжительность: 01:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C47F43F1808EB40BEBF2E24A81D4C025B454C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506168   (799823) от 31.10.2021
-
-Конёк-Горбунок / Upon the Magic Roads (2021) BDRip [H.264/1080p] [GER Transfer]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван - не царевич, не богатырь, не красавец, а старшие братья и вовсе его дураком считают. Но всё меняется, когда у Ивана появляется друг и верный помощник - Конёк-Горбунок. Пусть он ростом невелик, зато умный и смелый. С таким другом никакой враг не страшен. Ну, почти никакой. С таким помощником и ничего невозможного нет. Ну, почти, нет. Ивану с Коньком предстоит (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», Кинокомпания CTB, Компания CGFЖанр: Приключения, фэнтези, комедияРежиссер: Олег ПогодинАктеры: Антон Шагин, Павел Деревянко, Михаил Ефремов, Паулина Андреева, Ян Цапник, Олег Тактаров, Владимир Дикун, Виталий Копнин, Екатерина Байгозина, Алина НедобиткоПеревод: Не требуетсяСубтитры: русскиеПродолжительность: 01:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D358B7DF604528912B8B700F992C55490D79C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506738   (798044) от 06.11.2021
-
-Приключения Электроника (1979) HDTVRip [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский ученый создает гениального робота. Это мальчик, который способен решать любые математические задачи, он пишет самые лучшие сочинения и отлично поет! А еще он — точная копия школьника Сережи Сыроежкина. Сообразительный мальчуган быстренько перекладывает все свои обязанности на электронного двойника. Тот делает за него домашние задания, ходит в школу и выполняет (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: фантастика, детский, приключения, комедия, криминал, семейныйРежиссер: Константин БромбергАктеры: Юрий Торсуев, Владимир Торсуев, Василий Скромный, Максим Калинин, Дмитрий Максимов, Евгений Лившиц, Валерия Солуян, Владимир Басов, Николай Караченцов, Николай ГринькоПродолжительность: 01:11:08+01:04:13+01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15C7E4D87C53A57F865C1FC90F2C623696320A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

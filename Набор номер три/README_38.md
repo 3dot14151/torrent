@@ -1,3 +1,159 @@
+###  Публикация: 1471861   (1014599) от 23.05.2021
+
+ScienceAlert: Физикам из США удалось превысить скорость света, нарушив теорию Энштейна
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Физики из Соединенных Штатов Америки провели работу, в ходе которой, задействовав световые импульсы, превысили скорость света. Подчеркивается, что ученые использовали горячую плазму для проведения эксперимента. При этом специалисты придерживались того, что скорость света не представляет собой константу. Иными словами, есть возможность преодолеть скорость в 300 000 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471692   (1014573) от 23.05.2021
+
+8 явлений в кино, которые Голливуд показывает неправильно
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014573.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Море лавы относительно безопасная штукаОзёра и реки расплавленной породы, конечно, горячие, но, если не наступать ногой непосредственно в магму, ничего страшного не произойдёт. Поэтому жерло вулкана — отличное место для строительства неприступного замка или злодейской базы. Кроме того, магма течёт примерно так же, как вода, поэтому по ней можно кататься на огнеупорных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471837   (1014567) от 23.05.2021
+
+Windows 10 Enterprise LTSC (x86/x64) 8in1 +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Enterprise LTSC v1809 17763.1935, включающая в себя 2 русских и 2 английских редакции x86/x64, с обновлениями по 05.2021, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC30E9B7E6A7ED353A6800403B9878D29B045605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384398   (1014564) от 23.05.2021
+
+Смешарики. Новый сезон (2020-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-49 из 52) [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений любимых круглых героев в формате 2D. Это трогательные ироничные сюжеты о жизни, близкие и понятные детям и взрослым. Любопытные до всего нового Смешарики будут попадать в неожиданные ситуации или создавать их сами, в характерах персонажей зрители традиционно узнают себя.Производство: Россия | Студия компьютерной анимации "Петербург" / «Рики»Жанр: Мультсериал, Анимация, ДетскийРежиссер: Денис Чернов, Алексей Горбунов, Александра АверьяноваАктеры: Вадим Бочанов, Антон Виноградов, Сергей Мардарь, Владимир Постников, Светлана Письмиченко, Михаил Черняк, Владимир Маслаков, Максим Сергеев, Игорь Яковель, Денис ЧерновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 00:06:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07741B6D0F69500C005C615671ADAD57567C6EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471853   (1014563) от 23.05.2021
+
+Microsoft® Windows® 10 Professional VL x86-x64 21H1 RU by OVGorskiy 05.2021
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборка на основе оригинальных русских образов новой версии операционной системы Windows 10 Pro VL x86-x64 (21H1) от Microsoft с дополнительным материалом разных разрядностей (архитектуры) в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DADE3BF0A09C5DE65DB396EB6EB6050ACBF6C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472304   (1014266) от 25.05.2021
+
+Роскомнадзор пригрозил замедлить Google в России
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google недостаточно фильтрует запрещенный в РФ контент и не удаляет от 20 до 30% ссылок на него. Роскомнадзор не исключает замедление трафика сервисов компании, сообщили ТАСС в пресс-службе ведомства."Google не в полной мере выполняет обязанность по исключению из поисковой выдачи на территории России ссылок на интернет-ресурсы с запрещенной в нашей стране информацией. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472480   (1014246) от 25.05.2021
 
 XYZ School | Draft Punk 4.0 - Разработка 3D модели для игр (2021) PCRec
@@ -6,7 +162,7 @@ XYZ School | Draft Punk 4.0 - Разработка 3D модели для игр
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014246.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014245.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014076.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014065.jpg" />
 </div>
 
 
@@ -114,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014064.jpg" />
 </div>
 
 
@@ -141,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014063.jpg" />
 </div>
 
 
@@ -169,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013925.jpg" />
 </div>
 
 
@@ -196,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013903.jpg" />
 </div>
 
 
@@ -223,7 +379,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.05/upd4/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013900.jpg" />
 </div>
 
 
@@ -249,7 +405,7 @@ Microsoft® Windows® 10 x86-x64 Ru 21H1 8in2 Orig-Upd 05.2021 by OVGorskiy
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1013899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1013899.jpg" />
 </div>
 
 
@@ -275,7 +431,7 @@ Phoenix Point (2019) [Ru/Multi] (1.11.69525/dlc) EGS-Rip InsaneRamZes [Year One 
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013894.jpg" />
 </div>
 
 
@@ -301,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013774.jpg" />
 </div>
 
 
@@ -329,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013759.jpg" />
 </div>
 
 
@@ -355,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013752.jpg" />
 </div>
 
 
@@ -382,7 +538,7 @@ MInstAll v.17.04.2021 By Andreyonohov (Unpacked) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013736.jpg" />
 </div>
 
 
@@ -408,7 +564,7 @@ SYNTHETIK: Legion Rising (2018) [Ru/Multi] (26.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013735.jpg" />
 </div>
 
 
@@ -434,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013733.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ ACADEMIA / АКАДЕМИЯ (2010-2012) WEB-DL (лекции 1-271)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013572.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013477.jpg" />
 </div>
 
 
@@ -512,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013441.jpg" />
 </div>
 
 
@@ -523,162 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473641   (1013415) от 30.05.2021
-
-Игры шпионов / The Courier (2020) BDRip [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время Холодной войны Олег Пеньковский, полковник ГРУ генштаба Минобороны, выходит на связь с Гревиллом Винном, британским бизнесменом и шпионом, заинтересованном в постоянном контакте с Москвой. Разведчики договариваются о сотрудничестве, не представляя, чем оно закончится для каждого.Производство: Великобритания, США, 42, FilmNation Entertainment, SunnyMarchЖанр: ТриллерРежиссер: Доминик КукАктеры: Бенедикт Камбербэтч, Мераб Нинидзе, Рэйчел Броснахэн, Джесси Бакли, Владимир Чуприков, Джеймс Шофилд, Фред Хэйг, Эмма Пензина, Мария Миронова, Энтон ЛессерПеревод: Профессиональный многоголосый (HDrezka Studio)Язык озвучки: Русский, украинскийСубтитры: Русские (forced) отдельно, английские (hardsub на русскую речь)Продолжительность: 01:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE781C78EC417341C9820ECD2E6D55D3DE4C97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473224   (1013408) от 30.05.2021
-
-Друзья: Воссоединение / Friends Reunion Special (2021) WEBRip [H.264/1080p-LQ] [MVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исполнители главных ролей сериала «Друзья» воссоединяются и посещают места съёмок легендарного шоу — квартиру Моники, кофейню Central Perk, знаменитый фонтан — а также встречаются с актёрами, исполнившими гостевые роли, и рассказывают о забавных случаях со съёмок.Производство: США, Bright/Kauffman/Crane Productions, HBO Max, Warner Bros. TelevisionЖанр: Документальный, КомедияРежиссер: Бен УинстонАктеры: Дженнифер Энистон, Мэттью Перри, Кортни Кокс, Мэтт ЛеБлан, Лиза Кудроу, Дэвид Швиммер, Риз Уизерспун, Кара Делевинь, Том Селлек, Кит ХарингтонПеревод: Профессиональный многоголосый (Novamedia по заказу Amedia)Субтитры: Русские (Amedia), АнглийскиеПродолжительность: 01:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96AE68D11F49FC0A3620B2E0E03D8B4E5C1B035E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 813771   (1013407) от 30.05.2021
-
-ES File Explorer / ES Проводник Free v4.2.5.0.1 [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный многофункциональный файловый менеджер, менеджер приложений, диспетчер задач, с доступом к облачным сервисам (Dropbox, Google Drive, SkyDrive, Яндекс.Диск, Box, SugarSync, Amazon S3 и Ubuntu One), доступ к ftp и samba серверам. С его помощью вы сможете управлять, просматривать и прослушивать медиафайлы (изображения, музыка, видео), редактировать текстовые (   Читать дальше...   )Тип издания: Mod (разлочен Premium и др.)Релиз состоялся: 29.05.2021Разработчик: ES GlobalПоддерживаемая ОС: Android (зависит от устройства)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E212D9CB7C741E7FE40BBEC41104A4FFD39BCFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473390   (1013295) от 31.05.2021
-
-Глава Microsoft: «1984» Джорджа Оруэлла может наступить в 2024 году
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь, описанная фантастом Джорджем Оруэллом в романе «1984», может наступить уже в 2024 году, если законотворцы не защитят общество от технологий искусственного интеллекта (ИИ). Об этом в интервью программы «Панорама» на телеканале BBC сообщил президент корпорации Microsoft Брэд Смит.«Если мы не примем законы, которые смогут защитить общество в будущем, то увидим, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473738   (1013145) от 01.06.2021
-
-Штраф для пьяных водителей может вырасти до полумиллиона
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Госдума приняла в первом чтении законопроект об ужесточении уголовной ответственности для водителей, повторно севших за руль в нетрезвом виде.Речь в документе идёт о тех автолюбителях, кого уже судили за «пьяные аварии» с погибшими или пострадавшими. Штраф для таких нарушителей составит от трёхсот тысяч рублей до полумиллиона (сейчас от 200 до 300 тысяч рублей). (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351868   (1013094) от 01.06.2021
-
-Госуслуги 3.9.96.2134
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоели бесконечные очереди, при посещении государственных организаций? Желаете, быстро, побороться со всеми бюрократическими проблемами? В таком случае вам необходимо обратить внимание на портал Госуслуги. Сервис предоставляет возможность получить документы или оплатить административные штрафы, наложенные на физических или юридических лиц.Тип издания: FreeРелиз состоялся: 23.03.2021Разработчик: Минкомсвязь РоссииПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036B717FCA14FA2F3314B5BE29A45D618F3263AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

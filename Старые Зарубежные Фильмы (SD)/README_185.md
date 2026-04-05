@@ -1,3 +1,134 @@
+###  Публикация: 1668255   (174760) от 11.10.2023
+
+Романтика обитателей утесов / A Romance of the Cliff Dwellers (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматическая история, древняя как сам род человеческий. История о любви, о соперничестве. Но так как все это происходит в допотопные времена, то цена за достижение мечты может быть очень высокой - смерть.Производство: США, Edison CompanyЖанр: короткометражный, драма, мелодрама, немое киноРежиссер: Дж. Сирл ДоулиАктеры: Лаура Сойер, Херберт Прайор, Джеймс ГордонПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DF58D4070F573EE00B2D90BBC0800419A974C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843019   (174684) от 06.12.2022
+
+Галаксина / Galaxina (1980) HD DVDrip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэш-пародия на американские фантастические фильмы 60-70х годов.
+3008 год. Полицейский космический корабль Объединенной межгалактической федерации «Бесконечность» бороздит просторы Вселенной. Сержант Тор влюблен в очаровательного андроида Галаксину. Она не умеет говорить и только моргает большими глазами, когда Тор целует ее. Однажды корабль получает приказ отправиться (   Читать дальше...   )Жанр: КомедияРежиссер: Уилльям СаксАктеры: Стефен Махт, Эйвери Шрайбер, Дж.Д. Хинтон, Дороти Страттен, Лайонел Марк Смит, Тэд Хорино, Рональд Найт, Перси РодригезПеревод: Многоголосый закадровыйПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D213107595FF09AA067AA351C0FB016149DA21A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 44598   (174631) от 08.12.2020
+
+Царь Эдип / Edipo re (1967) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый автобиографичный фильм Пазолини снят по трагедии Софокла - мифу об Эдипе, убившем своего отца и женившемся на своей матери. Оракул предсказал отцу Эдипа, что он умрет от рук собственного сына, и маленький Эдип был изгнан из дворца. Воспитанный в семье бездетной пары, Эдип проходит через ряд испытаний, женится на собственной матери, и, узнав об этом, лишает (   Читать дальше...   )Жанр: ДрамаРежиссер: Пьер Паоло Пазолини /Pier Paolo Pasolini/Перевод: Две дорожки: Многоголосый + ОригинальныйПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A764BF51847E61087953FED31825D483065F504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595930   (174626) от 07.12.2022
+
+Чарли Чейз. Слабохарактерная личность / The Poor Fish (1924) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174626.jpg" />
+</div>
+
+
+###  Подробнее
+
+О-о-о! Фабула фильма использовалась 100500 раз. В семье молодоженов скандал. Вот прямо скандал-скандал, с битьем посуды. Причина банальна - у мужа нервное истощение из-за работы в офисе, а у жены нервный срыв из-за утомительного ведения домашнего хозяйства. Решение напрашивается само-собой - поменяться местами. Жене пойти на недельку в офис, а Чарли заняться домоводством. (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Сэмми Брукс, Уильям Гиллеспи, Кэтерин Грант, 'Tonnage» Martin Wolfkeil, Олив БорденПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE4BE8D4ED1C2BC80B37A4EFC8F0E79CEC20322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595932   (174607) от 07.12.2022
+
+Волшебное одеяние / The Magic Cloak (1914) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценаристом этого фильма указан Лаймен Фрэнк Баум. Потому что в основе фильма, один из его романов. Ведь он написал не только "Волшебник страны Оз", а целый цикл романов так или иначе связанных с волшебной страной Оз. Ну, короче, про всякое волшебство. И соответственно, был снят целый ряд фильмов по его произведениям. Эта история про волшебный плащ, выполняющий (   Читать дальше...   )Производство: США, Oz Film Manufacturing Company StudiosЖанр: фэнтези, приключения, семейный, немое киноРежиссер: Дж. Фаррелл МакДональдАктеры: Милдред Харрис, Виолет МакМиллан, Фред Вудворд, Вивиан Рид, Пьер Кудерк, Хуанита Хансен, Жаклин Ловелл, Фрэнк Мур, Bernadine Zuber, Энди АндерсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2B9640C18E55E5FE70443DD5D3CE3992223138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430305   (174469) от 09.12.2020
 
 Макс Линдер. Макс спортсмен-универсал / Max Linder pratique tous les sports (1913) DVDRip
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174469.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174449.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174443.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174347.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174090.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174014.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173905.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173724.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173683.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173478.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173355.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173255.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173182.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173166.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173042.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172992.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172989.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172817.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172800.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172625.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172612.jpg" />
 </div>
 
 
@@ -539,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90827BA4606DD65E53988890BAAE49411CFCFD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669922   (172441) от 18.10.2023
-
-Наша банда. Псы войны / Our Gang. Dogs of War! (1923) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банда делится на две группы и устраивают имитацию траншейной войны на грядке с помидорами. Когда битва заканчивается, приходит мама девочки, участвовавшей в кровавой бойне в качестве санитарки, чтобы отвезти её на съёмки в ближайшую киностудию, где она сможет заработать пять долларов. Почуяв запах "лёгких" денег, пострелята весёлой гурьбой помчались на (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джек Дэвис, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Эрнест Моррисон, Эльмо Биллингс, Рой Брукс, Гарольд ЛлойдПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B6505B68C2FC1EF339A79CB9BD0DAD7F0B6DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670118   (172262) от 19.10.2023
-
-Прокол / Blow Out (1981) BDRip [H.264] [GBR Transfer]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек — звукорежиссёр на киностудии, снимающей второсортные фильмы ужасов. Однажды, озвучивая очередной фильм, он слышит странные звуки и записывает их. Оказывается, это звук выстрела и пробитой шины автомобиля, попавшего в аварию, в результате которой погиб кандидат в президенты США. У Джека на руках доказательство того, что автокатастрофа не была несчастным случаем, (   Читать дальше...   )Производство: США / Cinema 77, Filmways Pictures, Geria Productions, Viscount AssociatesЖанр: триллер, драма, криминал, детективРежиссер: Брайан Де ПальмаАктеры: Джон Траволта, Нэнси Аллен, Джон Литгоу, Деннис Франц, Питер Бойден, Курт Мэй, Джон Акино, Джон МакМартин, Дебора Эвертон, Дж. Патрик МакНамараПеревод: Многоголосый профессиональный, двуголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2BACF36B8A1C1EC150362B4D65F026F2D878B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670386   (172110) от 20.10.2023
-
-Гото, остров любви / Goto, l'ile d'amour  / Goto, Island of Love /(1969) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172110.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются на странном острове, управляемом династией Гото. Единственные его обитатели — военные, заключённые, воспитанники школы для мальчиков и проститутки...Производство: Франция, Argos Films, Euro-Images, Les Productions Ren ThvenetЖанр: драмаРежиссер: Валериан БоровчикАктеры: Пьер Брассёр, Лигия Бранице, Жан-Пьер Андреани, Жинетт Леклерк, Фернард Берхер, Мишель Шаррель, Пьер Колле, Рауль Дерби, Руди Ленуар, Мартин, Колетт Режис, Мишель Томасс, Эри Аркадий, Ги Боннафу, Роберт КапиаПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4CD050C623334474C98F0E76321B31139C896A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670433   (172075) от 20.10.2023
-
-Наша банда. Июльские деньки / Our Gang. July Days (1923) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето... Замечательная пора. Каникулы! Времени достаточно на все. И на самокатах покататься и с друзьями побеситься. А можно и с новенькой девочкой подружить... Ну а почему бы и нет? Каникулы же.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джек Дэвис, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Йоффре Першинг Джонсон, Джулия Браун, Ричард Дэниелс, Уильям ГиллеспиПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5610D17522F9ACC137DC69390E9E463CD388C772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670654   (171923) от 21.10.2023
-
-С тобой или со мной / Follow You Follow Me (1979) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наблюдение за отношениями двух английских подростков, приходящимися на 1979 год. Джозеф, сын фабриканта, застенчив, и сомневается в большом количестве вещей в жизни. Питер, сын рабочего, который трудится на фабрике отца Джозефа, отличается уверенностью и знает как завоевать сердца подруг. Однако решение продать фабрику вызывает между ребятами конфликты и ссоры, раскрывая (   Читать дальше...   )Производство: Великобритания / Southern ArtsЖанр: короткометражка, драмаРежиссер: Роджер ЛамбертАктеры: Френсис Гилсон, Стефен Брэтт, Соня Вули, Гилберт Винн, Чармиан Мей, Кевин Мур, Фрэнк Шелли, Петер Макканн, Richard Evans, Sammy RoweПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: немецкие (vob)Продолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2D5D518D6B85C31F71527002CFA7F05C7C71E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

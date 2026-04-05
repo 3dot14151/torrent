@@ -6,7 +6,7 @@ DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601321.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600129.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Летний марафон № 175 / Видеоклипы (Turbo Диск�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599965.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599796.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Norah Jones - The BBC One Sessions (2007) HDTV [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_599057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_599057.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598756.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Guns N' Roses - Appetite for Democracy Live at Hard Rock Las Vegas (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598665.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598173.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598063.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597896.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597377.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597261.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597094.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596850.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Nier Music Concert: Ningyou Tachi no Kioku / NieR Music Concert: The Memory of P
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596148.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596035.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Sweet – Action (The Ultimate Story) (2015) DVDReMux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595606.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595317.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594951.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594163.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593352.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592205.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591514.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591480.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590561.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590543.jpg" />
 </div>
 
 

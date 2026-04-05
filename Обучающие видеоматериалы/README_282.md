@@ -1,3 +1,29 @@
+###  Публикация: 1690680   (123894) от 08.01.2024
+
+Онлайн школа RealManual, Василий Егоров | Gitlab-CI - только практика (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разберем конвейер для CI\CD процессов, хранение и версионирование кода, сборку имеджей для докера, а так же реальные кейсы из жизни без лишней воды и теории.Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 04:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02150E638B262165D520CCFF497446D5818C395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690742   (123893) от 08.01.2024
 
 Stepik, Renat Lotfullin | Excel VBA – Программирование макросов в Excel  (2023) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ Stepik, Renat Lotfullin | Excel VBA – Программирование мак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123893.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123867.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123866.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ Linkedin Learning, Liam Cleary | Metasploit Essential Training (2022) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123850.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123847.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123840.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ Skillshare | Affinity Photo Master Class iPad Edition (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123799.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Domestika, Jessica Roux | Illustrated Stationery: A Guide to Sell and Market You
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123732.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123707.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ Udemy, Dekker Fraser | SaaS Marketing: SaaS Startup Lead Generation with Dekker 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123699.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123689.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Udemy | Adobe After Effects – From Zero to Beyond (2022) WEB-DL [EN, RU / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123603.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123566.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ Enterclass, Татьяна Каштальян | Садовый букет (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123522.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123463.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123357.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123214.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123205.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123192.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123189.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123177.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ IAmTimCorey, Tim Corey | Blazor From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123165.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123163.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ SparkCertCourse, Florian Roscheck | Apache Spark Certification Training (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123142.jpg" />
 </div>
 
 
@@ -668,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123018.jpg" />
 </div>
 
 
@@ -682,32 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5DC510C3D55EC3B06433007981D217979A97E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692062   (123016) от 14.01.2024
-
-Онлайн школа RealManual, Василий Егоров | Kubernetes RKE2 (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123016.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы научитесь разворачивать k8s и его компоненты, собирать шаблоны Proxmox, пользоваться Cloud-init, балансировать трафик с помощью Traefik, хранить данные в NFS и различать RKE2 и RKE. Обучение будет проходить на реальных кейсах, без лишней теории, и вы узнаете множество других интересных твиков.Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 ```
 
 https://mybot314.ru/tekegram_catalog/

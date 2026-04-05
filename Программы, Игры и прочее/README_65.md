@@ -1,3 +1,115 @@
+###  Публикация: 919017   (584789) от 17.07.2015
+
+Пищевые добавки 1.01 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник самых распространенных пищевых добавок (Е), витаминов и микроэлементов.
+Приложение оптимизировано для работы на экранах мобильных телефонов и совершенно бесплатно.
+Удобный поиск по номерам или ключевым словам.Тип издания: FreeРелиз состоялся: 11 июля 2015 г.Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A698563277D7AFDEF66BF385A6F4CE49E5DF64D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918997   (584717) от 17.07.2015
+
+Сказки для детей 1.04 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки для детей - это приложение из разряда 'must have' для любого родителя!
+Большой сборник - Сказки для детей это 1350 сказок!
+Приложение оптимизировано для работы на экранах мобильных телефонов, имеет простое управление и совершенно бесплатно.Тип издания: FreeРелиз состоялся: 16 июля 2015 г.Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886CE6D164F2817E02915FE18F81FD835DC57D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553084   (584641) от 23.05.2022
+
+ЭкоГид: Грибы - Определитель v1.0.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584641.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПОЛЕВОЙ определитель и атлас-энциклопедия грибов России, с помощью которого можно ОПРЕДЕЛИТЬ название гриба по морфологическим и экологическим признакам! 329 ВИДОВ ГРИБОВ
+В определитель включены Сумчатые и Базидиальные грибы, распространенные в пределах лесной и лесостепной зон от западных границ России до Дальнего Востока. Из Сумчатых это строчки, сморчки, пецицы (   Читать дальше...   )Тип издания: Пиратка (разблокирован Pro)Релиз состоялся: 27.09.2021Разработчик: EcosystemaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F94B021966E95FEDDAAB906BA5639579C238A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527514   (584510) от 23.05.2022
+
+Компьютер: основы v3.0 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит статьи, связанные с компьютерными технологиями.
+В приложении присутствуют 4 раздела:
+1. Аппаратное обеспечение 🖥️
+2. Сборка ПК ⚙️(   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 19 мая 2022 г.Разработчик: SergeyV AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046831798E44D3DC00D992D69058F352EDAD3699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040982   (584200) от 07.08.2016
 
 Учимся говорить и читать v1.2 [Ru/En]
@@ -6,7 +118,7 @@
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584200.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584004.jpg" />
 </div>
 
 
@@ -60,7 +172,7 @@ Defense Zone 2 HD  МОДх4  1.5.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583617.jpg" />
 </div>
 
 
@@ -88,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582733.jpg" />
 </div>
 
 
@@ -117,7 +229,7 @@ Sound Touch 2 V1.1 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582731.jpg" />
 </div>
 
 
@@ -145,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582730.jpg" />
 </div>
 
 
@@ -171,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582702.jpg" />
 </div>
 
 
@@ -200,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582554.jpg" />
 </div>
 
 
@@ -226,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581766.jpg" />
 </div>
 
 
@@ -255,7 +367,7 @@ Smart Kitty - развивающая игра 1.0.5 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581702.jpg" />
 </div>
 
 
@@ -281,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581640.jpg" />
 </div>
 
 
@@ -307,7 +419,7 @@ High-Speed Camera Plus v3.1.0 [Ru/Multi] - высокоскоростная ка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580701.jpg" />
 </div>
 
 
@@ -336,7 +448,7 @@ Aldiko Book Reader Premium v3.0.13 [Ru/Multi]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579750.jpg" />
 </div>
 
 
@@ -363,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579746.jpg" />
 </div>
 
 
@@ -390,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578776.jpg" />
 </div>
 
 
@@ -417,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578745.jpg" />
 </div>
 
 
@@ -443,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577644.jpg" />
 </div>
 
 
@@ -469,7 +581,7 @@ YARVITTO v3.18 Pro [Ru/Multi] - путеводитель по Европе и н
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575747.jpg" />
 </div>
 
 
@@ -495,7 +607,7 @@ All GPS Tools Pro v2.6.2 + Mod [En] (Compass, Weather, Map Location)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575628.jpg" />
 </div>
 
 
@@ -521,7 +633,7 @@ Atlantic Fleet версия: 1.08 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575142.jpg" />
 </div>
 
 
@@ -548,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575039.jpg" />
 </div>
 
 
@@ -576,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571960.jpg" />
 </div>
 
 
@@ -587,114 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CA096B5875F90DD371AA31E2E1D123FA85C267D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555629   (568461) от 04.06.2022
-
-ГРАММАТИКА АНГЛИЙСКОГО ЯЗЫКА v2.7.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568461.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Учите английскую грамматику - Уроки и Тесты» - один из текущих проектов PORO, цель которого - предоставить полезные и простые инструменты для изучающих язык.
-
-Это приложение по грамматике английского языка охватывает все 163 грамматических пункта с четкими объяснениями, примерами из реальной жизни и множеством тестов, которые помогут вам практиковать грамматику (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 1 июн. 2022 г.Разработчик: PORO ENGLISHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D776F0FBA7DD0D958A1C24CD5EE07BB25C8054C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556884   (556995) от 11.06.2022
-
-Learn English - Listening and Speaking v6.3.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556995.jpg" />
-</div>
-
-
-###  Подробнее
-
-НАЧНЕМ УЧИТЬСЯ РАЗГОВАРИВАТЬ НА АНГЛИЙСКОМ КАК НОСИТЕЛЬ ЯЗЫКА!
-«Учить Английский - Слушать И Говорить» одно из развивающихся приложений PORO для самообучающихся, которые хотят легко и эффективно общаться на английском языке. 750 ежедневных диалогов, список уроков с различной тематикой от поздравления, совершения покупок, работы, семейного разговора ... Подходит для (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 6 июн. 2022 г.Разработчик: PORO ENGLISHПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6FFF70F66C747301AEA127CB28939AACFF6989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153749   (556642) от 28.07.2017
-
-Adguard Premium 2.9.136 Final [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard - интернет-фильтр для мобильных устройств, который защищает вас от рекламы, вредоносных и фишинговых сайтов, онлайн-трекинга в веб-браузере при работе на смартфоне или планшете в интернете.
-Adguard предназначен для блокировки абсолютно всех видов интернет-рекламы, ускорения загрузки веб-страниц, экономии мобильного трафика и защиты вашего устройства от возможных (   Читать дальше...   )Тип издания: Пиратка/PremiumРелиз состоялся: 27.07.2017Разработчик: ООО "Перформикс"Поддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749D6960474FE7F67199BCF631A9F1BB5E1C70EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455865   (556324) от 12.06.2022
-
-Text Scanner [OCR] v9.3.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лучших сканеров текстаТип издания: Пиратка (открыт Premium)Релиз состоялся: 27.05.2022Разработчик: PeaceПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5271FC7CD30355903A9D5D8917B0DA52EC932E
 ```
 
 https://mybot314.ru/tekegram_catalog/

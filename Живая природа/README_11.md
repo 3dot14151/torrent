@@ -1,3 +1,29 @@
+###  Публикация: 1382903   (796535) от 26.05.2020
+
+Тайная жизнь кенгуру / Secret life of the kangaroo (2016-2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезон 1, серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наиболее известное пушистое лицо Австралии - кенгуру, представлено в этом сериале, где изображены колонии восточного серого кенгуру в Национальном парке Сандаун в Квинсленде и прибрежный курорт Англси в Виктории. Узнайте об их менталитете, правилах размножения и захватывающих социальных иерархиях.Производство: США, Blink Films for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: серии x ~00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A05CC7CF1C107AD8D71235E8BF581D1BE5C8DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380779   (796506) от 26.05.2020
 
 Африканские когти и челюсти / Africa's Claws & Jaws (2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезон 1, серии 1-4 из 4)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796506.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796117.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795185.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795177.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794886.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794865.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794628.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793908.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792663.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792511.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791965.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790204.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790048.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789336.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789271.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789006.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788794.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787537.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786982.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786910.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786848.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786696.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785138.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785129.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784756.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30C6B78B141D45364C18B1896FF855EA3F81A526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390180   (783394) от 14.06.2020
-
-Пела кукушка (1980) TVRip [H.264]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм прозвучал как страстная исповедь об охране природы. Причину гибели природы режиссёр видит в человеке.Телекомпания: СССР, КиргизфильмЖанр: Документальный, ПриродаПеревод: Не требуется (фильм без диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C06BB8BDD76FD16765FE9632D615515298A0B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

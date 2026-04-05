@@ -1,32 +1,3 @@
-###  Публикация: 1801290   (15144) от 09.06.2025
-
-Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Impress to Express (4:05)
-02.  Fire & Ash (5:08)
-03.  What about us (4:34)
-04.  Drowning (4:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0D199316E512574CF3554B2FF817F064A6CFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801257   (15143) от 09.06.2025
 
 Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -35,7 +6,7 @@ Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15143.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15142.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15141.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15139.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15138.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15137.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15136.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15132.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Sanctorium - Studio Albums (3 releases) (2014-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15124.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15043.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15041.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15037.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15026.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14825.jpg" />
 </div>
 
 
@@ -437,7 +408,7 @@ Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14743.jpg" />
 </div>
 
 
@@ -466,7 +437,7 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14731.jpg" />
 </div>
 
 
@@ -495,7 +466,7 @@ Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14730.jpg" />
 </div>
 
 
@@ -524,7 +495,7 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14717.jpg" />
 </div>
 
 
@@ -553,7 +524,7 @@ Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14715.jpg" />
 </div>
 
 
@@ -579,7 +550,7 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14712.jpg" />
 </div>
 
 
@@ -608,7 +579,7 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14710.jpg" />
 </div>
 
 
@@ -637,7 +608,7 @@ Katatonia - Studio Albums (15 releases) (1993-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14545.jpg" />
 </div>
 
 
@@ -666,7 +637,7 @@ The Hu - Echos of Thunder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14434.jpg" />
 </div>
 
 
@@ -695,7 +666,7 @@ Byzantine - Harbingers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14415.jpg" />
 </div>
 
 
@@ -724,7 +695,7 @@ Dante - Studio Albums (5 releases) (2007-2022) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14413.jpg" />
 </div>
 
 
@@ -738,6 +709,35 @@ Dante - метал-группа из Германии, основана в 2006 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CD54FE933B31F4845E5217A1A6F3231B2844A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802319   (14412) от 16.06.2025
+
+Smoulder - Times of Obscene Evil and Wild Daring (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14412.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ilian of Garathorm (06:22)
+A2. The Sword Woman (05:29)
+A3. Bastard Steel (06:04)
+B1. Voyage of the Sunchaser (05:57)(   Читать дальше...   )Жанр: Epic Heavy, Doom MetalПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DC5BD2B2D8E79A0EE47A020B7A2C217A390187
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1343178   (213968) от 08.12.2019
+
+Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в эмоциональное путешествие по горько-сладким жизням двух людей в мире, где воспоминания оживают и время подчиняется вашей воле. Погрузитесь в моменты счастья и преодолевайте все трудности, переживая историю своей жизни. История радости и печали. Простая история.Тип издания: RepackРазработчик: PiccoloЖанр: AdventureЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6698B2654DC09A308E48C9DDFC8B7B23828EAF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561927   (212772) от 07.07.2022
+
+Game of Thrones - A Telltale Games Series (2014) [En] (s106) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Game of Thrones: A Telltale Games Series - это игра состоящая из 6 эпизодов по мотивам одноименного сериала телеканала HBO. Действие игры развернется во временном промежутке между финалом третьего и началом пятого сезона телевизионного сериала. Дом Форрестер - одна из влиятельных семей, чья резиденция расположена на севере Вестероса. Они являются вассалами Старков, (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F69F43AA9BFC863787CE85D0CA2006A01CD65C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562405   (212744) от 09.07.2022
+
+LEGO Indiana Jones: The Original Adventures (2008) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212744.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEGO Indiana Jones: The Original Adventures – аркадная приключенческая игра для всех возрастов, основанная на знаменитой вселенной об искателе приключений Индиане Джонсе, которого знают по образу актёра, который сыграл его на большом экране – Харрисона Форда. Сюжетно, эта игра основывается на первой трилогии и переносит геймера в временные отрезки, использовавшиеся (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Adventure, ComedyЯзык субтитров: Английский, Немецкий, Датский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Датский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562402   (212739) от 09.07.2022
 
 Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
@@ -6,7 +84,7 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212739.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212531.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211978.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Big Earth (2022) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211616.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211561.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Swallow (2022) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211525.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211450.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211135.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211125.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210940.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210838.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ My Destiny (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210487.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210195.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210068.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Legend of Kyrandia - Book One (1992) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209314.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208506.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Twinsen's Little Big Adventure 2 Classic (1997) [Multi] (3.2.4.3/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207645.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207448.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Notch - The Innocent LunA: Eclipsed SinnerS (2012) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206669.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206465.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206436.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Hidden Folks (2017) [Ru/Multi] (2.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206434.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205689.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AFA1931930BB7A6DB81CA927BA5ACF66765B68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491250   (205685) от 27.10.2025
-
-Sludge Life (2021) [Ru/Multi] (251013) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование от первого лица в открытом мире с элементами вандализма. На этом странном острове, полном непредсказуемых чудиков, такая густая атмосфера, что её можно попробовать на вкус. Побродите по крошечному острову посреди покрытой мутным осадком планеты в роли тэггера GHOST, который собирается отстоять свои позиции среди граффити-элиты.Тип издания: LicenseРазработчик: Terri Vellmann & DoseoneЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC34C0422EC3E26EC777D4A9AEC5140E927976EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333542   (205679) от 27.10.2025
-
-Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205679.jpg" />
-</div>
-
-
-###  Подробнее
-
-У детей фантазия работает на полную катушку - они в любом предмете могут увидеть друга или опасного противника, а простая прогулка для них превращается в переполненное событиями приключение. Главные героини Knights and Bikes Демельция и Несса так и развлекаются - познакомившиеся при странных обстоятельствах девочки быстро стали подругами и решили отправиться на поиски (   Читать дальше...   )Тип издания: LicenseРазработчик: Foam SwordЖанр: Экшн, Приключение, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3646E5AE792CBA0A7915ECEADB4AEA3EB97253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570430   (205416) от 17.08.2022
-
-As Dusk Falls (2022) [Ru/Multi] (1.0 Build 9076338) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205416.jpg" />
-</div>
-
-
-###  Подробнее
-
-As Dusk Falls — это оригинальная интерактивная драма от INTERIOR/NIGHT. В центре сюжета судьбы двух семей, за тридцать лет прочно переплетённые между собой. Действие начинается в 1998 году с неудавшегося ограбления. Это история о предательстве, стойкости духа и готовности пойти на жертвы. Жизни персонажей будут зависеть от ваших действий и решений.Тип издания: RepackРазработчик: INTERIOR/NIGHTЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB13018EE0FCEB293F75C57B7975690AAAC1397B
 ```
 
 https://mybot314.ru/tekegram_catalog/

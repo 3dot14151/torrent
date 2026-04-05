@@ -1,3 +1,29 @@
+###  Публикация: 635179   (909340) от 26.03.2013
+
+Подборка журналов | Маленькая Diana №4, 5 [+Спецвыпуски] [апрель, май 2013] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал по вязанию Маленькая Diana представляет коллекцию женского весеннего трикотажа. В номере: вязание в джинсовом стиле, сафари style, инструкция по вязанию с помощью вилки, аксессуары для интерьера и новые узоры и техники вязания. Также в журнале - ещё больше идей, модных трендов, подсказок и подробных инструкций без сокращений.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E536680F0D83FD6E90DD83E032BE8D473B992B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 759397   (909102) от 21.02.2014
 
 Журнал | Stereo & Video [Россия] №3 (229) (март 2014) [PDF]
@@ -6,7 +32,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909102.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908195.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906617.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903492.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903485.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903395.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903385.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903362.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902795.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901579.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901325.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900547.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899765.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899760.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899677.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899520.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899383.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898540.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898534.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898467.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898182.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897395.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897066.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896303.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896290.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15A624B4F9F91A57070F87E1C057533EC0AA6A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639358   (891795) от 04.04.2013
-
-Подшивка журналов | Woodsmith №1-206 (1979-2013) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал, посвященный столярному делу, технологии, приемам обработки дерева, деревообрабатывающему инструменту, содержит очень много подробных описаний изготовления изделий, различных конструкций из дерева - от мебели до кухонной утвари. Будет интересен всем, как начинающим и любителям, так и профессиональным столярам.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C94CF1AA40ADD6AEC70BCF54A0FC0E71D680CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

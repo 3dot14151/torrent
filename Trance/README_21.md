@@ -1,3 +1,61 @@
+###  Публикация: 1295801   (617017) от 14.04.2019
+
+VA - Black Hole Trance Music (04-19) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Foret - Need To Feel Loved (Extended Mix) 06:52
+02. Dustin Husain - Hour Of Twilight (Extended Mix) 07:15
+03. Eddie Murray feat. Veronica Moran - Adrift (Extended Mix) 06:43
+04. Formal One - Be Like Me (Extended Mix) 06:15(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DD0C7E256DF3A66BEA6BF488B5ED7BCD97752B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230457   (615710) от 12.06.2018
+
+Syn Drome - Silence Vol. 40 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Syn Drome - Deserted City (Original Mix)
+02.Syn Drome - Afeeliya (Original Mix)
+03.Syn Drome - Dilemma (Original Mix)
+04.Syn Drome - Gravity (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DCD864850527FB52AB1C916190D021D5AF4475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545426   (614688) от 19.04.2022
 
 VA - Black Hole Trance Music 04-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Black Hole Trance Music 04-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614688.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Trancemaster vol.01-7006 (1992-2012) [MP3|320 кб/с]<Trance, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614182.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Practikally Forbidden Vol. 1 (Mixed by Nathan Revely & Ashley Bradbury) (20
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613574.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Techno Club Vol.54 - (Mixed By Talla 2XLC & Neelix) (2018) [MP3|~ 247-252] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612332.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Solo Vol.I (Mixed by Simon Patterson) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611842.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 June (2018) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610585.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Vocal Anthems Ibiza (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610313.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Dream Dance Vol.83 (2017) 3CD [MP3|320 Kbps] <Trance, House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609179.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Black Hole Trance Music 06-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609039.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 April (2019) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608645.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Airwave - 20 Years - Remastered Classics (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608635.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - True Hits Vol.3 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608531.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Clubbers Culture (Classified Trance Tracks) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607126.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Silent Shore Selections Top 20: Spring (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607124.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - The Best Of Critical State 001 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607120.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Suanda Music - World Cup Of Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607053.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Paul Van Dyk Presents: We Are One (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605125.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Trance Dreams (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605062.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dark Trance Vol. 2 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604408.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ ATB - 57 Релизов (1998-2014) [MP3|320 kbps]<Trance, Progressive House, Do
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604351.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Magic Of Trance Vol. 5 (Mixed By Vito Von Gert) (2018) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603773.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Progressive Trance Selections Vol. 05 (2018) [MP3|320 Kbps] <Trance,Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603772.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Euphoric Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602782.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Nothing But... Total Trance Selections Vol. 09 (2019) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602670.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Nothing But... Total Trance Selections Vol. 09 (2019) [MP3|320 Kbps] <Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8327D76F408DD47034B4F796BE9C5B003F8DA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297954   (602658) от 25.04.2019
-
-VA - Redux Presents: The Vocal Selection Vol.1 (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jon The Dentist & Triode – Fall For You (Extended Mix)
-02. Dreamy & Maratone & Emma Chatt – Out From Under (Eryon Stocker Remix)
-03. Zara Taylor & Sven E & A-Tronix – Forgiven (Extended Mix)
-04. Shaun Greggan & Vika – Nothing Like You (Six Senses Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552487303400BAB8867DF57BB2B2B205D6CD200F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547716   (602422) от 29.04.2022
-
-VA - Beautiful Vocal Trance - Chapter 8 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zetandel - Higher Ground (Costa & Aurosonic Remix) (3:44)
-02. Trance Classics - A Day Without Rain (Costa Remix) (3:39)
-03. 4 Strings - Enough (Radio Edit) (3:28)
-04. 4 Strings - Completely (2:49)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1822D7B389E2DD46FB8767611891F341F36FE4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

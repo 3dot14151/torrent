@@ -1,135 +1,3 @@
-###  Публикация: 1417452   (357917) от 20.10.2020
-
-Ю.В. Апальков | Боевые корабли японского флота [4 части] (1997-2000) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит сведения о тактико-технических элементах и карьере боевых кораблей специальной постройки, входивших в состав действующих соединений, находившихся в постройке, либо внесенные в кораблестроительные программы Японского Императорского флота в период с 10.1918 по 8.1945 гг. Схематично показан их внешний вид в двух проекциях в различные периоды службы, (   Читать дальше...   )Жанр: Военная техника, СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A2391EFB15D1A461023F62B9B0E38973E60BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417447   (357817) от 20.10.2020
-
-Ю.В. Апальков и др. | Боевые корабли мира на рубеже XX-XXI веков [4 части] (2000-2004) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены данные по находящимся в строю, строящимся и проектируемым кораблям: названия и номера, количество кораблей в строю и в серии, даты закладки, спуска и вступления в строй; предприятия-строители; рассказано об особенностях проектов. Представлены многочисленные иллюстрации: наружный вид и общее расположение кораблей. Издание предназначено для всех, кто интересуется (   Читать дальше...   )Жанр: Военная техника, СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B87245FE67AC240453E3B707E0E6B8378672A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232328   (357546) от 20.10.2020
-
-Юрий Апальков | Боевые корабли Русского флота. 8.1914 - 10.1917 гг. Справочник [1996] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый вниманию читателей справочник содержит информацию о боевых кораблях специальной постройки, входивших в состав действующих соединений, находившихся в постройке, либо внесенные в кораблестроительные программы Русского Императорского флота в период с 1914 по 1917 годы. Приведены краткие исторические справки и тактико-технические элементы по каждому кораблю. (   Читать дальше...   )Жанр: Военная техника, СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C448A4594B4EA1E4EA64A6D398930FC8B9A11B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577556   (357148) от 19.11.2012
-
-Ж.И.Риманова | Инструкция по обращению с этиловым спиртом [1985] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представлены Приказ заместителя Министра обороны СССР – начальника тыла вооруженных сил СССР №73 от 19 июля 1985 г. О введении в действии инструкции по обращению с этиловым спиртом и собственно сама Инструкция.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582780B1BDC917FFAE7F62CE0DC3B766273079A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256343   (356782) от 21.10.2018
-
-Воздушная разведка (1942) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит ряд статей, обобщающих опыт явления воздушной разведки в великой отечественной войне.
-
-За исключением статьи подполковника Ю. Макарова, материал взят из газет «Сталинский сокол» и «Красная звезда». Сборник иллюстрирован подполковником Ю. Макаровым.Жанр: История, политология, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9905372B7B8FA117072A0F97F570F61F1BC902CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256357   (356777) от 21.10.2018
 
 Л. Г. Бескровный | Хрестоматия по русской военной истории (1947) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356777.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355932.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355616.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355613.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355487.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ Gordon L. Rottman | Victory 1945: Western Allied Troops in Northwest Europe (201
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354504.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353697.jpg" />
 </div>
 
 
@@ -320,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353557.jpg" />
 </div>
 
 
@@ -346,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353452.jpg" />
 </div>
 
 
@@ -373,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353322.jpg" />
 </div>
 
 
@@ -400,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353248.jpg" />
 </div>
 
 
@@ -426,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351240.jpg" />
 </div>
 
 
@@ -452,7 +320,7 @@ Gordon L. Rottman | World War II US Army Combat Equipments (2016) [EPUB, PDF] [E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350072.jpg" />
 </div>
 
 
@@ -478,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350008.jpg" />
 </div>
 
 
@@ -504,7 +372,7 @@ Gordon L. Rottman | Vietnam War US & Allied Combat Equipments (2017) [EPUB, PDF]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349939.jpg" />
 </div>
 
 
@@ -530,7 +398,7 @@ Rebecca Skinner | British Paratrooper 1940–45 (2015) [EPUB, PDF] [Warrior #174
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347919.jpg" />
 </div>
 
 
@@ -556,7 +424,7 @@ Angus Konstam | British Commando 1940–45 (2016) [PDF] [Warrior #181] [EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347911.jpg" />
 </div>
 
 
@@ -582,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346716.jpg" />
 </div>
 
 
@@ -608,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346697.jpg" />
 </div>
 
 
@@ -635,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345656.jpg" />
 </div>
 
 
@@ -662,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344081.jpg" />
 </div>
 
 
@@ -673,6 +541,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6AB9FCBD428A8DA0F333912FDBE0ADB485254B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 410915   (343738) от 14.11.2011
+
+Игорь Симбирцев | Спецслужбы первых лет СССР. 1923-1939 [2008] [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343738.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей книге Игорь Симбирцев прослеживает историю советских спецслужб периода, который уложился между двумя войнами: Гражданской и Великой Отечественной. Автор открывает малоизвестные детали нашумевших операций этого времени, обнажая механизм "создания" новых антисоветских организаций: "Синдикат-2", "Трест" и т. д. Описывает репрессии (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB351C92DE4449A2D91ABE7C629CC8216D224FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580533   (343635) от 25.11.2012
+
+Г.Н.Дмитриев | ПТУР сухопутных войск [1997] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343635.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании рассмотрены противотанковые ракетные комплексы; разработанные на территории бывшего СССР и поступившие на вооружение Советской Армии. Все они широко поставлялись и поставляются на экспорт. Каждый ПТРК создавался под определенный тип ракеты, поэтому комплексы даны в привязке к ПТУРам. Технические характеристики даны по материалам открытых источников: газетным и журнальным публикациям, материалам выставок и проспектам фирм-производителей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012F99B29E966F29FD22C1EE3A0FFAFF2308021B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580547   (343622) от 25.11.2012
+
+Б.А.Айзенберг, В.В.Костриченко | Лидер Черного моря [1998] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343622.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ташкент» - советский военный корабль, лидер эскадренных миноносцев. Построен по итальянскому проекту в 1937 году в Ливорно. Принимал участие в боях в составе Черноморского Флота СССР в годы Великой Отечественной войны. Потоплен немецкой авиацией в Новороссийском порту 2 июля 1942 года.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A56475669AF04DA5F25AF371476330F399AE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580347   (343193) от 25.11.2012
+
+Н.Ю.Авраамов | Шлюпочное дело [1951] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_343193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Втогрое переработанное издание книги Н.Ю.Авраамова "Шлюпочное дело" предназначается в качестве учебного и справочного пособия для личного состава Военно-Морских Сил Советского Союза.
+В книге даны подробные сведения по классификации, устройству, изготовлению и назначению шлюпок, методике обучения личного состава гребле и управлению шлюпкой, а также правила использования и содержания шлюпок.
+В переработке принимали участие капитан 2 ранга И.А.Дышлевой и инженер-капитан 3  ранга В.В.АндреевЖанр: военная история, учебное пособие, справочная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257691   (343131) от 27.10.2018
+
+Ю.В. Гусаров | Первая мировая: хроника обороны крепости Осовец (2018) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена событиям, происходившим в России и вокруг неё в период — накануне и во время Первой мировой войны. Особое внимание уделено героической обороне крепости Осовец, а также действиям военных врачей, сестёр милосердия и другого медицинского персонала. В работе используются свидетельства непосредственных участников военных действий о событиях Первой мировой (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9EE384931394BFE5D01726372433CCECC9B1D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1126391   (765987) от 17.04.2017
+
+Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) Unofficial
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765987.jpg" />
+</div>
+
+
+###  Подробнее
+
+В такую мясорубку Странник не попадал никогда: свинцовый дождь превращает в опилки ближайший салун, динамит разносит на части фургоны переселенцев, а угрюмые бандиты хотят только одного - его смерти. Тихий американский городок в одно мгновение превращается в ад. Странник снова выходит на тропу войны, и с этого дня имя ему - Отчаянный!Тип издания: UnofficialРазработчик: Jarhead GamesЖанр: Action, Shooter, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DBE355E377A4822845EAD3D641C7C2DD5901DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126695   (765041) от 18.04.2017
+
+Homefront: The Revolution (2016) [Ru/Multi] (1.0781467) SteamRip Let'sPlay [Freedom Fighter Bundle]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homefront: The Revolution – это шутер от первого лица, в котором вы должны возглавить силы Сопротивления в партизанской войне против превосходящих сил противника. Все ваши действия будут влиять на живой, дышащий открытый мир – ваша ячейка Сопротивления и вы сможете вдохновить угнетённых гражданских на восстание и превратить оккупацию в революцию.Тип издания: SteamRipРазработчик: Dambuster StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6D3F94F87F6CD6AC7FD6C4202D997E96638A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 203094   (764684) от 23.05.2010
 
 Kingpin: Life of Crime [En/Ru] (L) 1999
@@ -6,7 +58,7 @@ Kingpin: Life of Crime [En/Ru] (L) 1999
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764684.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Paranormal Activity: The Lost Soul (2018) [En] (1.03) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763891.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Battlefield Heroes [En] (RePack) 2009 | tukash
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763776.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ The Cursed Forest (2019) [Ru/Multi] (1.0.6) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763412.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ ShellShock Дилогия [Ru] (RePack) 2004-2009 | tukash
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761237.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Portable PortGamPC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760493.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack R.G. Defoz
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758818.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Genesis Alpha One (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758065.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Tom Clancy's Rainbow Six: Vegas Дилогия [Ru] (RePack) 2006-2008 | R.G. М
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757532.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_754058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754058.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Left Alone (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753316.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ DESOLATE (2019) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753005.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0/dlc) License SKIDROW [Enhan
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752724.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Monstrum (2015) [En] (1.4.1) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749468.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ The Signal From Tölva (2017) [En] (1.0.51) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747395.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747391.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Adam - Lost Memories (2020) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746644.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745766.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) SteamRip =nemos= [Enhanced Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743665.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ HEVN (2018) [En] (1.0.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743163.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Welcome to the Game II (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742962.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Kartong - Death by Cardboard! (2018) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741706.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Jackal (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741484.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) Repack xatab [Enhanced Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741104.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Space Hulk: Deathwing - Enhanced Edition - это шутер от первого
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A38306EC0E00A091AD3F666A3446ABC0EBFC2999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784374   (740621) от 07.05.2014
-
-Dead Island Riptide (2013) [Ru/Multi] (1.4.1.1.13/dlc) License PROPHET
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они думали, что сумели сбежать от смерти. Они ошибались. На борту военного корабля, где нашли убежище выжившие после кровавых кошмаров острова Баной, произошла новая вспышка таинственной эпидемии. В поисках спасения отчаянные парни и девушки покинули обреченное судно. Но им еще невдомек, что на незнакомом берегу их уже поджидают бесчисленные полчища оживших мертвецов, (   Читать дальше...   )Тип издания: LicenseРазработчик: TechlandЖанр: Action / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Итальянский, Испанский, Польский, ЧешскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский, Польский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46DD9004AF0F65897E88529D73713A1A219AD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347861   (735494) от 26.07.2020
-
-World War Z (2019) [Ru/Multi] (1.70/dlc) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735494.jpg" />
-</div>
-
-
-###  Подробнее
-
-World War Z - это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z - наследнице одноименного блокбастера от Paramount Pictures - вас ждет сверхдинамичный игровой процесс. Исследуйте новые сюжетные линии и узнавайте персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Survival Horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683ED25F3E4CE6F3CA463C1FDAA22C0BA7C9085F
 ```
 
 https://mybot314.ru/tekegram_catalog/

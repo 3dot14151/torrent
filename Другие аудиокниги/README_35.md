@@ -1,3 +1,61 @@
+###  Публикация: 478114   (86380) от 04.04.2012
+
+Дмитрий Лихачёв | Письма о добром [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди духовного наследия Дмитрия Сергеевича Лихачёва особое место занимают «Письма о добром». Появление этой книги необычно: она родилась как ответы Дмитрия Сергеевича на вопрос: «Что является главным в жизни человека?» - заданный ему в интервью во время поездки в Болгарию.
+Дмитрий Сергеевич ответил, что это очень интересный вопрос, но не для интервью, и он согласился ответить на него в газете в форме нескольких писем, которые затем
+и стали ядром будущей книги.
+ В этой книге 46 писем, обращенных к молодым читателям. Впервые письма были опубликованы в 1985 году под названием «Письма о добром и прекрасном».
+Добавление «о прекрасном» было сделано издательством, так как почти треть писем (с 32-го по 45-е) посвящены размышлениям автора о природе, искусстве и культуре.
+«Письма о добром и прекрасном» Д. С. Лихачёва, адресованные современному читателю, молодому человеку, — это не просто мысли большого ученого и мыслителя, много совершившего в жизни и получившего мировое признание, - для нас это еще и «письма» от десятков (   Читать дальше...   )Жанр: Художественно-философская
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF3E5FDB2790A1EBF4761A507623E0FEDD58B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456594   (77755) от 22.02.2012
+
+Фредерик Марриет | Корабль-призрак, или Повесть о Летучем Голландце (2011) [MP3, Вадим Максимов]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фредерик Марриет – английский писатель, известный также под псевдонимом капитан Марриет, в XIX веке пользовался огромной популярностью как автор морских приключенческих романов.
+«Жанр: Приключенческий романИздательство: АРДИС
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8715348ECD86157F7B59627A556BAF2B06068454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455395   (77518) от 21.02.2012
 
 Игорь Волгин | Толстой и Достоевский. Семья и дети [2007] [MP3]
@@ -6,7 +64,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77518.jpg" />
 </div>
 
 
@@ -37,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69581.jpg" />
 </div>
 
 
@@ -66,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68872.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67097.jpg" />
 </div>
 
 
@@ -118,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65650.jpg" />
 </div>
 
 
@@ -145,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65506.jpg" />
 </div>
 
 
@@ -171,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63632.jpg" />
 </div>
 
 
@@ -199,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63605.jpg" />
 </div>
 
 
@@ -225,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63554.jpg" />
 </div>
 
 
@@ -251,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63520.jpg" />
 </div>
 
 
@@ -277,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54916.jpg" />
 </div>
 
 
@@ -304,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54822.jpg" />
 </div>
 
 
@@ -330,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54715.jpg" />
 </div>
 
 
@@ -356,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49826.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45016.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44758.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42855.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42824.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39673.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38380.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29796.jpg" />
 </div>
 
 
@@ -572,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26884.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19455.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16749.jpg" />
 </div>
 
 
@@ -637,58 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:113137CC3140E2F050A23CC475EB5B8D0B8905E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802305   (14429) от 16.06.2025
-
-Билл Хансон | Тайная сила обоняния. Доверься носу. Иди за инстинктами (2024) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нос и обоняние – особая система, с помощью которой живые существа ощущают мир и общаются друг с другом. Как обоняние помогает обитателям нашей планеты размножаться, развиваться и выживать? Интересные и неожиданные истории о том, как запахи влияют на поведение зверей, птиц и насекомых, как побуждают к действию или вызывают отвращение (даже когда мы этого не чувствуем).Жанр: Учебная и научно-популярная литератураИздательство: БОМБОРАПродолжительность: 06:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABB82162EF7127B63D9F3BDB2794A27B74E2F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121330   (13917) от 21.06.2025
-
-Валентина Талызина | Мои пригорки, ручейки (2017) [MP3, Татьяна Телегина]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талызина не просто талантливая актриса, она талантливый человек: яркий, честный и очень принципиальный. Её жизнь похожа на гоголевский смех сквозь слёзы. В ней было много потерь и много побед. Талызина неисчерпаема. И было ясно: она должна написать книгу, потому что ей есть о чём рассказать. Она сделала это честно, талантливо и беспощадно. Талызина – актриса. И этим (   Читать дальше...   )Жанр: Биографии и МемуарыИздательство: Нигде не купишьПродолжительность: 09:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C04C6344AB78B01EFFA36FF9B74255126C24F58
 ```
 
 https://mybot314.ru/tekegram_catalog/

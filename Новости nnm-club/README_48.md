@@ -1,3 +1,29 @@
+###  Публикация: 1352365   (891315) от 30.03.2020
+
+Dorohedoro | Дорохедоро [2020, TV, 12 эп.] HDTV 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891315.jpg" />
+</div>
+
+
+###  Подробнее
+
+В злачном городе Дыре живёт ящероголовый Кайман. Не то чтобы он хотел быть ящероголовым или помнил, как таким стал. Всё, что он знает: его заколдовал один из магов, прибывших в Дыру для тренировки своих способностей, а чтобы вернуть себе память и прежний облик, нужно убить виновника, на которого укажет чувак в глотке Каймана. Потому ящероголовый и решает начать охоту (   Читать дальше...   )Производство: студия MAPPAЖанр: приключения, фэнтези, чёрная комедияРежиссер: Хаяси ЮйтироПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C88137F52C5EC27283FC68DA9CF39CD9288AC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370223   (891305) от 30.03.2020
 
 Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack Other s
@@ -6,7 +32,7 @@ Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891305.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891300.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Waterfox 44.0.3 x64 Final RePack (& Portable) by D!akov [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890805.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890772.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890689.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ The Sims 4 v.1.13.104.1010 (2015) [En] [OS X WineSkin]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890674.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890279.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890210.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890064.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890059.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Mass Effect 3 Digital Deluxe Edition + 10 DLC [Ru/En] (RePack/1.05.5427.124) 201
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889931.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Minecraft (2011) [Ru/Multi] (1.7.5) Repack Kron
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889866.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889806.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889699.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ AIMP for Android 3.01 (build 972) [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889693.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889666.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889657.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889152.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889150.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ NewBlue Titler Pro Utlimate 4.0 build 160210 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888965.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Fallout 4 (2015) [Ru/Multi] (1.4.132) License PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888897.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888867.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888770.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Greyscale - Label-Pack 76 Releases (2012-2021) [FLAC|Lossless|tracks+.cue, track
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888716.jpg" />
 </div>
 
 
@@ -642,39 +668,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888689.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сцены из многих современных фантастических и детективных фильмов достаточно часто демонстрируют нам чудеса цифровой обработки визуальной информации, когда некая специальная программа буквально за считанные секунды превращает кусок размытого кадра, снятого ночью низкокачественной камерой внешнего наблюдения, в качественное изображение, по которому без труда можно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102425   (888664) от 10.02.2017
-
-AT&T готовится запустить интернет по линиям электропередач
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888664.jpg" />
-</div>
-
-
-###  Подробнее
-
-AT&T — крупнейшая в мире телекоммуникационная компания и один из крупнейших медиаконгломератов сообщили о начале испытаний проекта по передаче данных с использованием линий электропередач. Представители компании убеждены, что проект под названием AirGig позволит предоставлять высокоскоростной многогигабитный интернет с гораздо меньшими издержками и на большей (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

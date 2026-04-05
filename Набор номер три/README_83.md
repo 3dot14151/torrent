@@ -1,3 +1,160 @@
+###  Публикация: 1362981   (944934) от 26.02.2020
+
+Расстрельный список препаратов (Фуфломицины) v1.0.8 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расстрельный список препаратов (РСП) - список сформирован на основе отсутствия убедительных данных об эффективности препаратов по заявленным показаниям, как того требует доказательная медицина, а так же по отсутствию в авторитетных источниках и рекомендациях. Дополнительно в список добавлены гомеопатические препараты и негативный список формулярного комитета РАМН (   Читать дальше...   )Тип издания: Free из МаркетаРелиз состоялся: 06.02.2020Разработчик: Bandarenka YuryПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9463A2D60C980325DE6E8FBB0CE67C7B78B96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362564   (944824) от 26.02.2020
+
+Boeing рассказала о покупке в России детали для корабля Starliner
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boeing покупает в России преобразователь питания для своего пилотируемого космического корабля Starliner, сообщило космическое подразделение компании.Накануне гендиректор "Роскосмоса"  рассказал, что с удивлением узнал об агрегате для системы посадки Starliner, который частная российская компания делает в Воронеже по заказу Boeing.
+"Starliner использует (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362782   (944745) от 26.02.2020
+
+Американский инженер Майк Хьюз разбился на самодельной паровой ракете
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский инженер-любитель Майкл Хьюз, более известный как Безумный Майк, трагически погиб во время очередных испытаний самодельной ракеты на паровом двигателе. Инцидент, оборвавший жизнь инженера на 64 году, произошел 22 февраля.Майкл Хьюз — один из самых известных (в узких кругах) сторонников теории плоской Земли. Для ее подтверждения он в 2014 году собрал первую (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362996   (944739) от 26.02.2020
+
+Microsoft Windows 10 Insider Preview Build 10.0.19041.84 - Оригинальные образы [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft выпустила новую сборку Windows 10 для участников программы предварительной оценки Windows Insider с приоритетом получения обновлений “Поздний доступ”.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDCC1795149A645233E905D46D554296B914D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348480   (944715) от 26.02.2020
+
+Need for Speed: Heat (2019) [Ru] (1.0/dlc) Repack xatab [Deluxe Edition]
+
+>>3
+>>33
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed: Heat – очередная часть гоночной серии NFS, в которой вас ждут как дневные официальные гоночные соревнования Speedhunters Showdown, так и нелегальные уличные заезды.Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing, ArcadeЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B891A01A883000615B86130A80913DD06D8C80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983092   (944642) от 05.02.2016
+
+Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (05.02.2016) SATRip (выпуск 1)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944642.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморПродолжительность: ~ 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEDB08A2C14D1DEBAE9B0F04AB525C7394DD643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983253   (944625) от 05.02.2016
 
 Андрей Ливадный | Цикл «Призрачный Сервер» [3 книги] (2015-2016) [FB2]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944625.jpg" />
 </div>
 
 
@@ -34,7 +191,7 @@ AutoCAD 360 Pro v3.5.3 Final [Ru/Multi] - Мобильная версия AutoCA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944607.jpg" />
 </div>
 
 
@@ -61,7 +218,7 @@ Max Payne 3 (2012) [Ru/En] (1.0.0.114) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944596.jpg" />
 </div>
 
 
@@ -87,7 +244,7 @@ WinPE 8.0 Sergei Strelec (x86/x64/Native x86) 04.02.2016 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944593.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ XCOM 2 (2016) [Ru/En] (1.0.0.30310/dlc) Repack SEYTER [Digital Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944586.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ Apple Final Cut Pro X 10.2.3,  Motion 5.2.3 & Compressor 4.2.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944577.jpg" />
 </div>
 
 
@@ -168,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944560.jpg" />
 </div>
 
 
@@ -194,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944554.jpg" />
 </div>
 
 
@@ -220,7 +377,7 @@ StarCraft & Brood War (1998) [Ru/Multi] (1.16.1/1.3.0.1) Repack Raf-9600
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944545.jpg" />
 </div>
 
 
@@ -246,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944339.jpg" />
 </div>
 
 
@@ -273,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944337.jpg" />
 </div>
 
 
@@ -299,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944335.jpg" />
 </div>
 
 
@@ -325,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944314.jpg" />
 </div>
 
 
@@ -351,7 +508,7 @@ BELite v.08.01.17 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943981.jpg" />
 </div>
 
 
@@ -379,7 +536,7 @@ Avira Phantom VPN Pro 2.2.3.19655 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943973.jpg" />
 </div>
 
 
@@ -405,7 +562,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack xatab [Apex Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943957.jpg" />
 </div>
 
 
@@ -431,7 +588,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack =nemos= [Apex Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943956.jpg" />
 </div>
 
 
@@ -457,7 +614,7 @@ Quantum Break (2016) [Ru/En] (1.0.126.0307) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943954.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) License CPY [Apex Edition]
 >>15
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943952.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ Tomb Raider [Ru] (RePack/1.00.716.5/3DLC) 2013 | =Чувак=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943888.jpg" />
 </div>
 
 
@@ -523,164 +680,6 @@ Tomb Raider [Ru] (RePack/1.00.716.5/3DLC) 2013 | =Чувак=
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B09345AB090D6343CF12D5C316F441E86F5E5251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859469   (943851) от 14.01.2015
-
-VideoHive - Slideshow Constructor [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slideshow Constructor - само название говорит само за себя, проект для создания слайд шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB00836AD06E1E16538AE07C81C36D5C86981067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859525   (943843) от 14.01.2015
-
-Левиафан (2014) WEB-DL [H.264/720p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943843.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории — живущий на севере Николай, который вместе с отцом построил дом и мастерскую. Но его нормальная жизнь рушится под влиянием судьбы.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Валерий Гришко, Сергей Бачурский, Платон КаменевПеревод: Не требуется (русский)Субтитры: Вшитые не отключаемыеЯзык субтитров: АнглийскийПродолжительность: 02:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B6317B00FE35A5928CC95BCFF96BB3FB0D5C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741725   (943839) от 14.01.2015
-
-Черепашки Мутанты Ниндзя / Teenage Mutant Ninja Turtles (2013) WEB-DL [720p] (Сезон: 2, Серии: 1-26 из 26)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лео, Раф, Майки и Донни – черепашки-мутанты, научившиеся боевому искусству ниндзюцу у своего сэнсэя Учителя Сплинтера. Выбравшись из канализации на улицы Нью-Йорка, братья оказываются в бурлящем жизнью мегаполисе. Здесь им придется неустанно противостоять самым кровожадным злодеям в истории человечества. В свободное от схваток время ребята занимаются своим любимым (   Читать дальше...   )Жанр: Экшн, Приключения, Фэнтези, КомедияРежиссер: Майкл ЧангПерсонажи: Леонардо, Рафаэль, Донателло, Микеланджело, Сплинтер, Эйприл О’Нил, Шреддер, КараиПеревод: Многоголосый закадровыйФормат: MKVПродолжительность: ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0538F19B6009954F7554BE42A42C6B10517A4351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859535   (943832) от 14.01.2015
-
-Левиафан (2014) WEB-DL [H.264/1080p-LQ]
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943832.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории — живущий на севере Николай, который вместе с отцом построил дом и мастерскую. Но его нормальная жизнь рушится под влиянием судьбы.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Валерий Гришко, Сергей Бачурский, Платон КаменевПеревод: Не требуется (русский)Субтитры: Вшитые не отключаемыеЯзык субтитров: АнглийскийПродолжительность: 02:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CED82DC7EA273B0749D83329137CAE785AC294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582304   (943778) от 05.03.2013
-
-Far Cry 3 [Ru/En] (Repack/1.05) 2012 | z10yded
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача – выжить любой ценой.
-
-Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить опиумный сон от безумной яви. Сумасшедший остров сводит с ума всех, кто ступит на его берега и нужно быть психом, чтобы здесь остаться. А ты в своём уме?(   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal, Massive Entertainment and Ubisoft ShanghaiЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F05BB177E49B15421A0A4E88283944D13AE0F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363119   (943471) от 27.02.2020
-
-Россия запустила крупнейшее в мире производство графеновых нанотрубок
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская компания OCSiAl, выделившаяся из портфельной группы компаний "Роснано", запустила в Новосибирске Graphetron 50 - крупнейшую в мире установку по синтезу графеновых нанотрубок, кардинально изменяющих характеристики различных материалов.Graphetron 50 - крупнейшая в мире установка по синтезу графеновых нанотрубок - вторая установка новосибирского (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

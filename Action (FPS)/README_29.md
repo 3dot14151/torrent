@@ -1,3 +1,55 @@
+###  Публикация: 1328945   (358368) от 02.10.2019
+
+Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augmented Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deus Ex: Human Revolution - третья часть популярного РПГ проекта, действия которого происходят в мире киберпанка. Главным героем выступает Адам Дженсен, работающий в службе безопасности компании Sarif Industries, которая является одной из лидирующих фирм по производству имплантатов для людей.Тип издания: RepackРазработчик: Eidos Montreal и Nixxes SoftwareЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC22B4B8CE36A68FE132622E2DD8F4CED33654EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952767   (352748) от 02.11.2015
+
+Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0.7/dlc) Repack R.G. Механики
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352748.jpg" />
+</div>
+
+
+###  Подробнее
+
+С возвращением во вселенную Borderlands! Палите из всех стволов и хватайте все, что плохо лежит, в совершенно новом приключении, которое буквально отправит вас в космос – на поверхность спутника планеты Пандора. События Borderlands: The Pre-Sequel! происходят в промежутке между Borderlands и Borderlands 2. Узнайте побольше о прошлом Красавчика Джека, главного злодея (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Australia, Gearbox Software и Aspyr MediaЖанр: Action (Shooter) / RPG (Rogue/Action) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8B8839213B0578A8154F26C179127781919AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577848   (351749) от 20.09.2022
 
 Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) Repack DjDI
@@ -6,7 +58,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351749.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351668.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Gods Basement (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351568.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351565.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350489.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Final DOOM (1994) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348489.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ DOOM II (1994) [En] (1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348361.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347636.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347205.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347033.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.0781467/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346179.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344012.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/Mu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343999.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340177.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Infliction (2018) [Ru/Multi] (3.0) Repack Other s [Extended Cut]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339200.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (5730292/upd16/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339192.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) SteamRip R.G. Origins [Singleplayer Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339160.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Viktor Kalvachev's - Blue Estate: The Game (2015) [En/Multi] (1.0) Lossless Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338834.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337328.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336915.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.0) License Razor1911
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335942.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332980.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Prodeus (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330463.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328143.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1334F2A68098BA22F112E4715B227A846D2F3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128603   (322713) от 02.11.2018
-
-Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) License CODEX
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outlast 2 представляет вашему вниманию Sullivan Knoth и его последователей, которые оставили наш грешный мир позади, чтобы положить начало Вратам Храма, городу, скрытому от цивилизации, в далекой глуши. Knoth и его группа, готовятся к испытаниям конца света, и вы находитесь прямо в центре этих событий. Вы - Blake Langermann, оператор работающий со своей женой, Lynn.Тип издания: LicenseРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D87C4BB4D0F9D528115F267AE0F6D07FFCC0441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 263798   (322191) от 28.11.2010
-
-Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинграда [Ru/En] (P) 2009
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1942 августа. Нацисты захватили всю Европу и сейчас их взгляд направлен на единственную могущественную сверхдержаву - Советский Союз. Немецкие ученые создают новое смертельное химическое оружие. Ключ к победе нацистов – это падение Сталинграда и Нацисты планируют напасть, как только они завершат свой секретный проект. Вам отведена роль сотрудника советской спецразведки, а задачей будет – проникнуть в тыл врага, совершить ряд диверсий и остановить разработку смертельного химического оружия. Спасите город и измените ход войны.Тип издания: ПираткаРазработчик: CITY InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F18C32D03A40BFC664BA25906F063F44BCFE29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 964187   (217756) от 18.12.2015
+
+Филин и кошечка / The Owl and the Pussycat (1970) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соседей, как и родителей, не выбирают. Печальный факт для интеллектуала и моралиста Феликса, который с ужасом обнаруживает, что живет бок о бок с — какой ужас! — женщиной легкого поведения по имени Дорис.
+В свою очередь, остроумная нахалка Дорис совсем не в восторге от чопорного, невыносимо «правильного» зануды-соседа и не упускает случая отпустить шпильку-другую (   Читать дальше...   )Производство: США / Rastar Pictures, Tom Ward EnterprisesЖанр: КомедияРежиссер: Херберт РоссАктеры: Барбра Стрейзанд, Джордж Сигал, Роберт Клейн, Аллен Гарфилд, Роз Келли, Жак Сандулеску, Джек Мэннинг, Грэйс Карни, Барбара Энсон, Ким ЧанПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDA4970CA517165DDE697B314D4CB9E24C49D5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511854   (217450) от 03.12.2021
+
+Жизнь и смерть полковника Блимпа / The Life and Death of Colonel Blimp (1943) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина жизни Клайва Кэнди, британского солдата. Она показана в эпизодах, начиная с 1902 года, когда он сделал блестящую карьеру молодого офицера в Бурской войне, до 1943 года, когда он скрипучим, старческим голосом рассказывает о времени бомбёжки Лондона, размышляет о потерянной молодости и любви...Производство: Великобритания, Independent Producers, The ArchersЖанр: драма, мелодрама, военныйРежиссер: Майкл Пауэлл, Эмерик ПрессбургерАктеры: Джеймс МакКехни, Невилл Мапп, Винсент Холман, Роджер Ливси, Дэвид Хатчесон, Спенсер Тревор, Роланд Калвер, Джеймс Найт, Дебора Керр, Дэннис АрунделлПеревод: любительский одноголосый (Александр Герусов)Субтитры: русские (на неанглийскую речь), английскиеПродолжительность: 02:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B5590197786D9640F559112FDFB4447634AF04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 58878   (217216) от 22.11.2020
 
 Два миссионера / Подставь и другую щеку / (Porgi l'altra guancia / Two Missionaries) (1974) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217216.jpg" />
 </div>
 
 
@@ -36,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217206.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216706.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216467.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216245.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216104.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216063.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215785.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215679.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215509.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215460.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215225.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214929.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214706.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214394.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214122.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214073.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214067.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213790.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213318.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213268.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213224.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213075.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212562.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53EF75D3EA6824B465B373BC5029A43DB88ADE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562236   (212519) от 15.07.2022
-
-Почтальон всегда звонит дважды / The Postman Always Rings Twice (1981) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Времена Великой Депрессии. Бродяга Фрэнк Чемберс нанимается в работники на бензоколонку к пожилому греку Нику Пападакису, который вместе с молодой женой Корой содержит таверну «Два дуба». Словно луч света в темном царстве, стало для Коры появление Фрэнка в их доме.
-Изнывающая в скучном, бесстрастном браке, она влюбляется во Фрэнка. Между ними вспыхивает безудержная (   Читать дальше...   )Производство: Германия (ФРГ), США / CIP Filmproduktion GmbH, Lorimar Film Entertainment, Northstar InternationalЖанр: Триллер, драма, мелодрама, криминалРежиссер: Боб РейфелсонАктеры: Джек Николсон, Джессика Лэнг, Джон Коликос, Майкл Лернер, Джон П. Райан, Анжелика Хьюстон, Уильям Трейлор, Томас Хилл, Джон Ван Несс, Брайан ФэррелПеревод: Дублированный, двуголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 02:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0409E60C7932FE00A86CA9443E840A4C6D9BF9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589161   (212513) от 15.07.2022
-
-Супер Фантоцци / Superfantozzi (1986) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм начинается с того, что Господь, устав, создал Фантоцци. Через день он создал Адама, Еву и женщину для Фантоцци (полная противоположность красавице Еве). Потом Господь изгоняет супругов Фантоцци из Рая за то что Фантоцци по просьбе Евы сорвал запретный плод. Но Господь не знал о злой шутке Евы. Далее идут небольшие сюжеты, в которых показывается злоключения (   Читать дальше...   )Производство: Италия / Reteitalia, Scena FilmЖанр: КомедияРежиссер: Нери ПарентиАктеры: Паоло Вилладжо, Лью Босисио, Жижи Редер, Плинио Фернандо, Ева Лена, Люк Меренда, Джимми иль ФеноменоПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F05CAD37E7C01B7DEBED6631EC6D47A612AEFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

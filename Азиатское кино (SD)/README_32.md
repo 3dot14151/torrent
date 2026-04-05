@@ -1,3 +1,55 @@
+###  Публикация: 1049173   (536447) от 09.09.2016
+
+Дикие дни / Days of Being Wild / A Fei jing juen (1990) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536447.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дикие дни", чем то проще, чем "Любовное настроение". Но без этой картины, "Любовное настроение" и "2046" были бы другими. Здесь все и началось. Взаимоотношение он и она. Романтические 60 годы. Пустой восточный город. Вечер и ночь. И дождь... Не прекращающий дождь. И живая камера Кристофера Дойла. Построение кадра, очень фотографическое. (   Читать дальше...   )Производство: Гонконг, In-Gear FilmЖанр: ДрамаРежиссер: Кар Вай ВонгАктеры: Лесли Чун, Мэгги Чун, Энди Лау, Карина Лау, Ребекка Пан, Джеки ЧунПеревод: Двуголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CB75856A34E8191533DCAB93A410A4F2DE18FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050268   (536365) от 09.09.2016
+
+Бабочка и меч / San lau sing woo dip gim (Butterfly & Sword) (1993) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трех героев, друзей детства, наняли для того чтобы раскрыть заговор против Императора. Любовная составляющая: персонаж Донни Йена влюблен в женщину, которую играет Мишель Йео, а она влюблена в персонажа Тони Люна, а тот в свою очередь влюблен в другую девушку, Бабочку, которая не знает о том, что он из мира боевых искусств. Красиво снятый фильм с приключенческим (   Читать дальше...   )Производство: Тайвань, Гонконг, Chang-Hong Channel Film & Video CoЖанр: БоевикРежиссер: Дон Кит МакАктеры: Мишель Йео, Донни Йен, Тони Люн Чу Вай, Джимми Лин, Джои ВанПеревод: Одноголосый закадровыйПродолжительность: 1:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E93D34E200E16FD5C439AA3B74C744ED76EB363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049154   (536285) от 09.09.2016
 
 Смерть и слава в Чандэ / Die Xue Gu Cheng / Death and Glory in Changde (2010) HDRip [VO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536285.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535548.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535541.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535424.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535163.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535111.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535041.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533651.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533550.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533205.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533189.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532247.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532241.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532234.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532111.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532110.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532108.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532102.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532097.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532095.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531963.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531959.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531086.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531021.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ABADB797AF93B232A167C3CF1B3189E54D75A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051902   (530502) от 12.09.2016
-
-Уведомление о преступлении / Yokokuhan / Prophecy (2015) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отдел по расследованию киберпреступлений токийской полиции находит в Интернете ролик, в котором некто в бумажном пакете, сделанном из газеты, сообщает о будущем пожаре на фабрике. Вскоре обнаруживаются новые сообщения о готовящихся преступлениях. Видео разместил Гецу — глава группы Синбунси. Он работал в IT-компании и был несправедливо уволен. Дело поручают вести (   Читать дальше...   )Производство: ЯпонияЖанр: Детектив, ТриллерРежиссер: Накамура ЁсихироАктеры: Икута Тома, Тода Эрика, Судзуки Рёхей, Аракава Ёсиёси, Хамада Гаку, Кубота МасатакаПеревод: Многоголосый закадровый, любительский (STEPonee)Язык субтитров: Русский (на надписи), английский (внешние)Продолжительность: 01:59:06Реклама: Отсутствует.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661BAED24484BD9DB3ECFFF8005F0573AA0CD09B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242591   (530353) от 05.07.2019
-
-Ручной замок Шаолинь / Shaolin Handlock / Shi zi mo hou shou (1978) DVDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил на свете простой китайский парень Ли Шиньенг, вроде и не было в нём ничего примечательного, если бы не его папа: известный мастер Ли Бэй, создавший стиль «Шаолиньских рук-замков». Но однажды мастер Бэй был убит. Проведя расследование, Шиньенг узнал, что убийца отправился в Бангкок и бросился за ним в погоню. Прибыв на место, мститель узнаёт улицу и номер борделя, (   Читать дальше...   )Производство: Гонконг / Shaw BrothersЖанр: Боевик, Кунг-ФуРежиссер: Менг Хуа ХоАктеры: Дэвид Чианг, Пинг Чен, Лье Ло, Уай-Ман Чан, Lak Apichat, Шен Чан, Хсю Хсиа, Кара Хуи, Куанг Ло, Вэй ЛоПеревод: Авторский одноголосый (Сергей Кузнецов)Продолжительность: 01:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522DD444766B62801F8027EE8C9783E85483EE56
 ```
 
 https://mybot314.ru/tekegram_catalog/

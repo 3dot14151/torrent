@@ -1,82 +1,3 @@
-###  Публикация: 1183516   (309933) от 13.11.2017
-
-Николай Бердяев | Метафизика пола и любви. Самопознание [сборник] (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309933.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли два наиболее известных произведения Николая Бердяева – выдающегося русского мыслителя, последователя Канта, Ницше, Шопенгауэра, одного из ярчайших представителей идеалистической философии. «Человек», «личность», «индивид», «свобода», «Бог» – важнейшие категории философии Бердяева.
-Пол и Любовь Бердяев считал главными мировыми вопросами и посвятил (   Читать дальше...   )Жанр: ФилософияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9659912E3D31D430F43B49B1C4FED5639E9CA544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260609   (309839) от 08.11.2018
-
-Паола Волкова | От Древнего мира до Возрождения (2016) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «От Древнего мира до Возрождения» объединяет в себе три тома серии «Мост через бездну» – легендарного цикла лекций Паолы Волковой, транслировавшегося на телеканале «Культура» и позже переработанного и изданного «АСТ». Паола верила, что все мировое искусство, будь оно античным или современным, – начиная от Стоунхенджа до театра «Глобус», от Крита до испанской (   Читать дальше...   )Жанр: История, КультурологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7EBED63365FF2658C8801F5D7883C7091C6CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183412   (309684) от 13.11.2017
-
-А.П. Василевич и др. | Цвет и названия цвета в русском языке (2011) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая монография посвящена проблеме обозначения цвета в русском языке. Первая часть книги представляет собой серию статей, освещающих роль, историю развития и различные функции слов-цветонаименований, включая их применение в рекламе и другие аспекты прикладного использования. Во второй части помещен "Каталог названий цвета", который содержит более двух (   Читать дальше...   )Жанр: ЛингвистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DC82A632DB67E167B6BB6C59501641EBCF984C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260612   (309546) от 08.11.2018
 
 Паола Волкова | Цикл «Мост через бездну» [6 книг] (2015-2016) [FB2]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309546.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309078.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308892.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308055.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308049.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307986.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307982.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307980.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307974.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307358.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305453.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305445.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305432.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305423.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304854.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302843.jpg" />
 </div>
 
 
@@ -511,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301412.jpg" />
 </div>
 
 
@@ -537,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301410.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301337.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301235.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301185.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300856.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300853.jpg" />
 </div>
 
 
@@ -678,6 +599,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C9D4CF1352160D67C71AD8DC036F191838B1FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078318   (300711) от 01.12.2016
+
+В. Г. Арсланов | Миф о смерти искусства: Эстет. идеи Франкфуртской школы от Беньямина до «новых левых» (1983) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена критическому исследованию эстетики Франкфуртской школы. Посредством тонко разработанной системы философских и эстетических категорий франкфуртские теоретики пытаются опровергнуть марксистско-ленинскую теорию отражения, доказать неизбежность гибели культуры, реалистического искусства. Автор последовательно проводит мысль, что на основе марксистско-ленинской (   Читать дальше...   )Жанр: История, политология, искусство, эстетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9634AD85ED02CAB92F3D474CE5F38818CBB4F5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078325   (300523) от 01.12.2016
+
+М. А. Лифшиц (сост.) | Ленин о культуре и искусстве (1938) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300523.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издательства:
+
+Хрестоматии, объединяющей высказывания Ленина о культуре и искусстве, у нас до сих пор не было. А между тем потребность в подобном сборнике очень велика. Взгляды Ленина, получившие дальнейшее развитие в произведениях Сталина, определяют политику партии в области культуры и искусства, являются руководящей нитью для всей теории и практики нашего культурного (   Читать дальше...   )Жанр: История, политология, философия, культурология, искусство, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5444036D38227184BB6DB85A403D58CFE51A476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961370   (300448) от 01.12.2015
+
+Александр Панчин | Сумма биотехнологии. Руководство по борьбе с мифами о генетической модификации растений, животных и людей (2015) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это увлекательный научно-популярный рассказ о генетически модифицированных организмах (ГМО), их безопасности и методах создания, а также о других биотехнологиях, которые оказались в центре общественных дискуссий.  Из книги вы узнаете все самое интересное о чтении молекул ДНК, возможности клонирования человека, создании химер, искусственном оплодотворении и генетической (   Читать дальше...   )Жанр: Биологические науки. Биохимия. Молекулярная биологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981EB1E19683330949003967CEAD204277BA3CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

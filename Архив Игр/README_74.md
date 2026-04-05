@@ -1,3 +1,60 @@
+###  Публикация: 593815   (133864) от 25.12.2012
+
+Beowulf: The Game / Беовульф [Ru] (RePack) 2007 | R.G. ReCoding
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный шанс почувствовать себя главным героем классической саги «Беовульф», экранизированной оскароносным режиссером Робертом Земекисом.
+
+Беовульф — легендарный воин Севера, в одной его руке сила тридцати людей, благородство и жестокость с трудом уживаются в нем. Жаждущий славы и золота с отрядом верных людей он отправляется в Данию сразить чудовище, наводящее ужас на заснеженные земли. Одержав победу, впадает в грех гордости, жаждет большей славы и становится датским королем. Теперь же, когда королевство объято пламенем войны, пришло время пожинать плоды неумеренных амбиций. Пришло время вести своих людей в бой, уничтожить Титанов уходящей эпохи и сокрушить врагов государства. Только пройдя через все уготованные ему судьбой испытания и взглянув судьбе в глаза, Беовульф поймет, кто он на самом деле.
+(   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E548419A9829E60A293510E9256916CF9F34D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594541   (133359) от 26.12.2012
+
+The Darkness 2 / II: Limited Edition [Ru/En] (L/1.0/4 DLC) 2012 | 2DVD5
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133359.jpg" />
+</div>
+
+
+###  Подробнее
+
+И придет Тьма…
+В продолжении популярного мистического экшена 2007 года игрокам вновь предстоит исполнить роль Джеки Эстакадо — главы преступного клана Нью-Йорка и носителя древней силы, известной под названием Тьма.
+Со времен событий The Darkness прошло два относительно мирных года. Но после того как на Джеки было совершено покушение, в нем вновь пробудилась Тьма… Лишь пройдя до конца по кровавому пути отмщения, он узнает, кто стоял за нападением и чего добивается скрытая в нем сила. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русские, АнглийскиеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE73D3C4043AC360E501C2CC531F1459A786F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675171   (133231) от 01.12.2023
 
 Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.021s/dlc) Repack Other s
@@ -6,7 +63,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.021s/dlc) Repack Other
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133231.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ Baldur's Gate: Dark Alliance [GameCube] [English] [NTSC] (2002)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133019.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ Baldur's Gate: Dark Alliance II [PS2] [English] [PAL] (2004)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133001.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Legend of Grimrock [En] (L/1.3.6) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132992.jpg" />
 </div>
 
 
@@ -123,7 +180,7 @@ Heroes of Might and Magic: Quest for the Dragon Bone Staff [PS2] [Multi-5] [PAL]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132926.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ Dead Island - Game of the Year Edition [Ru/En] (L/1.3.0/3 DLC) 2011 | 3xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131796.jpg" />
 </div>
 
 
@@ -185,7 +242,7 @@ John Woo Presents Stranglehold [Ru/En] (Lossless Repack/1.1) 2007 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131314.jpg" />
 </div>
 
 
@@ -215,7 +272,7 @@ Karateka [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131292.jpg" />
 </div>
 
 
@@ -242,7 +299,7 @@ John Woo Presents Stranglehold [Ru/En] (Repack/1.1) 2007 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131256.jpg" />
 </div>
 
 
@@ -272,7 +329,7 @@ Sanctum {1.4.13334 + 9DLC} [Multi12\+] 2011 | UltraISO [RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130445.jpg" />
 </div>
 
 
@@ -298,7 +355,7 @@ Port Royale 3 Pirates Merchants [Ge] (RePack) 2012 | R.G.BoxPack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130387.jpg" />
 </div>
 
 
@@ -324,7 +381,7 @@ Legends of Valour [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130225.jpg" />
 </div>
 
 
@@ -351,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130154.jpg" />
 </div>
 
 
@@ -377,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130125.jpg" />
 </div>
 
 
@@ -403,7 +460,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Scene Rune [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117313.jpg" />
 </div>
 
 
@@ -429,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102503.jpg" />
 </div>
 
 
@@ -456,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102191.jpg" />
 </div>
 
 
@@ -483,7 +540,7 @@ SolSuite 2012 {v 12.04} (P) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102160.jpg" />
 </div>
 
 
@@ -509,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102126.jpg" />
 </div>
 
 
@@ -535,7 +592,7 @@ Risen {1.10} (RePack) [Ru] 2009 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101925.jpg" />
 </div>
 
 
@@ -561,7 +618,7 @@ Dungeons of Dredmor {1.0.10} (P) [En] 2011 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101871.jpg" />
 </div>
 
 
@@ -587,7 +644,7 @@ Star Wars: Empire at War [Ru] (RePack) 2006 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101737.jpg" />
 </div>
 
 
@@ -613,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101648.jpg" />
 </div>
 
 
@@ -639,7 +696,7 @@ Ravenloft Антология [En] (RePack) 1994 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91067.jpg" />
 </div>
 
 
@@ -650,58 +707,6 @@ Ravenloft Антология [En] (RePack) 1994 | Pilotus
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488612   (91035) от 27.04.2012
-
-A Forgotten Realms Fantasy Role-Playing Epic Антология [En] (RePack) 1988-1991 | Pilotus
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завершающая часть приключений, начавшихся еще в Pool of Radiance. Интерфейс стал более удобным, а графика значительно улучшилась. Команда приключенцев снова вернется в город Phlan, который они спасли в первой части.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488409   (90905) от 26.04.2012
-
-Cracked Horn (L) [En] 2012
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный и весёлый платформер – слешер, повествующий о сражение храброго рыцаря со страшными демонами. Давным-давно рыцари из ордена крестоносцев возвели большой замок прямо над бездной, которая вела к вратам ада. Они поклялись не покидать это место и отдать свои жизни в бою, в случае вторжения демонов. Прошли сотни лет, и вот печать блокирующая портал между двумя мирами была сломлена. Толпы демонов вырвались наружу и захватили замок! Отважный герой берёт в руки свой меч, и отправляется на дно ада, чтобы вновь запечатать древнее зло!Тип издания: ЛицензияЖанр: Аркада, Казуальная, ПлатформерЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

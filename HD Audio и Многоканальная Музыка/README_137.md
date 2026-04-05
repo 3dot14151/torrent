@@ -1,32 +1,3 @@
-###  Публикация: 1730772   (107828) от 17.06.2024
-
-Merging Cluster - Peak of Ephemeral Light (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107828.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dysrationalia (10:02)
-2. Peak of Ephemeral Light (6:08)
-3. Subjective Doubles Syndrome (10:10)
-4. Gift Undeserved (8:37)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D763DA4BC4B77C26F5C596D3393BA4A0F30D63B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730919   (107818) от 18.06.2024
 
 Tarkan - Kuantum 51 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -35,7 +6,7 @@ Tarkan - Kuantum 51 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107818.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Sam Morton - Daffodils & Dirt (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107803.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Shades of Thunder - Big Break (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107792.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Timmy Trumpet - Timmy Trumpet's SINPHONY No. 2 (2024) EP [FLAC 16/44.1; 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107779.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Vintage Culture - Promised Land (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107772.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ My Diligence - The Matter, Form and Power (2022) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107759.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Detroit Hills - Us (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107757.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Brian Auger & The Trinity, Savannah Grace - Live At Rockpalast (Live) (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107755.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107713.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Bootleg Contraband - Mars Colony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <i
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107648.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Двое - Песни на стихи Михаила Танича. Запи
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107614.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Grateful Dead - From the Mars Hotel (1974) 50th Anniversary Deluxe Edition, 2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107605.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107589.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Celine Dion (Céline Dion) - JE SUIS : CELINE DION (Bande originale du film) (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107573.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Kygo - Kygo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Deep House, Midtempo>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107553.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Babbba - Cabaret Conversation (Vol 1) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107545.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Avril Lavigne - Greatest Hits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107543.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Emiliano Lasansky - The Optimist (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107540.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ William Foley - Seven Spaces (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107539.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Thomas Greenberg - Quirky Retro & Vintage (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107538.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Hoot & Annie - Inspector Penny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107537.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Cafe Rex Paris - Summer in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107535.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Omolewa Osain - Belcugazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107534.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ NeoSwing - The Groovy Gatsby (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107531.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Kat Hawley - X•IX•VIII (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107530.jpg" />
 </div>
 
 
@@ -745,6 +716,33 @@ Kat Hawley - X•IX•VIII (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34F90499CA89AF778EECECAFE8823E6D2C71BE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732021   (107528) от 23.06.2024
+
+S.O.D. - Stormtroopers of Death (Anthrax) - Studio Albums (2 releases) (1985-1999) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107528.jpg" />
+</div>
+
+
+###  Подробнее
+
+S.O.D. (Stormtroopers of Death) — музыкальная кроссовер-трэш группа, сформированная в Нью-Йорке в 1985 году. Группа считается одним из первых кроссовер-трэш коллективов, смешавших в своём творчестве хардкор-панк и трэш-метал.1985 - Speak English or Die
+1999 - Bigger Than The DevilЖанр: Thrash Metal/Crossover/Hardcore PunkПродолжительность: 01:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A833621B679ADD999E5879420C289AA8C7C8FFE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

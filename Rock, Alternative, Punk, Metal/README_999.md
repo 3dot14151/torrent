@@ -1,3 +1,32 @@
+###  Публикация: 1591943   (185481) от 20.11.2022
+
+Wind Rose - Wintersaga (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Iron And Gold
+02. Wintersaga
+03. Drunken Dwarves
+04. Diggy Diggy Hole(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9969909D0DEB4F96B85224A07AFCA04AD79C6089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591848   (185472) от 20.11.2022
 
 Antimatter - A Profusion Of Thought (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmosheric Progressive Rock>
@@ -6,7 +35,7 @@ Antimatter - A Profusion Of Thought (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmosh
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185472.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Moonlight Haze - De Rerum Natura (2019) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185455.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185447.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Headcat 13 - Headcat 13 (2020) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185443.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Our Last Night - Disney Goes Heavy (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185438.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185436.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185402.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Katatonia - Dead Air (2020) 2CD [FLAC|Lossless|image + .cue] <Doom Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185379.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Vinnie Moore - Double Exposure (2022) [MP3|320 Kbps] <Neoclassical, Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185378.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Tallah - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185353.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Odonata - Gravitational Perturbation (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185342.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Jared Dines - the grey (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185336.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Moratory - 10 Relises (2016-2022) [MP3|320 Kbps] <Crossover, Hardcore Punk, Thra
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185331.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Morbid Angel - Abominations Of Desolation (1991) [WavPack|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185251.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ The Smashing Pumpkins - CYR (2020) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185241.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Jeff Lynne's ELO - From Out Of Nowhere (2019) Japanese Edition [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185188.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Snakebite Delight - Swamp Walker (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185123.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Drakon - П​р​о​б​у​ж​д​е​н​и​е (2022) [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185113.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Damnation's Hammer - Into The Silent Nebula (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184960.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Fossilization - Leprous Daylight (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184955.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Cardinal Point - Man Or Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184906.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Vibravoid - Edge of tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184898.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Candleblack - The Passage of Time and Suffering (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184893.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Grymheart - Hellish Hunt (2023) [MP3|320 Kbps] <Melodic Death, Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184880.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Big Bus Dream - C'mon Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184864.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Big Bus Dream - C'mon Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35B03118CF56F428CEC6B643577D129DE00AF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664696   (184860) от 27.09.2023
-
-Loonypark - Strange Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shades of Darkness [00:09:38]
-02. Carnival Swirl [00:07:17]
-03. What If? [00:09:42]
-04. RAW/WAR [00:05:06](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B105D505B8190B0893E6E95E0D5C9CFA829EFF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

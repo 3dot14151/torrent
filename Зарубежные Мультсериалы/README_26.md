@@ -1,3 +1,55 @@
+###  Публикация: 806469   (547382) от 28.08.2014
+
+Аватар: Легенда о Корре. Книга 3 / The Legend of Korra. Book 3 (2014) HDTVRip (1-13 серии из 13)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Аватар Корра в свои 18 уже не только хорошо овладела всеми 4-мя стихиями: огнем, водой, землей и воздухом, а также справилась с революционной армией и главой революционеров – Амоном, сыном Якона, магом крови, и научилась контролировать себя в мире духов, не только общаясь с мирными, а бороться со злыми. Теперь Корре предстоит найти новых магов воздуха! После (   Читать дальше...   )Жанр: Приключения, Рисованная анимацияРежиссер: Майкл Данте ДиМартино, Брайан КониецкоПеревод: Многоголосый закадровый (Flux-Team)Продолжительность: серия по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D0D4C583628A2104BA7F4C91E9C8C14F6B1792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694474   (546292) от 29.08.2013
+
+Мой Маленький Пони: Дружба это Магия / My Little Pony: Friendship is Magic (2012) WEB-DLRip [720p] (Сезон 3, Серии: 13 из 13) [EN / RU Sub] [hand made 60fps]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единорогу Твайлайт Спаркл ученице Селестии, предстоит отправиться вместе с друзьями в Кристальную империю, чтобы помочь найти артефакт "кристальное сердце". Но помимо этого неожиданного этапа обучений ей предстоит пройти и тот, что поможет наконец раскрыть свою судьбу.Жанр: Приключения, Фэнтези, СемейныйРежиссер: Джэйсон Тиссен, Джеймс ВуттонПерсонажи: Эшлин Бол, Клэр Корлетт, Мишель Кребер, Андреа Либман и другиеПеревод: СубтитрыЯзык субтитров: Русские субтитры + английскиеФормат: MP4Продолжительность: 13 х ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68F3136AEFB611C50138AC80A83E5C946C80F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 694583   (546231) от 29.08.2013
 
 Зайцы Засранцы / Нашествие Кроликов / Rabbids Invasion (2013) WEB-DL [H.264/720p-LQ] (1 сезон, серии 1-1 из 26) (VO-production) (Обновляемая)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546231.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543602.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543521.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543410.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542084.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541953.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540633.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539055.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537960.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537366.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537221.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535752.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535736.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535324.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533315.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530151.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529382.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524915.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522639.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521053.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520269.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519943.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518813.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516538.jpg" />
 </div>
 
 
@@ -627,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8856E68F2FB687A0383B74F2F9A57CDFC8DDF3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791061   (516499) от 03.07.2022
-
-Том и Джерри: Мышиные проблемы. Том 1 / Tom and Jerry: Mouse Problems (1940) DVD5
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кот Том и мышонок Джерри — парочка, прославившаяся на весь мир. Уже несколько десятков лет Том гоняется за Джерри с неослабевающим азартом. Том придумывает всё новые и новые хитроумные уловки, чтобы поймать Джерри, но мышонок всё время выкручивается с не меньшей изобретательностью.Производство: США / Warner Bros.Жанр: ДетскийРежиссер: Джозеф Барбера, Уильям Ханна / Joseph Barbera, William HannaПеревод: ДублированныйЯзык субтитров: Продолжительность: ~ 7 минут - серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EC0B3C522E274B7037E4276FAAAC105E49BE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 122556   (516489) от 03.07.2022
-
-Рекс / Reksio (1967-1986) 8xDVD5 (серий 62)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения польского пёсика по кличке Рекс.
-Плюс этого и подобных сериалов — в их простоте (на самом деле сложно воплотить эту простоту на экране): нет диалогов и сложных картинок, вместо этого веселые звуки, несколько произнесенных слов, не требующих перевода, много эмоций и жестов, запоминающийся музыкальный ряд, яркие герои.
-Самое главное — мультфильм без насилия. (   Читать дальше...   )Производство: Польша, Studio Filmów Rysunkowych (Bielsko-Biala)Жанр: комедия, анимация, детскийРежиссер: Лехослав МаршалекПерсонажи: собачка Рекс и другиеПродолжительность: на дисках по ~01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6201AB670C5A1D197152141B463FC4609F3FC67
 ```
 
 https://mybot314.ru/tekegram_catalog/

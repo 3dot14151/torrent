@@ -1,3 +1,133 @@
+###  Публикация: 1794950   (19672) от 01.05.2025
+
+Преступление дьявола / Le regine (1970) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой хиппи-байкер стал невольным виновником гибели странного незнакомца. Посреди ночи он находит пристанище в сарае, а утром оказывается в доме трёх очаровательные сестёр, не подозревая, что три прелестницы служат Дьяволу...Производство: Италия, Франция / Carlton Film Export, Flavia Cinematografica, Labrador FilmsЖанр: ужасы, фэнезиРежиссер: Тонино ЧервиАктеры: Хайде Политофф, Сильвия Монти, Ида Галли, Рэй Лавлок, Джанни Сантуччо, Гуидо АльбертиПеревод: авторский (Дмитрий Есарев)Язык озвучки: русский, итальянскийСубтитры: русские (oldys), английскиеПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0D86486756BB4921C9B01AEC59BC79E5BD9833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795039   (19554) от 02.05.2025
+
+Гордый и светский / The Proud and Profane (1956) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19554.jpg" />
+</div>
+
+
+###  Подробнее
+
+На остров Новая Каледония в Тихом океане приезжает Ли Эшли, вдова лейтенанта, погибшего в Битве за хребет Эдсона в 1942 году. Прошел всего год со смерти супруга, рана не зажила. Но Ли сильна духом и присоединяется к американскому Красному Кресту, где собирается давать уроки французского. На самом деле женщине хочется узнать побольше о покойном муже. На остров высаживается (   Читать дальше...   )Производство: США / Perlberg-Seaton ProductionsЖанр: драма, военныйРежиссер: Джордж СитонАктеры: Уильям Холден, Дебора Керр, Тельма Риттер, Дьюи Мартин, Уильям Редфилд, Росс Багдасарян, Адам Уильямс, Мэрион Росс, Теодор Ньютон, Ричард ШеннонПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E3A4B8DF5D5449F7F4BF1EDCF4B3D0DA2A9C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795263   (19465) от 03.05.2025
+
+Обвиняемые / The Accused (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм в общих чертах основан на групповом изнасиловании Шерил Араужо в 1983 году в Нью-Бедфорде, штат Массачусетс... Сара Тобиас рассказывает свою ужасную историю прокурору Кэтрин Мерфи. Сара была безжалостно изнасилована тремя мужчинами в баре. Однако преступников приговаривают лишь к небольшому сроку за хулиганство. Такое решение суда основано на заключении следствия, (   Читать дальше...   )Производство: США, Канада / Paramount Pictures, Jaffe-LansingЖанр: драма, криминалРежиссер: Джонатан КапланАктеры: Келли Макгиллис, Джоди Фостер, Берни Колсон, Лео Росси, Энн Хирн, Кармен Ардженциано, Стив Энтин, Том О`Брайен, Питер Ван Норден, Терри Дэвид Маллиган, Вуди Браун, Скотт Полин, Ким Кондрашофф, Стивен Е. Миллер, Том ХитонПеревод: профессиональный многоголосый (Фильм Экспорт по заказу СТС), профессиональный двухголосый (R5; HTB+), авторский (Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC12E9D1CA201896AF5C6E2FFEEBC3DB8F7D756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795392   (19379) от 04.05.2025
+
+Сокровище моё / Tesoro mio (1979) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачливый драматург Энрико Морони терпит очередной крах со своей новой пьесой, главную роль в которой, как всегда, играла его супруга Соланж. И кажется, это был его последний провал, потому что спонсировавший творчество Энрико адвокат Манетта намерен теперь предъявить счет за свои вложения. Но в то время, как приставы выносят из дома незадачливого автора мебель, (   Читать дальше...   )Производство: Италия / Vides CinematograficaЖанр: КомедияРежиссер: Джулио ПарадизиАктеры: Джонни Дорелли, Зеуди Арая Кристальди, Сандра Мило, Энрико Мария Салерно, Ренато Поццетто, Карло Баньо, Мишела Карузо, Анджело Пеллегрино, Винченцо Крочитти, Фиоренцо Р. АльпиПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, итальянскийСубтитры: ИтальянскиеПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AE705E40F9332B072B7793105C6FA6A78B34DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795239   (19374) от 04.05.2025
+
+Женщина с конца света / La femme du bout du monde / The Woman at the End of the World (1938) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грузовое судно высаживается на затерянном в океане островке в поисках радийной руды. Команда находит белую женщину, которая живет со своим полубезумным мужем и его ребенком. Вся команда влюбляется в нее, из-за чего происходит серия драк, безумств и убийств.Производство: Франция / Films Renault-Decker (FRD)Жанр: драмаРежиссер: Жан ЭпштейнАктеры: Шарль Ванель, Жермен Руер, Жан-Пьер Омон, Александр Риньо, Филипп Ришар, Жорж Дукен, Джеки Вильмонт, Робер Ли Виган, Поль Азаис, Жан ЭпштейнПеревод: Авторский (Андрей Гаврилов)Язык озвучки: русский, французскийСубтитры: английские, французские (SDH)Продолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D07B126BAC62051B1EF286558BDE73A6889A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795443   (19365) от 04.05.2025
 
 Великий скаут и кошачий дом по четвергам / The Great Scout & Cathouse Thursday (1976) DVDRip [H.264] [VO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19365.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19337.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19332.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19309.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19289.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19240.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19237.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19213.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19197.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19194.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19153.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19096.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18992.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18914.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18900.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18821.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18611.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18601.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18509.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18430.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18316.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:342B1772608A935DA740074B13859913FB471423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797251   (18212) от 15.05.2025
-
-Спальня старшеклассниц / Dortoir des grandes (1953) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драма, снятая по роману Станисласа-Андре Стимана «18 призраков» (фр. Dix-huit fantômes)... В колледже для девушек из богатых семей происходит убийство одной из воспитанниц, Летиции Берг. Её нашли в общей спальне связанной и задушенной. Кроме неё в спальне находились 17 других воспитанниц, но никто из них не заметил, как произошло убийство. Расследование этого (   Читать дальше...   )Производство: Франция / Compagnie Française Cinématographique (CFC), Films EGEЖанр: драма, криминал, детективРежиссер: Анри ДекоинАктеры: Жан Марэ, Жанна Моро, Луи де Фюнес, Франсуаз Арну, Дениз Грей, Ноэль Роквер, Пьер Морин, Кэтерин Кэт, Умберто Альмасан, Лин НороПеревод: профессиональный одноголосый (Студия ТВ Альвина)Язык озвучки: русский, французскийСубтитры: английские, французскиеПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CB739BB08A11B7E7A81B90BA9F26AE1937A6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797233   (18190) от 15.05.2025
-
-Джейн-катастрофа / Calamity Jane (1953) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на жизни героини Дикого Запада Кэлэмити Джейн... Городок Дедвуд в штате Дакота славится своим мужским населением. Здесь проживают солдаты, бойскауты, разведчики новых земель, фермеры-ковбои. И все эти весёлые парни любят выпить крепкий виски и пострелять из своих кольтов. Среди них обитает и бестия Джейн, считающая себя девушкой-скаутом, которая ничем (   Читать дальше...   )Производство: США / Warner Bros.Жанр: мюзикл, мелодрама, комедия, вестернРежиссер: Дэвид БатлерАктеры: Дорис Дэй, Ховард Кил, Эллин Энн МакЛери, Филип Кэри, Дик Уэссон, Пол Харви, Чабби Джонсон, Гэйл Роббинс, Билли Блэтчер, Стэнли БлистоунПеревод: профессиональный многоголосый (Светла)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F705950D90F2EFAC17BA47CDCEA132AD8FCC5C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797437   (18077) от 16.05.2025
-
-Сумасшедший дом / Madhouse (1990) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марку и Джесси до сих пор везло в жизни. У них было всё, о чём можно было мечтать: счастливый брак, прекрасная работа и недавно приобретённый дом в Санта-Монике на берегу океана. Но вот один за другим к ним на постой потянулись многочисленные родственники. Число непрошеных гостей достигает критической точки, и уютное семейное гнёздышко превращается в настоящий сумасшедший (   Читать дальше...   )Производство: США / Boy of the Year, Orion Pictures CorporationЖанр: комедияРежиссер: Том РопелевскиАктеры: Джон Ларрокетт, Кёрсти Элли, Элисон Ла Плаца, Джон Дил, Джессика Ланди, Брэдли Грегг, Дэннис Миллер, Роберт Гинти, Уэйн Типпит, Пол Айдинг, Эрик Эген, Марк Бринглсон, Хезер МакНейр, Боб Соренсон, Роб КамиллеттиПеревод: профессиональный многоголосый (HTB+; Екатеринбург Арт), авторский (Вартан Дохалов)Язык озвучки: русский, английскийСубтитры: нетПродолжительность: 01:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE0E206E6C1022E7FD9DEDEAB871CA6C18A1735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797564   (18022) от 17.05.2025
-
-Достопочтенный депутат с любовницей под кроватью / L'onorevole con l'amante sotto il letto (1981) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учительницу Анну увольняют из престижного колледжа. За помощью в поисках новой работы она решает обратиться к своему любовнику-депутату и приезжает к нему на виллу. Чтобы оправдаться перед супругой, депутат представляет ей Анну, как жену своего помощника, которого все вокруг считают геем...Производство: Италия, Франция / Imp.Ex.Ci., Les Films Jacques Leitienne, Medusa Distribuzione, Nuova Dania CinematograficaЖанр: КомедияРежиссер: Мариано ЛаурентиАктеры: Лино Банфи, Джанет Агрен, Альваро Витали, Мариза Мерлини, Тео Теоколи, Ренцо Оццано, Джакомо Фурия, Жижи Редер, Лео Гульотта, Лори Дель СантоПеревод: Многоголосый профессиональный, одноголосый любительскийЯзык озвучки: Русский, итальянскийСубтитры: РусскиеПродолжительность: 01:23:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75D16F1DD019C0BF99DAA7CF153B15D5E1C3139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797805   (17940) от 18.05.2025
-
-Афродита / Aphrodite (1982) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Июнь 1914 года. Европа живёт в относительно спокойном мире. Компания представителей высшего света собирается на острове, принадлежащем русскому графу. Красивые женщины, любвеобильные мужчины. По инициативе одного из гостей графа, некоего богатого господина «неизвестного происхождения» по имени Гарри Лэрт, компания решает сыграть представление по книге Пьера Луи «Афродита: (   Читать дальше...   )Производство: Франция, Великобритания, Германия (ФРГ), Швейцария / Almira Films, Carlton Film Export, Les Films de la Tour, Raoul Katz et Cie.Жанр: драма, эротикаРежиссер: Роберт ФуэстАктеры: Хорст Буххольц, Валери Каприски, Катрин Журдан, Делия Боккардо, Капюсин, Ив Массар, Даниэль Беретта, Паоло Барони, Моника НикелПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, французскийСубтитры: нетПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5FDA2EAAD8C50FD60B8459CC35B223C25B30D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

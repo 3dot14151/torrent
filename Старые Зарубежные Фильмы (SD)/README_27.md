@@ -1,3 +1,133 @@
+###  Публикация: 1480007   (1009305) от 26.06.2021
+
+Мэйбл Норманд. На помощь! На помощь! / Help! Help! (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трусишка Мэйбл начиталась криминальных новостей и теперь пугается любого незнакомца, любого шороха. Ей страшно - нам смешно.Производство: США, Biograph CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Фред Мейс, Мэйбл Норманд, Делл Хендерсон, Эдвард Диллон, Альфред Пегит, У.К. Робинсон, Фрэнк ЭвансПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC15AFFD32A73D253FE85A2E335A3E0821196D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479403   (1009282) от 26.06.2021
+
+Христофор Колумб / Christophe Colomb (1904) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великое плавание. Бушующий океан. Неведомая земля. Триумфальное возвращение. Щедрость государя. Немилость государя. Смерть в темнице. Посмертная слава... Ах, да, еще танцы туземных девушек в травяных мини-юбочках!Производство: Франция, Phathe freresЖанр: Короткометражный, драма, исторический, немое киноРежиссер: Винсент Лоран ЭйбронАктеры: Винсент ДонизоПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261DE46C287CBE4B19862AF9FAEB3BD0C840C8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480247   (1009172) от 27.06.2021
+
+Собака обводит вокруг пальца похитителя / The Dog Outwits the Kidnapper (1908) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помните эту драматическую историю Спасена Ровером / Rescued by Rover (1905) TVRip ? Собачка была молодцом. Время идет, девчушка подросла и уже шустро бегает на своих ножках. И, как любой нормальный ребенок,Производство: ВеликобританияЖанр: Короткометражный, немое киноРежиссер: Lewin FitzhamonАктеры: Блэр, Барбара Хепворф, Сесил М. ХепуортПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48B9DB95274311E85B9339D55C6E34579CE59BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480253   (1009170) от 27.06.2021
+
+Мэйбл Норманд. Уловка Мэйбл / Mabel's Stratagem (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Босс в офисе, где работает Мэйбл, игрив и любвеобилен. Не прочь пофлиртовать со стенографистками. И не удивительно, что его супруга очень ревнива. Она настаивает на увольнении всех барышень. Теперь в офисе будут работать лица только мужского пола. Но Мэйбл нужна эта работа, очень-очень нужна. Что же делать?Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Фред Мейс, Элис Девенпорт, Артур Таварес, Честер М. ФранклинПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74720AE9EAAB391ECD786A5E0B4E3FD773B72397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480211   (1009123) от 27.06.2021
+
+Агент-смутьян / Agent trouble (1987) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леденящий кровь детективный триллер, начавшийся в Южном Альзасе с находки туристического автобуса, полного трупов. Очевидец, хиппи-гринписовец, рассказывает об этом своей ученой тетке Аманде, а та — своему другу-министру. Встретив крайне сдержанную реакцию министра, Аманда сама отправляется в Альзас, расследовать эту жуткую историю.Производство: Франция /  Canal+, AFC, Koala FilmsЖанр: политический детектив, триллерРежиссер: Жан-Пьер МокиАктеры: Катрин Денев, Ришар Боранже, Доминик Лаванан, Софи Муаз, Элена Мансон, Эрве Пошон, Шарль Валер, Максим ЛеруПеревод: Многоголосый профессиональныйСубтитры: нетПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44A5FD03E40F8B14AB4F98F03AC1B50F94A036D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480491   (1008995) от 28.06.2021
 
 Мэйбл Норманд. Ошибка Мэйбл / Mabel's Blunder (1914) DVDRip
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008995.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008990.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008854.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008716.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008602.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008595.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008459.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008436.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008424.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008314.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008152.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008151.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008118.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008015.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007995.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007896.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007876.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007756.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007600.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007584.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007569.jpg" />
 </div>
 
 
@@ -542,138 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E47405A931390EA9448D0EEE45710A98AC73E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482687   (1007432) от 09.07.2021
-
-Мэйбл Норманд. Что случилось с Розой / What Happened to Rosa (1920) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гадалка рассказывает продавщице магазина с романтическим характером, что в прошлом она была испанской дворянкой. Девушка верит и начинает жить ролью испанской дворянки, что само по себе комично.Производство: СШАЖанр: Комедия, немое киноРежиссер: Виктор ШерцингерАктеры: Мэйбл Норманд, Дорис Паун, Талли Маршалл, Хью Томпсон, Юджин Бессерер, Бастер Троу, Адольф МенжуПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C652D6EDD6F14C9F6062410250543956E52E212C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482353   (1007358) от 09.07.2021
-
-Адам и шесть Ев / Adam and 6 Eves (1962) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужчину, который в поисках золота заблудился в пустыне, находят шесть обнаженных женщин.Производство: США / Desert ProductionsЖанр: комедияРежиссер: Джон УоллисАктеры: Рэнди Брент, Габриэль Бенетт, Марианн Беннетт, Шелли Форбс, Ли Сэндс, Лоррэйн Шелдон, Барбара Стэнли, Toby the DonkeyПеревод: : Любительский одноголосый (Ash61)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059F74B3B14A47BE4EBEEA3DA31E86F3A0821288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482889   (1007276) от 10.07.2021
-
-Мэйбл Норманд. Сюзанна / Suzanna (1923) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит во времена первых испанских переселенцев в Америке. Бедная девушка Сюзанна влюблена в сына богатого Дона, но у него уже есть невеста.
-К сожалению фильм не сохранился полностью, только отдельные фрагменты. Но фрагменты большие и в принципе сюжет прослеживается. Ну и кому интересно, тому и будет интересно.Производство: СШАЖанр: Комедия, мелодрама, немое киноРежиссер: Ф. Ричард ДжонсАктеры: Мэйбл Норманд, Джордж Николс, Уолтер МакГрейл, Эвелин Шерман, Леон Бари, Эрик Мэйн, Винифред Брайсон, Карл Стокдейл, Лон Пофф, Джордж КуперПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68766E539EA635F1BD5A8FEEB8ACB2BFC20FB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483110   (1007129) от 11.07.2021
-
-Мэйбл Норманд. Статистка / The Extra Girl (1923) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Провинциальная девушка мечтает стать киноактрисой и отправляется в Голливуд. Её мечты разбиваются о жестокую реальность, но все же она найдёт своё счастье.Производство: СШАЖанр: Комедия, немое киноРежиссер: Ф. Ричард ДжонсАктеры: Мэйбл Норманд, Ральф Грейвз, Джордж Николс, Анна Додж, Вернон Дент, Рэмси Уоллес, Шарлотта Мино, Мэри Мэйсон, Макс Дэвидсон, Луиз КарверПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A475E5B6EDA93E9D818A4EB83169B208A90759B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482976   (1007102) от 11.07.2021
-
-Флот МакХэйла присоединяется к Военно-воздушным силам / McHale's Navy Joins the Air Force (1965) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экипаж PT-73 снова в беде, когда Паркера ошибочно принимают за пилота и он попадает в ВВС.
-Это продолжение фильмаПроизводство: США / Universal PicturesЖанр: Комедия, ВоенныйРежиссер: Эдвард МонтаньАктеры: Джо Флинн, Тим Конуэй, Боб Хатингс, Гари Винсон, Билли Сэндс, Эдсон Стролл, Джон Райт, Ёсио Йода, Гэвин МакЛауд, Том Талли, Сьюзен Сило, Генри Бекман, Тед Бесселл, Джин ХейлПеревод: Авторский (А. Дольский)Субтитры: ОтсутствуютПродолжительность: 01:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35008474080277E5D7EA6D76D6FF4EF918885A30
 ```
 
 https://mybot314.ru/tekegram_catalog/

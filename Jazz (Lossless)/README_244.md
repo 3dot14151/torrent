@@ -6,7 +6,7 @@ Freddie Hubbard - Topsy (1990) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243106.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Charles Mingus - Jazz Composers Workshop (1954, 1955) 1992, Savoy Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243051.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Oliver Nelson, King Curtis, Jimmy Forrest - Soul Battle (1960) 1992, Prestige[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243038.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duke Ellington And His Orchestra - Ellington Indigos (1957) 1989, Columbia [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243009.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ GoGo Penguin - Everything Is Going to Be OK (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242995.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ James Carter Organ Trio - Live from Newport Jazz (2019) Blue Note [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242948.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ivan Paduart - Enivrance (2015) Mons Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242945.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Piano Cats, Tamana Yaguchi - Better Concentration Piano BGM (2021) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242938.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Freddie Hubbard - Bolivia (1991) Limelight [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242928.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ JB Project - Akira Jimbo & Brian Bromberg - Brombo III!!! (2017) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242911.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cortex - Inedit '79 (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242864.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lou Donaldson - Caracas (1994) Milestone Records[FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242848.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jackie McLean Quartet - Tune Up (1966) 1993, SteepleChase [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242847.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Paul Smith Quartet - Softly, Baby (1957) Remaster, 2011, Capitol[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242841.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Paul Gonsalves - Gettin' Together! (1960) 1987, Original Jazz Classics[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242828.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Guy Barker - Timeswing (1996) 2000, Universal[FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242815.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sonny Fortune - From Now On (1996) Blue Note[FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242796.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Harry Happel, Koos Wiltenburg, Fred Krens - North Sea Highlights (1982) Remaster
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242787.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kurt Rosenwinkel - Deep Song (2005) Verve[FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242779.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Chico Freeman And Brainstorm - Sweet Explosion (1990) In + Out Records[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242770.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sonia Aimy - Nigerian Spirit (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Afro-Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242764.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Vladimir Timofeev (Владимир Тимофеев) - Natalie (1997) Ermatell 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242756.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Serena Jewkes - The Carriage House Sessions (2017) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242726.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jazzystics - Jazz & Chill Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242693.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dena DeRose - A Walk In The Park (2005) MaxJazz [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242663.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Rein de Graaff - Early Morning Blues (2018) Timeless Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242618.jpg" />
 </div>
 
 

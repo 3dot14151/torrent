@@ -1,3 +1,83 @@
+###  Публикация: 1626099   (199994) от 13.04.2023
+
+Никита Самохин | Латынь по-пацански (2020) [MP3, Павел Курилин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осторожно: после прослушивания могут возникнуть побочные эффекты в виде разжигания интереса к Древнему Риму и латинскому языку! Что вспоминается в первую очередь, когда вы слышите про Древний Рим? Рем, Ромул и волчица? Цезарь и галлы? Нерон, сжигающий Рим? Гладиаторы в Колизее? Что из этого было раньше, а что позже? И как все было на самом деле? На все эти вопросы (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 04:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ABDE338AC7B06B7A50410B7F5A369B25ED2468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631927   (198779) от 08.05.2023
+
+Михаил Столбов | Как я вырастил новые зубы (2021) [MP3, YevGenius Voice]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198779.jpg" />
+</div>
+
+
+###  Подробнее
+
+"...Все началось в 1978 году, когда я отбывал положенные три года срочной службы на Русском острове. Именно тогда и там мне табуреткой выбили практически все зубы. Тогда я страшно надеялся, что меня тут же комиссуют, но мне за казенный счет в течение недели смастерили вставные челюсти, и оставшиеся 2,5 года из-за своей картавости я был для всех «Шавкой». Вставные (   Читать дальше...   )Жанр: СамосовершенствованиеПродолжительность: 02:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DF2A66CA78518358260F3433076B3CCEA0694B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642373   (196539) от 27.06.2023
+
+Дэвид Чиверс, Том Чиверс | Цифры врут (2022) [MP3, Татьяна Фельгенгауэр]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтение на ночь сокращает жизнь. Видеоигры провоцируют массовые убийства. Газировка делает людей агрессивными. Что?! Нет!
+Каждый день медиа пишут о сенсационных открытиях и шокирующих результатах исследований. Но не всем им можно верить: статистические погрешности, намеренные фальсификации и неочевидные огрехи никто не отменял.
+Из-за пандемии COVID-19 человечество (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 05:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDD31CF0B48215A661E6E7BDE2FBC491A9FD87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643945   (196228) от 04.07.2023
 
 Ёсинори Нагумо | Метод Нагумо. Японская система (2019) [MP3, Максим Доронин]
@@ -6,7 +86,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196228.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195960.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193964.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193407.jpg" />
 </div>
 
 
@@ -117,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193280.jpg" />
 </div>
 
 
@@ -143,7 +223,7 @@ Drew Hernandez | Drew Hernandez Podcast (2023) [OPUS] [EN]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193039.jpg" />
 </div>
 
 
@@ -172,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192630.jpg" />
 </div>
 
 
@@ -198,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191805.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191619.jpg" />
 </div>
 
 
@@ -251,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191606.jpg" />
 </div>
 
 
@@ -278,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191581.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191316.jpg" />
 </div>
 
 
@@ -332,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191202.jpg" />
 </div>
 
 
@@ -360,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190612.jpg" />
 </div>
 
 
@@ -387,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190606.jpg" />
 </div>
 
 
@@ -414,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190601.jpg" />
 </div>
 
 
@@ -441,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190417.jpg" />
 </div>
 
 
@@ -467,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190328.jpg" />
 </div>
 
 
@@ -494,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190321.jpg" />
 </div>
 
 
@@ -521,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190297.jpg" />
 </div>
 
 
@@ -548,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190269.jpg" />
 </div>
 
 
@@ -575,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190050.jpg" />
 </div>
 
 
@@ -603,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190027.jpg" />
 </div>
 
 
@@ -614,85 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBE6AE0F9300E3A81C206AD340E14BBE5D4ECFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589534   (189986) от 10.11.2022
-
-Юлия Андреева, Ксения Туркова | Русский без нагрузки (2022) [MP3, Виктория Фёдорова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательные правила русского языка на основе стихотворных фраз!
-Аудиокнига намеренно задумана как инструмент: Юлия Андреева и Ксения Туркова подобрали типичные ошибки в речи, письменной и устной, объяснили их простым языком и упаковали в понятную для читателя форму —с помощью мнемонических стихотворений и почти 120 забавных и запоминающихся иллюстраций любой научится (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF59BF959EB884FFDE81C8133CA2311AD95388D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589588   (189978) от 10.11.2022
-
-Валерий Михайлычев | Высокие вибрации (2022) [MP3, Сергей Курнаев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд по достижению счастья – это не лопатой целину поднимать. Это труд необычный, другой. Когда вы всё попробовали, а отношения не строятся, здоровье всё хуже и хуже, приличной работы не предвидится: самое время сменить частоту и услышать вселенную. Видеть, а не смотреть, Быть, а не присутствовать. Если знать, как работают высокие вибрации, – нерешаемых задач не (   Читать дальше...   )Жанр: Эзотерика, парапсихологияПродолжительность: 05:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4A48F2DECF42A7E65FA893B0F1520FEBE8B82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589926   (189766) от 11.11.2022
-
-Анатолий Баранов | Маленькие друзья больших людей. Истории из жизни кремлевского ветеринара (2022) [MP3, Алексей Воскобойников]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь – удивительная вещь, и иногда вокруг ветеринара, желающего просто лечить животных, начинают закручиваться настоящие шпионские интриги, политические заговоры и невероятные знакомства. С этим не понаслышке знаком знаменитый советский ветеринарный врач – Анатолий Евгеньевич Баранов. Ради спасения животных он рисковал карьерой, своими убеждениями и даже жизнью. (   Читать дальше...   )Жанр: Ветеринария, истории из жизниПродолжительность: 11:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F07B981BB354D264DBF783E43E52300A2D88E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,165 @@
+###  Публикация: 1670759   (171863) от 21.10.2023
+
+Экстрасенсы. Битва сильнейших (21.10.2023) WEBRip [H.264/1080p] (сезон 1, выпуск 20)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171863.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом шоу ТНТ «Экстрасенсы. Битва сильнейших» за право стать лучшим сражаются самые яркие участники легендарной «Битвы экстрасенсов». Самые сильные победители и финалисты «Битвы» приняли вызов продюсеров и согласились еще раз доказать свои способности.
+«Экстрасенсы. Битва сильнейших» – это турнир, в котором лучшие из лучших показывают свою силу и эзотерические (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9F5C4487B2F5A32B51B36A751DDAEC7A4E3F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670894   (171748) от 22.10.2023
+
+Первая передача на НТВ. Автомобильная передача (22.10.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автовладелец из Нижегородской области напал на ребенка, угрожая ему расправой и изнасилованием. Причиной нападения оказался автохлам.
+ Процедура в кабинете нарколога: что угрожает даже трезвому водителю. Следует ли добираться на своей машине или экипаж должен доставить в медкабинет?
+ Что делать, если приходят штрафы за другой автомобиль, у которого затерта буква госномера?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87D658F116550BDC32B3E50A0F23C843F2CF680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670895   (171746) от 22.10.2023
+
+Чудо техники с Сергеем Малозёмовым (22.10.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие технологии помогают справиться с лесными пожарами? И кто виноват в том, что техника не всегда успевает прийти на помощь?
+ Украсть голос! Как мошенники с помощью нейросетей подделывают речь? Кто лишился карьеры из-за того, что голос использовали в сомнительной рекламе? Почему бунтуют профессиональные дикторы и как искусственный интеллект лишает их профессии? (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D294A1433DFE14BD6A6E33C6A22502E687D1BFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670758   (171718) от 22.10.2023
+
+Аль Пачино, Бронкс и ярость (Стать Аль Пачино) / Al Pacino, le Bronx et la fureur / Becoming Al Pacino (2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аль Пачино — живая легенда кино. В связи с 50-летием его дебюта на большом экране документальный фильм исследует талант и демонов этого харизматичного актера, включив в него редкие архивы, такие как отснятые очерки и фотографии, а также исторические кадры, связанные с его культовыми фильмами.
+
+В 81 год Аль Пачино отмечает полувековой юбилей своей карьеры. В 1940-х (   Читать дальше...   )Производство: Франция, ZedЖанр: документальный, история, биографияРежиссер: Жан-Батист ПеретьеУчастники: Стивен Бауэр, Марлон Брандо, Джон КазалеПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040D9B774CA7D87B58797B5538A13BA4B813C7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671089   (171525) от 23.10.2023
+
+Научные сенсации. Излечить неизлечимое (2023) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171525.jpg" />
+</div>
+
+
+###  Подробнее
+
+К сожалению, и в 21-м веке существует свой список неизлечимых болезней. Но медицина движется вперёд семимильными шагами. Учёные постоянно предлагают революционные методики лечения казалось бы безнадёжных заболеваний. Какие неизлечимые болезни скоро уйдут в прошлое? Как сосуды-невидимки помогают победить Альцгеймер? Что представляют собой вакцины против рака? И как (   Читать дальше...   )Производство: Россия / ООО "Единая Медиа Группа"Жанр: документальныйРежиссер: Олег ГладовЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D59C7B4FDF8B858DE0A331C6777387C42DED37D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671416   (171358) от 24.10.2023
+
+Ледокол "Красин". Миссия спасать (2017) WEB-DLRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Флот
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171358.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 1941 по 1945 годы 1400 кораблей наших союзников во Второй мировой войне доставили в Советский Союз более четырёх миллионов тонн продовольствия и боеприпасов. И многим из них прокладывал дорогу по Северному морскому пути знаменитый ледокол "Красин". История этого легендарного судна складывается из эпизодов, кульминацией которых всякий раз становилось спасение (   Читать дальше...   )Производство: Россия / ООО «Телерадиокомпания «Плеяда»Жанр: документальныйРежиссер: Инна КокоринаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032A5E505F9C909A28A7137718CD9A8F14F0DF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671251   (171350) от 24.10.2023
 
 Тишина над облаками / Ticho nad oblakmi (2009) WEB-DL [H.264/720p]
@@ -6,7 +168,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171350.jpg" />
 </div>
 
 
@@ -34,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171310.jpg" />
 </div>
 
 
@@ -60,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171184.jpg" />
 </div>
 
 
@@ -88,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171144.jpg" />
 </div>
 
 
@@ -114,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171117.jpg" />
 </div>
 
 
@@ -140,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170915.jpg" />
 </div>
 
 
@@ -166,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170837.jpg" />
 </div>
 
 
@@ -192,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170830.jpg" />
 </div>
 
 
@@ -218,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170664.jpg" />
 </div>
 
 
@@ -244,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170430.jpg" />
 </div>
 
 
@@ -270,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170381.jpg" />
 </div>
 
 
@@ -296,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170368.jpg" />
 </div>
 
 
@@ -322,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170360.jpg" />
 </div>
 
 
@@ -348,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170350.jpg" />
 </div>
 
 
@@ -374,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170331.jpg" />
 </div>
 
 
@@ -400,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170317.jpg" />
 </div>
 
 
@@ -426,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170306.jpg" />
 </div>
 
 
@@ -452,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170303.jpg" />
 </div>
 
 
@@ -478,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170294.jpg" />
 </div>
 
 
@@ -504,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170259.jpg" />
 </div>
 
 
@@ -515,162 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:657B2ECBF583D776AC0B42E595E0842F4DB3EE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515131   (170240) от 06.12.2021
-
-Металлика: подобный монстру / Metallica: Some Kind Of Monster (2004) 2хDVD9
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двухдисковое издание документального фильма о группе «Metallica». Уникальность данного издания в том, что оно, во-первых, на русском языке; во-вторых, переведена не только основная звуковая дорожка, но и 2 дорожки комментариев: создателей фильма и участников группы. В-третьих, Вы имеете возможность посмотреть второй диск дополнительных  материалов, также с русским (   Читать дальше...   )Производство: Radical Media / Third Eye Motion Picture CompanyЖанр: Документальный, МузыкаПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: Русские, английские, французские, испанские, голландские, финские, норвежские, шведскиеПродолжительность: 02:20:28 + 03:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F97419085B111A77625D38B23797ECBCEAB068B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 98502   (170221) от 10.12.2020
-
-Неизвестный Путин. 2-я часть: Мир и война (2000) [DVDRip]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170221.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Неизвестный Путин» — кинофильм 2000 года. Ленинградский период жизни В Путина. Для любой зрительской аудитории.Производство: РТРРежиссер: Сергей МирошниченкоПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0BAB42416BD0445EBC8E562D46547AA1E108F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515388   (170169) от 06.12.2021
-
-Продовольственное мошенничество, новая мафия / Fraude alimentaire, la nouvelle mafia (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конину продают как говядину. Мед разбавляют дешевыми сахарными сиропами. Оливковое масло первого холодного отжима оказывается поддельным. Мошенничество в сфере продовольствия - это индустрия с многомиллиардным оборотом, которая охватывает всю продукцию: от самых дешевых до самых дорогих ингредиентов.Производство: Франция, Plimsoll ProductionsЖанр: документальный, расследованиеРежиссер: Бенедикт ДелфоПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE12C459B0307957CC8D9CABD0329F2F9B027563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596423   (169967) от 10.12.2022
-
-Пятеро на одного (10.12.2022) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811DA54EA6A144BA6DF54A265A37DB5EAF639E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596458   (169891) от 10.12.2022
-
-Живая еда с Сергеем Малозёмовым (10.12.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как правильно читать этикетки, на что на самом деле стоит обращать внимание и как избежать обмана производителей, когда ошибка в маркировке может стоить жизни и какая новая информация появляется на упаковках продуктов сегодня - расскажут в новом выпуске "Живой еды". Также зрители узнают о новой гастрономической жизни конопли: как восстанавливают выращивание (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E3B6AF1ED1601896C17BCCBD9C0F08FC927298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596456   (169800) от 10.12.2022
-
-Главная дорога (10.12.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выбираем незамерзающую жидкость! Из магазина, с обочины и сделанную своими руками: какая из них не замёрзнет и не разорит автолюбителя? В новом выпуске Андрей Федорцов и Денис Юченков испытают незамерзайки и найдут оптимальный рецепт самодельной жидкости - чтобы мыла и не воняла.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5752EB0A95B3A735E7584D21C6F58860ACB343
 ```
 
 https://mybot314.ru/tekegram_catalog/

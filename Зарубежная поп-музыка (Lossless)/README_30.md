@@ -6,7 +6,7 @@ VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Sof
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759475.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ INNA - Champagne Problems #DQH1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758252.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757757.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ George Baker - Diamond Star Collection (1996) Unofficial Release [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757631.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ke - I Am [...] (1996) [FLAC|Lossless|image + .cue] <Rock, Funk, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756986.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754840.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753482.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752171.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751617.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751608.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, So
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751544.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751360.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Steps - Tears on the Dancefloor (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Europ
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751348.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Abbamania (1999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751344.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dua Lipa - Dua Lipa (2017) 2018, Reissue, 2CD, Complete Edition [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749826.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749431.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748513.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748419.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746407.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745501.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745322.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745313.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745255.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744215.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Sanremo 2019: 69° Festival Della Canzone Italiana [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743737.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Kristian Leontiou - Some Day Soon (2004) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743708.jpg" />
 </div>
 
 

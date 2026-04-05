@@ -1,3 +1,162 @@
+###  Публикация: 1781332   (70259) от 22.02.2025
+
+Своя игра (22.02.2025) WEBRip [H.264/1080p] (выпуск второй)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Артемий Новолоцкий, Дмитрий Качурин, Айк КазазянЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D821E825290DA1021DC57AF31018FA56D79A24AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781291   (70256) от 22.02.2025
+
+Живая еда с Сергеем Малозёмовым (22.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что нужно знать о самом популярном кофейном напитке — капучино! Зачем его готовят в картошке, колбасе и шаурме, как его пить по правилам этикета, стоит ли переплачивать за кофе в заведениях и какого качества капучино в автоматах? Тест дорогих и дешевых кофемашин и проверка капучино из ресторана и кофейной версии 3-в-1!
+ Польза и вред необычной крупы — саго: как (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5ABC872E7C969FF91478FEEE0ED0310C6669B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781290   (70251) от 22.02.2025
+
+Главная дорога (22.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новости: нападение на столичных автоинспекторов во время проверки документов, таран патрульной машины, наезд пьяного на беременную с сыном на тротуаре, опасная льдина со встречного грузовика.
+ Нажиться на покойнике: два брата из Карачаево-Черкесии решили заработать на смерти дяди. Как они превратили тело в инструмент для мошенничества со страховкой?
+ Как сделать шумоизоляцию (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC331E3184F006ADD5AC8CCC3C8C7A4D3E26E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781215   (70236) от 22.02.2025
+
+Пятеро на одного (22.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA42B3F43060C91EAD3B43262E81A2F3B472211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781330   (70233) от 22.02.2025
+
+Своя игра (22.02.2025) WEBRip [H.264/1080p] (выпуск первый)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Дмитрий Токман, Екатерина Юрьева, Алексей АрхиповЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A230DE5F97C5A1DFB652A762CEB8C71E701CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781293   (70232) от 22.02.2025
+
+Кабардино-Балкария: горы, озера, термальные источники и колоритные блюда | «Поедем, поедим!» (22.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70232.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Поедем, поедим!» — в Кабардино-Балкарии! Федерико Арнальди побывал в Приэльбрусье, где покатался на сноуборде и полюбовался самой большой горой Европы, увидел голубые озера в Черекском районе, искупался в термальных источниках Аушигера и познакомился с хранителем детских воспоминаний — реставратором советских мини-автомобилей. А еще научился готовить лопатку барана (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DBD83B9C142FCC5265B32557C6AA1C92458707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781467   (70216) от 23.02.2025
 
 Тест-драйв Nissan Almera 2014 — Минтранс (22.02.2025) WEBRip [H.264/720p]
@@ -6,7 +165,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70216.jpg" />
 </div>
 
 
@@ -35,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70213.jpg" />
 </div>
 
 
@@ -63,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70189.jpg" />
 </div>
 
 
@@ -91,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70001.jpg" />
 </div>
 
 
@@ -117,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69989.jpg" />
 </div>
 
 
@@ -143,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69985.jpg" />
 </div>
 
 
@@ -170,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69980.jpg" />
 </div>
 
 
@@ -198,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69978.jpg" />
 </div>
 
 
@@ -225,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69964.jpg" />
 </div>
 
 
@@ -254,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69962.jpg" />
 </div>
 
 
@@ -280,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69961.jpg" />
 </div>
 
 
@@ -306,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69922.jpg" />
 </div>
 
 
@@ -334,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69917.jpg" />
 </div>
 
 
@@ -360,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69908.jpg" />
 </div>
 
 
@@ -387,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69693.jpg" />
 </div>
 
 
@@ -413,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69690.jpg" />
 </div>
 
 
@@ -441,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69665.jpg" />
 </div>
 
 
@@ -467,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69664.jpg" />
 </div>
 
 
@@ -493,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69663.jpg" />
 </div>
 
 
@@ -522,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69662.jpg" />
 </div>
 
 
@@ -534,170 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B515D512347A24C98EC2F68925CA784A0177F367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784220   (69616) от 09.03.2025
-
-Своя игра (09.03.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Георгий Коколия, Эльвира Глоова, Леонид ГрукЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2124B47DBF2B347B61EC650C285B72E4FF80B7C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784215   (69613) от 09.03.2025
-
-Чудо техники с Сергеем Малозёмовым (09.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повод для жестокой расправы, причина разводов и смертельно опасный синдром — все это храп. Есть ли способ от него избавиться?
- Молекулярная печать: команда «Чуда техники» устроила краш-тест, чтобы выяснить, стоит ли новация своих денег.
- Супермощная воздуходувка: реклама обещает, что она может работать на одном заряде три часа. Так ли это?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7BBAAF522811F85AD7B733BF28E8B52E6F8EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784177   (69608) от 09.03.2025
-
-Чёрные дыры. Белые пятна (01.03.25) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Черные дыры остаются таким же символом смелой научной гипотезы, как белые пятна – символом научной тайны.
-"Черные дыры. Белые пятна"— телеальманах, цикл познавательных программ.
-В этом выпуске: новые штаммы вирусов, новости робототехники, "сильный" искусственный интеллект.Телекомпания: КультураЖанр: телепередача, документальный, наукаРежиссер: Александр МитрошенковПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D3D1CB7D8BACFDBA14AE03DB5B5379A50450D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784213   (69595) от 09.03.2025
-
-Первая передача на НТВ. Автомобильная передача (09.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69595.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Подкрадули» для шоферов: обувь безопасная для дорожного движения и для здоровья водителя.
- Кто и зачем отслеживает, и глушит «умные» машины?
- «Я вам не дойная корова!»: участницу ДТП затаскали по судам. Почему размер ущерба может увеличиться?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64697AD6EAE27FDAA0205DA308CFB73C7906C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785323   (69377) от 15.03.2025
-
-Главная дорога (15.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патрульный под колесами нарушителя в Тюмени, драмеди с истерикой из-за эвакуации в Амурской области и весенние ледопады на востоке страны.
- Исправление биографии автомобиля: как удаляют информацию из отчета?
- Во всех современных машинах есть режимы «Спорт», «Эко» и «Комфорт»: автопроизводители заверяют, что режим «Спорт» превращает авто в гоночный болид, режим «Эко» (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D0AE93413EFB776A1F7DF859F05A1103BCCB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785394   (69374) от 15.03.2025
-
-Аскания-Нова (1937) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кино-очерк в 3 частях. В южных степях Украины, в бывшем старом помещичьем хозяйстве Аскании-Нова, создана в Советском Союзе база для научно-исследовательской работы по выведению новых высокопродуктивных пород домашних животных. Выведены новые породы свиней, овец, коров, лошадей и других животных и птиц. Выведенные породы скота путем скрещивания высокопродуктивных (   Читать дальше...   )Производство: СССР / БелгоскиноЖанр: документальный, фауна, историяРежиссер: А. П. Федоров, Лев ПушЯзык озвучки: русскийСубтитры: русские (интертитры) в нескольких эпизодахПродолжительность: 00:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5562DA8A101F6512A72B3763E967DE63BC10CE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

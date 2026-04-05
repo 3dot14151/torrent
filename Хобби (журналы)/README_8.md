@@ -1,3 +1,29 @@
+###  Публикация: 984846   (927541) от 16.02.2016
+
+Подшивка журналов | BURDA [36 журналов] (2011-2013) [PDF, JPG, DJVU]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Burda — это европейская мода высокого класса. Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. На страницах журнала Burda — самые последние тенденции мировой моды, новости с европейских подиумов, советы по стилю и модные торговые марки. Каждый месяц — новая коллекция одежды от ведущих (   Читать дальше...   )Жанр: Рукоделия, вязаниеФормат: PDF, JPG, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205FF3635095C2CA13FB23FAB2F89949C6E0D090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095272   (926147) от 20.01.2017
 
 Журнал | Арсенал охотника №171 (зима 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926147.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926015.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925994.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925325.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924341.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924206.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923708.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922910.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922750.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922577.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922571.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922289.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918676.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918146.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918093.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917858.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_916932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_916932.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916434.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915560.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915557.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914275.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914104.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913590.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911858.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909729.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F15C0A28D23578EA1AD281F2EF23DF68BCF0E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635179   (909340) от 26.03.2013
-
-Подборка журналов | Маленькая Diana №4, 5 [+Спецвыпуски] [апрель, май 2013] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный журнал по вязанию Маленькая Diana представляет коллекцию женского весеннего трикотажа. В номере: вязание в джинсовом стиле, сафари style, инструкция по вязанию с помощью вилки, аксессуары для интерьера и новые узоры и техники вязания. Также в журнале - ещё больше идей, модных трендов, подсказок и подробных инструкций без сокращений.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E536680F0D83FD6E90DD83E032BE8D473B992B
 ```
 
 https://mybot314.ru/tekegram_catalog/

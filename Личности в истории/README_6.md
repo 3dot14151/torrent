@@ -6,7 +6,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644739.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634137.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628177.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627340.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625772.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625544.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615933.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609140.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608657.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606819.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606746.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606734.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606728.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606726.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604947.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ BBC. Наполеон / Napoleon (2014) HDTVRip [H.264/720p-LQ] (1-3 серия 
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604044.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ BBC. Наполеон / Napoleon (2014) HDTVRip (1-3 серия из 3)
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604033.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602947.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602938.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602259.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602253.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596661.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594572.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594508.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592354.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586706.jpg" />
 </div>
 
 

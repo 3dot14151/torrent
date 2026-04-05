@@ -1,3 +1,56 @@
+###  Публикация: 933051   (507248) от 31.08.2015
+
+Кэтрин Сторр, Фелисити Тротман (перес.) | Герои средних веков (1994) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507248.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу входят рассказы о Ричарде Львиное Сердце,Жанне д Арк и Вильгельме Телле - легендарных людях, своими подвигами и беззаветной преданности отечеству снискавших славу и народную любовь.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C08E51AA225DF0E8B169E5D2932264D29ECD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933105   (507245) от 31.08.2015
+
+В. Белоусов | Кто зажигает «Радугу»? (1980) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы поклонники приключений, то эта книга вас наверняка заинтересует. В ней вы встретите неуловимого преступника, смелых и находчивых "пинкертонов", идущих по его следу. Вместе с героями книги вам предстоит пережить опасности, вкусить горечь поражения и радость победы. Словом, здесь вы найдете все, что делает приключенческую книгу приключенческой.
+Но (   Читать дальше...   )Жанр: Детская литература, познавательная, приключенияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9FA3D8C55FB2232BC6209047259D9E8F8861C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562994   (507225) от 11.07.2022
 
 И.Барнашева | Какой это цвет (1953) [PDF]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507225.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507071.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507058.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507057.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506983.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506940.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506927.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506920.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506917.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506602.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506540.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506538.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506535.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506531.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506499.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506493.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506489.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506428.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506423.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506368.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506306.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506262.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506257.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506253.jpg" />
 </div>
 
 
@@ -629,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8FDD823B56006E398E8AAE356F9D059DD78ABE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933405   (506251) от 01.09.2015
-
-Каржаубай Омарулы | Актос (1998) [PDF, DJVU] [KAZ]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506251.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот сборник, трехкратного призера республиканского закрытого конкурса лучших художественных произведений среди детей и молодежи, Каржаубая Омарулы, вошли его рассказы, сказки и повести. До этого автор выпустил 7 книг посвященных молодым дарованиям.
-Такие герои писателя, как Алтынай, Исатай воплощая свои манеры, действия пытаются различить плохое от хорошего. Темы (   Читать дальше...   )Жанр: Детская прозаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2B44544C6B978BF8620706B9C821EB47BDFF16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378265   (506237) от 21.08.2011
-
-Disney | "Принцессы Диснея/Princess Classics" Раскраска/ Coloring Book (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраска "Принцессы Диснея/Princess Classics" привлечет внимание Вашего малыша и не позволит ему скучать.Жанр: РаскраскаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835D80FB02E0CCF54B1FAA51920E3B7E5F9FE801
 ```
 
 https://mybot314.ru/tekegram_catalog/

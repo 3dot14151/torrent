@@ -1,3 +1,135 @@
+###  Публикация: 1005177   (833921) от 08.04.2016
+
+Золото амазонок / Gold of the Amazon Women (1979) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833921.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках городов Эльдорадо двое исследователей попадают в плен к амазонкам в джунглях Южной Америки ...Производство: США / Mica ProductionsЖанр: ПриключенияРежиссер: Марк Л. ЛестерАктеры: Бо Свенсон, Анита Экберг, Дональд Плезенс, Ричард Романус, Боб Майнор, Мэгги Джин Смит, Бонд Гидеон, Сьюзэн Миллер, Ясмин, Мэри ПитерсПеревод: Одноголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616ED8D281CE3FF512A72DCA30CF43EE5605F695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501815   (833747) от 11.10.2021
+
+Обезьяньи гонки / La corsa alla scimmia (1909) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем небольшая итальянская комедия. В те времена были очень популярны подобные фильмы - эксцентрические погони в стиле ярмарочного балагана. В данном случае погоня за обезьяной.Производство: Италия, Itala FilmЖанр: Комедия, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Нет сведенийПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BC8272202BEF4F05D6260BA25C48B1DB6A34F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501743   (833547) от 11.10.2021
+
+Тебе понравится моя мама / You'll Like My Mother (1972) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноимённому роману Наоми А. Хинтце (1969). Франческа Кинсолвинг, беременная вдова недавно погибшего во Вьетнаме американца, едет в Миннесоту к своей свекрови, которую ни разу не видела. Всякий раз, когда муж рассказывал Франческе о родителях, он говорил ей: «Тебе понравится моя мама». В действительности, это оказалось не совсем так. Дело в том, что (   Читать дальше...   )Производство: США, Production companies, Bing Crosby Productions, Universal PicturesЖанр: драма, триллерРежиссер: Лэмонт ДжонсонАктеры: Пэтти Дьюк, Розмари Мерфи, Ричард Томас, Сиан Барбара Аллен, Дэннис Ракер, Харольд Конгдон, Джеймс Глазман, James Neumann, Джоэль ТингволлПеревод: авторский (Андрей Дольский)Субтитры: английские (SDH)Продолжительность: 01:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08648FB9F5AAB7D0D512359C74F748D7F4C17293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114067   (833033) от 14.03.2017
+
+Трудный ребенок / Problem Child (1990) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен Хили и его жена Фло, стремящаяся пробиться в высшее общество, усыновляют Джуниора, прелестное и забавное семилетнее существо.
+Однако вскоре они убеждаются, что их приемный сын — маленькое чудовище, которое ухитряется превратить отдых в кемпинге, праздник по случаю дня рождения и даже бейсбольный матч в подлинный кошмар. Хотя и очень смешной.
+Но может быть, Джуниор (   Читать дальше...   )Производство: США / Imagine Entertainment, Universal PicturesЖанр: Комедия, СемейныйРежиссер: Деннис ДуганАктеры: Джон Риттер, Джек Уорден, Майкл Оливер, Гилберт Готтфрид, Эми Ясбек, Майкл Ричардс, Питер Джурасик, Шарлотта Акин, Анна Мари Оллред, Адам ЭндерлиПеревод: Многоголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0546DB68C01292F1B1051C17C352F84004CB9FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005465   (832208) от 09.04.2016
+
+Вторжение в США / Invasion U.S.A. (1985) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной агент ЦРУ вынужден вернуться в строй после высадки во Флориде советских террористов, грозящей захватом всей страны. Тем более что наконец-то предоставляется возможность уничтожить давнего врага - агента Михаила Ростова. Но и советский шпион тоже хочет поквитаться со своим старым знакомым.Производство: США, Cannon FilmsЖанр: Боевик, ТриллерРежиссер: Джозеф ЗитоАктеры: Чак Норрис, Ричард Линч, Мелисса Профет, Александр Зейл, Алекс Колон, Эдди Джонс, Джон Де Вриз, Джеймс О’ Салливан, Билли Драго, Хайме СанчесПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Язык субтитров: АнглийскийПродолжительность: 01:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2DB6C7776438B0195943E36FE54B7C1DA8580E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502040   (831898) от 12.10.2021
 
 Мэри Пикфорд. Ростовщик / The Usurer (1910) DVDRip
@@ -6,7 +138,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831898.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831812.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831770.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831683.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831229.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830903.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830274.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830206.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829783.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829663.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828486.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828314.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828146.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826616.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826407.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826229.jpg" />
 </div>
 
 
@@ -425,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825038.jpg" />
 </div>
 
 
@@ -451,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824931.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824847.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824738.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824662.jpg" />
 </div>
 
 
@@ -540,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE3A803DB008F7425FF42FD42602B7C88B2381E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115659   (824654) от 19.03.2017
-
-Стрелки Пасо Браво / Uno straniero a Paso Bravo (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выйдя из тюрьмы, Гэри возвращается в свой посёлок Пасо Браво и обнаруживает, что в нём хозяйничает некий Акомбар, фактически превративший всё население в рабов. Гэри решает восстановить справедливость.Производство: Италия, Испания / Fénix Cooperativa Cinematográfica, Silver FilmsЖанр: ВестернРежиссер: Сальваторе РоссоАктеры: Энтони Штеффен, Эдуардо Фахардо, Джулия Рубини, Хосе Хаспе, Хосе Кальво, Адриана Амбези, Хесус Тордесильяс, Антонио Синтадо, Клаудио Бьява, Игнацио ЛеонеПеревод: Одноголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADE76900907717AF55FE9A426E8EE0D190FA728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115805   (824648) от 19.03.2017
-
-Диверсанты / Diverzanti (1967) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая мировая война. Партизанский отряд, действующий в горах Югославии, был окружен фашистами. Немецкие самолеты обстреливали партизан несколько раз в день. Выбраться из окружения можно было только одной дорогой, которая также обстреливалась с самолетов. Тогда командир отряда посылает группу партизан с диверсионным заданием - уничтожить самолеты прямо на аэродроме. (   Читать дальше...   )Производство: Югославия, Bosna FilmЖанр: ВоенныйРежиссер: Хайрудин КрвавацАктеры: Раде Маркович, Велимир (Бата) Живоинович, Любиша Самарджич, Хусейн Чокич, Янец Врховец, Петар Добрич, Растислав Йович, Макс Фуриян, Йщван-Бурдус Яничиевич, Здравко Биоградлия, Заим Музаферия, Анка Зупанч, Янец ВрховецПеревод: ДублированныйСубтитры: отсутствуют
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AE5C5CC94C7175843C7E66F8E612F41AF8BD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116068   (824583) от 19.03.2017
-
-Дымок из ствола в Тусоне / Gunsmoke in Tucson (1958) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два брата оказываются по разные стороны закона, им суждено ввязаться в аризонскую войну между скотоводами и земледельцами.Производство: США / Allied Artists Pictures CorporationЖанр: Боевик, ВестернРежиссер: Томас КаррАктеры: Марк Стивенс, Форрест Такер, Гэйл Роббинс, Вон Тейлор, Джон Уорд, Кевин Хэйген, Уильям Генри, Ричард Ривз, Джон Клифф, Гэйл КобиПеревод: Одноголосый закадровый (А.Яковлев)Субтитры: ОтсутствуютПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C518208C19186AF01B1BC563E825520CA62D31B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116003   (824575) от 19.03.2017
-
-Приключения гайдука Ангела / Haiducii lui Saptecai (1970) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824575.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти капитана гайдуков Амзы, новым капитаном становится гайдук Ангел, красавец и богатырь. Хромоногий Мамулос, ближайший помощник правителя Дудеску, возглавляющий отряд стражников, выследил атамана, но, признавшись, что он его отец, отпустил юношу за границу...Производство: РумынияЖанр: Приключения, историческийРежиссер: Дину КочаАктеры: Флорин Пьерсик, Коля Рэуту, Марга Барбу, Тома Караджиу, Флорин Скэрлэтеску, Айми Якобеску, Нуку Пэунеску, Константин Кодреску, Николае Гэрдеску, Константин Курицэ, Иляна Бухачи-Гургулеску, Жан Константин мл., Мариэлла Петреску, Кармен Мария Стружак, Константин Лунджеану, Аурел Рогальски, Стефан Тапалага, Аурел Чорану, Михай Мереуцэ, Дорел Якобеску, Манеа Энаке, Василе (   Читать дальше...   )Перевод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175901322719FF48993BE6557F48A2291B694247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374552   (824196) от 08.05.2020
-
-Путешественники во времени / Timestalkers (1987) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824196.jpg" />
-</div>
-
-
-###  Подробнее
-
-К профессору Скотту МакКензи попадает любопытная находка — старая фотография XIX века, на которой запечатлён ковбой, держащий в руках вполне современный револьвер «Магнум». Удивление учёного постепенно перерастает в убеждённость, что путешествия во времени действительно возможны, и вскоре он встречает женщину, которая это подтверждает. Она заявляет, что прибыла из (   Читать дальше...   )Производство: США / Fries Entertainment, Newland/Raynor Productions Inc.Жанр: Фантастика, Триллер, Драма, Приключения, ВестернРежиссер: Майкл ШульцАктеры: Уильям Дивэйн, Лорен Хаттон, Джон Ратценбергер, Форрест Такер, Клаус Кински, Трейси Уолтер, Джеймс Эйври, Р.Д. Колл, Джон Консидайн, Дэнни ПинтауроПеревод: Двуголосый профессиональный, НТВ+Субтитры: ОтсутствуютПродолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4446B44E6DF60129A26DCC6BF55959344C2CE271
 ```
 
 https://mybot314.ru/tekegram_catalog/

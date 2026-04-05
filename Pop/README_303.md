@@ -1,177 +1,3 @@
-###  Публикация: 696858   (161931) от 04.11.2023
-
-Константин Сокольский - Дымок от папиросы... (2001) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Дымок от папиросы...
-02.Когда любовь волнует кровь
-03.Две слезинки
-04.Чайник новый(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FE8DFD6DEC54DC3B5B293F82900CD1BE4B4ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661619   (161926) от 04.11.2023
-
-Сергей Захаров - Золотая коллекция Ретро (2008) [FLAC|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Придёт любовь (2:57)
-02. Талая вода (3:19)
-03. Выйду солнцу навстречу (2:45)
-04. Люблю тебя (4:29)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB29E6886569FD77160D928D62B6DBD11A7F7AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665099   (161920) от 04.11.2023
-
-Песни на стихи Владимира Харитонова - Золотая коллекция Ретро (2009) [APE|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скажи мне, вишня (Евгений Мартынов) - Евгений Мартынов
-2. Это только начало лета (Борис Ривчун) - Геннадий Белов
-3. Солнышко (Владимир Хорощанский) - Маргарита Суворова
-4. Не плачь, девчонка (Владимир Шаинский) - Эдуард Хиль(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613F50DB4727036508CC987A15604FE641C3EFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665003   (161913) от 04.11.2023
-
-Нина Бродская - Золотая коллекция ретро (2003) [APE|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161913.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ты говоришь мне о любви (Э.Колмановский - И.Шаферан,Л.Дербенёв)
-2. Первая любовь (А.Мажуков - Л.Кретов)
-3. Теряют люди друг друга (А.Зацепин - Л.Дербенёв)
-4. Ты меня забудешь скоро (А.Мажуков - А.Дементьев)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AEC4C851AFB46379FEDDAEE3EE29E9527E657F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659395   (161906) от 04.11.2023
-
-VA - " Золотой фонд эстрады " - Многое в жизни бывает (1996) [FLAC|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Л. Утёсов - Лейся песня на просторе (02:33)
-02. Л. Кострица - Мы друзья - перелётные птицы (03:04)
-03. В. Бунчиков - Шумит волна, звенит струна (02:51)
-04. З. Рождественская – Тропинка (02:03)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFD1ACEA34397A272E41DCBD5A1E103CEA16E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667909   (161896) от 04.11.2023
-
-Нина Бродская - "С новой надеждой" (из серии Золотая коллекция Ретро) 2 CD (2005) [APE|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. С новой надеждой
-2. Девочка с бантом
-3. Я зову тебя
-4. Любимые(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BA627CCF1D108B5E2435220329A253CC4A9458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 666811   (161874) от 04.11.2023
 
 Людмила Сенчина - Любовное настроение (2004) [APE|Lossless]<Retro|Pop>
@@ -180,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161874.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161870.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161859.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161855.jpg" />
 </div>
 
 
@@ -299,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161848.jpg" />
 </div>
 
 
@@ -328,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161844.jpg" />
 </div>
 
 
@@ -357,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161842.jpg" />
 </div>
 
 
@@ -386,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161829.jpg" />
 </div>
 
 
@@ -415,7 +241,7 @@ VA - Робинзон (1997) [FLAC|Lossless|image +.cue]<Retro, Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161825.jpg" />
 </div>
 
 
@@ -444,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161823.jpg" />
 </div>
 
 
@@ -474,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161821.jpg" />
 </div>
 
 
@@ -503,7 +329,7 @@ Abba - Voyage (2021) [OGG Vorbis|600 Kbps] <Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161799.jpg" />
 </div>
 
 
@@ -532,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161791.jpg" />
 </div>
 
 
@@ -558,7 +384,7 @@ VA - 20 Золотых мелодий (2000) [FLAC|Lossless]<Retro|Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161786.jpg" />
 </div>
 
 
@@ -587,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161780.jpg" />
 </div>
 
 
@@ -616,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161774.jpg" />
 </div>
 
 
@@ -645,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161771.jpg" />
 </div>
 
 
@@ -674,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161762.jpg" />
 </div>
 
 
@@ -703,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161756.jpg" />
 </div>
 
 
@@ -732,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161751.jpg" />
 </div>
 
 
@@ -749,6 +575,188 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99608B4825504CEF22136D46F1B88DD2FED9D29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659953   (161740) от 04.11.2023
+
+Михаил Боярский - The best of (Созвездие хитов) (2004) [APE|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Городские цветы (М.Дунаевский - Л.Дербенёв)
+02. Листья жгут (М.Дунаевский - Л.Дербенёв)
+03. Зеленоглазое такси (О.Кваша - В.Панфилов)
+04. Дрессировщик (Ю.Маликов, В.Пресняков - И.Шаферан)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9E7CBFEE5CCF9925FC0FDA07D83284FB51A8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667193   (161727) от 04.11.2023
+
+ВИА «Красные Маки» - 3 Альбома (2003-2008) [APE|Lossless]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Первая любовь (Музыка и слова Д.Руссоса,р.т. А.Григорьева)"
+02. "Есть закон у тайги (Н.Богословский - М.Танич)"
+03. "Соловьиная роща (Д.Тухманов - А.Поперечный)"
+04. "Кружатся диски (Д.Тухманов - И.Кохановский)"(   Читать дальше...   )Продолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139F8B54D8E4B1BA3B4A52A8D7218FB19B4CA572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460606   (161707) от 04.11.2023
+
+VA - Ретро-Дуэты - Листья желтые над городом кружатся (2006) [FLAC|Lossless]<Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А.Вески и А.Макарский - Спасибо тебе (4:24)
+02. О.Зарубина и А.Серов - Круиз (4:57)
+03. Н.Караченцов и И.Уварова - Что тебе подарить? (3:38)
+04. Г.Бовина и В.Лынковский - Листья желтые (3:12)
+05. А.Герман и С.Рахимов - Только ты (2:48)
+06. Л.Сенчина и Э.Хиль - Шутка (2:51)
+07. И.Понаровская и Е.Чернышов - Однажды (3:44)
+08. Т.Рузавина и С.Таюшев - Осенняя мелодия (3:48)
+09. Г.Белов и Э.Жерздева - Поговори со мной (3:30)
+10. А.Фрейндлих и В.Трошин - Вас хочу будить утром (3:23)(   Читать дальше...   )2006Жанр: Retro, PopПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C36A1E9FD20314358F88A3006543605B72E84DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481669   (161699) от 04.11.2023
+
+ВИА Лейся, Песня - Лучшее (2008) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прощай
+02. Люблю тебя
+03. Последнее письмо
+04. Ласточка(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FC449C27E8BC163C6DB83CD2CD0A206410DE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285236   (161684) от 04.11.2023
+
+Владимир Маркин - Звездная серия (2001) [FLAC|Lossless|tracks]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Маркин - музыкой занимается ещё со школьных времён.
+С 1980 года в течение шести лет работает культоргом в спортивно-оздоровительном лагере при МЭИ «Алушта». Там получает предложение стать участником музыкальной группы «Волшебные сумерки», а позже — передачи «Веселые ребята».
+В 1983 году в ДК Московского энергетического института организует трио «Трудное (   Читать дальше...   )01. Ты со мной, мое трудное детство
+02. Сиреневый туман
+03. В доме восемь...
+04. Я готов целовать песок(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1EF51865EF62ECF34511C88AF2065167DEA36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646785   (161674) от 04.11.2023
+
+V.A. - Как Молоды Мы Были - Песни Александры Пахмутовой (2007) [FLAC|Lossless]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анна Герман - Надежда
+02. Муслим Магомаев - Мелодия
+03. Александр Градский - Нам Не Жить Друг Без Друга
+04. Юлиан - Старый Клен(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734884B057C833B13CE86DB4B2BF83513A083CA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

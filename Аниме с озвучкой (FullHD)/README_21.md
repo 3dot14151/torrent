@@ -1,3 +1,108 @@
+###  Публикация: 1577201   (234671) от 17.09.2022
+
+Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ-1] [2021, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилла, человеческое дитя, воспитывают три великих героя прошлого, обращенных ныне в нежить. Он чувствует, что они что-то скрывают, но и у самого него есть небольшой секрет. Ведь он помнит свою прошлую жизнь.
+© crunchyrollПроизводство: студия Childrens Playground EntertainmentЖанр: приключения, фэнтезиРежиссер: Нобута ЮЯзык озвучки: Японский, русскийСубтитры: #1: Русские, ASS, Надписи+Полные |Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC342E3980B61CCBAAF4464FFB22135FF2BE120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553074   (233265) от 24.05.2022
+
+Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - проблема для отаку [2018, TV, 11 из 11] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно отаку отношения даются с трудом, особенно, если вторая ваша половина - совершенно обычный человек, не склонный к сильному увлечению чем-либо. Поэтому от безысходности некоторые отаку мечтают найти пару себе под стать. Однако, немалые сложности поджидают и в этом варианте. О таких специфических отношениях и пойдёт речь в этом аниме.Наруми Момосэ - заядлая яойщица, (   Читать дальше...   )Производство: Студия A-1 Pictures Inc.Жанр: комедия, романтика, повседневностьРежиссер: Хирайкэ ЁсимасаПеревод: SovetRomanticaЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 11 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB67AB99A8858AA202380E76900CC9AFAF6774D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553091   (233259) от 24.05.2022
+
+Красавица: Унеси меня на Луну (OVA-1) | Tonikaku Kawaii: SNS [2021, OVA, 1 ep] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Насу неожиданно вызывают на работу, Цукаса впервые после свадьбы остается одна. Охваченная одиночеством, она берёт в руки смартфон, который Наса подарил ей. Даже находясь в разлуке, они сохраняют связь в сердце.Производство: Япония / Seven ArcsЖанр: Комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: Русский двухголосый закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CF811A3951F848E42ACA6A2E482BE6F9179B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634646   (233198) от 21.05.2023
+
+Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi | Reborn to Master the Blade: From Hero-King to Extraordinary Squire | Из великого короля в ученицу рыцаря [2023, TV,  ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233198.jpg" />
+</div>
+
+
+###  Подробнее
+
+С благословения богини Инглис основал королевство и стал известен как Король-герой, божественный рыцарь и повелитель всего. Он посвятил большую часть жизни управлению государством и благополучию своих подданных. Но перед смертью у него осталось одно невыполненное желание — снова жить как обычный воин, каковым Инглис и был до прихода к власти. И его богиня-покровительница (   Читать дальше...   )Производство: студия Studio Comet / スタジオコメットЖанр: приключения, фэнтезиРежиссер: Кудзуя НаоюкиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A949FFDD6C0D6889ADF2FBD9E5FB902850F2FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553425   (233183) от 25.05.2022
 
 Бедствие ли это? | Sounan Desuka? | Are You Lost? [2019, TV, 12 из 12] BDRip 1080p Raw+Rus
@@ -6,7 +111,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233183.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг короля [2021, TV, 23 и
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233108.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Yasuke | Ясукэ [2021, Web, 6 из 6] WEB-DL 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232754.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232073.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Bocchi the Rock! | Рок-тихоня! | Одинокий рокер! [2022, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231610.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 из 13] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231532.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ Pokemon the Series: Sun & Moon | Покемон: Солнце и Луна (Seaso
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231151.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ Pokemon the Series: Sun & Moon—Ultra Adventures | Покемон: Солнце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231132.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ Pokemon the Series: Sun and Moon - Ultra Legends | Покемон: Солнце 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231120.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231061.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авaнтюрист
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230603.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ Shuumatsu no Walkure | Record of Ragnarok | Повесть о конце све�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230520.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ Koukaku Kidoutai: SAC 2045 2nd Season | Ghost in the Shell: SAC 2045 Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230519.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230325.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230322.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229697.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Ес�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226313.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ Re: Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224561.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224533.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ Overlord Specials: Ple Ple Pleiades | Повелитель: Пле-Пле-Пле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224366.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (ком
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224357.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224347.jpg" />
 </div>
 
 
@@ -573,111 +678,6 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3358F16EF95C0B7D1DBED2CE55939D1A4D3D3E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342252   (224336) от 01.12.2019
-
-Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная онлайн-игра «Иггдрасиль» неожиданно закрывается. Желая остаться в любимом мире подольше, игрок, управляющий персонажем по имени Момонга, решает оставаться в игре до полного отключения серверов. Момонга — лич, глава одной из топовых гильдий, представляющих в игре «тёмную» сторону. В момент отключения сервера он собрал всех своих прислужников в главном (   Читать дальше...   )Производство: MadHouse Studios, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Ито НаоюкиОзвучка: Многоголосая закадроваяЯзык озвучки: Японский и РусскийСубтитры: Надписи, ПолныеЯзык субтитров: РусскийПродолжительность: 13 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A2957460C6218F823C095CF94138B0A25DB9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503019   (224320) от 28.11.2021
-
-Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истребитель демонов: Поезд «Бесконечный» [ТВ] [2021, TV, 7 из 7] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионная версия фильма Истребитель демонов: Поезд «Бесконечный», включая совершенно новый первый эпизод. В первом эпизоде изображен Ренгоку, когда он отправляется в свое путешествие к поезду Муген. Остальные эпизоды добавят около 70 новых анимационных вырезок и новую фоновую музыку.Производство: Япония, студия ufotableЖанр: Приключения, фэнтези, сёнэн, сверхъестественное, демоныРежиссер: Сотодзаки ХаруоПеревод: Wakanim.tvЯзык озвучки: Дублированный (StudioBand)Субтитры: Русские (Софтсаб полные)Продолжительность: 7 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC9BA53B95BA9F8DF7E3B8748401600D58DF9E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570729   (221867) от 21.10.2022
-
-Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221867.jpg" />
-</div>
-
-
-###  Подробнее
-
-У айдол-группы "TINGS" большие мечты, но только маленькие достижения, и они не очень популярны. Лучший менеджер в мире должен был стать их спасителем, но... "Мне не интересно быть вашим менеджером". Появляется человек, Наосе Хинаки, человек без мотивации. Однако у него есть особая сила...? Это история о вас и о девушках, которые ярко сияют, чтобы (   Читать дальше...   )Производство: Япония, студия Studio KaiЖанр: повседневность, музыкальныйРежиссер: Ойкава КэйЯзык озвучки: Русский закадровый (AniDub)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2495D7B6F8685EB4EBF59D5B24A57EC557E143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567785   (221831) от 21.10.2022
-
-Детективы Футо | Fuuto Tantei | Fuuto PI [2022, Web, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя годы город Футо вновь захлестнула волна преступлений, связанных с допантами. Человекоподобные монстры, созданные странным оружием под названием "Воспоминания Гайи" вновь вернулись на улицы города. Несмотря на уничтожение преступной организации "Музей", что посталяла это оружие, новые партии начали появляться на чёрном рынке. Это значит, (   Читать дальше...   )Производство: Япония / Студия Studio KaiЖанр: Приключения, драма, мистика, детективРежиссер: Кабасима ЁсукэЯзык озвучки: Русский многоголосый закадровый , Японский
-- Ditaro, Kroxxa, Lobanow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A084725740762C67447312ED20E835B7BE406B
 ```
 
 https://mybot314.ru/tekegram_catalog/

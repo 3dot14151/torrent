@@ -1,3 +1,211 @@
+###  Публикация: 1338979   (266778) от 18.11.2019
+
+Navitel / Навител Навигатор v9.11.780 WinCE [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навител Навигатор – система навигации, содержащая самые различные данные: пробки, информация о камерах наблюдения ГИБДД (SPEEDCAM), трехмерные модели дорожных развязок и значимых строений архитектуры. Содержит огромную базу полезных объектов POI. Во все карты включена жилая и промышленная инфраструктура городов и населенных пунктов с адресным поиском, подробная дорожная (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 14.11.2019Разработчик: NavitelПоддерживаемая ОС: Windows CE 5/6Язык интерфейса: Ru/En
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64196B25941EA7F33706AF64A0C8363E0AA363B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339189   (266776) от 18.11.2019
+
+Red Giant Trapcode Suite 15.1.5 RePack by PooShock [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Trapcode Suite - это мощный набор из 11 плагинов для Adobe After Effects, предоставляющих широкие возможности работы с графикой движения, анимацией и визуальными эффектами. Эти инструменты компании Red Giant позволяют эффективно работать с титрами, создавать анимированные фоны и логотипы, разрабатывать визуальные эффекты и 3D-объекты непосредственно в родном (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEAD2AC2AFE58FA5FB18DD624D6300630AE6F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276537   (266627) от 30.12.2010
+
+[Видео] Ёлки (2010) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Комедия, СемейныйРежиссер: Тимур БекмамбетовАктеры: Иван Ургант, Сергей Светлаков, Вера Брежнева, Сергей Гармаш, Артур Смольянинов, Екатерина Вилкова, Мария Порошина, Дато Бахтадзе, Александр Головин, Александр Домогаров мл.Продолжительность: 01:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D7961AC16377A73C7CDAB46CE81C59A9D98836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276581   (266622) от 30.12.2010
+
+Ёлки (2010) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Комедия, СемейныйРежиссер: Тимур БекмамбетовАктеры: Иван Ургант, Сергей Светлаков, Вера Брежнева, Сергей Гармаш, Артур Смольянинов, Екатерина Вилкова, Мария Порошина, Дато Бахтадзе, Александр Головин, Александр Домогаров мл.Перевод: ОригинальныйПродолжительность: 01:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EC15720BA098EB35618C6FC519CF25C5289E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190044   (266588) от 10.12.2017
+
+При покупках в интернет-магазинах теперь могут потребовать ИНН.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266588.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 декабря 2017 года российская таможня приступила к эксперименту с новыми правилами оформления покупок из иностранных интернет-магазинов. Теперь таможенники будут требовать от большинства операторов доставки не только паспортные данные покупателя, но и его индивидуальный номер налогоплательщика (ИНН). Кроме того, необходимо указать гиперссылку на приобретенный товар. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190194   (266537) от 10.12.2017
+
+Дума увеличивает наказание за жестокое обращение с животными
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Госдума на заседании в пятницу приняла во втором, основном чтении поправки в Уголовный (УК) и Уголовно-процессуальный (УПК) кодексы РФ, усиливающие ответственность за жестокое обращение с животными. Инициатива была внесена депутатами "Единой России" и "Справедливой России" во главе с председателем комитета нижней палаты парламента по экологии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190498   (266532) от 10.12.2017
+
+Adguard Premium 6.2.437.2171 RePack by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866DF882D6DD9CC110EA1712583AD4507419CCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189829   (266520) от 10.12.2017
+
+Adobe Photoshop CC 2018 19.0.1.190 [x86] Linux (cxarchive)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2018 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Russian, English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F0E8886F8CA768598410291EE8B32EED16E13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190071   (266512) от 10.12.2017
 
 Дюнкерк / Dunkirk (2017) BDRip [H.264/1080p]
@@ -6,7 +214,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266512.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ The Legend of Zelda: Breath of the Wild (2017) [WiiU] [EUR] 5.5.1 [WUP Installer
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266508.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266479.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266457.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266353.jpg" />
 </div>
 
 
@@ -136,7 +344,7 @@ Microsoft не сдается: Windows Lite – «по-настоящему об
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266346.jpg" />
 </div>
 
 
@@ -162,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266295.jpg" />
 </div>
 
 
@@ -190,7 +398,7 @@ Shenmue I & II (2018) [Ru/Multi] (1.07) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266285.jpg" />
 </div>
 
 
@@ -216,7 +424,7 @@ Constructor (2017) [Ru/Multi] (1.0/dlc) License PLAZA
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266282.jpg" />
 </div>
 
 
@@ -242,7 +450,7 @@ Total Commander PowerUser Portable by HA3APET v70 от 5.12.2018 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266281.jpg" />
 </div>
 
 
@@ -270,7 +478,7 @@ Project CARS 2 (2017) [Ru/Multi] (7.1.0.1.1108/dlc) Repack =nemos= [Deluxe Editi
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266279.jpg" />
 </div>
 
 
@@ -296,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266219.jpg" />
 </div>
 
 
@@ -322,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266212.jpg" />
 </div>
 
 
@@ -348,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265961.jpg" />
 </div>
 
 
@@ -374,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265960.jpg" />
 </div>
 
 
@@ -400,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265894.jpg" />
 </div>
 
 
@@ -426,7 +634,7 @@ MInstAll v.02.11.2019 By Andreyonohov & Leha342 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265886.jpg" />
 </div>
 
 
@@ -452,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265696.jpg" />
 </div>
 
 
@@ -463,218 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1D87D9A0305E4121A907B809C29CA2B08251306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190454   (265616) от 11.12.2017
-
-Российские лыжники решили ехать на Олимпиаду в Пхенчхан
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортсмены-лыжники сборной РФ приняли решение ехать на зимние Олимпийские игры в Пхенчхан.Как сообщает «Интерфакс», ссылаясь на президента Федерации лыжных гонок России Елену Вяльбе, команда проголосовала «за».Российский лидер Владимир Путин подтвердил, что власти не будут препятствовать отправке спортсменов РФ на Олимпийские игры под нейтральным флагом.Форму для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190572   (265612) от 11.12.2017
-
-Avira Phantom VPN Pro 2.11.3.29834 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267CA6FDC2D41321107EE4611F20997A375C678A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735809   (265611) от 11.12.2017
-
-Покровские ворота (1982) BDRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы развелись, и ваша бывшая жена снова вышла замуж - это еще не значит, что вы свободны. Если вы пригласили девушку на свидание, и она пришла, это еще не значит, что она будет вашей. Но если при этом ваш сосед по коммуналке - студент Костик, то можете быть уверены - все будет хорошо.Производство: СССР, МосфильмЖанр: Мюзикл, Драма, Мелодрама, КомедияРежиссер: Михаил КозаковАктеры: Олег Меньшиков, Леонид Броневой, Инна Ульянова, Софья Пилявская,Анатолий Равикович, Виктор Борцов, Елена Коренева,Татьяна Догилева, Елизавета Никищихина, Игорь Дмитриев, Евгений Моргунов, Наталья Крачковская, Валентина Воилкова, Эммануил ГеллерПеревод: Отсутствует (оригинальная русскояычная озвучка)Субтитры: ОтсутствуютПродолжительность: 02:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A31EF34843AA40D37446BA7CADB4E8593EC7ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165825   (265605) от 11.12.2017
-
-Орвилл / The Orville (2017) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) LostFilm
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265605.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 столетие – это время когда, человечеству перестало хватать планеты Земля, как источника еды и ресурсов, необходимых для жизни. К тому же все уголки родной планеты уже давно изучены и хочется чего-то большего – новых открытий, иных рас, необычных изобретений, которые можно будет у них выменять на свои какие-то технические достижения. Поставив за цель, ведущие умы (   Читать дальше...   )Производство: США, 20th Century Fox Television, Fuzzy Door Productions, Twentieth Century Fox TelevisionЖанр: фантастика, драма, комедияРежиссер: Брэннон Брага, Джон Кассар, Джеймс Л. КонуэйАктеры: Сет МакФарлейн, Чад Л. Коулмэн, Скотт Граймз, Марк Джексон, Пенни Джонсон, Дж. Ли, Питер Макон, Эдрианн Палики, Холстон Сейдж, Ларри Джо Кэмпбелл и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: АнглийскиеПродолжительность: ~00:45:00 серияРеклама: отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F622F8C3944F52D4A27F72B5253423C9F9E3B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267327   (265543) от 07.12.2018
-
-Китайская фирма планирует запустить в космос 272 спутника для раздачи интернета по всему миру
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как заявили в компании, благодаря этому проекту люди смогут использовать свои мобильные телефоны для подключения к интернету даже в тех местах, где отсутствует покрытие сигналом телекоммуникационных сетей.Согласно информации, переданной информационными агентствам, китайская компания LinkSure, работающая в сфере интернет-технологий, планирует к 2026 году запустить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267330   (265526) от 07.12.2018
-
-Глава Роскомнадзора предложил ввести возрастную маркировку «от 1 до 3 лет»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остро стоит вопрос о введении возрастной маркировки СМИ 1+ и 3+ с точки зрения защиты детей от информации, наносящей урон их психике, заявил глава Роскомнадзора Александр Жаров.
-"Сейчас мы отслеживаем возрастную маркировку средств массовой информации. Есть 0+, 6+, 12+, 18+. Сейчас же остро стоит вопрос о маркировке 1+ и 3+", — сказал Жаров на заседании (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266237   (265445) от 07.12.2018
-
-KMS Tools Portable 01.12.2018 by Ratiborus [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265445.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECBDE260241F91D3F13AAA2D8EB50AF291F857E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110009   (265444) от 07.12.2018
-
-Trondheim Solistene - Divertimenti (2008) [LPCM 2.0, 5.1 192/24 |Blu-ray]<Classical>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trondheim Solistene (The Trondheim Soloists) - один из самых известных молодых ансамблей Норвегии. Диск выпущен норвежским лейблом 2L. В одном из интервью директор этого лейбла рассказывал, что перед выпуском этого диска, они пригласили для тестирования известного в Норвегии музыкального критика. Когда он пришел на студию и узнал для чего его пригласили, то захотел (   Читать дальше...   )Benjamin Britten (1913-1976) - Simple Symphony, op.4
-1) Boisterous Bourree
-2) Playful Pizzicato
-3) Sentimental Saraband(   Читать дальше...   )Жанр: Art music :: ClassicalПродолжительность: 1:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6058AF6C5C99858C9718BB3B9DCE7AEBB602ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

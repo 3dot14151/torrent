@@ -6,7 +6,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21650.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sacred Fire: A Role Playing Game (2021) [En] (2.6.4.f6) License GOG [Early Acces
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21616.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20864.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Derail Valley Simulator (2019) [Ru/Multi] (Build 99.4) Repack Other s [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20758.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Arms Trade Tycoon: Tanks (2024) [En] (1.1.8.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20667.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Forever Winter (2024) [Ru/Multi] (0.1.45959.0) Repack Pioneer [Early Access 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20555.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20468.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20116.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Necesse (2019) [Ru/Multi] (0.32.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20063.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Drive Beyond Horizons (2025) [Ru/Multi] (911) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19933.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19929.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Scarlet Hollow (2021) [En] (1.2l) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19636.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Volcanoids (2019) [Ru/Multi] (1.33.502.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18804.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Phasmophobia (2020) [Ru/En] (0.12.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18772.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SpaceEngine / Space Engine (2019) [Ru/Multi] (0.990.48.2065/dlc) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17216.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Killing Antidote (2023) [Ru/Multi] (0.5.3.2a) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16927.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (0.199.7) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16623.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Terra Invicta (2022) [Multi] (0.4.90) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15710.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Space Haven (2020) [Ru/Multi] (0.20.0.29) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15708.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15700.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Lethal Company (2023) [Ru/En] (72) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15280.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Synchro (2025) [Ru/En] (0.1.6 Beta) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15271.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ QBoard (2025) [En] (0.9.9.3) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15242.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Hellish Quart (2021) [Multi] (0.4391) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15210.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Morbid Metal (2025) [En] (10619) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15203.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15199.jpg" />
 </div>
 
 

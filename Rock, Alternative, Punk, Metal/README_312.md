@@ -1,3 +1,148 @@
+###  Публикация: 1124539   (785645) от 12.04.2017
+
+Piledriver - Brothers In Boogie (2015) [FLAC|Lossless|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way To Rock  (03:42) 
+02. Together  (03:46) 
+03. Rock In A Crossfire-Hurricane  (04:35) 
+04. Good Times  (04:47) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AD641C95DC70F15D058651BE5E2CAF81197AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124720   (785643) от 12.04.2017
+
+Ray Wilson - Makes Me Think Of Home (2016) [APE|Lossless|image + .cue] <Alternative Rock, Pop Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. They Never Should Have Sent You Roses  (06:10) 
+02. The Next Life  (03:41) 
+03. Tennessee Mountains  (04:18) 
+04. Worship The Sun  (05:02) (   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Prog RockПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9785E1C8F30ED4B742A0328E07F90618714CD76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124657   (785638) от 12.04.2017
+
+Gyze - Northern Hell Song (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pirates Of Upas 05:12
+02. Horkew 04:26
+03. Dead Bone Blue 05:09
+04. Black Shumari 03:21(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19DD20364499B5A0C673AF46C5E3A81B29F57B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124643   (785622) от 12.04.2017
+
+Six Feet Under - Torment (2017) [FLAC|Lossless|image + .cue] <Death, Groove Metal, Death 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrificial Kill 03:55
+02. Exploratory Homicide 02:45
+03. The Separation Of Flesh From Bone 04:52
+04. Schizomaniac 03:54(   Читать дальше...   )Жанр: Death, Groove Metal, Death 'n' RollПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DE67E054F59DD64A0B263F7EAC126D76CD6DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124682   (785608) от 12.04.2017
+
+Tak Matsumoto - Enigma (2016) [FLAC|Lossless|tracks + .cue] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma (5:51)
+02. Vermillion Palace (4:26)
+03. Step to Heaven (4:30)
+04. Ups and Downs (3:47)(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82BC5EB6C47C1284FC963BA218DB8F7526CC34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124585   (785540) от 12.04.2017
 
 Александр Барыкин и группа Карнавал - Дискография (1981 - 2011) [MP3|128-320 kbps] <Rock>
@@ -6,7 +151,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785540.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Beyond Creation - Algorythm (2018) [WavPack|Lossless|image + .cue] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785482.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Ethereal Sin - Kakuriyo (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785481.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Disgorge (US) - Parallels of Infinite Torture (2005) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785477.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Lividity - Show Us Your Tits "Live" (1999) Live [FLAC|Lossless|tracks + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785476.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Metal Inquisitor - Panopticon (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785472.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785460.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Blood Incantation - Starspawn (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785459.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Lividity - Used, Abused, and Left for Dead (2006) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785456.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Frozen Land - Frozen Land (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785455.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Starbreaker - Dysphoria (2019) Japan [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785454.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Evergrey - The Atlantic (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785445.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Lutz Rahn - Solo Trip (1978) Reissue CD, 2012, MIG [MP3|320 Kbps] <Electronic, K
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785443.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Inkubus Sukkubus - Beltaine (Original Recordings 1990/91) (1996) Reissue, 2006, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785420.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785418.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ Rocky Burnette - The Son Of Rock And Roll (1979) LP [MP3|320 Kbps] <Soft Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785412.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ dArtagnan - Seit An Seit (2016) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785408.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ Orphans Of Doom - Strange Worlds / Fierce Gods (2018) [MP3|320 кб/с]<Sludge M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785395.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ ZE FISH punk-rchstr (orchestra) - Welcome to Russia, если не страшн�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785368.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ Margenta - Династия Посвящённых 4 - Окситания (2018)
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785353.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ Saxon - Thunderbolt (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785347.jpg" />
 </div>
 
 
@@ -602,149 +747,6 @@ Saxon - Thunderbolt (2018) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3A51A0651859DD41FC9731DEC075AF4B5ACF855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203961   (785307) от 04.02.2018
-
-AWOLNATION - Here Come the Runts (2018) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Come The Runts
-02. Passion
-03. Sound Witness System
-04. Miracle Man(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Indie RockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0935FB88FBB9FA73FC60E0878A5008952BD620A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388863   (785167) от 08.06.2020
-
-AngeLight - Singles (2020) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Down (03:16)
- 02. If You Could Only See (04:30)
- 03. Not Forsaken (03:13)
- 04. Voice of the Silent (03:34)Жанр: Alternative MetalПродолжительность: 00:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BCF8C99D1E668E1A5851193B5A5865AFF17E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388883   (785157) от 08.06.2020
-
-Add1ction - Leave It All Behind (2020) [MP3|320 Kbps] <Alt.Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down (03:34)
- 02. Take What You Give (03:48)
- 03. Erase These Memories (03:39)
- 04. Walk Away (03:38)(   Читать дальше...   )Жанр: Alt.Metal, RapcoreПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2C0CA6B266843C026C8D5B56BBAB5C0BD3AB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148355   (785119) от 08.06.2020
-
-Make Them Suffer - 4 альбома + 1 EP + 3 сингла + 1 demo (2008-2020) [MP3|320 Kbps] <Blackened Deathcore, Symphonic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step One
-02. Falling Ashes
-03. Bones
-04. Drown With Me(   Читать дальше...   )Жанр: Blackened Deathcore, Symphonic MetalcoreПродолжительность: 03:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DF6A4DACBEA0980B0D706E50D147BFB5A3484E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277667   (785075) от 21.01.2019
-
-Asphyxiate - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Feast Ripping Putrescent (3:57)
- 02. Sickening Canvas of the Dead (3:07)Жанр: Death MetalПродолжительность: 00:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6603456E1504D1044367565AF65658ECD8BD71A
 ```
 
 https://mybot314.ru/tekegram_catalog/

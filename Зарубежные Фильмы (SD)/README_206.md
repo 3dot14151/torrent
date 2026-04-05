@@ -1,55 +1,3 @@
-###  Публикация: 1205035   (783967) от 08.02.2018
-
-Здравствуй, папа, Новый год! 2 / Daddy's Home 2 (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец и отчим, Дасти и Брэд, объединяются, чтобы организовать для своих детей идеальный рождественский праздник. Но их с горем пополам достигнутый нейтралитет оказывается под угрозой, когда к внукам приезжают олдскульный мачо-папаша Дасти и чувствительный и эмоциональный папочка Брэда. Они как нельзя кстати, чтобы превратить Рождество в кошмарный хаос.Производство: СШАЖанр: комедияРежиссер: Шон АндерсАктеры: Уилл Феррелл, Марк Уолберг, Мэл Гибсон, Джон Литгоу, Линда Карделлини, Алессандра Амброзио, Оуэн Ваккаро, Скарлет Эстевез, Диди Костин, Коннор УайзПеревод: Дублированный (iTunes)Субтитры: русские (полные + форс.)Продолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C91C2C76A2FB441523E9273CA44366C4EAE2B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204946   (783965) от 08.02.2018
-
-Несчастный случай / Accident Man (2018) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майк Фэллон известен тем, что превращает все свои убийства в несчастный случай. Но его отношение к делу полностью меняется, когда умирает его бывшая девушка.Производство: Великобритания / Kritzer Levine Wilkins Griffin Entertainment, Six Demon FilmsЖанр: боевик, триллер, криминалРежиссер: Джесси ДжонсонАктеры: Скотт Эдкинс, Рэй Стивенсон, Эшли Грин, Дэвид Пэймер, Майкл Джей Уайт, Рэй Парк, Эми Джонстон, Перри Бенсон, Ник Моран, Росс О'ХеннессиПеревод: Профессиональный (многоголосый, закадровый) (Лицензия Blu-ray EUR)Субтитры: отсутствуютПродолжительность: 01:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB63F2FB458B24CAD8AFE7FF6483ACAF3085201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205099   (783957) от 08.02.2018
 
 Безбашенные / Renegades (2017) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783957.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783885.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783828.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783816.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783706.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783705.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783693.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783642.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783597.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783391.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783384.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783362.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783275.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783181.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783165.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783142.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783124.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783123.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783121.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783120.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783119.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783091.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783088.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783084.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5ECFC742EF84BC5A13082EC2950327310436DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205898   (783082) от 11.02.2018
+
+Здравствуй, папа, Новый год! 2 / Daddy's Home 2 (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец и отчим, Дасти и Брэд, объединяются, чтобы организовать для своих детей идеальный рождественский праздник. Но их с горем пополам достигнутый нейтралитет оказывается под угрозой, когда к внукам приезжают олдскульный мачо-папаша Дасти и чувствительный и эмоциональный папочка Брэда. Они как нельзя кстати, чтобы превратить Рождество в кошмарный хаос.Производство: США / Paramount Pictures, Gary Sanchez Productions, Huahua MediaЖанр: КомедияРежиссер: Шон АндерсАктеры: Уилл Феррелл, Марк Уолберг, Мэл Гибсон, Джон Литгоу, Линда Карделлини, Алессандра Амброзио, Оуэн Ваккаро, Скарлет Эстевез, Диди Костин, Коннор УайзПеревод: Дублированный (iTunes)Субтитры: Русские, АнглийскиеПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFEA06E98121F41726AB10DA37B415A155068CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205476   (783077) от 11.02.2018
+
+Женись на мне, чувак / Epouse-moi mon pote (2017) WEB-DLRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственный шанс для провалившего экзамен студента остаться в Париже — это фиктивный брак. Однако, найти невесту так быстро практически невозможно. И тогда на помощь приходит лучший друг.Производство: Франция / Axel Films, Canal+Жанр: Комедия, приключенияРежиссер: Тарек БудалиАктеры: Тарек Будали, Филипп Лашо, Шарлотта Габрис, Анди, Давид Марсе, Жюльен Аррути, Байа Белаль, Филипп Дюкен, Зинедин Суалем, Дуду МастаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B5396315F23E5B2AC55B790CB145E6FA6D62BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

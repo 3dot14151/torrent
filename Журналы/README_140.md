@@ -1,3 +1,107 @@
+###  Публикация: 1010712   (802436) от 25.04.2016
+
+Газета | 1001 совет для дачника №4 (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802436.jpg" />
+</div>
+
+
+###  Подробнее
+
+"1001 совет для дачника" - советы и рекомендации опытных садоводов, огородников и цветоводов, которые помогут вам вырастить и сохранить урожай, избавить сад и огород от болезней и вредителей, подскажут очередность необходимых работ. В каждом номере - советы фермерам и пчеловодам, ландшафтный дизайн, идеи для дачи и сада, советы юриста.Жанр: Сад, огород, цветы, дизайн участкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F549F59B0779A1BF12ABC9C19CDEA2F926FF7C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010508   (802432) от 25.04.2016
+
+Журнал | Народный лекарь. Спецвыпуск №153 (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аллергией в наше время страдает около 40% населения земного шара. Считается, что аллергия это то, чем мы платим за мировой прогресс с его загрязнением окружающей среды, химическими добавками и обилием лекарств с синтетическими добавками.Жанр: Народная медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA40333CE2BE50202E3600EA45099DB6CE11F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010483   (802431) от 25.04.2016
+
+Журнал | Дачный спец №4 (апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый журнал для тех, кто стремится вести свое хозяйство грамотно, с умом. В каждом выпуске вы сможете найти для себя полезную информацию от известных ученых, агрономов-практиков, садоводов-опытников.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EE54A9E508AB9908C2EC7EAAEBDF28DF926794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010460   (802338) от 25.04.2016
+
+Журнал | Библиотека журнала Моя любимая дача №11 (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802338.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой брошюре речь пойдет о защите фруктового сада от болезней и вредителей, полезные советы от Октябрины Ганичкиной помогут вам вовремя принять меры и сохранить здоровье любимых плодовых деревьев.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C0695391BA1468D2ACA3415F78CB2F39D04059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010464   (802336) от 25.04.2016
 
 Журнал | Библиотека журнала Моя любимая дача №12 (2016) [PDF]
@@ -6,7 +110,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802336.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802329.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802325.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802320.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802251.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_802249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_802249.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802051.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802015.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801974.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801971.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801966.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801929.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801865.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801848.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801845.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801786.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801784.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801783.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801782.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801779.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801777.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801776.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F69D8E88F567F1D263DD17057DB2DF73D49D461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199276   (801774) от 15.01.2018
-
-Журнал | Burda [Россия] №12 [без выкроек] (декабрь 2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный журнал по шитью представляет европейскую моду высокого класса. Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. Секрет популярности журнала Burda в том, что благодаря ему каждая женщина может осуществить свою мечту одеваться модно и красиво. Десятки оригинальных, изысканных и современных (   Читать дальше...   )Жанр: Мода, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C63B66FF80EABA731D6229E80A97618439EEAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505939   (801728) от 29.10.2021
-
-Журнал | Делаем сами №15 (2021) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801728.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA7EBF32AFA61669EB803EE11519E59F7ADD6A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199273   (801705) от 15.01.2018
-
-Журнал | Кухонька Михалыча №1 (149) (январь 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249CFEB8704A79C37454EBBEBD2EB5CAD9549CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199277   (801703) от 15.01.2018
-
-Журнал | Burda [Россия] №1 [без выкроек] (январь 2018) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный журнал по шитью представляет европейскую моду высокого класса. Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. Секрет популярности журнала Burda в том, что благодаря ему каждая женщина может осуществить свою мечту одеваться модно и красиво. Десятки оригинальных, изысканных и современных (   Читать дальше...   )Жанр: Мода, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5EA2547C14C789C1DE7DF5864A0A1D2151082E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1153624   (525124) от 12.08.2017
+
+Боже, я ошиблась номером / Boy, Did I Get a Wrong Number! (1966) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Божественная Диди, европейская актриса, известная больше своими сценами в ванне, нежели актерской игрой, решает, что хватит с нее «ванных» сцен и пришла пора стать серьезной актрисой. Она сбегает прямо в разгар съемок очередного эпизода из Голливдуа в Орегон. Она поселяется в гостинице. Телефонный оператор случайно соединяет ее с агентом по недвижимости по имени (   Читать дальше...   )Производство: США / Edward Small ProductionsЖанр: КомедияРежиссер: Джордж МаршаллАктеры: Боб Хоуп, Эльке Зоммер, Филлис Диллер, Чезаре Данова, Марджори Лорд, Келли Тордсэн, Бенни Бэйкер, Терри Бёрнэм, Джойс Джеймисон, Гарри фон ЗеллПеревод: Двуголосый закадровый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E91B87AEA097470019D9BF8AFEB21B84DAA65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922769   (524918) от 13.08.2015
+
+Бравадос / The Bravados (1958) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дикий американский Запад: дикие времена, дикие нравы. Джим Дуглас ищет тех четверых, что изнасиловали и убили его жену. Он узнает, что в соседнем городке их арестовали и должны казнить. После того, как убийцам удалось сбежать, Дуглас решает взять правосудие в свои руки. Однако постепенно он убеждается в справедливости древней истины: убивая другого, ты уничтожаешь (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, ВестернРежиссер: Генри КингАктеры: Грегори Пек, Джоан Коллинз, Стивен Бойд, Альберт Сэлми, Генри Сильва, Кэтлин Галлант, Бэрри Коу, Джордж Восковек, Герберт Радли, Ли Ван КлифПеревод: Двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC88B09ED56038249F2ED94AC4D04BA362886C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927548   (524843) от 13.08.2015
 
 Копи царя Соломона / King Solomon's Mines (1985) WEB-DLRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524843.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524308.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524184.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524103.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523825.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523521.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523235.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522450.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522223.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521913.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521622.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521458.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521019.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520661.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520414.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519929.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519706.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519662.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519244.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518395.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518337.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517308.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516412.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516271.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:215EEB5D1B8D604FB4445155EDC70296FADD70F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925336   (516196) от 22.08.2015
-
-Умереть от наслаждения / Et mourir de plaisir (1960) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Камилла фон Карнштайн узнаёт, что её приятель обручился с другой девушкой. Ревность и желание мести приводят её к могиле старой родственницы, которая по слухам была вампирессой. В процессе визита душа покойницы поселяется в теле Камиллы и начинает превращать её в вампира.Производство: Франция, Италия / Documento, Films EGEЖанр: Драма, УжасыРежиссер: Роже ВадимАктеры: Мел Феррер, Эльза Мартинелли, Аннетт Вадим, Альберто Бонуччи, Рене-Жан Шоффар, Серж Маркан, Эдит Питерс, Натали ЛафориПеревод: Одноголосый закадровый (А. Наследников)Субтитры: ОтсутствуютПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA60F33B2AB1E2C0E224CE3A9C2936A090D6E739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925144   (516084) от 22.08.2015
-
-Легенда о потерянном / Legend of the Lost (1957) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Боннард приезжает в Тимбукту и начинает искать проводника, который сопроводил бы его по африканской пустыне. Проводник находится в лице американца Джо, которому правда не сильно по душе маршрут, который избрал Боннард. Тем не менее в пустыне они и последовавшая за ними проститутка Дита обнаруживают руины древнего храма, где Боннард планирует отыскать сокровища, (   Читать дальше...   )Производство: Италия, СШАЖанр: Драма, приключенияРежиссер: Генри ХэтэуэйАктеры: Джон Уэйн, Софи Лорен, Россано Брацци, Курт Казнар, Соня Мосер, Анджела Порталури, Марша Хант ...Перевод: Авторский одноголосый (Сергей Кузнецов)Продолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64836B8E1ADD8F478A0054679A4DB714EC99072F
 ```
 
 https://mybot314.ru/tekegram_catalog/

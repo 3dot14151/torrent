@@ -1,3 +1,161 @@
+###  Публикация: 1363807   (935628) от 03.03.2020
+
+Пушки Акимбо / Guns Akimbo (2019) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майлз был обычным разработчиком видеоигр, пока его не втянули в кровавый квест. Незнакомцы вломились в дом, прибили к рукам два пистолета и похитили любимую девушку. Теперь Майлзу придётся сразиться с Никс — безжалостной чемпионкой подпольных игр на выживание.Производство: Великобритания, Германия, Новая Зеландия / Altitude Film EntertainmentЖанр: Боевик, КомедияРежиссер: Джейсон Ли ХауденАктеры: Дэниэл Рэдклифф, Самара Уивинг, Риз Дэрби, Нед Деннехи, Наташа Лю Бордиццо, Марк Роули, Грант Боулер, Ханако Футман, Джош Роберт ТомпсонПеревод: Двуголосый любительскийСубтитры: АнглийскиеПродолжительность: 01:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECA0AC31D8E2FB386B405FA83CDF0604115ECF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861128   (935615) от 19.01.2015
+
+Gilisoft RAMDisk 6.5.0 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа, которая создаст виртуальный жесткий диск в оперативной памяти вашего компьютера. Вы выбираете его размер (в пределах доступной оперативной памяти), букву диска и файловую систему и работаете с ним как с обычным диском - можете копировать, перемещать и удалять на нем файлы. RAM-диск также может быть доступен по сети.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE902D923242B1FCC3E745A0293029C95B3DF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623654   (935596) от 19.01.2015
+
+Эрих Мария Ремарк | Собрание сочинений [83 книги. Обновляемая] (1936-2015) [FB2, DJVU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935596.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2008-2011 годах издательство АСТ, в рамках серии Книга на все времена, выпустило собрание сочинений Эриха Марии Ремарка, в которое вошли все самые лучшие произведения знаменитого писателя.Жанр: КлассикаФормат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E12D98C857EE09EEE0F401E55A88803C4F5DD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859615   (935594) от 19.01.2015
+
+Heavy Rain: Move Edition / Heavy Rain для Move (2010) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO Install ISO] [Repack] [En/Ru] [MOVE]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры Четыре дня, которые предстоит пережить четырем героям, запомнятся им на всю жизнь. У каждого из них - своя судьба, свое прошлое и свои цели, но все они, так или иначе, стараются предотвратить убийства, за которыми стоит некто, получивший прозвище Мастер Оригами. В руки своих жертв хладнокровный, расчетливый и неуловимый маньяк вкладывает бумажные фигурки... (   Читать дальше...   )Тип издания: RePackРазработчик: Quantic DreamЖанр: Adventure / 3D / 3rd Person / Int.MovieЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775BB04228AE69EB6E48265A37974EAC7B2CC34F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441284   (935593) от 19.01.2015
+
+Смешарики. Начало (2011) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такую экстремальную историю про Смешариков вы не могли себе представить: покинув свою уютную страну, Смешарики оказываются в современном мегаполисе в роли супергероев! Зачем? Они приняли очень важное для себя решение — спасти мир от нависшей угрозы. Этот «ответственный» шаг приводит к самому захватывающему приключению в их жизни!Производство: РоссияЖанр: Мультфильм, Комедия, ПриключенияРежиссер: Денис ЧерновАктеры: Вадим Бочанов, Сергей Мардарь, Антон Виноградов, Светлана Письмиченко, Владимир Постников, Михаил Черняк, Ксения Бржезовская, Михаил Хрусталев, Владимир Маслаков, Андрей ЛёвинПеревод: ОригинальныйСубтитры: ОтсутствуютПродолжительность: 01:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F617CD993DD2A5CA339C00E2CD5F0565AFBFABE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861341   (935579) от 19.01.2015
+
+Microsoft Office for Mac 2011 Standard  SP4 (VL) 14.4.2 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office используется более чем на 1 млрд. ПК и компьютеров Mac и является наиболее популярным и надежным набором рабочих приложений на мировом рынке.
+
+Пакет Microsoft™ Office® for Mac 2011 лидирует в области рабочих приложений для платформы Mac. Богатый набор удобных в использовании функций Office for Mac 2011  позволяет клиентам создавать визуально привлекательные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 августа 2014Разработчик: MicrosoftПоддерживаемая ОС: MacOS X / Intel onlyЯзык интерфейса: Русский, Английский, и другие (всего 15 языков)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C61ED9F7AE9A78BAB16A13416CF195D0BD26F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 150259   (935575) от 19.01.2015
 
 Пользовательские спасибки МОДЕРАТОРАМ
@@ -6,7 +164,7 @@
 >>62
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935575.jpg" />
 </div>
 
 
@@ -35,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935123.jpg" />
 </div>
 
 
@@ -61,7 +219,7 @@ Opera Software продаётся в Китай
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934911.jpg" />
 </div>
 
 
@@ -88,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934843.jpg" />
 </div>
 
 
@@ -115,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934833.jpg" />
 </div>
 
 
@@ -142,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934829.jpg" />
 </div>
 
 
@@ -169,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934822.jpg" />
 </div>
 
 
@@ -195,7 +353,7 @@ Windows 10 (x86/x64) + Office 2016 20in1 by SmokieBlahBlah 10.02.16 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934821.jpg" />
 </div>
 
 
@@ -223,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934688.jpg" />
 </div>
 
 
@@ -249,7 +407,7 @@ NVIDIA GeForce/ION driver release 266.58 WHQL (Драйвер для видео�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_934599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_934599.jpg" />
 </div>
 
 
@@ -277,7 +435,7 @@ Adobe Acrobat Professional DC (v15.23) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934549.jpg" />
 </div>
 
 
@@ -303,7 +461,7 @@ Mocha Pro 5.2.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934548.jpg" />
 </div>
 
 
@@ -331,7 +489,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) UplayRip Let'sPlay [Apex Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934538.jpg" />
 </div>
 
 
@@ -357,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934537.jpg" />
 </div>
 
 
@@ -383,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934534.jpg" />
 </div>
 
 
@@ -409,7 +567,7 @@ Microsoft Office for Mac 2016 v15.30.0 VL [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934532.jpg" />
 </div>
 
 
@@ -435,7 +593,7 @@ Windows 10 (x86/x64) 12in1 + LTSB +/- Office 2016 by SmokieBlahBlah 12.01.17 [Ru
 >>25
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934530.jpg" />
 </div>
 
 
@@ -463,7 +621,7 @@ Photodex ProShow Producer 8.0.3648 + Effects Pack [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934528.jpg" />
 </div>
 
 
@@ -489,7 +647,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [13.01.2017] [Ru]
 >>59
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934527.jpg" />
 </div>
 
 
@@ -518,170 +676,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934517.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Молодой и невероятно красивый Дориан Грей приезжает в Лондон и попадает под влияние искателя приключений лорда Уоттона. Он внушил юноше, что секрет успеха и счастья Дориана —  в его красоте, ведь она поможет получить все удовольствия мира. Дориан заключает сделку с Дьяволом. Юноша заказывает свой портрет, и теперь вся грязь его жизни, полной распутства и преступных страстей, будет пачкать и портить полотно, его же собственное лицо останется вечно юным и прекрасным. Проскитавшись по свету в поисках наслаждений 25 лет, Дориан возвращается на родину. Захваченный врасплох сильными чувствами, он впервые понял ценность взаимной любви. Но на пути к счастью железной преградой встало темное и загадочное прошлое Дориана…Жанр: триллер, драмаРежиссер: Оливер ПаркерАктеры: Колин Фёрт, Бен Барнс, Рейчел Херд-Вуд, Ребекка Холл, Эмилия Фокс, Бен Чаплин, Фиона Шоу, Кэролайн Гудолл, Дуглас Хеншэлл, Мэриам д'АбоПеревод: Дублированный
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364532   (934420) от 04.03.2020
-
-Учёные из новосибирского Академгородка создали ключевые наноэлементы для посткремниевой электроники и нейрокомпьютеров
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научной группе из новосибирского Академгородка удалось впервые в мире создать уникальные нанопереключатели — приборы на основе монокристаллов двуокиси ванадия (VO2), которые резко и обратимо изменяют свое сопротивление и при этом демонстрируют рекордную энергоэффективность, сравнимую с эффективностью нейрона, высокое быстродействие и долговечность. Предложенная технология (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364232   (934340) от 04.03.2020
-
-Carbon 1 Mark II — первый в мире смартфон из углепластика. Он весит всего 125 г
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда смартфоны только начали появляться, уже нашлись те, кто кричал про однообразие дизайна и про то, что во времена расцвета обычных мобильных телефонов с разнообразием идей было намного лучше.Однако сейчас всё действительно стало именно так. По тем или иным причинам производители не стремятся экспериментировать и рисковать, копируя друг у друга удачные, как им (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364725   (934336) от 04.03.2020
-
-FontExpert 2020 17.0 Release 1 RePack (& Portable) by TryRooM [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fontexpert - полнофункциональная программа для просмотра шрифтов, печати, поиска, загрузки и управлением коллекциями шрифтов. Вы также сможете обнаруживать и решать проблемы со шрифтами форматов TrueType, OpenType, PostScript. Данная утилита отображает гарнитуры установленных шрифтов, а также позволяет пролистывать папки и предварительно просматривать гарнитуры шрифтов, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C13F9967505871A8E5C389621E954E7B18D7416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364416   (934328) от 04.03.2020
-
-OneWeb обещает широкополосный спутниковый интернет в любой точке России
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания OneWeb считает Россию «идеальным рынком» благодаря её территории, но пока не может получить для работы здесь лицензии и разрешения, включая 1) решение Государственной комиссии по радиочастотам о выделении частот и разрешение на их использование, 2) лицензии на виды услуг, 3) разрешение на эксплуатацию земных станций и др.«OneWeb будет работать не напрямую (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364717   (934324) от 04.03.2020
-
-Пушки Акимбо / Guns Akimbo (2019) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майлз небезосновательно считает себя неудачником: девушка бросила, а сам он работает в заштатной конторе разработчиком мобильных игр. Единственная отдушина в жизни парня — интернет-троллинг. Каждый вечер он провоцирует кого-нибудь в сети и, хорошенько поругавшись, спокойно засыпает. Однажды Майлз хамит очередному незнакомцу на сайте, где транслируются жестокие игры (   Читать дальше...   )Производство: Великобритания, Германия, Новая Зеландия / Altitude Film Entertainment, Electric Shadow Company,Жанр: Боевик, КомедияРежиссер: Джейсон Ли ХауденАктеры: Дэниэл Рэдклифф, Самара Уивинг, Риз Дэрби, Нед Деннехи, Наташа Лю Бордиццо, Марк Роули, Грант Боулер, Ханако Футман, Джош Роберт Томпсон, Сет СьострандПеревод: Профессиональный (многоголосый), Любительский (многоголосый), Любительский (двухголосый)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD0AAB61D763D3F9AD1379B52BFAA783CADD680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344046   (934322) от 04.03.2020
-
-Seed4.Me VPN и Proxy – бесплатная Premium-подписка на целый год (неограниченный трафик)
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seed4.Me VPN и Proxy – бесплатная Premium-подписка на целый год (неограниченный трафик)VPN-сервис поддерживает установку на Windows, Mac OS, Android, iPhone и iPad и предлагает серверы в более чем 30 странахSeed4.Me VPN и Proxy предоставляет качественный VPN доступ по всему миру, география нашего присутствия постепенно расширяется.
-На данный момент запущены серверы (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

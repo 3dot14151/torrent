@@ -1,135 +1,3 @@
-###  Публикация: 1801970   (14637) от 14.06.2025
-
-B.C. Вернодубенко, А.С. Новосёлов | Выживание лесовода в таёжных условиях (2015) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14637.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены основные положения, касающиеся выживания человека в тайге. В первую очередь — экстремальные условия, способы ориентирования, разведение огня, устройство временных укрытий, питание в лесу и другое. После каждого раздела приведены вопросы для самоконтроля. Учебное пособие рекомендуется не только для студентов учебных заведений с экологическим и (   Читать дальше...   )Жанр: основы безопасности жизнедеятельности, учебное пособиеИздательство: ВГМХАФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E938DFC4EEB01865AD9BFB674D433402FC414A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801570   (14604) от 14.06.2025
-
-И.Э. Бородина, М.В. Кочергина, А.В. Виноградов | Ожирение (основные положения): клинико-организационный алгоритм (2025) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Методическое пособие разработано главными специалистами Министерства здравоохранения Свердловской области на основе федеральных порядков, с учетом актуализированных версий клинических рекомендаций в рамках реализации региональной программы «Борьба с сахарным диабетом» на 2024–2025 годы и направлено для использования в работе профильным специалистам медицинских организаций.Жанр: Методическое пособиеИздательство: Уральский университетФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14236C3132D54F56823F2772E3B31533AF7EB4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802185   (14475) от 16.06.2025
-
-Дэвид МакКлелланд | Мотивация человека (2025) [PDF, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Макклелланд - выдающийся американский психолог, автор теории потребностей и концепции компетенции, профессор Гарвардского университета. В этой книге подробно рассмотрены три основных типа потребностей людей: потребность во власти, потребность в успехе и потребность в причастности. На той или иной ведущей потребности базируется мотивация каждого конкретного (   Читать дальше...   )Жанр: монография, психология личностиИздательство: Спринт БукФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794A210A7CCA0D2E8529F80B9AEAACB862B1E095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802355   (14441) от 16.06.2025
-
-Константин Крулёв | Под давлением. Ответы кардиолога на самые частые вопросы о гипертонии (2025) [PDF, FB2, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гипертоническая болезнь – хроническое заболевание, главным симптомом которого является длительное и стойкое повышение артериального давления. Повышенное давление приводит к преждевременному изнашиванию артерий, причем повреждение сосудов происходит во всех без исключения органах.
-Как вовремя распознать гипертонию и не допустить развития осложнений? Ответ вы найдете (   Читать дальше...   )Жанр: здоровье, кардиология, сердце, советы профессионаловИздательство: ФениксФормат: PDF, FB2, EPUBКачество: Обработанный скан, Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38537A3C6BAA81C2ED2BB9FB0134BD20665E3661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802507   (14327) от 17.06.2025
-
-В.Д. Горев, Н.А. Поздняков, Н.Е. Голёнко  и др. | Справочник по блоку НАТО и вооружённым силам стран - членов НАТО (2017) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит справочный материал по вооружённым силам стран – членов блока НАТО, краткие сведения о военном блоке НАТО и организациях, примыкающих к блоку НАТО.
-Справочник разработан коллективом авторов: Горевым В.Д., кандидатом военных наук (руководитель авторского коллектива), разделы 5, 6; Поздняковым Н.А., разделы 1–4; Голёнко Н.Е., разделы 10–12, (   Читать дальше...   )Жанр: военная литература, учебное пособие, справочникИздательство: Томский политехнический университетФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1150167BE0FA8FFD9AA07121191204981C767C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802489   (14325) от 17.06.2025
 
 А.Б. Василевский | Устные упражнения по геометрии (1983) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14325.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14225.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14217.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14214.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14082.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13824.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13773.jpg" />
 </div>
 
 
@@ -322,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13740.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13697.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13657.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13455.jpg" />
 </div>
 
 
@@ -432,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13301.jpg" />
 </div>
 
 
@@ -458,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13174.jpg" />
 </div>
 
 
@@ -485,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13073.jpg" />
 </div>
 
 
@@ -511,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13066.jpg" />
 </div>
 
 
@@ -540,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13006.jpg" />
 </div>
 
 
@@ -568,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13004.jpg" />
 </div>
 
 
@@ -594,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12987.jpg" />
 </div>
 
 
@@ -620,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12859.jpg" />
 </div>
 
 
@@ -648,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12649.jpg" />
 </div>
 
 
@@ -675,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12457.jpg" />
 </div>
 
 
@@ -686,6 +554,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B86DECAFEB3A81A714B853D859C5B2698BC82E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805495   (12348) от 06.07.2025
+
+М.Н. Протасевич | Практикум по дифференциальным уравнениям (2025) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основные определения и утверждения, необходимые при решении дифференциальных уравнений.
+Структура практикума:
+- Типы дифференциальных уравнений:
+В пособии рассматриваются различные типы дифференциальных уравнений, включая обыкновенные дифференциальные уравнения (ОДУ) первого и второго порядка, а также уравнения в частных производных.(   Читать дальше...   )Жанр: Учебно-методическое пособие, математикаИздательство: БФУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3048087256F65608619C64AC540978335293B4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805971   (12079) от 09.07.2025
+
+Кирилл Шатилов | Английский на разные случаи жизни. В типичных фразах и диалогах (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое пособие по английскому языку для жизни и общения — с живыми фразами, типичными диалогами и тонким чувством стиля. Без иллюзий и маркетинговой чепухи: чтобы говорить по-английски, нужно учить, запоминать и использовать. Автор с юмором и на личном опыте проведёт читателя от простых выражений до сложных ситуаций — с пользой, без занудства и с прицелом на (   Читать дальше...   )Жанр: языкознание, английский языкИздательство: Издательские решения в системе RideroФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0178EF26EA9F9A89EEE13E37E50B75DB04943835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806227   (11836) от 11.07.2025
+
+Olive Yong | Kawaii Kitties - Learn How to Draw 75 Cats in All Their Glory (Volume 6) (Kawaii Doodle, 6) (2021) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь рисовать милых котиков, вытворяющих всякие забавные вещи, с помощью 75 пошаговых уроков.
+
+В своей книге «Kawaii Kitties» популярный Instagram-художник Бичи Мао (@bichi.mao) мастерски передает разные позы котов: во время игр, сна, еды, потягивания, исследования, проявления любви, в милых костюмах и во многих других ситуациях!Жанр: Учебник, РисованиеЯзык: АнглийскийФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B645DE9DF9D5B4E3F9E4127AD4E3E6695B3810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806254   (11815) от 11.07.2025
+
+James Manning | How to Draw Koalas Step by Step (2020) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11815.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге показано как легко можно рисовать коал.Жанр: Учебник, РисованиеЯзык: АнглийскийФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5C33612461278EE2330EF70396F6E4BDF49FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806284   (11728) от 12.07.2025
+
+Г.Ф. Сухорученкова, А.П. Бирюкова (глав. ред.) | Энциклопедия по безопасности и гигиене труда [5 книг] (1985-1988) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое издание этой работы опубликовано Международным бюро труда, Женева. Настоящее издание публикуется по третьему английскому изданию. Энциклопедия по безопасности и гигиене труда является переводом третьего издания, опубликованного в 1983 г. в Швейцарии. Она содержит более 1 000 статей, обобщающих передовой опыт индустриально развитых стран по охране труда. В (   Читать дальше...   )Жанр: Безопасность и гигиена трудаИздательство: ПрофиздатФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA912669818F01D8326BF8EA47363EFD02A487E
 ```
 
 https://mybot314.ru/tekegram_catalog/

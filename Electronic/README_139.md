@@ -1,3 +1,61 @@
+###  Публикация: 1202644   (789537) от 30.01.2018
+
+VA - Klubb Classics Chapter 1 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Boozywoozy  -  Live Is Music (Original Mix)  6:37
+02.  DJ Disco  -  Get Up (Original Mix)  6:51
+03.  Da Techno Bohemian  -  Bangin' Bass (Bangin' Bass Mix)  7:01
+04.  Klubbheads  -  Turn Up The Bass (Original Mix)  6:50(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3F8643FB1C1FE746EDECD5F117D7F69EC97886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202628   (789536) от 30.01.2018
+
+VA - Base Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & Betsie Larkin  -  Unite (Original Mix)  4:04
+02.  Bigtopo & Omar Diaz  -  Gallow (Original Mix)  3:45
+03.  Ruslan Radriges presents Mantra & Lucid Blue  -  Take Me Higher (Club Mix)  3:51
+04.  Feel  -  The Nutcracker (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EE680D7D4C24478776D13F91EBEE5064B148CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202832   (789535) от 30.01.2018
 
 Illuvia - Illuvia (2017) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
@@ -6,7 +64,7 @@ Illuvia - Illuvia (2017) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789535.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Deep House Winter Essentials (2018) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789530.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Robert Rich - Inner Landscapes (1999) Hypnos / Soundscape [FLAC|Lossless|tracks+
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789528.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Spacecraft - Spacecraft (1997) Lektronic Soundscapes [FLAC|Lossless|tracks+.cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789527.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Chillout Therapy Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789525.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Best Of Chillout 2018 Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789516.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Organoid | Ligea - Discography 5 Releases (2011-2015) Section 27 [FLAC|Lossless]
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789505.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Best Of Disco Lab, Vol. 1 (2019) [MP3|320 Kbps] <Tech House, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789485.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Disco House Cats, Vol. 1 (2019) [MP3|320 Kbps] <House, Tech House, Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789445.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Miami Beachin Vol.1 [Continuous Mix] Low Tide (2019) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789444.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Zanzibar Cafe' Vol. 6 (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, E
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789443.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Spacehawk - The Last Guardian (2019) [MP3|320 Kbps] <Spacesynth, Spacedisco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789434.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Spacehawk - The Last Guardian (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789394.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Bobina - Russia Goes Deeper 001 - 014 (2016 - 2018) [MP3|320 Kbps] <House,Deep H
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789294.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789120.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Relmic Statute - Morning Tapes (2010) hibernate [FLAC|Lossless|tracks+.cue] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789115.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Ice Pack 2018 House: Deep House (2018) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789111.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789110.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Paul Menska - Travel Memoirs (2016) Terminal Dream [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789105.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789104.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Cozy Chillout Times (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789103.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Wintersilence - Slow Focus (2016) Musical Philosophy [FLAC|Lossless|tracks+.cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789100.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789099.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Makia Blue - Electra (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789097.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Makia Blue - Electra (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F77CE89F52DBAF0A21DBE12ED4257ED19443F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202884   (789096) от 31.01.2018
-
-VA - Best Of The Best Suanda Vol 4 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer, Roxanne Emery -Lullaby (Original Mix)
-02. LTN -Maldives (Original Mix)
-03. Armos, Lucid Blue, Ruslan Radriges -Call Of The Wild (Ruslan Radriges Radio Edit)
-04. Frainbreeze -Back To The Future (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B098BD1620907F116F3CF8F489765DBF514D2945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202881   (789095) от 31.01.2018
-
-Secret Pyramid - Two Shadows Collide (2017) Ba Da Bing! [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch (05:04)
-02. Two Shadows (05:31)
-03. Lost (02:14)
-04. A Dream On Third (08:27)(   Читать дальше...   )Жанр: Ambient, Modern Classical, DroneПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FFE700564E5FCDE31B780B8AE67D156C60E2EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

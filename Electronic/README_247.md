@@ -1,3 +1,119 @@
+###  Публикация: 1150182   (595282) от 14.07.2017
+
+VA - Relaxing Summer Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  W.A.H. - Trip To Heaven  4:03
+02.  Gushi & Raffunk - Find Me  3:46
+03.  Luca Brunetti - Waiting For Summer  3:55
+04.  Klod Rights - Silent Valley  4:04(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34410E4A23F1E760B736894D33C764F04C1F5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150239   (595278) от 14.07.2017
+
+VA - 100% Super Hits (Summer '17) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Flight – Extasy (Latin Summer Mix) 06:17
+02. Lykov – I Can Live 04:36
+03. Richard Highway – Somebody 03:54
+04. DJ Favorite – Reach the Sky 03:59(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7ACDCC83E35094AEFC078A302B298B207B1A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233006   (595085) от 27.06.2018
+
+VA - The Gold Of Ibiza (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Of Love - Sixthy (Sugar & Club Saxy Mix) 2:56
+02. Jay Beach - Mr. DJ (Fine Gold Mix) 3:02
+03. House Defrag - Fight (Red Zone Mix) 2:47
+04. The Philosopher - Trumpet Ring (Vocatrumpa Ibiza Mix) 3:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19D9A1E4568FA9073BD11A2E8362C463025342B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232966   (595015) от 27.06.2018
+
+VA - 50 Hot Summer Tunes For Your Beachday (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leed - Clary 3:12
+02. Laura Nes - Crocodile 3:12
+03. Larry Hyde - Queen 3:12
+04. Klinikum - Barnet 3:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D1020258A2F63C1503EEDD1779F7327F6C15E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232790   (595006) от 27.06.2018
 
 VA - Italo Disco: Essential House Music (Compiled and Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <Euro-House, Eurodance>
@@ -6,7 +122,7 @@ VA - Italo Disco: Essential House Music (Compiled and Mixed by Gerti Prenjasi) (
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595006.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ganymede - Space and Time (2003) [MP3|320 Kbps] <Spacesynth, Italo-Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594993.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Xuji Sunset - Outrunner (2022) [MP3|320 Kbps] <Synthwave, Dreamwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594988.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Bronswick - Entre mes insomnies (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594985.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Serkan Eles - Belong to Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594973.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - 12.04, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594868.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Isidor - Portals & Dimensions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594865.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Perfect Day Chillout Music (2016) [MP3|320 Kbps] <Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594789.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Tomb of Primordials (from Tomb of.. Series by Cryo Chamber) (2022) [FLAC 2.
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594740.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Guattari - Determine (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Darkwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594578.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Groove Armada - Greatest Hits (2007) Compilation [MP3|320 Kbps] <Trip Hop, Downt
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594569.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - One Night In St. Tropez 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594070.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Destination Ibiza 2017 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594069.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Black Hole House Music 07-17 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594067.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Italo Dance Rimini 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594066.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Electro Summer 2017 [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594056.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Avicii Presents Strictly Miami (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594037.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Starlight - Faraway From Earth (2006) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594003.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Charlotte de Witte - New Form V: Universal Consciousness (2022-04-27) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593968.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2022-05-05) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593959.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Progressive House Destination Vol.2 (2017) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593918.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Armada Music - '90s / '00s Dance Hits Vol 1 (2022) [MP3|320 Kbps] <Funky, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593891.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Armada Music - '90s / '00s Dance Hits Vol 1 (2022) [MP3|320 Kbps] <Funky, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C07424B5BFF156A7331F2209B44E4D8B8B87C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150524   (593868) от 15.07.2017
-
-VA - Latin Fitness Workout 2017 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-David Pole – Join The Party (Extended Mix)
-02-Sapienza – Asere K Bola (Extended Mix)
-03-Mike De La Cruz – Pa’elante (Stephan F Remix)
-04-Ticli & Gas – Universo (Proyecto FM Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41A9A983DF177269A66D7B3DE0717E85E317079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549242   (593823) от 06.05.2022
-
-VA - Chill Out Vocal Trance 2022 [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Russell Raz Nitzan - Borrowed Time (Moonnight Remix) (4:00)
-02. Aurosonic Susana - Weather The Storm (Chill Out Mix) (6:14)
-03. Cathy Burton - Reach Out To Me (Sadege Chill Out Remix) (4:00)
-04. Bass Sky - Take Me Back (3:04)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC13B2685DAA0A4AF0941212A36FBC6119B0D63C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548382   (593810) от 06.05.2022
-
-VA - Ultra Music Festival Miami (2022) [MP3|320 Kbps, (V0)] <House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dom Dolla - Miracle Maker
-02. ID - ID
-03. Martin Ikin vs. Dom Dolla - Good Feelings vs. San Frandisco (Dom Dolla Edit)
-04. Dom Dolla - ID(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 66:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80FB0344DEE58F8AA9130111CA8D068A31F19DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233151   (593768) от 28.06.2018
-
-One Arc Degree - The Glow Beneath (2018) Synphaera Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Downtempo, Dub Techno, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Glow Beneath (06:20)
- 02. Seaweed Ecology (06:24)
- 03. Marine Snow (09:41)
- 04. Bathymetry (06:04)(   Читать дальше...   )Жанр: Downtempo, Dub Techno, AmbientПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1684E50587E1175A8200CD1D9CD040BE8627D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

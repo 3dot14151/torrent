@@ -6,7 +6,7 @@ iSkysoft Video Converter Ultimate 11.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366371.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Geekbench 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366369.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Leaf 5.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366368.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ WonderPen 1.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366364.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ MarsEdit 4 v4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366362.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_366277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366277.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Alfred 4 Powerpack 4.0.5 (1114) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366255.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ DrawPad Graphic Editor 5.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366252.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ KCNcrew Pack 10-15-18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366251.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Topaz Sharpen AI 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366249.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ ClearDisk 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366230.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ MacPilot 11 v11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366227.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366039.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Wondershare PDFelement Pro 7.3.1.2704 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366018.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Direct Mail 5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366014.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Adobe Media Encoder CC 2017 (11.0) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365904.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Disk Drill Enterprise 3.8.947 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365706.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Allegorithmic Substance Painter 2019 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365548.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Intensify CK (Pro) 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365494.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Vectoraster 7.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365476.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365401.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AnyTrans for iOS 8.8.0.202010012 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365380.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Flexiglass 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365340.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Espresso 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365314.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Twitterrific 5 for Twitter 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365310.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ SyncMate Expert 7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365305.jpg" />
 </div>
 
 

@@ -1,3 +1,85 @@
+###  Публикация: 1236033   (556202) от 15.07.2018
+
+Александр Диденко | Цикл «К-9: Обреченный жить» [2 книги] (2017-2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Империя не кормит лишние рты. Раз город не приносит пользы, он больше не нужен. Но обычным жителям знать об этом не стоит, и под уверенной дланью императора в полном молчании растут архивы «несчастных случаев».
+Славься! Славься Империя! Защита, надежда и опора в прокаженном догнивающем мире!
+Впрочем, бывают и те, кому везет выжить. Только что делать с этим «везением», (   Читать дальше...   )Жанр: Фантастика, Постапокалипсис, ПриключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AAC3E4B8BC92BBD0B86DF74EA20A45FAA616DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305690   (556042) от 01.06.2019
+
+Тайниковский | Цикл «В Логове паука» [3 книги] (2017-2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556042.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГлобалВиртТехнологии(ГВТ) совместно с "Бескрайним миром" запускает беспрецедентную акцию "Экспансия в неизвестность". Благодаря этой программе, многие наконец то смогли позволить себе купить вирткапсулу с полным погружением, но есть и одно большое НО! Участник программы очень рискует, ведь персонажа и его класс выбирает не покупатель капсулы, (   Читать дальше...   )Жанр: ЛитРПГ, Фэнтези, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7756AC42E2942DB06CD826CCF6B2F99E130472DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306074   (555894) от 02.06.2019
+
+Борис Конофальский | Хоккенхаймская ведьма (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Инквизитор»
+
+Дело, которое предложил барон Волкову, ему сразу не понравилось. Первое предложение кавалер отклонил, но барон не отступил, обещал золотые горы. Такие золотые, что отказаться было невозможно, ещё и денег вперёд дал. Рыцарь нехотя взялся за дело и поехал в город, где его ждали новые неприятности.Жанр: Боевое фэнтези, ГотикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11A56ADC48B8C2168DA1F18CA415BD291A76A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305987   (555879) от 02.06.2019
 
 Борис Конофальский | Мощи святого Леопольда (2019) [FB2]
@@ -6,7 +88,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555879.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555866.jpg" />
 </div>
 
 
@@ -62,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555163.jpg" />
 </div>
 
 
@@ -91,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555012.jpg" />
 </div>
 
 
@@ -119,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555009.jpg" />
 </div>
 
 
@@ -147,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555000.jpg" />
 </div>
 
 
@@ -174,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554655.jpg" />
 </div>
 
 
@@ -202,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554572.jpg" />
 </div>
 
 
@@ -230,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554403.jpg" />
 </div>
 
 
@@ -256,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554379.jpg" />
 </div>
 
 
@@ -282,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554333.jpg" />
 </div>
 
 
@@ -310,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554312.jpg" />
 </div>
 
 
@@ -339,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554308.jpg" />
 </div>
 
 
@@ -367,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554231.jpg" />
 </div>
 
 
@@ -395,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554230.jpg" />
 </div>
 
 
@@ -421,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554157.jpg" />
 </div>
 
 
@@ -449,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554093.jpg" />
 </div>
 
 
@@ -477,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553909.jpg" />
 </div>
 
 
@@ -503,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553784.jpg" />
 </div>
 
 
@@ -531,7 +613,7 @@ Amandir | Цикл «Путь Героя» [2 книги] (2018-2019) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553690.jpg" />
 </div>
 
 
@@ -557,7 +639,7 @@ Archer | Цикл «Пять Колец Света» [2 книги] (2018-2019) 
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553667.jpg" />
 </div>
 
 
@@ -583,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553575.jpg" />
 </div>
 
 
@@ -610,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553480.jpg" />
 </div>
 
 
@@ -621,89 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A45B899F2E4E271946D9F10FC01B61707894FBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308804   (553467) от 16.06.2019
-
-Андрэ Нортон | Избранные фантастические романы [cборник] (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник, содержит романы Андрэ Нортон - не вошедшие ни в один из циклов.
-Тем не менее, все произведения выдержали множество переизданий и пользуются у читателей неизменным успехом и востребованностью. Приятного чтения!Жанр: Космическая фантастика, ФэнтезиПеревод: Наталья Владимировна Резанова, Надежда Гайдаш, Дмитрий Арсеньев,
-Олег Эрнестович Колесников, В. Федоров, Ирина НепочатоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08DB7D3DEC69D28057EABCC93ED16BDDAC534CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308863   (553459) от 16.06.2019
-
-Александр Михайловский, Юлия Маркова | Цикл «Визит Полярного Лиса» [2 книги] (2018-2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553459.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Галактической войны на Великую Отечественную. Сталинский СССР как предтеча Советской Галактической Империи С момента основания Русской Галактической Империи, минул 221 год. Разведывательно-ударный крейсер «Полярный Лис» уходит в рейд, чтобы найти и уничтожить важный объект врага. И вот, уже после выполнения миссии в момент прыжка рядом с крейсером разрывается гравитонная (   Читать дальше...   )Жанр: Космическая фантастика, Альтернативная история, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23AD6A615711A20DC75B9C5D1AA9E5C48EBDFE92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237143   (553206) от 22.07.2018
-
-Игорь Конычев | Полет валькирии (2018) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Полет валькирии».
-
-У богов свои причуды!
-Кристина - обычная девушка из нашего времени - и подумать не могла, что её жизнь изменится с ударом молнии, когда она окажется в чуждом для себя мире, где правят сталь и жестокость.(   Читать дальше...   )Жанр: Фэнтези, Попаданцы в магические миры, МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68894185ED6D957B0EA21F3C4DE0174F7AEEDA6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

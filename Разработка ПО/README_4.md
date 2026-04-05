@@ -6,7 +6,7 @@ JetBrains PhpStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255358.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Jetbrains IntelliJ IDEA Ultimate 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255355.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ JetBrains PyCharm Professional 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255353.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Java SE Development Kit 8.0.341 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249585.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ PowerShell Studio 2022 v5.8.202 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245271.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Lahey/Fujitsu Fortran 7.9 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243389.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Code Composer Studio 12.2.0.00009 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241408.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Resource Tuner Business 2.23.0.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233584.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ IBM Rational Software Architect 9.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223031.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Developer Express VCL for Delphi 14.2.2 Full Sources для IDE Delphi 7 - XE7 [
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221595.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Intel Parallel Studio XE 2017 Update 1 Cluster Edition [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215369.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ JetBrains Rider 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213478.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ WYSIWYG Web Builder 17.3.1 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213146.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212527.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ JetBrains GoLand 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212521.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ JetBrains PhpStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212514.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ JetBrains PyCharm Professional 2025.2.4 (x64-arm64) Repack by IFE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212505.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ JetBrains RubyMine 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212499.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Jetbrains WebStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212489.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ JetBrains DataSpell 2025.2.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212487.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ JetBrains CLion 2025.2.4 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212483.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ JetBrains RustRover 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212481.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.19 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212129.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ JetBrains DataSpell 2022.1.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211806.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ PSPad 5.0.7 Build 775 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209180.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ SynWrite 6.41.2780 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209104.jpg" />
 </div>
 
 

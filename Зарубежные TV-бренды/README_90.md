@@ -6,7 +6,7 @@ History Channel: Хит-парад древности. Первая десятк
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365550.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ History Channel: Хит-парад древности. Первая десятк
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365420.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365203.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NG: Секретные материалы древности. Кровь Хри�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365186.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364802.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NGW: Остров муссонов. Слоненок Лока / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364093.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NG. Миссия на Марс / Ultimate Mars Challenge (2012) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363970.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NG. Вся правда о ледяном человеке / Iceman Autopsy (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363835.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NGW: Остров муссонов. Королева Яла / Island of the Mons
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363832.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Animal Planet: В дебрях Латинской Америки / Wildest Latin
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363827.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363793.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Animal Planet: Неизведанный Индокитай / Wildest Indochina (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363621.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363614.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362878.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362461.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Animal Planet. Древо жизни / Africa's Trees of Life (2015) HDTV [H.264
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361367.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Animal Planet. Другой Китай с Найджелом Марвеном / 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361242.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Animal Planet: В дебрях Индии / Wildest India (2011) HDTV [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361241.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Animal Planet. Смертельные острова / Deadly Islands (2014) HDT
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361237.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Animal Planet: Планета мутантов (Жизненная сила) / M
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361016.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Animal Planet: Неизведанные острова / Wildest Islands (2012-2
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361015.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359969.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359876.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359366.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Discovery. Жизнь и смерть на Эвересте / To Live or Die on 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359245.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359023.jpg" />
 </div>
 
 

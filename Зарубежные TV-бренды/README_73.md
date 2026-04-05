@@ -6,7 +6,7 @@ NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533142.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532054.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531456.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529893.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Строительство тоннеля / Building the Channel Tunnel (201
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529002.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Атака нильского крокодила / Africa's Croc Attack (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528618.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery. GameStop: вызов Уолл-стрит / GameStop: The Wallstreet H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528587.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Живой мир. Шри-Ланка: Остров слонов / Sri Lanka
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528113.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC. Horizon: Тайны солнечной системы / Secrets of the Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527914.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Discovery: Кто подставил Иисуса? / Who Framed Jesus? (2010) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527305.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BBC. Чудеса животного мира / The Wonder of Animals (2014) SAT
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527211.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526975.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526966.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Смертельный бой динозавров / Dino Death Match (2015)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526538.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Discovery: Неизвестная история Египта / The Hidden Histo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526032.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525954.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC: Невидимое простым глазом / Da Vinci Learning: BBC: Be
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524910.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524331.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Animal Planet. Амба, русский тигр / Amba the Russian Tiger (2008)
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523565.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522866.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC: Сокровища Древнего Египта / Treasures of Ancient Egy
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522399.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTVRip (�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522285.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522002.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Discovery. Фальсификация: Дональд Трамп / Donald Trump:
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521818.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Discovery: Расследование заговоров. Проверка фа�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521124.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ DV: NOVA. Расширение вселенной / Runaway Universe (2000) SATR
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520858.jpg" />
 </div>
 
 

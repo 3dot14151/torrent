@@ -1,3 +1,82 @@
+###  Публикация: 1736064   (50334) от 11.07.2024
+
+Б.В. Иоффе | Рефрактометрические методы химии (1974) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой наиболее полную в мировой литературе сводку приложений рефрактометрии в различных областях химии и важнейших методов измерения показателей преломления с подробными указаниями по технике эксперимента.
+Монография предназначается для химиков-исследователей всех специальностей, а также для сотрудников производственных лабораторий химической, (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD1452CD71698AA8262C2B17D4B0766210DF9B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736062   (50333) от 11.07.2024
+
+Б.В. Иоффе | Руководство по рефрактометрии для химиков (1956) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит изложение основ теории и устройства различных типов рефрактометров предельного угла полного внутреннего отражения. Дается подробное описание ряда новых конструкций, главным образом отечественных. Особое внимание уделяется технике измерений и проверке приборов. Рассматриваются применения рефрактометрии в различных областях химии и в техническом анализе. (   Читать дальше...   )Жанр: ХимияИздательство: Издательство Ленинградского университетаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A54991F63940A7EF332D5C442B07C44A2EA3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738009   (49395) от 20.07.2024
+
+Ч.Г. Эдвардс, Д.Э. Пенни | Дифференциальные уравнения и краевые задачи: Моделирование и вычисление с помощью Mathematica, Maple и MATLAB (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный учебник представляет собой весьма полный современный вводный курс обыкновенных дифференциальных уравнений. Довольно подробно освещены все темы, затрагиваемые в классических вводных курсах, включая применение матричных методов, операционного исчисления, степенных рядов и рядов Фурье. Не обойдены вниманием и современные исследования в области дифференциальных (   Читать дальше...   )Жанр: МатематикаИздательство: ВильямсФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B93D2DF709942277220C76570B16FFDEEF3453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598856   (48354) от 31.07.2024
 
 Книжная серия | Справочная математическая библиотека (1961 - 1991) [DJVU]
@@ -6,7 +85,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48354.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47900.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47032.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46951.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46709.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46189.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45067.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44182.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44098.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42709.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42635.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42435.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42225.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41998.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41946.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41353.jpg" />
 </div>
 
 
@@ -432,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37846.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37754.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37468.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37412.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36963.jpg" />
 </div>
 
 
@@ -565,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36954.jpg" />
 </div>
 
 
@@ -591,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36652.jpg" />
 </div>
 
 
@@ -603,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48805B9951D411ADABE4B9957FD74086818FBC2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762095   (36380) от 23.11.2024
-
-П.Н. Шаныгин | Как производятся поиски и разведка золота (1934) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это оцифрованное издание раритетной книги-руководства содержит самые необходимые сведения, которые должен был усвоить каждый старатель - золотничник. За основу в ней выбран опыт инженеров, много лет проработавших в золотой промышленности. В издании подробно раскрываются темы: о золоте, о видах золотых месторождений и их образованиях, поисках и разведки месторождений (   Читать дальше...   )Жанр: геология, золотодобычаИздательство: ОНТИ НКТП СССРФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0067D7437404BF6251683A9C80CCEF9AC7A56887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762426   (36175) от 25.11.2024
-
-В.А. Нарсеев | Промышленная геология золота (1996) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36175.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены различные проблемы геологии золота и его практического применения. Работа включает исторический очерк золотодобычи в мире и в России - в частности, сведения о торговле и потреблении этого металла. Основная часть книги посвящена геологии золоторудных месторождений Мира, особое внимание уделено зональности, которая является основой дня научного (   Читать дальше...   )Жанр: геология, полезные ископаемые, золотоИздательство: Научный мирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672FE5DCD6BD5FB99C4509E63038FC52E2CA0C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763080   (35745) от 29.11.2024
-
-Ю.К. Кокурина, М.А. Антонова (сост.) | Помощь первокурсникам. Математика и физика (2024) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составлено на основе задач вступительных экзаменов последних 15 лет. Содержит необходимый справочный и теоретический материал, разбор решений типичных примеров и задания для самостоятельного решения. Может быть использовано для подготовки к экзаменам при поступлении в вузы.
-Предназначено для самостоятельной подготовки выпускников школ, лицеев, колледжей к вступительным (   Читать дальше...   )Жанр: учебное пособиеИздательство: ВлГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EE1CB13BB4B7988A8CEE8A19FB835B9385E1EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

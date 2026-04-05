@@ -1,136 +1,3 @@
-###  Публикация: 987013   (927675) от 16.02.2016
-
-Э. Кольман | История математики в древности (1961) [DJVU, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927675.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержится обзор развития математики у народов, создавших древнейшие цивилизации (египтяне, вавилоняне, финикияне, евреи, майя, инки, ацтеки), в Древней Греции, эллинистических государствах и странах Римской империи. Настоящая книга и книга А. П. Юшкевича «История математики в средние века» (1961 г.); составляют общий труд, название которого — «Математика (   Читать дальше...   )Жанр: История, математика, педагогикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0744C88FFE1536C9944D2971612B40B1302BEB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094779   (927671) от 19.01.2017
-
-Сергей Цветков | Древняя Русь. Эпоха междоусобиц. От Ярославичей до Всеволода Большое Гнездо (2016) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного писателя и историка С.Э.Цветкова посвящена эпохе расцвета Древней Руси (XI-XIII вв.). Автор показывает это время во всем его сложном противоречии: с одной стороны - бесконечные княжеские распри, с другой - настойчивое стремление великих представителей древнерусской государственности объединить страну. Цветков подробно прослеживает постепенное угасание (   Читать дальше...   )Жанр: История, этнографияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF52328B01367C13334F6C9E48873626E066ABD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094773   (927663) от 19.01.2017
-
-Сергей Цветков | Начало русской истории. С древнейших времен до княжения Олега (2016) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный писатель, автор многочисленных научно-популярных книг и статей, историк С. Э. Цветков предпринимает попытку дать целостную картину хода русской истории, которая отвечала бы современному уровню исторического знания. В книге рассматриваются вопросы древнеславянской истории и возникновения Русской земли. Большое место в книге уделено связям славянства со многими (   Читать дальше...   )Жанр: История, этнографияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD643F1607DF88089076E03EA1D097E2DA0DECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094985   (927661) от 19.01.2017
-
-Сергей Цветков | Русская земля. Между язычеством и христианством. От князя Игоря до сына Святослава (2016) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный писатель, автор многочисленных научно­популярных книг и статей, историк С.Э.Цветков детально воссоздает картину основания династии великих киевских князей Рюриковичей, зарождения русской ментальности, культуры, социального строя и судопроизводства. Автор предлагает по­-новому взглянуть на происхождение киевской династии, на историю крещения княгини Ольги (   Читать дальше...   )Жанр: История, этнографияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CDF4E7ED342A5C0F7B05E302BD360819857746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986949   (927633) от 16.02.2016
-
-Л. Н. Колосова (ред.) | Гвинея. Общегеографическая карта (1990) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927633.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Гвинеи с административным делением (масштаб 1:1 250 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF932B85BB6E9930EE3825B4CB6B9FC4BFBDBD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987003   (927630) от 16.02.2016
 
 Н. М. Качалина (ред.) | Гвинея-Бисау. Справочная карта (1978) [JPG, PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927630.jpg" />
 </div>
 
 
@@ -168,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927164.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927150.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927089.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927068.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927043.jpg" />
 </div>
 
 
@@ -299,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927033.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927004.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926896.jpg" />
 </div>
 
 
@@ -380,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926877.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926796.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926618.jpg" />
 </div>
 
 
@@ -458,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926467.jpg" />
 </div>
 
 
@@ -484,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926192.jpg" />
 </div>
 
 
@@ -510,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926055.jpg" />
 </div>
 
 
@@ -536,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925977.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925957.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925954.jpg" />
 </div>
 
 
@@ -617,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925842.jpg" />
 </div>
 
 
@@ -643,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925829.jpg" />
 </div>
 
 
@@ -671,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925822.jpg" />
 </div>
 
 
@@ -684,6 +551,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AAA5D268F499B6C432857166FF47DD451210FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366214   (925520) от 10.03.2020
+
+Аркадий Вёрткин, Елена Силина | Головокружение. Руководство для практических врачей (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925520.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поликлинику обращаются пациенты с самыми разнообразными жалобами и симптомами, и среди них головокружение – третья по частоте, после головной боли и боли в спине, причина обращений за медицинской помощью. Описано более 80 заболеваний и патологических состояний, при которых возникает головокружение, в 20 % случаев имеется сочетание нескольких причин. Именно поэтому (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9EC7ECA6D7CCFD1EF1FC335434D6971D7963E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366066   (925395) от 10.03.2020
+
+Ричард Престон | Эпидемия. Настоящая и страшная история распространения вируса Эбола (2020) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда случается страшная эпидемия, все мы становимся равны перед вирусом. И даже в наше время, в век высоких технологий и открытий в медицине, появление нового вируса вызывает страх и панику… по крайней мере, в самом начале. Мы не можем контролировать все вокруг, но мы должны знать, как вирусы проявляют себя, как они размножаются, где их слабые места, и как нам уберечь (   Читать дальше...   )Жанр: Популярно о медицине, Вирусология, ЭпидемиологияПеревод: Н. ВершининаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9808DF3F02475CA6E66089866D05BF8884CD2317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366068   (925326) от 10.03.2020
+
+А.В. Параскевов, В.И. Лойко | Микроэлектроника и схемотехника (2019) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материалы учебника являются результатом многолетнего изучения проблем низкоуровневых языков программирования и направлены на освоение ключевых характеристик и технических особенностей микропроцессоров и в целом микроэлектронной техники и компонентов.
+Несмотря на то, что современной микроэлектронике и схемотехнике в последние годы уделяется недостаточно внимания, (   Читать дальше...   )Жанр: Компьютерная литература, электроникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6299748FE4F04582FEE73E5DF8A8766333E5C34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631422   (924968) от 17.03.2013
+
+Юрий Романовский, Алекcей фон Шварц | Оборона Порт-Артура (2 книги) [1908-1910] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военно-историческая хроника обороны Порт-Артура. Из предисловия: «Мы решились взять на себя смелость составить описание этой исторической обороны, возстановивъ, по мере возможности, какъ по имеющимся въ нашем личном распоряженiи документам, такъ и по личным воспоминанiямъ, весь ходъ обороны крепости, начиная с первого боевого выстрела на Дальнем Востоке.»Язык: Русский (старая орфография)Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278E369509F5EA1CDEED488E720B1526EEC62C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987844   (924607) от 18.02.2016
+
+З. Лозинский | Экономическая политика Временного правительства (1929) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача настоящей работы - выяснить характер и социальные корни экономической политики Временного правительства. Выдвигая на первый план вопросы экономической политики, мы считаем необходимым, для лучшего уяснения проблемы, уделить известное место и данным, дающим представление об общем состоянии народного хозяйства в интересующий нас период.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63E7093D148CEEB52B1C4B2EF114BAAEA454782
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 550836   (455068) от 23.09.2012
+
+Tony Hawk's Pro Skater HD [En] (Repack/1.0) 2012 | R.G. Element Arts
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы наверняка слышали это имя - Tony Hawk's. Да, это тот самый парень, который 43 года крутит indie 900 и является живой легендой в мире скейтбординга. Вы должны также знать, что симуляторы под маркой Tony Hawk's является одной из самых продаваемых в мире. Pro Skater HD это реинкарнация сразу двух первых частей. Лучшие уровни, лучшие трюки, лучшая музыка и новая доработанная HD обертка. Игра открывает традиционно для Microsoft акцию - Лето аркад. Кто знаком с оригиналом, мгновенно признает старую добрую классику, достаточно прокатиться на знаменитом уровне "Ангар", где ценится Grind, разбивание стекол и прыжки. Вызывают ностальгию и разбросанные буквы из которых можно составить слово Skate, а отсутствие некоторых современных приемчиков вроде Revert, который появился в третьей части воспринимается с улыбкой. Здесь и без этого полно фана.
+
+Акцент как и раньше, сделан на двухминутные заезды и выполнения небольших заданий. Например просят собрать слово Skate или найти спрятанные DVD, а в предыдущих частях игры необходимо было искать кассеты. Само собой есть испытания на очки, баллы даются за непрерывное комбо и за всевозможные трюки.
+
+Крутые финты вам придется приобретать в специальном магазине, там же улучшаются характеристики скейтеров. В качестве валюты - доллары. Их можно заработать выполнив карьерные задания. Кроме карьеры, есть свободное катание без ограничения времени, а также мультиплеер.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Sport (Extreme sports) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AC905AEA5B0D166F60FBF3DBD84692A82609EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942218   (454996) от 30.09.2015
+
+Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [En] (1.0) License CODEX
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет Героев VII повествует о кровавой войне, которая привела к смене правящей династии Священной Империи. После смерти императрицы страна полыхает в пламени раздора: многочисленные противники сражаются за трон. В это время герцог Иван созывает шесть доверенных советников. Этот совет призван помочь ему выбрать правильный путь, чтобы положить конец войне за престолонаследие. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Limbic EntertainmentЖанр: Strategy (Turn-based) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32041947B7A7B2B4484E8490A5BBF18ADC923C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942308   (454994) от 30.09.2015
 
 Jotun (2015) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +62,7 @@ Jotun (2015) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454994.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ F1 2012 [Ru/En] (RePack/1.0) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454877.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ F1 2012 [Ru] (Repack) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454666.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ DogFight 1942 [Ru/En] (Lossless Repack/1.0) 2012 | SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454665.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ SolSuite Solitaire 2020 (2020) [Ru/En] (20.9) Repack/Portable elchupacabra
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453303.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453119.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ Spec Ops: The Line + 2 DLC [Multi6/+] (L/u2) 2012 l SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452338.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ Borderlands 2 [Ru] (Repack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452335.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ Spec Ops: The Line [Ru] (RePack/1.0u2) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452331.jpg" />
 </div>
 
 
@@ -252,7 +308,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (1.2.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452259.jpg" />
 </div>
 
 
@@ -278,7 +334,7 @@ Stardew Valley (2016) [En] (1.11) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452254.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ Royal Quest: Время Крабить (2012) [Ru] (1.0.062) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452245.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ Tom Clancy's Ghost Recon: Future Soldier [PS3] [NTSC] [ENG] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452221.jpg" />
 </div>
 
 
@@ -356,7 +412,7 @@ Borderlands 2. Premium Club Edition [Ru/En] (RePack/1.0u1) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452142.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ Pro Evolution Soccer 2013 [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452139.jpg" />
 </div>
 
 
@@ -414,7 +470,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452135.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ Spec Ops: The Line [Ru/En] (Rip/u2) 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452122.jpg" />
 </div>
 
 
@@ -469,7 +525,7 @@ SolSuite Solitaire 2020 (2020) [Ru/En] (20.9) Repack/Portable TryRooM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451286.jpg" />
 </div>
 
 
@@ -495,7 +551,7 @@ The Walking Dead: Episode 1, 2, 3 (RePack) [Ru/En] 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450034.jpg" />
 </div>
 
 
@@ -525,7 +581,7 @@ Spec Ops: The Line + 2 DLC [Ru] (Rip/1.0.6890.0/u2) 2012 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449786.jpg" />
 </div>
 
 
@@ -553,7 +609,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru/En] (RePack/1.4) 2012 l R.G. Мех
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449778.jpg" />
 </div>
 
 
@@ -581,7 +637,7 @@ Iron Brigade [Ru] (RePack/1.0/DLC) 2012 | bolshak
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449040.jpg" />
 </div>
 
 
@@ -607,7 +663,7 @@ Age of Wonders 3/III (2014) [Ru/Multi] (1.700/dlc) SteamRip Let'sРlay [Deluxe E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448427.jpg" />
 </div>
 
 
@@ -633,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447559.jpg" />
 </div>
 
 
@@ -646,58 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C9D8BC4599DD468920CFA1C24DB304683EF312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242592   (447414) от 07.10.2010
-
-Disciples III: Renaissance / Disciples 3: Ренессанс [Ru] (Repack/1.05HF) 2010 | Fenixx
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение культовой игры. Игроки снова вернутся в мир под названием Невендаар, который с момента выхода последней части серии претерпел значительные изменения. Переехал в полное трехмерье, обзавелся динамическим изменением погодных условий и времени суток. Как и прежде, перед игроком встанет проблема выбора, какую же расу вести к победе – на выбор представлены люди, эльфы и демоны. Ролевая сторона Disciples 3 тоже пережила определенные метаморфозы. Отныне любая вещь экипировки, одетая на героя, будет отражаться на нем визуально. Боевая система также подверглась тщательному и всестороннему изучению, в результате чего воины научились двигаться по полю боя и атаковать противника при помощи магии или оружия. Арены же всегда уникальны, так как генерируются случайным образом – двух одинаковых полей сражений вы вряд ли увидите.Жанр: Стратегии
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943530   (446793) от 04.10.2015
-
-Ninja Pizza Girl (2015) [En] License HI2U
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446793.jpg" />
-</div>
-
-
-###  Подробнее
-
-При ближайшем рассмотрении геймплея оказалось, что Ninja Pizza Girl - это многоэтажный сайд-скроллерный платформер. Игровой процесс построен на скоростном перемещении по крышам, балконам, мансардам, карнизам домов в городе недалёкого будущего. При этом всё игровое окружение разработчики оформили в неоновом светеТип издания: ЛицензияРазработчик: Disparity GamesЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E860E7A72AC5A555D4710A870188C2D66F81B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

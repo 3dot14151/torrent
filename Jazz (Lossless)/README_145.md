@@ -6,7 +6,7 @@ Braff Oester Rohrer - The Tide Is In (2001) [FLAC|Lossless]<Bebop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571577.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Brecker Brothers - Out of the Loop (1994) [FLAC|Lossless]<Jazz-Funk, Jazz-Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571292.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571187.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Brian Simpson - Above The Clouds (2007) [APE|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571163.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571151.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Kenny Barron Quintet - Concentric Circles (2018) Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571147.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Take 6 - Iconic (2018) SoNo Recording Group [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570963.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Michael Garrick Sextet - Promises (1965) 2008, Vocalion [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570834.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Gerry Mulligan Quartet - What Is There To Say (1959) Remaster, 2014, Sony Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570832.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Cynthia Tauro - Moments (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570829.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570751.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Herbie Hancock - Thrust (1974) 2016, Audio Fidelity [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570719.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Shorty Rogers - The Fourth Dimension In Sound (1961) /2014, Warner/[FLAC|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570046.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569567.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Jelly-Roll Morton - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569496.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Boris Frumkin & Sergei Zhilin - Solo In Four Hands (2003) [FLAC|Lossless]<Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569493.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Jeremy Pelt - Jeremy Pelt The Artist (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569429.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Brad Rambur - Can't Put It Down (2010) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569370.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Steve Gadd - Band (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569324.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Pepper Adams - Hollywood Quintet Sessions (1957) 2008, Fresh Sound Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569267.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ The Jimmy Giuffre - 3 (1956) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569263.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Egberto Gismonti - Em Familia (1981) EMI[FLAC|Lossless|tracks + .cue] <World Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569262.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Nora McCarthy & The People Of Peace Quintet - Blessings (2016) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569261.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Tara Kannangara - Some Version Of The Truth (2015) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569258.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Reuben Wilson - The Sweet Life (1974) 2006, Groove Merchant[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569257.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ Robin McKelle - The Looking Glass (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569106.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 342078   (659069) от 27.05.2011
-
-BluScenes: Gallery Moderna (2010) [DTS-ES 6.1 44.1/24|image+.cue (Blu-ray)] <Lounge, Relax>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_659069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scene 01  17:30
-02.  Scene 02  14:59
-03.  Scene 03  15:01
-04.  Scene 04  15:00(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903609   (657863) от 31.05.2015
 
 Зоопарк - Белая Полоса (1984) /1988, Мелодия/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657863.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Opus - Live Is Life (1984) [WavPack 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657803.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Aphex Twin - London 03.06.17 (2017) Warp Records [FLAC|48/24|Lossless|tracks] <I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657799.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Paul Mauriat - Holidays & Penelope (2017) 1972-73 [DTS 4.0 CD-DA|44.1/16|image+.
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656456.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Cream - The Best Of Cream Live (1972) 2LP, Compilation, Reissue, Repress 1975 [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656074.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Rolling Stones - Exile On Main St (1972) 2LP, Reissue 1983 [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656048.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655727.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655725.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Yehudi Menuhin - Stephane Grappelli - Tea for two (1978)  [FLAC 2.0 24/96|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655621.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653000.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651363.jpg" />
 </div>
 
 
@@ -360,7 +331,7 @@ U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650918.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ The Alan Parsons Project - Pyramid (1978) [FLAC 2.0 24/96|image (Vinyl-Rip)] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649060.jpg" />
 </div>
 
 
@@ -418,7 +389,7 @@ M.A.S.S. – Mysteria: An Electronic Journey Into Sound. 3 discs (2006) [DTS 5.1
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647073.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ Matthew Lien – Arctic Refuge (2004)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <N
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645567.jpg" />
 </div>
 
 
@@ -476,7 +447,7 @@ Jean Michel Jarre - Equinoxe (1978) [LPCM 2.0|192/24|Vinyl-Rip] <Electronic, Amb
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645261.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ Phil Collins & Genesis - Collection (11 Albums) (1981 - 2010) restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644503.jpg" />
 </div>
 
 
@@ -534,7 +505,7 @@ The Rolling Stones - Metamorphosis (1975, 2002 Remaster) [DSD 2.0 1/2,8224 MHz |
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642757.jpg" />
 </div>
 
 
@@ -569,7 +540,7 @@ Uriah Heep - Look at Yourself (1971, 2011 Remaster) [DSD 2.0 1/2,8224 MHz | SACD
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642587.jpg" />
 </div>
 
 
@@ -601,7 +572,7 @@ Thomas D. A. Tellefsen: Complete Works - 2L Audiophile Reference Recordings (201
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639672.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639015.jpg" />
 </div>
 
 
@@ -656,7 +627,7 @@ Quiet Riot - QR III (1986)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638409.jpg" />
 </div>
 
 
@@ -685,7 +656,7 @@ The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634547.jpg" />
 </div>
 
 
@@ -714,7 +685,7 @@ Mickey Hart - The Best of Mickey Hart: Over the Edge and Back (2002) [DTS 5.1 CD
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634132.jpg" />
 </div>
 
 
@@ -743,7 +714,7 @@ Henry Mancini - The Return of the Pink Panther & Symphonic Soul (2017) 1975 [DTS
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633541.jpg" />
 </div>
 
 
@@ -757,6 +728,35 @@ The Return of the Pink Panther
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E920CC869DD5F3028EDFA61E469B633DC14488B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543215   (631375) от 10.04.2022
+
+Аида Ведищева и Ансамбль п/у В. Людвиковского - Александр Зацепин – Музыка Из Кинофильма «Кавказская Пленница» (1967) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack, Theme, Score>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631375.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Аида Ведищева – Песенка О Медведях
+А2 Ансамбль под упр. В. Людвиковского – Дорога
+В1 Ансамбль под упр. В. Людвиковского – Встреча
+В2 Ансамбль под упр. В. Людвиковского – На Танцевальной Площадке(   Читать дальше...   )Жанр: Soundtrack, Theme, ScoreПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

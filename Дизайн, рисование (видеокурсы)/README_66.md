@@ -1,3 +1,57 @@
+###  Публикация: 1578862   (207345) от 25.09.2022
+
+MographPlus, Kamel Khezri | Advanced 3d motion graphics in Cinema 4d and Realflow (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207345.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой серии уроков продолжительностью более 3 часов мы будем учиться создавать сложную 3D моушн-графику в Cinema 4D и Realflow.
+Это один из тех курсов, в котором мы с начала и до конца работаем над одним проектом.
+Сначала мы импортируем логотип из Adobe Illustrator в Cinema 4D. В Cinema 4D мы создадим трехмерную версию логотипа и импортируем ее в Realflow, чтобы (   Читать дальше...   )Производство: MographPlusЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4092A5FD3D686D0A52180F3D7A2659F59406CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578962   (207323) от 25.09.2022
+
+Udemy, Arrimus 3D | Arrimus Ultimate 3D Modeling Course (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207323.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы узнаете, как работать с полигонами, скульптингом и CAD, в программах 3D моделирования, чтобы получить лучшее из всех миров. Особое внимание уделяется использованию самых сильных сторон всех программ, чтобы получить максимальную отдачу от вашего опыта 3D-проектирования. Вы научитесь работать на хорошем уровне в 3D Studio Max, Blender, Zbrush и Plasticity. (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 13:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A463794679B336F4F613DC29726C8F03A3E10C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579190   (207266) от 26.09.2022
 
 CG Cookie, Jonathan Lampel | PRESS START: Your Simple First Blender Project (2022) PCRec [EN]
@@ -6,7 +60,7 @@ CG Cookie, Jonathan Lampel | PRESS START: Your Simple First Blender Project (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207266.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207091.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207064.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ Ground Control, Casey Faris | Pro Editing Workflow in DaVinci Resolve (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206970.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206951.jpg" />
 </div>
 
 
@@ -146,7 +200,7 @@ Flipped Normals, Nexttut, Abraham Leal | Complete Guide to Marmoset Toolbag 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206671.jpg" />
 </div>
 
 
@@ -174,7 +228,7 @@ Gumroad, Mohammad Fakhri | Texturing And Shading Realistic Skin In Maya Mari And
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206625.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ Artstation, Florian Neumann |  Stylized Game Character (2022) PCRec [Tutorial] [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206543.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ Lectoroom, Елена Базанова | Зимний этюд акварель�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205811.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ Udemy, Victory 3D, Corazon Bryant | Female Game Character Creation in Blender Co
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205579.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ The Gnomon Workshop, Nick Reynolds | Creating Props for Games (2017) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205480.jpg" />
 </div>
 
 
@@ -307,7 +361,7 @@ The Gnomon Workshop, Kristin Farrensteiner | Creating Creature Hair & Fur Grooms
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205477.jpg" />
 </div>
 
 
@@ -333,7 +387,7 @@ Cubebrush, Marc Brunet | Ultimate Career Guide: 3D Artist Part 1-7 (2018) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205383.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ Udemy, Nexttut, Nikolay Naydenov | Male Character Creation in Zbrush (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205288.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ Udemy, Ali Ncir | Blender 2.8 and Substance Painter - 3D Modeling Game Assets (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204934.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ Udemy, Jose Moreno | Blender & Substance - Modeling and Texturing Videogame Prop
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204925.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204867.jpg" />
 </div>
 
 
@@ -467,7 +521,7 @@ YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204855.jpg" />
 </div>
 
 
@@ -493,7 +547,7 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204854.jpg" />
 </div>
 
 
@@ -520,7 +574,7 @@ Udemy, Sime Bugarija | Complete Blender beginner workflow for Cinematic animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204828.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ Skillshare, Harry Jones | Blender 3D for Beginners: Create a 3D Vaporwave Animat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204768.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ Outgang, Laura Gallagher | Outgang - Become a Better Character Artist (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204258.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ Udemy, Hamidreza Afshari | Texturing a Scene with Substance 3D Painter (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204127.jpg" />
 </div>
 
 
@@ -630,7 +684,7 @@ Saif Alshrideh | The Ultimate weapon course (Create Sniper in Blender 3.4 ) (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204119.jpg" />
 </div>
 
 
@@ -644,60 +698,6 @@ Saif Alshrideh | The Ultimate weapon course (Create Sniper in Blender 3.4 ) (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2ED35600BF86EE3C80362C0C1C99E7D4E397BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575953   (204104) от 13.01.2023
-
-Artstation, Tyler Smith | Intro to UE4 lighting Exterior and Interior (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный разбор создания освещения для внешней и внутренней сцен в UE4. Начнем с показа динамической версии построения сцены при помощи направленного света, объемного тумана по высоте и небесного света. Затем перейдем к настройке сцены при помощи системы запечения освещения UE4 и разбора того, как изменять результаты и находить проблемные места, которые могут возникать (   Читать дальше...   )Производство: ArtstationЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455DEC81AEE4E03D9B20172544D868F886DAFE99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604620   (204062) от 14.01.2023
-
-ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full Process (2019) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204062.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы создадим Sci-Fi ящик.
-Мы начнем с нуля и сначала создадим высокополигональную модель. После этого мы преобразуем его в оптимизированную игровую сетку и создадим несколько UV. Затем я покажу вам, как создавать удивительные текстуры с помощью Substance Painter и сделаем рендер в Marmoset Toolbag.
-В конце мы сделаем небольшую голографическую анимацию, (   Читать дальше...   )Производство: ArtStationЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7C8D53514CC155CBE0A366A6FEF5A696879075
 ```
 
 https://mybot314.ru/tekegram_catalog/

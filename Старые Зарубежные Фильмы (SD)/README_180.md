@@ -1,3 +1,133 @@
+###  Публикация: 1661145   (188867) от 14.09.2023
+
+Там, где река становится черной / Where the River Runs Black (1986) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в Бразилии. Индейский мальчик Лазаро осиротел в четыре года и до десяти лет прожил один в сельве. Его ловят и отправляют в приют. В приюте одичавший мальчишка постепенно возвращается в человеческое общество, заводит друзей. Но однажды Лазаро встречается с человеком, который убил его мать...Производство: США / CBS Entertainment Production, Metro-Goldwyn-MayerЖанр: приключенияРежиссер: Кристофер КэйнАктеры: Чарльз Дёрнинг, Алессандро Рабело, Аджай Найду, Дивана Брандау, Питер Хортон, Кастуло Герра, Кончата Феррелл, Дана Дилейни, Чико Диас, Марсело РабелоПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE0444CE6E5EC90940DD0447A11880B14FF9A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590648   (188858) от 14.11.2022
+
+Чарли Чейз. Старый морской волк / The Old Sea Dog (1922) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш Снаб потомственный моряк, бравый капитан славного корабля с романтическим названием "Eczema". Нет сомнений, что он преодолеет все рифы и бури жизненного моря. Тем более, что ему помогает такая очаровательная и находчивая попутчица.Производство: США, Hal Roach Studios Inc.Жанр: комедия, короткометражный, немое киноРежиссер: Чарли ЧейзАктеры: Снаб Поллард, Мери Москини, Ной Янг, Джордж РоуПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AFA55BB4C0FD1C3F4182498ABCD4C85FB0C039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590563   (188829) от 14.11.2022
+
+Возвращение женщины-паука / The Spider Woman Strikes Back (1946) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая женщина приезжает в маленький городок, чтобы работать секретарём у слепой женщины, самого богатого человека в городе. Город окутан тайной из-за необъяснимой гибели скота местных скотоводов. Молодая женщина запутывается в паутине ужаса, когда обнаруживает, что её работодатель с домашним слугой используют кровь тех, кто был до неё, для создания сыворотки смерти, (   Читать дальше...   )Производство: США, Universal PicturesЖанр: ужасы, драма, триллерРежиссер: Артур ЛюбинАктеры: Гэйл Сондергаард, Бренда Джойс, Кирби Грант, Милберн Стоун, Рондо Хаттон, Хобарт Кавано, Рут Робинсон, Адда Глисон, Луис Остин, Том ДэйлиПеревод: любительский одноголосый (Horror Maker)Субтитры: английскиеПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236FC517C7AB8E35A7E62949F71D75DC062D7BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590581   (188787) от 14.11.2022
+
+Я ничего не знаю, но скажу всё / Je sais rien, mais je dirai tout (1973) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пьеру уже 33 года, но он до сих пор не решил кем стать. По правде сказать, он - один из тех, кто в принципе не обязан выбирать свой жизненный путь, потому что отец Пьера - оружейный магнат Гасти-Леруа. И папа уже давно всё решил: сын пойдёт по его стопам. Вот только у сына, оказывается, другие соображения...Производство: Франция, Les Films Christian Fechner, Renn ProductionsЖанр: комедияРежиссер: Пьер РишарАктеры: Пьер Ришар, Бернар Блие, Элен Дюк, Андре Гэллард, Тэдди Вригно, Бернард Хэллер, Виктор Лану, Жан Обе, Даниэль Прево, Пьер РепПеревод: профессиональный двухголосыйСубтитры: французскиеПродолжительность: 01:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F20B83A6333D62AFDE2C40769E8CCC779D5C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661659   (188597) от 15.09.2023
+
+Провал / The Failure (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько нравоучительная история. У молодого человека неприятности. Он теряет работу. Благовоспитанная невеста из приличной семьи вроде как любила его. Но похоже безработный ей нафиг не нужен, вместе со своей любовью. И вот что характерно, на помощь ему приходит девушка, которую тоже можно назвать неудачницей, которую жизнь не баловала. И которая оказалась более (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: короткометражный, мелодрама, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Уилфред Лукас, Лили Кехилл, Дональд Крисп, Дороти Бернард, Эдвин Аугуст, Адольф Лестина, Грэйс Хендерсон, Кристи Кэбэнн, Эдвард Диллон, Фрэнк ЭвансПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94FD54C1EA86A198EE804197571D34D4817F7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661619   (188506) от 15.09.2023
 
 Все меры предосторожности / Extreme Prejudice (1987) BDRip [H.264] [MVO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188506.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188478.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188236.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188100.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188061.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188049.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188001.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187892.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187829.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187812.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187795.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187751.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187619.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187543.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187522.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187474.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187384.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187183.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187119.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187118.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187091.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F779DEDA5CF401A9357C9A5F210ED837695284A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591720   (186839) от 19.11.2022
-
-Дело времени / A Matter of Time (1976) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинозвезда Нина по дороге на пресс-конференцию вспоминает давние времена, те дни, когда она работала горничной в захудалом итальянском отеле. Как она случайно познакомилась с обедневшей графиней Санциани, пожилой полубезумной женщиной, живущей воспоминаниями о своей яркой и богатой жизни. Как вдохновленная рассказами старой графини, юная Нина фантазировала о собственных (   Читать дальше...   )Производство: Италия, США / American International Pictures (AIP), Coralta Cinematografica, Deux Femmes Service Company, General International Film CompanyЖанр: Фэнтези, Драма, МелодрамаРежиссер: Винсент МиннеллиАктеры: Лайза Миннелли, Ингрид Бергман, Шарль Буайе, Спирос Андрос, Тина Омон, Габриэле Ферцетти, Джефри Коплстон, Антонио Джаконо, Фернандо Рей, Орсо Мария Гуэррини, Жан Мас, Изабелла РосселлиниПеревод: Одноголосый любительский, GrampyСубтитры: ОтсутствуютПродолжительность: 01:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0F5469312E2522C04817788BFA09B585D78901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591623   (186783) от 19.11.2022
-
-Быстрые перемены / Quick Change (1990) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в банк врывается клоун и требует отдать ему все деньги, никто поначалу не воспринимает его всерьез. Но оказывается, что шутить никто не намерен: это трое друзей осуществляют собственный гениальный план ограбления. Однако заполучить деньги — самое простое, куда сложнее, оказывается, выбраться с добычей из города. Грабителей-дилетантов преследует и полиция, и (   Читать дальше...   )Производство: США / Devoted ProductionsЖанр: Комедия, КриминалРежиссер: Ховард Франклин, Билл МюррейАктеры: Билл Мюррей, Джина Дэвис, Рэнди Куэйд, Джейсон Робардс, Филип Боско, Стэнли Туччи, Кертвуд Смит, Тони Шэлуб, Давиния МакФэдден, Виктор АргоПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58B6176A94F9CE7D29887F837E4722072615A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663377   (186746) от 21.09.2023
-
-Зло под солнцем / Evil Under the Sun (1982) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186746.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивах одноименного романа Агаты Кристи. Знаменитый сыщик Эркюль Пуаро отдыхает на адриатическом острове. В отеле поселились супружеские пары Редферн, Гарднер, Маршалл и, писатель, миллионер. Миссис Маршалл - бывшая актриса, удачно вышедшая замуж и нелюбящая свою падчерицу Линду, которая тоже отдыхает в отеле. Арлену Маршалл находят убитой на пляже, а у каждого (   Читать дальше...   )Производство: Великобритания, EMI Films, Titan Productions, Mersham Productions Ltd.Жанр: детектив, криминалРежиссер: Гай ХэмилтонАктеры: Питер Устинов, Колин Блейкли, Джейн Биркин, Николас Клэй, Мэгги Смит, Родди МакДауэлл, Сильвия Майлз, Джеймс Мейсон, Денис Куилли, Дайана РиггПеревод: Многоголосый профессиональный (1 Канал. Роли озвучивали: Артем Карапетян, Ольга Гаспарова, Александр Новиков)Язык озвучки: Русский, английскийСубтитры: оотсутствуютПродолжительность: 01:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014B855265B87AC1BDD59BCC873FCE4DE25F3957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591724   (186682) от 19.11.2022
-
-Пришествие греха / La visita del vicio (1978) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая цыганка прислуживает одинокой певице, живущей в замке. В цыганку влюбляется талантливый художник, и девушка рассказывает ему о ночном кошмаре, который часто мучает её во сне: ей снится голый всадник, преследующий её и грозящий насилием. Вскоре голый всадник начинает преследовать молодую цыганку и наяву. Ей кажется, что он представляет смертельную опасность, (   Читать дальше...   )Производство: Испания, José Frade Producciones Cinematográficas S.A.Жанр: триллерРежиссер: Хосе Рамон ЛаррасАктеры: Патриция Гранада, Лидия Суасо, Рафаэль Мачадо, Дэвид Томсон, Монтсеррат Хулио, Дэйзи Жуль, Клод Белло, Патриция Лорни, Энрике МонтсерратПеревод: любительский одноголосый (Олег Воротилин)Субтитры: русские (Олег Воротилин), английскиеПродолжительность: 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF81C57DF91421A5F49B0DEAC377F358781ED88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663613   (186592) от 22.09.2023
-
-Лорел и Харди. Два моряка / Two Tars (1928) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186592.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой «морской» комедии наши друзья моряки военно-морского флота США, вернувшиеся наконец в родные Штаты после долгого плавания. Они берут в прокате машину и едут прокатиться и отдохнуть. Вскоре они знакомятся с двумя девушками, и веселье начинается.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Джеймс ПэрротАктеры: Стэн Лорел, Оливер Харди, Эдгар Кеннеди, Тельма Хилл, Руби Блейн, Гарри Бернард, Чет Бранденбург, Болдуин Кук, Эдгар Диаринг, Фрэнк ЭллисПеревод: немой с интертитрами (bankolya)Субтитры: русские (интертитры)Продолжительность: 00:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DD4CFD3A8ACFC24279919E5B8DB1C9F2458AE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

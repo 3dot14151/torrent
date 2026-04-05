@@ -1,3 +1,55 @@
+###  Публикация: 1148030   (803972) от 13.01.2018
+
+Get Even (2017) [Ru/Multi] (1.0/12.01.18) Repack R.G. Механики
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Get Even - игра в жанре психологического триллера, с элемента шутера, от создателей Painkiller, действие игры разворачивается в воспоминаниях главного героя, пытающегося узнать больше о своем прошлом. Дыши... Вспоминай: девушка, стул, бомба. Не бойся… Иди на голос в глубины памяти. Расслабься… Ищи воспоминания в мрачных уголках своего разума. Ты найдешь ее?Тип издания: RepackРазработчик: The Farm 51Жанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C493D46C22AFADE3E187EEA923412CEEF896398C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010202   (803234) от 24.04.2016
+
+Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rambo The Video Game: Baker Team – шутер от первого лица, созданный на основе классических фильмов, где главную роль играет знаменитый солдат Джон Рэмбо. Вместе с ним вам предстоит пройти 16 миссий, истребить множество врагов, используя 15 типов различного оружия. Основная часть геймплея выполнена в виде рельсового шутера, где передвижение героя происходит автоматически, (   Читать дальше...   )Тип издания: RepackРазработчик: TeyonЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0177B6502042A2CD8B90BD21AB58BF7129AD0F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120219   (802842) от 30.03.2017
 
 Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +58,7 @@ Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802842.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802223.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ DOOM (2016) [Ru/En] (6.66/upd8) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801402.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Neversong (2020) [Ru/Multi] (1.0) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801320.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05.125430.1/dlc) Repack Other s [Coll
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800795.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ The Persistence (2020) [Ru/Multi] (1.0HF) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800736.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ George (2021) [En] (1.0rls) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800729.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ The Persistence (2020) [Ru/Multi] (1.0/HotFix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800694.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.1.11018/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800524.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Kona (2017) [Multi] (1.0/upd1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799956.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Ziggurat (2014) [Ru/Multi] (2018-05-08) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799877.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Singularity (2010) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799706.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Ziggurat 2 (2021) [Ru/Multi] (2019.4.31.12409535) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798913.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Syndrome (2016) [Ru/Multi] (1.06f) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798566.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Distorted World (2021) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798202.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.35.63118/dlc) License CODEX [Season 01: 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798043.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Get Even (2017) [Ru/En] (1.0/u1) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797847.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Death Slayer V (2021) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797827.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ STRAFE (2017) [Ru/Multi] (23.05.2020/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797062.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Fossilfuel (2021) [En] (1.07/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795360.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) License PLAZA [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794666.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794533.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) Repack Other s [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794531.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Tiny Tina's Assault on Dragon Keep: A Wonderlands One-shot Adventure (2021) [Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793531.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Tiny Tina's Assault on Dragon Keep: A Wonderlands One-shot Adventure (2021) [Mul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C049DAB01CF79B96A1582A82BD7D96099EBE29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386836   (793160) от 30.05.2020
-
-Skin Witch (2020) [Ru/Multi] (1.0.2) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skin Witch — это настоящая игра на выживание, в которой вы должны остаться в живых имея ограниченный запас ресурсов, разгадывая головоломки и используя преимущества нелинейного геймплея. Итак, вы угодили в ловушку в подземной шахте, куда отправились по заданию подрядчика.Тип издания: RepackРазработчик: Blackwood SpecterЖанр: Action (Horror, Puzzle), 1st Person, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF38430040D860A609A5B0205DF098E74736A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386606   (793124) от 30.05.2020
-
-PREY (2017) [Ru/Multi] (10966486/dlc) Repack Other s [Digital Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Prey происходит в 2032 году. Вы обнаруживаете себя на лунной орбите, на борту космической станции «Талос-1». Эксперимент, в котором вы участвовали, должен был навсегда изменить человеческую расу, но привел к катастрофическим последствиям. Станцию захватили враждебные пришельцы, которые теперь ведут на вас охоту. Раскрывая мрачные тайны «Талоса» и собственного (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E1DACC75827173EB8468DD465FAF8102DB652A
 ```
 
 https://mybot314.ru/tekegram_catalog/

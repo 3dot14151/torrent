@@ -1,3 +1,55 @@
+###  Публикация: 1171079   (660591) от 15.05.2018
+
+Последний человек на Земле / The Last Man on Earth (2017) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-18 из 18) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой этого сериала - Фил Миллер. Не сказать, что он славный парень. Простой дядька, который ничем особенным не отличается. Он работает на не самой любимой работе, старается поддерживать дружелюбную атмосферу в семье и делает все возможное, чтобы не сорваться с катушек из-за бешеной жизни. Он даже подумать не мог, что на его плечи ляжет надежда на спасение (   Читать дальше...   )Производство: СШАЖанр: комедияРежиссер: Фил Лорд, Кристофер Миллер, Питер АтенсиоАктеры: Уилл Форте, Кристен Шаал, Дженьюэри Джонс, Мэл Родригез, Клеопатра Коулмэн, Мэри и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~00:22:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228FB443704B56CFF75DB1F740C6D180B90B4299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055900   (659721) от 02.06.2017
+
+Люцифер / Lucifer (2016) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-18 из 18) NewStudio [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заскучавший и несчастный повелитель преисподней, Люцифер Морнингстар оставил свой престол и отправился в современный Лос-Анджелес, где основал ночной клуб «Lux». Очаровательный, харизматичный и дьявольски привлекательный Люцифер наслаждается своим отдыхом — вином, женщинами и музыкой — пока красивая поп-звезда не оказывается убитой на пороге его клуба…Производство: США / DC Entertainment, Vertigo Entertainment, Warner Bros. TelevisionЖанр: фэнтези, драма, криминалРежиссер: Нэйтан Хоуп, Эгил Эгилссон, Луис Шоу МилитоАктеры: Том Эллис, Лорен Джерман, Лесли-Энн Брандт, Кевин Алехандро, Рэйчел Харрис, Д.Б. Вудсайд, Скарлет Эстевез, Локлин Манро, Ивэн Арнольд, Эмили Мэддисон и др.Перевод: Многоголосый профессиональный - NewStudioЯзык озвучки: РусскийПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37471A24344B90AE6409F5EB351EB7B71F74345A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138817   (659715) от 02.06.2017
 
 Карточный домик / House of Cards (2017) WEBRip [H.264/720p-LQ] (сезон 5, серия 1-13 из 13) BaibaKo [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659715.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658550.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655358.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653909.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653809.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653436.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649778.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647943.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646452.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646440.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642633.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640513.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637079.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633234.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627065.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626905.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624909.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624897.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623734.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622137.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621220.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620495.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620290.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619899.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F46593B4C0812FE91E0B9D78B81D8CE840A7E561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434475   (619793) от 16.04.2022
-
-Шериф / Cherif (2013-2018) WEB-DLRip [H.264/1080p-LQ] (сезон 1-5, серии 1-48 из 48) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кадер Шериф служит в полиции Лиона, и неплохо успел изучить город. От него невозможно укрыться. Буквально все время он проводит на службе, ведь даже его дом расположен в соседнем от полицейского участка доме. Кадер Шериф занимается расследованиями наиболее запутанных преступлений. За долгие годы службы у него появились собственные методы распутывания сложных дел, (   Читать дальше...   )Производство: Франция / Making ProdЖанр: криминалРежиссер: Винсент Джованни, Жюльен Зиди, Аким ИскерАктеры: Абделхафид Металси, Грег Жермен, Франсуа Бюрелу, Венсан Примо, Элоди Эсме, Carole Bianic, Мелезе Бузид, James Gonin, Аврора Эрги, Тассадит Манди и д.р.Перевод: Двуголосый профессиональный (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:55:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF4B3A9779B86E2D210AB7A83FC2DE201EA0389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229908   (618657) от 10.06.2018
-
-Импульс / Impulse (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
-
->>След.
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618657.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летняя девушка Генри Коул открывает в себе способность к телепортации, которая не поддается ее контролю.
-Действие сериала разворачивается в том же мире, что и события фильма "Телепорт" 2008 года.Производство: США / Universal Cable ProductionsЖанр: фантастика, боевикРежиссер: Шерин Дабис, Эд ФрэйманАктеры: Крэйг Арнольд, Сара Дежарден, Мэдди Хассон, Тэннер Стайн, Дэниэл Маслани, Каллум Кит Ренни и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: ~00:44:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54392EE811BCC82484AABB6740CB15359F230FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

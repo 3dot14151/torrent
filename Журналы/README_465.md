@@ -1,3 +1,136 @@
+###  Публикация: 1193648   (261980) от 22.12.2017
+
+Журнал | Сваты на даче №12 (36) (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261980.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D5B32C9023BA7596F87921877D9ADA1F0CDDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193656   (261976) от 22.12.2017
+
+Газета | Ждём гостей №9 (96) (2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие кулинарные рецепты на все случаи жизни - к торжествам и праздникам и повседневные блюда. Журнал поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.
+Каждый рецепт пошагово обьясняется с фото.
+
+Приятного аппетита!Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE669F1A55808843AB90BEE71969E8A228079A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193837   (261973) от 22.12.2017
+
+Журнал | Таинственные истории №25 (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E718A361B13711634AF02D66289A006B17AE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193841   (261972) от 22.12.2017
+
+Журнал | Таинственные истории №26 (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF26723EB3AE10A9F38F530E4C8A4074BFC9E71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193639   (261971) от 22.12.2017
+
+Журнал | Садовод и огородник №24 (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261971.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFE41AC634A7B8A0BA8D149EBF5F066E7BE9C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193653   (261970) от 22.12.2017
 
 Журнал | Золотые рецепты наших читателей №24 (202) (декабрь 2017) [PDF]
@@ -6,7 +139,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261970.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261964.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261962.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261949.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261935.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261931.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261804.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261798.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261774.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261766.jpg" />
 </div>
 
 
@@ -267,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261747.jpg" />
 </div>
 
 
@@ -293,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261731.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261496.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261473.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261434.jpg" />
 </div>
 
 
@@ -400,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261398.jpg" />
 </div>
 
 
@@ -426,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261332.jpg" />
 </div>
 
 
@@ -452,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261327.jpg" />
 </div>
 
 
@@ -478,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261276.jpg" />
 </div>
 
 
@@ -506,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261218.jpg" />
 </div>
 
 
@@ -535,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261166.jpg" />
 </div>
 
 
@@ -546,136 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90EC88A38CCFAD243B828F947709E41C36DFD5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430937   (261007) от 03.06.2012
-
-Подшивка журналов | Вокруг света №1-6 (2012) [PDF, DjVu]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Вокруг cвета» - это один из первых журналов в России вообще и один из первых журналов в мире на познавательную тематику. Он был основан в Санкт-Петербурге в 1861 году и с того времени практически без перерывов издаётся на протяжении уже полутора веков. За это время журнал прошел несколько этапов от географического и туристического журнала к познавательному (   Читать дальше...   )Формат: PDF, DjVu
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505106   (260917) от 03.06.2012
-
-Журнал | Сабрина. Спецвыпуск №7. Вязание крючком [2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260917.jpg" />
-</div>
-
-
-###  Подробнее
-
-В спецвыпуске популярного журнала по вязанию представленная летняя коллекция женской одежды, выполненной крючком. Новые идеи и классика, воплощенные в пуловерах, жакетах, топах, юбках и аксессуарах. Ажурные узоры и яркие цвета, как ничто другое подходят для поднятия настроения и отдыха в теплые летние дни.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A333588E9315652D4464C4DC147D4EBFC19CA8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505486   (260692) от 03.06.2012
-
-Журнал | Кулинарный мир №12. Домашний погребок [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260692.jpg" />
-</div>
-
-
-###  Подробнее
-
-200 отличных советов и рецептов по созданию вкусных домашних заготовок.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFFA6D24B3D11A7FAFF8606F699FE37ECD2DBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 401528   (260611) от 02.06.2012
-
-Подшивка журналов | Уютно и удобно [2008-2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260611.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Уютно и удобно" - журнал для истинных эстетов, желающих сделать свое жилье уютным и изысканным. От изданий схожей тематики журнал отличает обилие авторских дизайн-проектов и множество практических советов, которые помогут создать свой уникальный интерьер и избежать ошибок.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F20E7998133A898D3696BBA351E5A782705050D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504671   (260489) от 02.06.2012
-
-Журнал | Maxim Hot 100 [USA] (2012) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260489.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 самых красивых девушек 2012 года по версии американского журнала Maxim.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC354E390E9E295A1323386292A3B0F5CB6DCA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

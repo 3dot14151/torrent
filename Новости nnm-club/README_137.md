@@ -1,3 +1,55 @@
+###  Публикация: 356290   (586724) от 01.07.2011
+
+S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / SGM 1.7 [Ru] (RePack) 2009/2010 | R.G. NoLimits-Team GameS
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание собственной сюжетной линии, введение новых ключевых персонажей, новой квестовой линии, изменяющих и расширяющих оригинальный игровой мир.Тип издания: Перепакованная лицензияЖанр: Action (Shooter) / Add-on / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D5F3B1B6B53F4640C49992831837C6D21D3A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918606   (586592) от 15.07.2015
+
+Adobe Acrobat Professional DC (v15.8) Multilingual
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Acrobat Professional DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности (   Читать дальше...   )Язык интерфейса: Английский / Венгерский / Голландский / Датский / Испанский / Итальянский / Китайский (упрощенный) / Китайский (традиционный) / Корейский / Немецкий / Норвежский / Польский / Португальский / Русский / Словацкий / Словенский / Турецкий / Украинский / Финский / Французский / Чешский / Шведский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02423811E01B0FB6BAFE3ECF03E7FD0D0AEECC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552480   (586513) от 21.05.2022
 
 Windows 11 Pro x64 21Н2 (build 22000.675) by ivandubskoj 20.05.2022 [Ru]
@@ -6,7 +58,7 @@ Windows 11 Pro x64 21Н2 (build 22000.675) by ivandubskoj 20.05.2022 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586513.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586495.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586091.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Nvidia DriverPack v.430.64 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585979.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Graveyard Keeper (2018) [Ru/Multi] (1.123) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585913.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Google Nik Software Complete Collection 1.2.11 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585577.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585575.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585503.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_585059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_585059.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_585057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_585057.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585045.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0.2025/hf5) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584894.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584891.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_584728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584728.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584611.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584610.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Adobe Photoshop CC 2015 (20150529.r.88) Portable by PortableWares (16.07.2015) [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584585.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Mafia 2/II (2010) [Ru] (1.0.0.1u5/8dlc) Repack YelloSOFT
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584234.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_584208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584208.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584065.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584064.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_583873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_583873.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Slimjet 4.0.14.0 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583800.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ RACE 07: Official WTCC Game + 5 Addon Pack [Ru/En] (Repack/1.2.1.9) 2007-2011 | 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583579.jpg" />
 </div>
 
 
@@ -622,60 +674,6 @@ RACE 07 это продолжение RACE – The WTCC Game. Это единс�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358724   (583575) от 04.07.2011
-
-System Shock 2 [Ru] (RePack) 1999 | MOP030B
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В лучших традициях голливудских блокбастеров - все начинается за несколько лет до описываемых в System Shock2 событий. Вы спецназовец, солдат на службе UNN - государства будущего, объединившего все страны планеты Земля. Ваша карьера профессионального военного начинается на тренировочной базе этого самого UNN, где вы оказываетесь на развилке трех дорог. Кем быть Navy(Моряк), Marine(Пехотинец) или вступить в O.S.A. - пси-корпус по-нашему.
-
-От вашего выбора зависит, в каких областях человеческого знания будет силен ваш подопечный. То есть вы получаете базовый набор характеристик: Navy - силен в хакерском искусстве, при сносных навыках владения оружием, Marine - просто танк, а не человек - больше подойдет любителям Quake-а - таскает тонны стреляющих железок, безжалостно забивает дроидов гаечным ключом, едва входит в дверной проем и прочее.Тип издания: Перепакованная лицензияЖанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DB2A49B1A9C7439740971A7773114D91E468E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358660   (583570) от 04.07.2011
-
-Далеко по соседству / Quartier lointain (2010) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас - художник, автор многих, еще в недалёком прошлом, популярных комиксов. Ему за 50, дома его ждут любящие его жена и две дочки. Однажды, возвращаясь из поездки, Томас ошибся поездом и оказался в маленьком городке, затерянном в Альпах, где-то рядом со Швейцарской границей, в городке, где он родился и вырос. Так как до следующего поезда оставалось еще достаточно времени, Томас решил посетить могилу матери. На кладбище Томас теряет сознание, а когда приходит в себя, то оказывается в в далёком 1969ом году. Вот так, в теле четырнадцатилетнего подростка и с опытом взрослого мужчины, судьба предоставила ему еще одну возможность встретить старых друзей, любимую сестру и еще раз пережить первую школьную любовь. Томас понимает, что это его шанс остановить отца который сорок лет назад бросил семью...Жанр: Фэнтези, ДрамаРежиссер: Сэм ГарбарскиАктеры: Паскаль Греггори, Джонатан Цассаи, Александра Мария Лара, Лео Легран, Лаура Мартин, Лаура Мойссон, Пьер-Луи Беллет, Таня Гарбарски, Лауренс Липски, Луис БьянчиПеревод: Двуголосый закадровый, профессиональныйОзвучка / Автор перевода: Продолжительность: 1:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAD5D3179CBEBD6EA3E08EBB345E876F9195301
 ```
 
 https://mybot314.ru/tekegram_catalog/

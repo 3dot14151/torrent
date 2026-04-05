@@ -1,3 +1,186 @@
+###  Публикация: 1289443   (681680) от 18.03.2019
+
+Мединский заявил, что Россия не сможет создать аналог Netflix, пока не победит пиратов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681680.jpg" />
+</div>
+
+
+###  Подробнее
+
+По словам министра культуры, борьба с пиратством имеет большое значение, поскольку зрители все больше будут смотреть кино на стриминговых сервисах.Россия должна победить интернет-пиратство, иначе создание отечественных аналогов сервисов Netflix и HBO будет невозможным. Об этом заявил министр культуры Владимир Мединский.По словам министра, речь идет, в частности, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289493   (681674) от 18.03.2019
+
+Huawei разработала альтернативу Android и Windows из-за конфликта с США
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционная система подойдет как для компьютеров, так и для смартфонов.Китайская компания Huawei Technologies разработала собственную операционную систему на случай невозможности использовать ОС Android и Windows из-за конфликта с властями США. Об этом сообщил гендиректор компании Ричард Ю в интервью немецкому изданию Die Welt.«Мы подготовили собственную операционную (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209034   (681671) от 18.03.2019
+
+Hunt Down The Freeman (2018) [En] (1.0/upd2) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Valve дала «зелёный свет» в Steam фанатскому спин-оффу Half-Life, под названием Hunt Down The Freeman. Игра, выросшая из популярной в узких кругах любительской модификации, может похвастаться нестандартным геймплеем и полноценным сюжетом, в котором геймерам предлагается примерить на себя роль члена военного спецподразделенияТип издания: LicenseРазработчик: Royal Rudius EntertainmentЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66880DDCD315D932D556EDE1174168322A30BC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029313   (681669) от 18.03.2019
+
+Волшебный фонарь (2015-2019) WEB-DLRip [H.264/720p-LQ] (сезон 1-4, серии 1-104 из 104) [Обновляемая]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая серия представляет собой просмотр диафильма семилетней девочкой Катей и ее пятилетним братишкой Митей – шалуном и фантазером. Сюжет диафильмов основывается на адаптированных пересказах великих произведений Ж. Верна, Стивенсона, К. Дойла, Свифта, Дефо, Уэллса, Лондона, По, Сервантеса, Распэ, Дюма, Кэрролла и др.
+Истории адаптированы для самых маленьких зрителей (   Читать дальше...   )Производство: Россия / Анимационная студия "Паровоз"Жанр: Детский, Компьютерная анимацияРежиссер: Роман ВерещакАктеры: Дарья Мазанова, Марк СметанкинПерсонажи: Катя, Митя, Кот АнтонПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~ 00:05:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD342E58278B3E902C0C83346301E8D89728EBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013852   (681668) от 18.03.2019
+
+MInstAll v.17.03.2019 By Denysenko Stas [Ru]
+
+>>3
+>>15
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник программ MInstAll для быстрой установки необходимого и часто используемого софта. Представленные программы уже зарегистрированы и не требуют активации. Данная сборка имеет компактный размер, почти все программы устанавливаются в тихом режиме.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C340BF5C5CA875D6BF9532E4A6FE9D007CF4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029286   (681638) от 26.06.2016
+
+Adobe Photoshop CC 2015.5.0 (20160603.r.88) RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D9C7A3155631D84864117C0BA925C7DD7807AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028688   (681629) от 26.06.2016
+
+Adobe Photoshop CC 2015.5.0 (20160603.r.88) [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C58BC70145E7163F6C7F7E28DEFF529D412B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029410   (681627) от 26.06.2016
 
 Adobe Premiere Pro CC 2015.3 10.3.0.202 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +189,7 @@ Adobe Premiere Pro CC 2015.3 10.3.0.202 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681627.jpg" />
 </div>
 
 
@@ -32,7 +215,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 06.2016 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681625.jpg" />
 </div>
 
 
@@ -61,7 +244,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 06.2016 [Ru]
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681623.jpg" />
 </div>
 
 
@@ -90,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681050.jpg" />
 </div>
 
 
@@ -116,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681048.jpg" />
 </div>
 
 
@@ -144,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681047.jpg" />
 </div>
 
 
@@ -170,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680776.jpg" />
 </div>
 
 
@@ -196,7 +379,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680767.jpg" />
 </div>
 
 
@@ -222,7 +405,7 @@ Apple Final Cut Pro X 10.2.1,  Motion 5.2.1 & Compressor 4.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680765.jpg" />
 </div>
 
 
@@ -251,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680761.jpg" />
 </div>
 
 
@@ -277,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680759.jpg" />
 </div>
 
 
@@ -303,7 +486,7 @@ Half-Life 2: FakeFactory Cinematic Mod 2013 Final (2015) [Ru/En] Mod
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680758.jpg" />
 </div>
 
 
@@ -329,7 +512,7 @@ Rosetta Stone Ltd. | Rosetta Stone 5.0.13 [24 языка + аудио-компа
 >>26
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680755.jpg" />
 </div>
 
 
@@ -357,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680556.jpg" />
 </div>
 
 
@@ -383,7 +566,7 @@ This War of Mine (2014) [Ru/En] (4.0.0 (u2)/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680547.jpg" />
 </div>
 
 
@@ -409,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680545.jpg" />
 </div>
 
 
@@ -435,7 +618,7 @@ Anthropics Portrait Professional Studio 10.9.5 + Portable [MULTi + Русски�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680447.jpg" />
 </div>
 
 
@@ -461,7 +644,7 @@ Adobe Creative Suite 6 Master Collection [Multi/Rus]
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680443.jpg" />
 </div>
 
 
@@ -489,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680395.jpg" />
 </div>
 
 
@@ -500,191 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B515D63CE034A5ADF5192DF75F813E82D767B1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335853   (680217) от 13.05.2011
-
-Windows 7 SP1 ALL CLASSIC RUSSIAN PROJECT ©SPA 2011[12.05.11]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_680217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык интерфейса: только русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534902   (680104) от 09.03.2022
-
-8 марта!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680104.jpg" />
-</div>
-
-
-###  Подробнее
-
-
- 
-Весна – сколько надежд, сколько мечтаний о новых чувствах, новых встречах и открытиях готовит нам это время года!
-Дорогие наши женщины, девушки и девочки! В этот светлый весенний праздник, хочется от всей души пожелать Вам самых важных и бесценных вещей: Здоровья, любви и простого человеческого счастья. Пусть дома всегда царит тепло и уют, пусть близкие и родные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290080   (679948) от 19.03.2019
-
-Новый рекорд Конюхова: сто дней в "ревущих сороковых" Тихого океана
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый российский путешественник Федор Конюхов уже сто дней находится в одиночном плавании на весельной лодке, он первым в мире прошел более половины южной части Тихого океана по «ревущим сороковым» — широтам, издавна известным мореплавателям своим неистовым нравом.«Федор продвинулся дальше всех в Южном океане. По всем стандартам это достижение для океанской (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290200   (679837) от 19.03.2019
-
-MySpace потерял музыку, фото и видео, которые пользователи загружали с 2003 по 2015 годы
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-нибудь это произойдёт с Facebook, Вконтакте, Google Drive, Dropbox и любым другим коммерческим сервисом. Все ваши файлы на облачном хостинге неизбежно будут потеряны со временем. Как это происходит — можно прямо сейчас наблюдать на примере MySpace, бывшего интернет-гиганта и крупнейшей в мире социальной сети.Примерно год назад пользователи заметили, что перестали (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290066   (679826) от 19.03.2019
-
-BELOFF 2019.3 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5A6ED511A404845D04D68DF593EDC97739524D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290234   (679825) от 19.03.2019
-
-Windows 7 SP1 х86-x64 by g0dl1ke 19.3.15 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по март 2019 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA81843CE07750132238C071FCE8015000227FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267432   (679819) от 19.03.2019
-
-X4: Foundations (2018) [Ru/En] (2.20/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679819.jpg" />
-</div>
-
-
-###  Подробнее
-
-X4: Foundations - это космический симулятор, продолжающий знаменитую серию X3. Новая часть позволяет игрокам управлять не только космическими кораблями, но и целой империей, сражаясь, торгуя, и развивая свою территорию.Тип издания: RepackРазработчик: EgosoftЖанр: Action, Simulation, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F321D0A32FF7C5FD7F72FE3E9DA50264A900F67
 ```
 
 https://mybot314.ru/tekegram_catalog/

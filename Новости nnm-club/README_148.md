@@ -1,3 +1,57 @@
+###  Публикация: 924824   (542232) от 05.08.2015
+
+KMSAuto Net 2015 1.3.7 Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542232.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMSAuto Net - автоматический KMS-активатор для операционных систем
+Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012,
+2012 R2 а также Office 2010, 2013, 2016.Язык интерфейса: Русский / Украинский / Английский / Французский / Испанский / Вьетнамский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AF27E91FCED9148DDE29E5D76F7BEDA1B9B9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925082   (542230) от 05.08.2015
+
+Adobe Muse CC 2015.0.2.4 RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse CC – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AB4930D27BA9D02A5129A28B3D8418E2D2DF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925086   (542207) от 05.08.2015
 
 Зона 51 / Area 51 (2015) WEB-DLRip [AVO]
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542207.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542204.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ WPI x86-x64 by OVGorskiy® 06.2018 1DVD [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541865.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541664.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541663.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540894.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540582.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540268.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540256.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540066.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539656.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ Total War: ROME II/2 (2013) [Ru/En] (1.0.0.1/DLC) SteamRip R.G. Игроманы
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539601.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539592.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.244371/dlc) Repack R.G. Games [Deluxe
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538363.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538359.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ Dark Souls II - Scholar of the First Sin (2015) [Ru/Multi] (1.02/k.2.02/dlc) Rep
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538356.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ Skype 8.27.0.85 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538295.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538184.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538180.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537641.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ Sony Sound Forge Audio Studio 10.0 Build 178 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537624.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ Warhammer 40 000: Dawn of War 2: Retribution + 18 DLC [Ru/En] (RePack/3.19.1.612
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537613.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ Cradle (2015) [Ru/Multi] Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536650.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ DAEMON Tools Ultra 4.0.0.0423 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536649.jpg" />
 </div>
 
 
@@ -623,58 +677,6 @@ DAEMON Tools Ultra — это самая мощная, функциональн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:026F7320091B59EBBA28050BAB1AA1B8D0557976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239598   (536543) от 06.08.2018
-
-Adguard Premium 6.3.1399.4073 RePack by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279DC3429718D5D372C0C3BD8C6A60A39A03AC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050702   (535845) от 09.09.2016
-
-Люди Икс: Апокалипсис / X-Men: Apocalypse (2016) BDRemux [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535845.jpg" />
-</div>
-
-
-###  Подробнее
-
-События «Дней Минувшего Будущего» оказали колоссальное влияние на мир, где мутанты и люди борются за свое место под Солнцем. В это нелегкое время Людям Икс предстоит столкнуться со своим самым опасным противником — древним мутантом Апокалипсисом, существом, схватка с которым может стать последней не только для мутантов, но и в принципе для всего человечества. В поисках (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Bad Hat Harry Productions, Donners' CompanyЖанр: фантастика, боевик, приключенияРежиссер: Брайан СингерАктеры: Джеймс МакЭвой, Майкл Фассбендер, Дженнифер Лоуренс, Эван Питерс, Оливия Манн, Роуз Бирн, Оскар Айзек, Софи Тёрнер, Николас Холт, Тай Шеридан, Бен ХардиПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 02:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62492C1D0861359556C6EC210D9BCD985FBE32B
 ```
 
 https://mybot314.ru/tekegram_catalog/

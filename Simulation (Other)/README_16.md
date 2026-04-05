@@ -1,3 +1,29 @@
+###  Публикация: 1640548   (196784) от 19.06.2023
+
+Park Beyond (2023) [Ru/Multi] (1.0) Scene Fairlight
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный симулятор, который позволит воссоздать детскую мечту о создании парка аттракционов в реальность. На этот раз игрокам предстоит выступить в качестве амбициозного архитектора, который не боится экспериментировать со своими постройкам и готов предложить только самые безбашенные идеи. Ваша голова способна придумать такие необычные горки, что компании буквально (   Читать дальше...   )Тип издания: SceneРазработчик: Limbic EntertainmentЖанр: Казуальные игры, Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73FCDD390B535FF2BBB12D1CFEC4109C9547DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642605   (196381) от 28.06.2023
 
 Spellcaster University (2021) [Multi] (1.04) License GOG
@@ -6,7 +32,7 @@ Spellcaster University (2021) [Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196381.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sky Haven Tycoon - Airport Simulator (2022) [Ru/Multi] (1.0.0.289) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195829.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (7.61/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195804.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195737.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195156.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ MAD WAY (2023) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194468.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Do Not Feed the Monkeys 2099 (2023) [Ru/Multi] (1.0.19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194321.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Ultimate Epic Battle Simulator 2 (2023) [En] (1.0fixed) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194260.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Neon Noodles - Cyberpunk Kitchen Automation (2023) [Ru/Multi] (0.9.71) License G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194234.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.2.274/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194207.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.13418/dlc) Scene Rune [Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193871.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.3.23.08:181/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193803.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193266.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Parasocial (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191683.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191051.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Think of The Children (2017) [En] (1.01.03) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190756.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189550.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Cold Waters (2017) [En] (1.15g) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188631.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (4607) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186525.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Hello Engineer: Scrap Machines Constructor (2023) [Ru/Multi] (1.3.13u802) Scene 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186509.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (7.3.0/dlc) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184725.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Crossroads Inn (2019) [Ru/Multi] (4.0.9d02/dlc) License GOG [Anniversary Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178857.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Staxel (2019) [Ru/Multi] (1.5.57) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177104.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ The Tenants (2021) [Ru/Multi] (1.2.9/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176229.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Base One (2021) [Ru/Multi] (1.4.0.8_e41965c41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175744.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Base One - это симулятор-стратегия с элементами 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5515C948BD6EF2B5625B56AB99CA0E96E977A22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668058   (174930) от 10.10.2023
-
-Thief Simulator 2 (2023) [Ru/Multi] (1.0) Repack DjDI
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дверь в Вашу карьеру грабителя уже ждет! Просто сбейте ломом замок и силой переступите порог. Изучайте навыки, собирайте инструменты и становитесь мастером воровского дела! Thief Simulator 2 перенесет Вас в мир, полный ценностей, дорогих автомобилей и шуршащих банкнот. До тех пор, пока Вы не найдете способ их украсть. Знайте, что профессия вора - это не кусок пирога. (   Читать дальше...   )Тип издания: RepackРазработчик: CookieDev, Ultimate Games S.A.Жанр: Экшены, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1515CD6D9914C73E0A1B1A38F55947A192E8111F
 ```
 
 https://mybot314.ru/tekegram_catalog/

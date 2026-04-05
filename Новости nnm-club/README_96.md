@@ -1,3 +1,29 @@
+###  Публикация: 785537   (738855) от 11.05.2014
+
+Горько! (2013) BDRemux [1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прогрессивные и талантливые Наташа и Рома мечтают о европейской свадьбе на берегу моря… но у Наташиного отчима заготовлен другой сценарий. Грубый чиновник городской администрации рассматривает торжество как трамплин для собственной карьеры и стремится устроить все «как надо». Молодых ждет незабываемый вечер в ресторане «Золотой» с полным набором занудных обрядов. (   Читать дальше...   )Производство: Россия, Базелевс Продакшн, LunaparkЖанр: КомедияРежиссер: Жора КрыжовниковАктеры: Сергей Светлаков, Ян Цапник, Юлия Александрова, Егор Корешков, Сергей Лавыгин, Данила Якушев, Валентина Мазунина, Александр Паль, Юлия Стадник, Елена ВалюшкинаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53ED92EEAAAB180A3184AE71F6C434C64AD3861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522355   (738290) от 24.01.2022
 
 sPlan 8.0 (DC 13.01.2022г) Portable by Lin1980 [Ru]
@@ -6,7 +32,7 @@ sPlan 8.0 (DC 13.01.2022г) Portable by Lin1980 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738290.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738289.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_738000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_738000.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737975.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737953.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737857.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737855.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737849.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737668.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737665.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737487.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736979.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736977.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736456.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736455.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_736256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736256.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (Build 610302) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735752.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2022) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735275.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Kaspersky Free 21.5.11.384 Repack by LcHNextGen (01.02.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734822.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (01.2022) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734821.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ ACE COMBAT 7: SKIES UNKNOWN (2019) [Ru/Multi] (1.9.1.10/dlc) Repack Other s [Del
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734813.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734601.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734549.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ ESET NOD32 Antivirus 7.0.317.4 RePack by SmokieBlahBlah (x86/x64) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734488.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734486.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59D7961A61170D0F27FB7BEEFB2DF34A444F0715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398969   (734155) от 29.07.2020
-
-Библиотеки должны убрать из общего доступа книги «18+»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это и глупо и вредно для воспитания молодёжи; впрочем, молодёжь сможет найти нужные книги в интернете, считают в Ассоциации интернет-издателей.Библиотеки при формировании фондов должны будут соблюдать требование о классификации и маркировке книг в соответствии с возрастной категорией читателей. Соответствующий приказ подготовило Министерство культуры. Теперь библиотеки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

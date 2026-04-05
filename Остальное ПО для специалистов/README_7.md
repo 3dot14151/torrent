@@ -1,3 +1,82 @@
+###  Публикация: 1821017   (8561) от 30.09.2025
+
+VMware Workstation 17 Pro 17.6.4 Build 24832109 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8561.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2B0E29B976B9B28EFB9CF5A5246429F664225B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815313   (5372) от 29.08.2025
+
+PilotEdit Lite & Pro 20.2.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
+PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A95A03FDADF34C29066E4AFD98A263D2B378AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815701   (4994) от 31.08.2025
+
+Adobe Dreamweaver 2021 21.6.0.15711 RePack by KpoJIuK [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Dreamweaver - профессиональная программа для создания веб-сайтов. Программа упрощает проектирование, кодирование и публикацию интерактивных веб-сайтов и веб-приложений. Благодаря поддержке HTML, CSS, Javascript и многих других возможностей дизайнеры и разработчики смогут быстро создавать и публиковать веб-страницы. Adobe Dreamweaver имеет интуитивно понятный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E0488BAFB3785D0BCAC8ACC7426A7BE8E33557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816304   (4464) от 04.09.2025
 
 WinToUSB Technician 10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +85,7 @@ WinToUSB Technician 10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4464.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Silent Installer Builder 6.4.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3770.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ VirtualBox 7.2.2 Build 170484 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3386.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2877.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ WinToUSB Free / Pro / Enterprise / Technician 10.0 RePack (& Portable) by Dodaka
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2399.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ GraphPad Prism 10.2.3.403 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_568.jpg" />
 </div>
 
 

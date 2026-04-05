@@ -1,3 +1,134 @@
+###  Публикация: 1713901   (60459) от 07.04.2024
+
+Гоку: Полуночный глаз 2 / Midnight Eye Gokuu II / Goku II: Midnight Eye (1989) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60459.jpg" />
+</div>
+
+
+###  Подробнее
+
+К детективу Гоку обращается девушка, она просит разыскать своего брата. Очень скоро он выясняет, что брата разыскивают военные, которые не остановятся не перед чем.Производство: Япония / MadhouseЖанр: аниме, мультфильм, фантастика, триллерРежиссер: Ёсиаки КавадзириПеревод: Двухголосый любительский (Azazel & Viki)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFDAA44A5ECEBA328E98CCA04686CF10367A2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713870   (60452) от 07.04.2024
+
+Леди и бродяга / Lady and the Tramp (1955) BDRip [H.264/1080p-LQ] [handmade AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательная и захватывающая история сближения двух абсолютно разных собак - породистой комнатной неженки и обычной дворняги. Изящная и пушистая как игрушка, коккер-спаниельша Леди была любимицей хозяев, пока в их семье не появился младенец. Надетый намордник стал последней каплей, подтолкнувшей обиженную героиню к бегству. Но на улице ее поджидала целая куча опасностей, (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, мелодрама, комедия, приключенияРежиссер: Клайд Джероними, Уилфред Джексон, Хэмилтон ЛаскАктеры: Пегги Ли, Ларри Робертс, Билл Бауком, Верна Фелтон, Джордж Гивот, Ли Миллар, Барбара Ладди, Билл Томпсон, Стэн Фреберг, Алан РидПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993E4073ABC2A299FC422E68E1387A4DB9EB1B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713900   (60451) от 07.04.2024
+
+Гоку: Полуночный глаз / Midnight Eye Gokuu / Goku: Midnight Eye (1989) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший полицейский Гоку работает частным детективом. Но старые друзья по работе привлекают его в слежку за могущественным продавцом оружия. Едва не поплатившись жизнью Гоку теряет левый глаз, зато получает от неизвестного благодетеля возможность отомстить.Производство: Япония / Madhouse, Toei AnimationЖанр: аниме, мультфильм, фантастика, триллерРежиссер: Ёсиаки КавадзириПеревод: Двухголосый любительский (Azazel & Viki)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0049A920F50ADFFF0EA49114B313F46E4E4FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713747   (60437) от 07.04.2024
+
+Лис и пёс / The Fox and the Hound (1981) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60437.jpg" />
+</div>
+
+
+###  Подробнее
+
+История про лисенка Тодда и щенка Коппера. Малыши были очень дружны, но когда подросли, одному природа уготовила роль охотника, другому, увы, объекта охоты.Производство: США / Walt Disney PicturesЖанр: мультфильм, драма, приключения, семейныйРежиссер: Тед Берман, Ричард Рич, Арт СтивенсПеревод: Дублированный (Пифагор)Субтитры: русскиеПродолжительность: 01:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CF6D1A55FFC91697C66FE7BEB7F9338C4B1061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713993   (60436) от 07.04.2024
+
+Книга джунглей / The Jungle Book (1967) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [handmade AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выращенный волками человеческий детеныш Маугли по решению стаи должен вернуться к людям, чтобы не попасть в лапы к тигру-людоеду Шер Хану. Вместе с пантерой Багирой Маугли отправляется в путь, навстречу неожиданным знакомствам и опасным приключениям.
+Он подружится с беспечным медведем Балу, будет похищен обезьянами, станет пленником коварного удава Каа, и еще много (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, комедия, приключенияРежиссер: Ларри Клеммонс, Ральф Райт, Кен АндерсонАктеры: Фил Харрис, Себастьян Кабот, Брюс Рейтерман, Джордж Сандерс, Стерлинг Холлоуэй, Луи Прима, Дж. Пэт О’Мэлли, Верна Фелтон, Клинт Ховард, Чад СтюартПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA003FED0E6A04190D7DC88F601F21D880FAC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713968   (60433) от 07.04.2024
 
 Черный котел / The Black Cauldron (1985) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60433.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60367.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60365.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60294.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60285.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60264.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60251.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60248.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60228.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60217.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60183.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60179.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60157.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60150.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60149.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60072.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60065.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60002.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59962.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59939.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59874.jpg" />
 </div>
 
 
@@ -541,137 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:923B355C01C96E4C05D03107E8CB8FADE4F86D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716132   (59755) от 14.04.2024
-
-Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) HDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.Производство: США, Китай / DreamWorks Animation, DreamWorks, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12576508EBA9F97CAD6BA8E23D28708C9D07AF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716242   (59728) от 14.04.2024
-
-Русалочка / The Little Mermaid (1989) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственные глубины моря хранят немало тайн, а обитатели океана могут рассказать множество удивительных историй. И самой невероятной из них была и остаётся история русалочки Ариэль. Дочь могущественного царя подводного мира Тритона, она однажды влюбляется в прекрасного и мужественного принца. Но разве они могут быть вместе - земной человек и морская дева? Однако (   Читать дальше...   )Производство: США, Япония / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E7F5462FF75250C6F055B21BE596F655BBDEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716244   (59723) от 14.04.2024
-
-Город чудищ / Youjuu Toshi / Wicked City (1987) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Столетиями существовало секретное соглашение, сохраняющее мир между Землей и Чёрным миром — параллельным измерением, населенным меняющими форму и обладающими сверхъестественной силой существами. Настало время для продления пакта, но некая воинствующая фракция из Чёрного мира готова на всё, чтобы договор не подписали. Судьба мира зависит от двух специальных агентов (   Читать дальше...   )Производство: Япония / MadhouseЖанр: аниме, мультфильм, ужасы, фантастика, фэнтезиРежиссер: Ёсиаки КавадзириПеревод: Двуголосый любительский (Azazel & NesTea)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E91CD9378705791EEFC8DF24BF9623E725C81B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716466   (59669) от 15.04.2024
-
-Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) WEB-DLRip [AV1/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.
-По готовится стать духовным лидером своей Долины Мира, но ему также нужен кто-то, кто займет его место Воина Дракона. Таким образом, он будет обучать нового практикующего кунг-фу для этого места и столкнется со злодеем по имени Хамелеон, который вызывает злодеев из прошлого.Производство: США, Китай / DreamWorks Animation, DreamWorks SKG, Universal PicturesЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: Дублированный (Red Head Sound)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343A6EE82AF5F988F42530AA7546BDC4891D9B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716442   (59655) от 15.04.2024
-
-10 жизней / 10 Lives (2024) IPTVRip [H.264/1080p] [EN]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все прекрасно знают, что у котов девять жизней. А еще говорят, что коты ленивые, капризные и довольно агрессивны к окружающим. И все-таки даже самые заносчивые из них просто душки по сравнению с пушистой бестией по имени Беккет. Но его будни скоро изменятся. Притом, целых десять раз! Коту предстоит побывать в шкуре совершенно разных животных, чтобы, наконец, начать (   Читать дальше...   )Производство: Великобритания, Канада, GFM Animation, Align, Quad, The Happy ProducersЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Крис ДженкинсАктеры: Мо Гиллиган, Симон Эшли, Софи Оконедо, Зейн Малик, Дилан Ллевелин, Джереми Свифт, Билл НайиПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: ОтсутствуютПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F3BD7EDFA7660DB406942341BF2EEC85940151
 ```
 
 https://mybot314.ru/tekegram_catalog/

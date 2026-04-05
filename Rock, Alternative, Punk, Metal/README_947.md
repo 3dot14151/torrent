@@ -1,3 +1,32 @@
+###  Публикация: 1652627   (217265) от 12.08.2023
+
+Eternal Ascent - Reclamation (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - From Darkness (00:01:52)
+02 - March to the Light (00:05:46)
+03 - Blight of Dragons (00:05:14)
+04 - Celestial Homeland (00:05:58)(   Читать дальше...   )Жанр: Symphonic, Power MetalПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1E0BEC9064F36041CC829BF5393B9880DA3273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652538   (217254) от 12.08.2023
 
 Elimination - Echoes of the Abyss (2021) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal>
@@ -6,7 +35,7 @@ Elimination - Echoes of the Abyss (2021) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217254.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dark Fury - Slavonic Thunder (2021) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217248.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Divisiv - Burn It Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217243.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jimmy Page: Solo Projects - 27 albums, 46 CD (1967-2017) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217238.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ GRUNGE BEAT 666 667 - 3 Albums (2021-2022) [MP3|320 Kbps] <Grunge>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217234.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Streetlight - Ignition (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217233.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217224.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Hemina - Romancing The Ether (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217222.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Travel To Eternity - Атлас Времён (2022) [MP3|320 Kbps] <Melodic Deat
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217208.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Tedo Stone - Marshes (2015) [FLAC|Lossless|tracks] <Folk Rock, Country Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217183.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Kind - Close Encounters (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217179.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ To Kill Achilles - Recovery (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217171.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Malkasian - The Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217161.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Refuser - Refuser (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217136.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The Doors - L.A. Woman (1971) (50th Anniversary Deluxe Edition) Remastered 2021,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217127.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217126.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Caskets - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore / Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217114.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Bon Jovi - Keep The Faith (1992) Reissue, Remastered, 2008, Mercury [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217113.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217106.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Mad Fellaz - 4 Albums (2013-2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217098.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Dawn Of Memories - Unwritten Endings (2016) [MP3|320 Kbps] <Progressive, Melodic
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217096.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Magnus Grimm - Страшно, Да? (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217090.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Bon Jovi - Cross Road (The Best Of Bon Jovi) (1994) Reissue, Remastered, 1998, M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217086.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Off The Cross - Divided Kingdom (2016) [MP3|320 Kbps] <Alternative Metal, Extrem
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217082.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Editors - EBM (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217064.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Editors - EBM (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:585B72F2869448619D90D22A74C5B8B5F480EF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652633   (217063) от 12.08.2023
-
-David Byrne & Fatboy Slim - Here Lies Love (2010) 2CD, Remaster, 2023, Nonesuch [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Lies Love (feat. Florence Welch) (2023 Remaster) [00:05:50]
-02. Every Drop of Rain (feat. Candie Payne & St. Vincent) (2023 Remaster) [00:05:33]
-03. You'll Be Taken Care Of (feat. Tori Amos) (2023 Remaster) [00:03:25]
-04. The Rose of Tacloban (feat. Martha Wainwright) (2023 Remaster) [00:02:34](   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 2 CD, 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3226040866E16E32E3F106F841D799C5F55547
 ```
 
 https://mybot314.ru/tekegram_catalog/

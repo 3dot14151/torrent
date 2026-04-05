@@ -1,30 +1,3 @@
-###  Публикация: 852071   (439311) от 21.09.2018
-
-Шифры нашего тела. Сердце (2013) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тело постоянно посылает нам свои таинственные знаки, коды и сигналы. Сердце пытается говорить с нами на своем языке. Кожа демонстрирует наше психологическое состояние. Слезы текут постоянно, даже если мы не плачем. И это далеко не все. Чем больше мы познаем, тем больше загадок и шифров. Мы лишь в самом начале пути к их отгадке.
-Ученые считают главным в теле человека (   Читать дальше...   )Жанр: Документальный, познавательный, медицинаСубтитры: отсутствуютПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C80F74E10EC2C1EFFD130A14754F22ABFA3B31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554319   (438836) от 30.09.2012
 
 Развод по-русски. Выпуск №77. Звёздное колдовство  (30.09.2012) SATRip
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438836.jpg" />
 </div>
 
 
@@ -65,7 +38,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438508.jpg" />
 </div>
 
 
@@ -91,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438506.jpg" />
 </div>
 
 
@@ -117,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438411.jpg" />
 </div>
 
 
@@ -143,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438334.jpg" />
 </div>
 
 
@@ -169,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437271.jpg" />
 </div>
 
 
@@ -195,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436977.jpg" />
 </div>
 
 
@@ -222,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436173.jpg" />
 </div>
 
 
@@ -248,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436170.jpg" />
 </div>
 
 
@@ -274,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436166.jpg" />
 </div>
 
 
@@ -300,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436103.jpg" />
 </div>
 
 
@@ -326,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436096.jpg" />
 </div>
 
 
@@ -352,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435713.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435157.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435032.jpg" />
 </div>
 
 
@@ -430,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434030.jpg" />
 </div>
 
 
@@ -456,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433926.jpg" />
 </div>
 
 
@@ -482,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433823.jpg" />
 </div>
 
 
@@ -508,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433140.jpg" />
 </div>
 
 
@@ -534,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431911.jpg" />
 </div>
 
 
@@ -561,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431852.jpg" />
 </div>
 
 
@@ -587,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431753.jpg" />
 </div>
 
 
@@ -613,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431743.jpg" />
 </div>
 
 
@@ -639,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431731.jpg" />
 </div>
 
 
@@ -666,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431658.jpg" />
 </div>
 
 
@@ -677,6 +650,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D5791C3769305DEED7A6A73435E43C9ADAE1C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945876   (431553) от 11.10.2015
+
+Кто убил Германа Геринга? (2009) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герман Геринг - рейхсмаршал нацистской Германии, военный преступник и бесстрашный воздушный ас Первой мировой войны. Его образ растиражирован фотографами и карикатуристами всего мира. Еще при жизни этот человек был объявлен преемником Гитлера, но пост самого главного нациста он занял, только усевшись на скамью подсудимых Нюрнбергского трибунала. «Убивайте, убивайте, (   Читать дальше...   )Телекомпания: Россия, ВГТРКЖанр: документальный, биография, историческое расследование
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AD0AB1509DFE00EDCADE650B7ABB7D21335B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

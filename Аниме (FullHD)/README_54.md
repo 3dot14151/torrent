@@ -6,7 +6,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66343.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus' Bride Season 2 | Невест
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66341.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66338.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66327.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66324.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66319.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66318.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66317.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66316.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66281.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66277.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru | As a Reincarnated Aristocrat, I'll Us
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66276.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Date a Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66275.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66274.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65124.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64946.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] Web
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61467.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 эп.] WEBRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61229.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61073.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Undead Unluck | Undead Unluck | Нежить и Неудача [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60101.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59447.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Final | Девушки и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57452.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57410.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57403.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57393.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57390.jpg" />
 </div>
 
 

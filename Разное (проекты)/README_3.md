@@ -1,3 +1,29 @@
+###  Публикация: 1773744   (30634) от 17.01.2025
+
+Проекты - VideoHive - Concrete Phone Mockups v2 - 56015749 [AEP]
+
+>>Проекты
+>>Разное (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concrete Phone Mockups v2 — это шаблон After Effects, представляющий собой реалистичный макет телефона с камнями и бетоном. Вы можете легко настроить цвета фона в соответствии со своими потребностями.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B8244445EE998177037FD8D5B6A2DBCA8DCC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773756   (30625) от 17.01.2025
 
 Проекты - VideoHive - App Promo Mockup Phone - 56109249 [AEP]
@@ -6,7 +32,7 @@
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30625.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29752.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26296.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25310.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22503.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11934.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11182.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10143.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8795.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2159.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1818.jpg" />
 </div>
 
 

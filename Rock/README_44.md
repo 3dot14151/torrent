@@ -6,7 +6,7 @@ Gene Vincent - Les Genies Du Rock - Be-Bop-A-Lula (1993) [MP3|320 кб/с]<Rock 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571782.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Robert Plant - More Roar (2015) Vinyl, EP[MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571639.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Rod Stewart - You Wear It Well. The Collection (2011) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571273.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Piper - Piper (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569296.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ The Beatles - Tomorrow Never Knows (2012) (Compilation)[MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568711.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Magma  - Art Zoyd - Les Génies Du Rock - Mekanik Destruktiv Kommandoh (1993) [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568349.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ The Nice - Les Genies Du Rock - Rondo (1993) [MP3|320 кб/с]<Prog Rock, Psyche
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568347.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Iggy Pop - Les Genies Du Rock - Live (1993) [MP3|320 кб/с]<Punk, Garage Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568225.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Best Of Rock - Les Genies du Rock (1995) [MP3|320 кб/с]<Rock,Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568208.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Motorhead - Les Genies du Rock - Ace Of Spades (1995) [MP3|320 кб/с]<Rock & R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568200.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Lance Richards - Friends (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567451.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - While My Guitar Gently Weeps III (2005) [MP3|320 Kbps] <Rock, Rock-N-Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567125.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Santana - Diamonds Are Forever (2017) 2CD Set [MP3|320 Kbps] <Rock, Latin Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566952.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Sting - My Songs (2019) Deluxe Edition [MP3|320 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566718.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Phoenix - Journey From Night to Day (1979) [MP3|320 кб/с]<Krautrock, Prog Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566596.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ The Amazons - Future Dust (2019) [MP3|320 Kbps] <Indie Rock, Alternative Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565544.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Honeyblood - In Plain Sight (2019) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565534.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ The Open Mind - The Open Mind (1969) Reissue, 2006, Second Battle [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565523.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Gwil Owen - The Road To The Sky (2022) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565512.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Jones Street - Out Of The Gutter (2022) Compilation [MP3|320 Kbps] <Hard Glam Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565508.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Michael Bundt - Neon (1979) LP [MP3|320 Kbps] <Electronic, Krautrock, Experiment
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564106.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Jimmy LaFave - Texoma (2001) [MP3|320 кб/с]<Rock, Folk, Americana>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561042.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Year Of The Goat - The Unspeakable (2015) [MP3|320 кб/с]<Occult Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561039.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Rachael Yamagata - Happenstance (2004) [MP3|320 кб/с]<Soft Rock, Pop Rock, In
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560921.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Detroit With Mitch Ryder - Detroit (1971) Reissue, 1987, MCA Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559686.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ The Beatles - SinglesCollection (2012) (Compilation) [MP3|320 кб/с]<Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558651.jpg" />
 </div>
 
 

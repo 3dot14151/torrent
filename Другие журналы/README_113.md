@@ -1,3 +1,59 @@
+###  Публикация: 1784340   (25101) от 10.03.2025
+
+Журнал | Юность №11 (828) (ноябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25101.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
+До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCDB4B5788CCE593B4C205C0EC653052F5929B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544798   (24020) от 21.03.2025
+
+Подшивка журналов | Мир фантастики - Спецвыпуски [21 номеров] (2019-2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спецвыпуски журнала «Мир фантастики».
+
+«Мир фантастики» — ежемесячный журнал о фэнтези и фантастике во всех её проявлениях. Издается в России с сентября 2003 года и является крупнейшим тематическим журналом о фантастике на территории бывшего СССР.
+«Мир фантастики» рассказывает о последних новинках книжного рынка, публикует рецензии на произведения авторов-фантастов, (   Читать дальше...   )Жанр: Журнал фантастикиИздательство: ООО «Мир Хобби»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC7D04020D61A2D9A2A6F50E372264A95A2B055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787173   (23633) от 24.03.2025
 
 Журнал | Монокль №13 (1381) (24-30 марта 2025) [PDF]
@@ -6,7 +62,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23633.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23403.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23312.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22781.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22259.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21840.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21407.jpg" />
 </div>
 
 
@@ -193,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21316.jpg" />
 </div>
 
 
@@ -219,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21257.jpg" />
 </div>
 
 
@@ -246,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21228.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21201.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21116.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21105.jpg" />
 </div>
 
 
@@ -352,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20684.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20683.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20594.jpg" />
 </div>
 
 
@@ -431,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20590.jpg" />
 </div>
 
 
@@ -457,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20588.jpg" />
 </div>
 
 
@@ -484,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20485.jpg" />
 </div>
 
 
@@ -511,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20378.jpg" />
 </div>
 
 
@@ -538,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20300.jpg" />
 </div>
 
 
@@ -565,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19796.jpg" />
 </div>
 
 
@@ -594,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19458.jpg" />
 </div>
 
 
@@ -620,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19457.jpg" />
 </div>
 
 
@@ -631,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6D823E261F7019BD7967EDAEFCF928832AF5C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795692   (19140) от 06.05.2025
-
-Журнал | Тайны ХХ века №9 (1155) (март 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19140.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2639D064BDCACFF5CCD8E8E60BFE7ACCC0303C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795694   (19136) от 06.05.2025
-
-Журнал | Тайны ХХ века №11 (1157) (март 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19136.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F952DC17E1B6110CFBF55070290172572831A52
 ```
 
 https://mybot314.ru/tekegram_catalog/

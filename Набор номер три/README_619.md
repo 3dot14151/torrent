@@ -1,3 +1,211 @@
+###  Публикация: 1348414   (137254) от 31.12.2019
+
+Windows начнет автоматически устанавливать драйверы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_137254.jpg" />
+</div>
+
+
+###  Подробнее
+
+В операционной системе Windows появится облегченная система установки драйверов. Об этом сообщил портал Ghacks.Эксперты обратили внимание на недавно вышедшую сборку Windows 10 Build 19536. Судя по обновлению, в будущем в ОС Windows появится единый интерфейс для установки драйверов и необходимых для работы сторонних устройств программ. Отмечается, что инструменты (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970795   (137249) от 31.12.2015
+
+Марсианин / The Martian (2015) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного. Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель Хенни, Чиветель ЭджиофорПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F17FA7CC09128943C1E5EF205CB3830EFCC2285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195486   (137236) от 31.12.2017
+
+Остаются в 2017-м: технологии, сервисы и гаджеты, не пережившие уходящий год
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_137236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный формат-долгожитель mp3, "Instagram для видео" Vine, бесконтактный контроллер Kinect, графический редактор Paint, "яйца" на аватарках Twittter, плеер Apple iPod Nano, мессенджер Google Chat — вот лишь малая часть списка онлайн-сервисов, гаджетов и приложений, с которыми нам пришлось расстаться в этом году. Какие еще IT-проекты не дожили (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970737   (137231) от 31.12.2015
+
+Navitel / Навител Навигатор v9.6.1978 RePack [Ru/En] - только программа навигации
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 30.12.2015Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3811A7082973EAB3315288A4A1FBA074A28C11B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 779289   (137225) от 31.12.2015
+
+Официальные карты России для СитиГид v8-9 и GeoNet v8-9 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137225.jpg" />
+</div>
+
+
+###  Подробнее
+
+MIT GEOMATICS LTD представила новый формат карт для программ СитиГид v8 и GeoNet v8. Все официальные электронные карты, используемые в системе СитиГИД, поставляются профессиональными картографическими компаниями, имеющими государственную лицензию. Все карты поддерживают функцию автоматической дорожной маршрутизации, адресный поиск и содержат большое количество информационных (   Читать дальше...   )Релиз состоялся: 25.12.2015Разработчик: MIT GEOMATICS LTD (СитиГид)Язык интерфейса: РусскийФормат: .cgnet
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8FAA3CB05F7A53A76A9DE5FCC84280B044E429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867718   (137220) от 31.12.2015
+
+КВН-2015. Высшая лига (2015.12.30) HDTVRip (Весь сезон!!!)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: Каждая игра х 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759802C1438100F403EE6723D85F9492B0281F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088661   (137203) от 31.12.2016
+
+Aero Glass for Windows 10 RS 1.5.1 RePack by PainteR [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита возвращает полупрозрачность окон с эффектом размытия в Windows 10Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690523ABCDC3A782E2EC27366E1612AEDD3B61BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195060   (137185) от 31.12.2017
+
+С наступающим Новым годом!
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_137185.jpg" />
+</div>
+
+
+###  Подробнее
+
+С наступающим Новым Годом, дорогие друзья!Я благодарен основателям форума за то, что здесь получилось собрать сообщество талантливых, интеллигентных людей, которые делятся только самым лучшим.Я очень благодарен админам и модераторам за Вашу многолетнюю работу по созданию такого качественного ресурса, как трекер NNM-Club.NNM для меня - не просто место обмена информацией, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029532   (137183) от 31.12.2017
 
 Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0/upd2/dlc) Repack Other s
@@ -6,7 +214,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0/upd2/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137183.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ S.T.A.L.K.E.R. Anthology  (2007-2009) [Ru/Multi] Repack R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137178.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137171.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_137165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_137165.jpg" />
 </div>
 
 
@@ -111,7 +319,7 @@ BootHDD 2017 (EFI) [Ru]
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137164.jpg" />
 </div>
 
 
@@ -137,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137146.jpg" />
 </div>
 
 
@@ -164,7 +372,7 @@ BELOFF 2019 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137133.jpg" />
 </div>
 
 
@@ -190,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137120.jpg" />
 </div>
 
 
@@ -216,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137117.jpg" />
 </div>
 
 
@@ -242,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137113.jpg" />
 </div>
 
 
@@ -268,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137086.jpg" />
 </div>
 
 
@@ -294,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137072.jpg" />
 </div>
 
 
@@ -320,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137064.jpg" />
 </div>
 
 
@@ -346,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137061.jpg" />
 </div>
 
 
@@ -372,7 +580,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [30.12.2019] [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137058.jpg" />
 </div>
 
 
@@ -401,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137052.jpg" />
 </div>
 
 
@@ -427,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137036.jpg" />
 </div>
 
 
@@ -458,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137026.jpg" />
 </div>
 
 
@@ -469,215 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9DCB48C09CB2D2A5EA5CD10AA287FF2EFD83A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200139   (137021) от 31.12.2021
-
-Fade to Silence (2019) [Ru/Multi] (1.0.2025hf) Repack West4it
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит играть за Эша, прирожденного лидера, которого терзает его собственный разум, исследовать ледяные земли, опустошенные мировой катастрофой, и собирать материалы, без которых построить убежище и выжить невозможно. В мире, где ресурсов становится все меньше, даже такие простые задачиТип издания: RepackРазработчик: Black Forest GamesЖанр: RPG, Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C152150D53C0F6B99C688E3160C588139D8F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338543   (137018) от 31.12.2021
-
-Клаус / Klaus (2019) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодого почтальона отправляют на работу в заснеженную деревушку с крайне недружелюбными и негостеприимными жителями. Там он встречает странного создателя игрушек, и между ними завязывается необычная дружба.Производство: Испания / The SPA Studios, Aniventure, Atresmedia CineЖанр: Мультфильм, семейный, фэнтези, комедия, приключенияРежиссер: Серджо ПаблосПеревод: Дублированный (Невафильм)Язык озвучки: Русский, румынский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH).. и др. (см. Mediainfo)Продолжительность: 01:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0F3DFB00A14365AA43EEA90A9066650F71B281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986276   (137015) от 31.12.2021
-
-All activation Windows (7-8-10) v2 [Multi/Ru] (авторская раздача)
-
->>3
->>24
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все способы активации в этой раздаче проходят проверку после "антипиратского" обновления KB971033
-DG Win&Soft предлагает Вашему вниманию полный сборник программ и способов для активации Windows. Все способы и программы проверены лично нами много раз и мы спокойно можем рекомендовать их Вам.Язык интерфейса: Russian, English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEDCDEDB1A4C967B6EBE944B36F79838845D7FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679320   (136991) от 25.11.2023
-
-О выводах нейросети по высадке американцев на Луну
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_136991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская нейросеть сочла подделкой фото лунной миссии США, рассказали президенту РФ Владимиру Путину на выставке в рамках конференции "Путешествие в мир искусственного интеллекта", глава государства заинтересовался таким выводом искусственного интеллекта.Во время осмотра выставки Путин ознакомился с решениями Сбербанка по распознанию фейковых фото и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677180   (136990) от 25.11.2023
-
-Windows 11 23H2 (x64) 24in1 +/- Office 2021 by Eagle123 (11.2023) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 v23H2 22631.2715, включающая в себя 4 редакции x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 11.2023, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1B35E4C3CA78492D534CD7165BCB34C5AEFBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824129   (136914) от 16.10.2025
-
-Музей ВМС США поздравил американский флот постом с российским крейсером "Варяг"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Национальный морской музей подразделений специального назначения ВМС США поздравил американский флот с 250-летием постом с фотографией российского ракетного крейсера "Варяг", на это обратил внимание в соцсети X журналист The Wall Street Journal Дэвид Браун."Это российский ракетный крейсер", — написал он, репостнув поздравление музея ВМС США.Пост (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824178   (136816) от 16.10.2025
-
-Калифорния будет платить репарации потомкам рабов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Губернатор американского штата Калифорния Гэвин Ньюсом подписал законопроект, согласно которому впервые в истории США будет создано специальное бюро по репарациям для потомков американских темнокожих рабов. Об этом сообщила фракция афроамериканских законодателей на сайте нормативных актов штата.Как уточняется в документе, такой шаг может положить начало выстраиванию (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825151   (136699) от 16.10.2025
-
-Лукашенко потребовал до понедельника разобраться с людьми, которые пьют кофе на заправках
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136699.jpg" />
-</div>
-
-
-###  Подробнее
-
-На совещании глава государства рассказал, что сначала задался вопросом, в чем причина очередей на АЗС и неужели правительство не выполняет поручение о том, чтобы внутренний рынок в достаточном объеме обеспечивался топливом.Но, как выяснилось, порой на АЗС образуются очереди из-за того, что люди приезжают не заправиться, а воспользоваться кафе. «Машины поставили поперек, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

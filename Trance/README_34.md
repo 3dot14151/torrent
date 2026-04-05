@@ -1,3 +1,61 @@
+###  Публикация: 1257300   (347936) от 25.10.2018
+
+VA - Arkham Digital: ADE Essentials (Selected by DJ Xquizit)(2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christina Novelli & DJ Xquizit - So Cold (Grant Saxena Extended Remix)
+02. Matthew Duncan - Verdant (Original Mix)
+03. Tom Rogers ft. Mickey Shiloh - Train to Nowhere (Sundrowner Remix)
+04. Jon Bourne - Caleta de Fuste (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2089791EE48030720EB24EAD9ADF589F717B3F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257291   (347784) от 25.10.2018
+
+VA - Total Trance Selections Vol.13 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Huem & T.O.M. - Rocket Science (Original Mix)
+02. Cemoba - People Worse Than Animals (Original Mix)
+03. Dima Krasnik & Hiromori Aso - Cyberbrain (Original Mix)
+04. Aly & Fila x Ferry Corsten - Camellia (Ciaran McAuley Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAA02BD9D531E8CC951644C62EFDB118FE5DD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257147   (347626) от 25.10.2018
 
 VA - A State of Trance: Top 20 - October (Selected By Armin Van Buuren)(ADE Special) (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - A State of Trance: Top 20 - October (Selected By Armin Van Buuren)(ADE Spec
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347626.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Alexander Popov - Intention (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347625.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Derek Palmer - Gemini (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347548.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Vladimir Fonarev (Володя Фонарёв) - 21 Compilations (1997 - 2017) [
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347286.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Black Hole Trance Music 09-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345833.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ DJ Бинокль - Progressive Trance Vol.2 (2003) [MP3|256 Kbps] <Progressive 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345807.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sion Rae - Everlast (2019) Single [MP3|320 Kbps] <Trance, Uplifting>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345742.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Techno Club Vol.55 (Mixed By Talla 2xlc & Arctic Moon)(2CD) (2018) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345178.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Raphaelle Fanti - Insomniac (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344686.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Best Of Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344562.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Nothing But... The Future Of Trance Vol. 04 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342810.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Recoverworld Radio 001 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342416.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Orjan Nilsen pres. Orion - Gobstice (2007) EP [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341394.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ VA - Made2Dance Trance Classics (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341348.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ VA - FG Top 10: October (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341342.jpg" />
 </div>
 
 
@@ -436,7 +494,7 @@ Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ult
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341312.jpg" />
 </div>
 
 
@@ -463,7 +521,7 @@ Dave Steward - Rage (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341001.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ VA - Ana Criado - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340939.jpg" />
 </div>
 
 
@@ -521,7 +579,7 @@ VA - Vocal Trance - Hits Best Of (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339732.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ VA - My Nature: The Best Of Katty Heath (2019) [MP3|320 Kbps] <Trance, Vocal Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339095.jpg" />
 </div>
 
 
@@ -579,7 +637,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 October (2019) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338985.jpg" />
 </div>
 
 
@@ -608,7 +666,7 @@ VA - Suanda Music Radio Top 20: (October / November) (2018) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338813.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ VA - United Colors of Trance Vol.12 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338690.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ VA - Armin van Buuren Presents: Armind Best Of (2016) [MP3|320 Kbps] <Trance, Vo
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338427.jpg" />
 </div>
 
 
@@ -680,64 +738,6 @@ VA - Armin van Buuren Presents: Armind Best Of (2016) [MP3|320 Kbps] <Trance, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F44BC14D40EF97FDB2161AA707C4F784EB217536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330716   (338351) от 11.10.2019
-
-Airwave - Believe Remastered (Deluxe Edition) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Want To Believe (Remastered Dolphin Mix)
-02.Musings Of A Lifetime (Remastered Album Mix)
-03.Save Me (Remastered Album Mix)
-04.Another Dimension (Remastered Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B30BF67D245D6BC8115F341365157E59F108FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258570   (336649) от 30.10.2018
-
-VA - Trance Autumn Essentials (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Quelle - Badoor (Extended Mix)
-02. Lessov - Kami (Original Mix)
-03. Johan Vilborg - Swetro (Original Mix)
-04. Mango & Astroleaf - We Tried (Talamanca Dub Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760493E73FCB7C371C173A68EFF0A48E9B298DDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

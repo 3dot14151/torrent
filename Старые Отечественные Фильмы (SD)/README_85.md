@@ -1,3 +1,29 @@
+###  Публикация: 1780060   (25194) от 09.03.2025
+
+Раскиданное гнездо (1981) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало XX века. Огромная беда пришла в крестьянскую семью Лявона Зяблика: задумав строить полотняную фабрику, молодой паныч согнал их с выкупленной земли и разрушил дом, в котором жили отец, мать, два сына и дочь. Каждый из них по-своему попытался справиться с несчастьем. Не найдя правду в суде, отчаявшись, покончил жизнь самоубийством отец. Жестоко был избит панскими (   Читать дальше...   )Производство: СССР / БеларусьфильмЖанр: драмаРежиссер: Борис ЛуценкоАктеры: Александр Ткаченок, Александр Франскевич-Лайе, Антонина Бендова, Геннадий Гарбук, Анатолий Гурьев, Вадим Ледогоров, Иван Мацкевич, Ольга Сирина, Анатолий Солоницын, Александр БеспалыйСубтитры: отсутствуютПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5F363821CAD7467AF3419FBFAB29B4CD190B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782656   (24566) от 15.03.2025
 
 Родина зовет (1936) WEBRip
@@ -6,7 +32,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24566.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24404.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24392.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24346.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24244.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24230.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24102.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24101.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23817.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23672.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23660.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23598.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23596.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23591.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23545.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23392.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23008.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22385.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22254.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22194.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21790.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21542.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21490.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21475.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21443.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6AECC919A1C5291550B13F13F2C92886946A095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793056   (20583) от 22.04.2025
-
-Два долгих гудка в тумане (1980) DVDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20583.jpg" />
-</div>
-
-
-###  Подробнее
-
-В безлюдной тундре на озере совершает вынужденную посадку гидросамолет, на борту которого банковские инкассаторы везут крупную сумму денег. Неизвестный похищает деньги и убивает свидетеля. А через несколько дней из северного порта отправляется в последний навигационный рейс теплоход, и капитану судна предстоит решить непростую загадку: кто же из пассажиров причастен (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Детектив, БоевикРежиссер: Валерий РодченкоАктеры: Александр Пороховщиков, Николай Гринько, Елена Капица, Дагун Омаев, Любовь Виролайнен, Виктор Проскурин, Андрей Толубеев, Александр Коваленко, Александр Суснин, Пеэтер Урбла, Николай ФедорцовПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6577C84BE41FB033BB3A04CC8748051465E7B1AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

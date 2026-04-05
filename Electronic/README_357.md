@@ -1,3 +1,119 @@
+###  Публикация: 1076381   (313850) от 25.11.2016
+
+VA - Psychedelic Goa Trance  Vol.2 - 40 Best Of Top Hits (2016) [MP3|320 Kbps] <Psytrance, Psychedelic Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meander - You May Think That You Know Things 7:09
+02. Pulsar - Magic Of Life 6:10
+03. Declaration of Unity - Alpha 2 8:59
+04. Mechanix - The Virus 8:20(   Читать дальше...   )Жанр: Psytrance, Psychedelic TranceПродолжительность: 05:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5280209598F205EB85B9341EBAFD9920BB9D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332488   (313651) от 20.10.2019
+
+Stardance - Stars Challenge (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stop To Dance (6:06)
+02. Empire's Attack (5:50)
+03. Space Battle (7:03)
+04. Supreme Powers (6:05)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4361934AAC001594672FF7A5C3F13DF79D59FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422018   (313281) от 07.11.2020
+
+VA - Relax Your Mind Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - Remembrance (Original Mix) (3:50)
+02. Peter Pearson - Beyond the Mist (Original MIx) (4:12)
+03. Lynn Tredeau, Sherry Finzer - Behind the Door (Original Mix) (3:02)
+04. Shoshana Michel - Nocturne in E Flat (4:23)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0C636E2C5BDD581B0BD98A195D10AAB1C0C22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422251   (313055) от 07.11.2020
+
+Workout Music Tv - 40 Best Hits For Street Workout 2020 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Ice Baby - Workout Remix (4:31)
+02. The Hum - Workout Remix (5:50)
+03. Knockout - Workout Remix (4:35)
+04. Jump That Rock - Workout Remix (3:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F772CCF7C9012159D8DB9F41A87052BF183062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182911   (312790) от 12.11.2017
 
 VA - Party Time Compilation (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -6,7 +122,7 @@ VA - Party Time Compilation (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312790.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Ibiza House Shredders (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312697.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Tone Band - 2 Albums (1981, 1982) LP [MP3|320 Kbps] <Electronic, Synth-pop, New 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312474.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Beauty Behind Chillness (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312401.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Sun Tea Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312317.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Roses of Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312314.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Dream and Beauty Chill (2016) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312311.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Beach Party 2018 (2CD) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Other>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312034.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - New Blood 013 (2013) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311893.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Deep Value, Vol.1 (Mixed By Markus Homm) (2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311873.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Ekhozone & Mean Seed Records Label-Pack - 24 Releases (2012-2018) [FLAC|Lossless
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311833.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Zen Connection (2002-2006) One World Music [FLAC|Lossless|tracks+.cue] <Dow
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311791.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Loess - Discography 9 Releases (2001-2017) [FLAC|Lossless|tracks+.cue, tracks] <
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311620.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Thomas Carmody (Soundarium) - Discography 22 Releases (2015-2019) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311522.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ BT - This Binary Universe (2006/2015) DTS Entertainment [FLAC 2.0|44.1/24|tracks
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311504.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ VA - Ministry Of Sound: XX Twenty Years (4CD Boxset) (2011) [FLAC|Lossless]<Club
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311093.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ VA - Bass Music 2016 - 30 Top Hits Best Of Drum & Bass, Dubstep, Rave Music Anth
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311067.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310714.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Armin van Buuren - Live @ Amsterdam Music Festival, Netherlands (2020-11-07) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310707.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ VA - Pool Loungue Emotional & Sensual Grooves (2012) [MP3|320 кб/с]<Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310660.jpg" />
 </div>
 
 
@@ -591,7 +707,7 @@ Depeche Mode - Songs of Faith and Devotion - The 12" Singles (2020) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310443.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ VA - Dark Rest Vol. 3 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310312.jpg" />
 </div>
 
 
@@ -634,121 +750,6 @@ VA - Dark Rest Vol. 3 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC9EB50C3489351A2F31C8A3A2D49E1B2214E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183335   (310311) от 13.11.2017
-
-KGproject - Cold Eyes (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Eyes (Original Mix) (7:28)
- 02. Cold Eyes (Alternate High Remix) (8:28)
- 03. Cold Eyes (Dave Cold Tech Remix) (6:39)
- 04. Cold Eyes (Dave Cold Uplifting Remix) (6:53)Жанр: TranceПродолжительность: 00:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A13FCEEB59EA16C820854AD5F5F6DE8C38E616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183328   (310221) от 13.11.2017
-
-VA - Ori Uplift & Nick Turner - Uplifting Only 248 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DreamLife - Follow Your Heart (Phil Dinner Intro Mix)
-02. tranzLift & Andy Elliass - Gates of Albion (Paul Rigel Remix)
-03. PRE-RELEASE PICK: AirLab7 & Andrew Wu - Be Yourself
-04. J.S.B - No Break (Akku Remix)(EXCLUSIVE PREMIERE)Жанр: Trance, Uplifting TranceПродолжительность: 02:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1E59FC895C8852A291B8B32ABA9C95B7B80707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183338   (310215) от 13.11.2017
-
-Aeden - Once Upon A Time EP (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Leave (Original Mix) (6:20)
- 02. Focus (Original Mix) (4:56)
- 03. Once Upon A Time (Original Mix) (6:39)Жанр: TranceПродолжительность: 00:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1808ADEBC0B75144E104ED31DB1A840366F7E742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183454   (310199) от 13.11.2017
-
-VA - Grotesque Reworked & Remixed (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES - People Will Go (M.I.K.E. Push Remix) (7:10)
-02. DJ Ton TB - Dream Machine (Factor B's Back To The Future Remix) (8:00)
-03. Salt Tank - Eugina (Ciaran Mcauley Remix) (4:12)
-04. Mr. Sam - Lyteo (Stoneface & Terminal Remix) (7:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B72633E2A373B3699F601F0A16699C4D7CAD44C
 ```
 
 https://mybot314.ru/tekegram_catalog/

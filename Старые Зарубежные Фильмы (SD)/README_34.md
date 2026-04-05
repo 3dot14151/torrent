@@ -1,3 +1,136 @@
+###  Публикация: 618174   (970534) от 13.02.2013
+
+Зубастики / Critters (1986) WEB-DLRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они не вышли ростом, но по свирепости с ними не сравнится ни одно земное существо — это Зубастики! Мохнатые безжалостные твари с ужасающей пастью прибыли из космоса, чтобы уничтожить цивилизацию людей.
+
+И начали они с обычной сельской фермы в Канзасе, где сжирают всё, что попадается им на зуб (в том числе и людей). Хорошо, что в космосе есть ещё и отважные герои, (   Читать дальше...   )Жанр: Ужасы, Фантастика, БоевикРежиссер: Стивен ХерекАктеры: Ди Уоллас-Стоун, М. Эммет Уолш, Билли Грин Баш, Скотт Кримес, Надин Ван дер Велд, Дон Кейт Оппер, Билли Зейн, Этан Филлипс, Терренс Манн, Джереми Лоуренс, Лин Шей, Майкл Ли Гогин, Арт Франкел, Дуглас Кот, Монтроз ХагинсПеревод: Многоголосый закадровый, Одноголосый закадровый (А. Гаврилов)Язык субтитров: Русские, Украинские, Английские (внешние)Продолжительность: 01:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AB087605588495C60DD9D664A82A7C82B0EE59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975829   (970479) от 16.01.2016
+
+Если бы у меня была пушка / Keby som mal pusku / If I had a gun (1972) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970479.jpg" />
+</div>
+
+
+###  Подробнее
+
+В богом забытой словацкой деревушке мальчик Владо балуется и проказничает со своеми друзьями. Они подглядывают за девочками, жгут костры, пакостят соседке - "американке". Но все эти шалости проходят на фоне второй мировой. Штефан Угер показал странный и сюрреалистичный военный мир глазами подростка. В нем драматизм перемешан со смешным героическим фарсом, (   Читать дальше...   )Производство: ЧехословакияЖанр: Драма, МелодрамаРежиссер: Штефан Угер / Stefan UherАктеры: Мариан Бернат, Йозеф Граф, Эмилия Досекова, Людовит КронерПеревод: Одноголосый закадровый (Антон Алексеев)Субтитры: Английские, Словацкие (SRT)Продолжительность: 01:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68157677746426769D55A4E377284C8131D7158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976387   (969709) от 17.01.2016
+
+Смерть отображается в кошачьих глазах / La morte negli occhi del gatto (1973) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корринга приезжает как незваная гостья, в дом своей тётки, где собрались все родичи, включая её мать. Ей однако рады, ведь девушка она красивая. Но через некоторое время общее радужное настроение было перечёркнуто убийствами в доме. Среди убитых оказалась мать Корринги. Большинство присутствующих подозревает в них сына хозяйки дома, человека с психическими отклонениями. (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ) / Capitole Films, Roxy Films, Starkis-Falcon FilmsЖанр: Ужасы, Триллер, ДетективРежиссер: Антонио МаргеритиАктеры: Джейн Биркин, Хирам Келлер, Франсуаза Кристоф, Венантино Венантини, Дорис Кунстманн, Антон Диффринг, Дана Гиа, Конрад Георг, Серж Генсбур, Лучано ПигоцциПеревод: Авторский, одноголосый закадровый (Р. Янкилевич)Продолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A06A3C9C38D0E1D399A777B94295FD22E551440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976189   (969607) от 17.01.2016
+
+Счастливый конец / Happy End (1967) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно впервые в кино фильм снят наоборот - от смерти человека до его рождения. Начинается с того как голову главного героя, отрубленную на гильотине , приставляют обратно, и он идет задом наперед к своей жене, которую в порыве ревности он разрубил на части , жена оживает, и они славно пьют чай с плюшками, которые вместо того, чтобы глотать, вынимают изо рта. И (   Читать дальше...   )Производство: ЧехословакияЖанр: Комедия, Фэнтези, КриминалРежиссер: Олдржих Липский / Oldrich LipskýАктеры: Владимир Меншик, Ярослава Обермайерова, Йозеф Арбгам, Богуш Загорски, Стелла Зазворкова, Гелена РужичковаПеревод: Одноголосый закадровыйЯзык субтитров: Czech, English, Русский (SRT)Продолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA481C0D752F7074275A0D8DD6114CDD7C0BD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976187   (969599) от 17.01.2016
+
+Полицейский по найму / Rent-a-Cop (1987) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969599.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате неудачно проведенной операции по поимке торговцев наркотиками, чикагский полицейский Фрэнк Черч потерял своегонапарника и два миллиона долларов. Он вынужден уйти из полиции и стать наемным охранником.
+Делла Робертс, проститутка по вызову, преследуемая таинственным убийцей-психопатом, нанимает Фрэнка, чтобы найти и обезвредить маньяка. Став свидетельницей (   Читать дальше...   )Производство: США / Kings Road Entertainment, Zealcorp Productions LimitedЖанр: Боевик, Триллер, Комедия, КриминалРежиссер: Джерри ЛондонАктеры: Берт Рейнолдс, Лайза Миннелли, Джеймс Римар, Ричард Мейсер, Дайонн Уорвик, Берни Кейси, Робби Бенсон, Джон Стэнтон, Джон П. Райан, Ларри ДолгинПеревод: Многоголосый закадровый, авторскийЯзык субтитров: РусскийПродолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE84F209BF80FCECB96A4CE56465FC6C5EAADFDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976129   (969594) от 17.01.2016
 
 Дьявол / Diabel (1972) DVDRip
@@ -6,7 +139,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969594.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969441.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_969429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_969429.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969345.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968761.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968713.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968588.jpg" />
 </div>
 
 
@@ -190,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968568.jpg" />
 </div>
 
 
@@ -216,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968518.jpg" />
 </div>
 
 
@@ -242,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968472.jpg" />
 </div>
 
 
@@ -270,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967683.jpg" />
 </div>
 
 
@@ -296,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967566.jpg" />
 </div>
 
 
@@ -323,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966648.jpg" />
 </div>
 
 
@@ -349,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966570.jpg" />
 </div>
 
 
@@ -375,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966569.jpg" />
 </div>
 
 
@@ -401,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966481.jpg" />
 </div>
 
 
@@ -429,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966122.jpg" />
 </div>
 
 
@@ -456,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966090.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965890.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965685.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965595.jpg" />
 </div>
 
 
@@ -547,136 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1301A4B406C0C04067B273512EB9A7DD9142F506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977766   (965472) от 21.01.2016
-
-Легенда о сэре Гавейне и зеленом рыцаре / Sword of the Valiant: The Legend of Sir Gawain and the Green Knight (1984) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во дворец короля Артура является загадочный Зеленый Рыцарь. Говоря рифмами и загадками, он подстрекает людей на безрассудства. И когда один из рыцарей, молодой сэр Гавейн, пытается защитить честь короля, то обнаруживает, что он всего лишь пешка в игре призрачного рыцаря. Игре, которая уведет его далеко от Камелота и заберет его жизнь, если он не сможет решить загадки (   Читать дальше...   )Производство: Великобритания / Golan / Globus Production, Stephen Weeks CompanyЖанр: Фэнтези, Боевик, Мелодрама, ПриключенияРежиссер: Стефен ВиксАктеры: Майлз О’Киффи, Сирил Клер, Ли Лосон, Шон Коннери, Тревор Ховард, Питер Кушинг, Рональд Лейси, Лиля Кедрова, Джон Рис-Дэвис, Уилфрид БрэмбеллПеревод: Многоголосый, одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D52055F3B7B99F20B8B985CF462C51AEB49911E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977471   (965372) от 21.01.2016
-
-Пиратка / La Pirate (1984) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как-то раз Альма возвращается домой вместе с мужем и застает у себя дома свою бывшую подругу-любовницу Кароль. Альма позволяет Кароль соблазнить ее и увезти с собой в отель, а следом за ними идет молодая девчонка — подруга Кароль, которая ревнует и выслеживает ее, она же детектив, которую нанял муж Альмы. Прежде чем Альма и Кароль успевают выяснить свои отношения, (   Читать дальше...   )Производство: Франция / Centre National de la Cinématographie (CNC), F.L.F., Lola Films, Tango FilmЖанр: ДрамаРежиссер: Жак ДуайонАктеры: Джейн Биркин, Марушка Детмерс, Филипп Леотар, Эндрю Биркин, Лор Марсак, Майкл Стивенс, Дидье Шамбранье, Арсен АльтмайерПеревод: Одноголосый закадровыйПродолжительность: 01:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A294020F9145DD2D6DA0B044B9C6DA23BD11D4F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359300   (965049) от 11.02.2020
-
-Знак четырёх / The Sign of Four (1983) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мисс Мэри Морстен неожиданно получает по почте дорогой бриллиант, также её приглашают на тайную встречу. Она обращается за помощью к Шерлоку Холмсу и доктору Ватсону, те в свою очередь соглашаются помочь мисс Морстен. Вместе они приступают к раскрытию тайны «Знака четырех»…Производство: Великобритания / Mapleton FilmsЖанр: Криминал, ДетективРежиссер: Десмонд ДэвисАктеры: Иэн Ричардсон, Дэвид Хили, Торли Уолтерс, Шери Лунги, Джо Мелиа, Теренс Ригби, Клайв Меррисон, Ричард Хеффер, Джон Педрик, Майкл О’ХаганПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AF74D09EBDEA1665624443FB83779FA3B35B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978044   (964438) от 22.01.2016
-
-Одиночка / Le solitaire (1987) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964438.jpg" />
-</div>
-
-
-###  Подробнее
-
-До каких границ может дойти служитель закона в борьбе с преступниками, которые границ не знают? Комиссара Стэна называли фашистом с куриными мозгами и стальными мускулами. Но он справедлив и надежен и не остановиться ни перед чем, чтобы отомстить за гибель своего напарника и друга…Производство: Франция / Cerito Films, Sara FilmsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Жак ДереАктеры: Жан-Поль Бельмондо, Жан-Пьер Мало, Мишель Бон, Пьер Вернье, Франсуа Дюнойе, Франк Айя, Лоран Жандрон, Жан-Клод Де Горос, Ги Паннекин, Патриция МальвуазенПеревод: Дублированный, многоголосый закадровыйЯзык субтитров: Русский, французскийПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064D82F91DC10469F0E5D348DA17F9C0EEB58DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746906   (963790) от 18.01.2014
-
-Изабелла, дьявольская герцогиня / Isabella, duchessa dei diavoli / Isabella, Duchess of the Devils (1969) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_963790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родителей Изабеллы, герцога и герцогиню де Фрессак, убил зловещий барон фон Нюттер. Девочку чудом спас цыган и теперь, лишь много лет спустя узнав о своем подлинном происхождении, воспитанная цыганами аристократка готова отомстить узурпатору и вернуть свое наследие…Производство: Италия, Германия (ФРГ) / Cinesecolo, Hape Film, Internazionale Nembo Distribuzione Importazione Esportazione Film (INDIEF)Жанр: боевик, драма, мелодрама, приключенияРежиссер: Бруно КорбуччиАктеры: Бриджит Скай, Миммо Пальмара, Фред Уильямс, Элина Де Уитт, Сальваторе Боргезе, Марио Новелли, Энцо Андронико, Томас Астан, Джойя ДезидериПеревод: Одноголосый любительский (den904)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23BC4EF90224607B16E89F11AE575C71515B7A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

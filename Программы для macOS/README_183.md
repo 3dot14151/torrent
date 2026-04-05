@@ -1,3 +1,56 @@
+###  Публикация: 1706644   (113550) от 13.03.2024
+
+Ink2Go 1.9.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ink2Go - интересное приложение, которое позволяет создавать аннотации и выделять текст различными способами на любом приложении, работающем в данный момент времени: Web-страницы, окна других приложений, документы и даже на видео.
+Все ваши действия вы можете сохранить в виде графического файла или сохранить весь сеанс работы как видео, для совместного просмотра с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2011-2018 EyePower Games Private Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE99E8C862B803AED108A96A8F525B9DA4F2AC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706446   (113548) от 13.03.2024
+
+Navicat for SQLite on Mac 16.3.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиент Navicat для SQLite от PremiumSoft — это интегрированный инструмент с графическим пользовательским интерфейсом, позволяющий упростить администрирование SQLite и разработку баз данных. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A77EF7A488DFE5774F00B8B1C85E616CBF0AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706708   (113547) от 13.03.2024
 
 NCH ClickCharts Diagram Pro 9.15 [En]
@@ -6,7 +59,7 @@ NCH ClickCharts Diagram Pro 9.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113547.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Musify for Mac 3.5.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113526.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ System Toolkit 6.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113509.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Upscayl for Mac 2.10.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113492.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Cronette 1.10.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113491.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ SQLPro Studio 2024.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113484.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Prism 10 v.10.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113479.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Kaleidoscope 4.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113478.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ TS Calc 1.8.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113456.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ iNet Network Scanner 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113450.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ Caffeinated 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113436.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ uDock 4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113435.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ OmniGraffle Pro 7.22.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113420.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Labels and Databases 1.7.11 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113411.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ Desktop Stickers 2.72 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113407.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ KCNcrew Pack 03-15-24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113401.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113389.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113350.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Navicat for MySQL for Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113296.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ WatsGo for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113265.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ Product Manager 2 v.2.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113259.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ Navicat Charts Creator for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113227.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113208.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ Room Arranger 9 fo Mac 9.8.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113195.jpg" />
 </div>
 
 
@@ -625,59 +678,6 @@ Room Arranger - программа специально предназначен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:608A38B4CDF3D15F6B0453F6FF81971B70DB00E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708095   (113182) от 19.03.2024
-
-DiskCatalogMaker 9.0.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113182.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskCatalogMaker  - простая утилита для управления и каталогизации дисков. Приложение умеет сканировать содержимое восьми типов архивов и создавать предпросмотр для графических, видео и текстовых файлов.  Поиск по каталогам можно проводить по различным параметрам, но высокой скоростью он не отличается. Присутствует интеграция с Roxio Toast (новый диск после записи (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 18.03.20204Разработчик: © 2024 Fujiwara SoftwareПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45FEE49A0F877D5FD739C625960A7E837338642F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708246   (113173) от 19.03.2024
-
-Unclutter 2.2.8 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
-Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772FD3CC92DB49B261EA590C6EC68C2E588DA291
 ```
 
 https://mybot314.ru/tekegram_catalog/

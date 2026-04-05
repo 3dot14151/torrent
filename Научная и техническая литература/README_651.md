@@ -1,136 +1,3 @@
-###  Публикация: 1811975   (8256) от 12.08.2025
-
-И.В. Кудряшов, Г.С. Каретников | Сборник примеров и задач по физической химии (1991) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит задачи и примеры по всем разделам физической химии и соответствует программе для химических вузов и отражает современное развитие физической химии. В каждую главу включены перечень основных уравнений, решения типовых задач, задачи без решения, многовариантные задачи.Жанр: ХимияИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDA0F274EAA524EDDB632F53197FF03D6872CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811817   (8255) от 12.08.2025
-
-В.П. Васильев | Практикум по аналитической химии (2000) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены общие рекомендации по приемам, правилам и технике работы в аналитической лаборатории, погрешностям и способам представления результатов.
-Кратко изложены теоретические основы различных аналитических методов и приведены 40 лабораторных работ по химическим методам анализа (гравиметрии, титриметрии, включая комплексонометрическое титрование) и более 60 — по (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8527D40A8D72160EF9288647C92001A6C9E2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812030   (8107) от 13.08.2025
-
-Г.С. Каретников, Н.А. Козырева, И.В. Кудряшов | Практикум по физической химии (1986) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8107.jpg" />
-</div>
-
-
-###  Подробнее
-
-В практикуме описаны лабораторные работы, охватывающие весь курс физической химии. Каждой работе предпослано теоретическое введение. Особое внимание обращено на современные методы исследования: спектроскопию, рентгенографию, электронографию и др., а также рассмотрены классические методы исследования: криоскопия, эбулиоскопия, колориметрия, хроматография и т.п.Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962039FFF6A64C77BAB275ABDC18D406EB7DFC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812140   (8098) от 13.08.2025
-
-Владимир Кантор | Россия как судьба (2023) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8098.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей новой книге Владимир Кантор, писатель, доктор философских наук, профессор Национального исследовательского университета «Высшая школа экономики», рассматривает одну из важнейших культурфилософских проблем преобладающего негативного отношения Запада к России, хотя русские писатели и поэты постоянно подчеркивали нашу европейскость, говорили о России как «второй (   Читать дальше...   )Жанр: монография, культурология, искусствоведениеИздательство: Центр гуманитарных инициативФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63DE54DF41DAA70D98F839DFFA4B4D356043D4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812375   (7924) от 14.08.2025
-
-Алексей Исаев, Артём Драбкин | Великая Отечественная война 1941–1945 гг. Самая полная иллюстрированная энциклопедия (2023) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальная иллюстрированная энциклопедия от ведущих военных историков Алексея Валерьевича Исаева и Артёма Владимировича Драбкина. Самый полный иллюстрированный путеводитель по событиям 1941—1945 гг.
-
-Великая Отечественная до сих пор остаётся во многом «Неизвестной войной». Несмотря на большое количество книг об отдельных сражениях, самую кровопролитную войну в истории (   Читать дальше...   )Жанр: военная история, исторические исследования, научно-популярная литература, энциклопедииИздательство: ЯузаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2427A0F04F871F6AAB5684C22A9661F3AD67E1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812357   (7909) от 14.08.2025
 
 В.И. Костин | Основания геометрии (1948) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7909.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7873.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7742.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7520.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7505.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7476.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6946.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6659.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6619.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6491.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6129.jpg" />
 </div>
 
 
@@ -430,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6126.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6101.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6015.jpg" />
 </div>
 
 
@@ -510,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5585.jpg" />
 </div>
 
 
@@ -536,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5528.jpg" />
 </div>
 
 
@@ -562,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5366.jpg" />
 </div>
 
 
@@ -589,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5244.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5077.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5035.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5010.jpg" />
 </div>
 
 
@@ -678,6 +545,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B035C827E93EDB999A2479E054EBFC522C9E6463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815598   (4918) от 31.08.2025
+
+J. Heyrovsky, J. Kuta | Zaklady Polarografie (1962) [PDF] [Cz]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство по основам полярографии от её создателя.Жанр: ХимияЯзык: ЧешскийИздательство: Nakladatelství Československé akademie vědФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDA1012C2E52A0AF9387BD9FB6BEA5947337E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815818   (4844) от 01.09.2025
+
+А.Б. Старостина | Китайская мифология: обитатели небес, демоны и духи местности (2025) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4844.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании представлены очерки китайской народной мифологии, которая, будучи самобытной в течение тысячелетий, одновременно постепенно вбирала инокультурные представления об устройстве мира и населяющих его богах, духах и волшебных зверях. В китайских народных легендах можно найти следы влияния буддизма и даосизма, зороастризма, а также ислама и христианства. (   Читать дальше...   )Жанр: Научно-популярной литература, КультурологияИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62B594ED3455131D59E418FF3522F5F52A2ADD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815892   (4836) от 01.09.2025
+
+Серия книг | Подарочные издания. Живая природа [8 книг] (2020-2023) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги об удивительном и прекрасном мире живой природы. Лучший подарок для тех, кто любит природу, хочет научиться распознавать виды животных, птиц, насекомых, рыб и растений в естественной среде обитания.Жанр: Энциклопедии, биологияИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3CB7BD9CE72A62237022B6633EFA31D3C25795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816029   (4664) от 02.09.2025
+
+В.И. Соколов | Введение в теоретическую стереохимию (1979) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена теоретическим проблемам современной стереохимии.Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6354D97F4E14068D25246C2CA91DD9CD10147330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816520   (4204) от 06.09.2025
+
+Мария Сергеева | Грибы русского леса. Иллюстрированный определитель (2025) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский лес щедр на дары – нужно лишь знать, где и что искать. Этот иллюстрированный определитель поможет вам легко распознавать съедобные и несъедобные грибы, уверенно отличать их от опасных двойников и находить интересные и вкусные виды в разное время года. Понятная теория, яркие авторские иллюстрации, точные описания и удобный формат делают этот определитель надежным (   Читать дальше...   )Жанр: Энциклопедии, микология, справочникИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFC2716271931311DC95E8FDC1535F1B0094563
 ```
 
 https://mybot314.ru/tekegram_catalog/

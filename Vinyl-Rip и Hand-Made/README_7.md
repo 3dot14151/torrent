@@ -1,3 +1,37 @@
+###  Публикация: 614646   (978302) от 07.02.2013
+
+Deep Purple - 9 альбомов (1970-1990) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978302.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. King Of Dreams 5:28
+A2. The Cut Runs Deep 5:42
+A3. Fire In The Basement 4:46
+A4. Fortuneteller 5:48
+B1. Truth Hurts 5:15
+B2. Love Conquers All 3:45
+B3. Breakfast In Bed 5:18
+B4. Too Much Is Not Enough 4:18
+B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973683   (978127) от 10.01.2016
 
 VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover>
@@ -6,7 +40,7 @@ VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978127.jpg" />
 </div>
 
 
@@ -35,7 +69,7 @@ Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978125.jpg" />
 </div>
 
 
@@ -64,7 +98,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978123.jpg" />
 </div>
 
 
@@ -91,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977974.jpg" />
 </div>
 
 
@@ -117,7 +151,7 @@ U2 - Achtung Baby (1991) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976088.jpg" />
 </div>
 
 
@@ -152,7 +186,7 @@ Patricia Kaas - Mademoiselle Chante... (1988) [FLAC 2.0 24/96|image (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974369.jpg" />
 </div>
 
 
@@ -181,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973279.jpg" />
 </div>
 
 
@@ -210,7 +244,7 @@ Queen - 13 Студийных альбомов + Mr. Bad Guy, Barcelona (1973-19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973019.jpg" />
 </div>
 
 
@@ -243,7 +277,7 @@ Iron Maiden - The Number Of The Beast (1982) Reissue, 1987, Fame [FLAC 2.0 24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971775.jpg" />
 </div>
 
 
@@ -272,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968655.jpg" />
 </div>
 
 
@@ -298,7 +332,7 @@ David Bowie - Blackstar (2016) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Experimental 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968525.jpg" />
 </div>
 
 
@@ -327,7 +361,7 @@ The Alan Parsons Project - The Turn Of A Friendly Card (1980) [FLAC 2.0|96/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965548.jpg" />
 </div>
 
 
@@ -356,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962043.jpg" />
 </div>
 
 
@@ -385,7 +419,7 @@ Deep Purple - The House Of Blue Light (Дом голубого света) (1987
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958184.jpg" />
 </div>
 
 
@@ -414,7 +448,7 @@ George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957828.jpg" />
 </div>
 
 
@@ -443,7 +477,7 @@ Scorpions - Taken By Force (1977) [Vinyl Rip 24Bit/96kHz]<Classic Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955211.jpg" />
 </div>
 
 
@@ -472,7 +506,7 @@ Scorpions - Sting In The Tail (2010) [Vinyl Rip 24Bit/192kHz]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955140.jpg" />
 </div>
 
 
@@ -501,7 +535,7 @@ Deep Purple - 7 альбомов (1970-1990) VinylRip 24 bit/96 kHz [FLAC]<Hard 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955127.jpg" />
 </div>
 
 
@@ -530,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954562.jpg" />
 </div>
 
 
@@ -559,7 +593,7 @@ Deep Purple - Burn (1974) 1976, Warner Bros. [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954372.jpg" />
 </div>
 
 
@@ -588,7 +622,7 @@ VA - RETROспектива, часть I: Эстрадные оркестры (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953579.jpg" />
 </div>
 
 
@@ -617,7 +651,7 @@ U.D.O. (UDO) - Mean Machine (1988), RCA [FLAC 2.0|192/24|image + cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952709.jpg" />
 </div>
 
 
@@ -646,7 +680,7 @@ Deep Purple - Fireball (1971) [FLAC 2.0|96/24|image|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951243.jpg" />
 </div>
 
 
@@ -675,7 +709,7 @@ Triumvirat - 3LP (1975-1978) [FLAC 2.0|192/24|Lossless|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948933.jpg" />
 </div>
 
 
@@ -704,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948647.jpg" />
 </div>
 
 
@@ -718,35 +752,6 @@ Side 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5145FF0DE54B82D40ED6154FCFD717424B65EC68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089678   (948575) от 05.01.2017
-
-VA - RETROспектива, часть III: Эстрадные оркестры III (1933-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный октет - Новые приятели
-02. Оркестр п.у. Эмброуза (соло Сэм Браун) - Кукарача (румба)
-03. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Песенка дятла (полька)
-04. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Тирольский вальс (вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

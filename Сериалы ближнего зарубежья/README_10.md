@@ -6,7 +6,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615945.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610362.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608554.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608169.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606317.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603990.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603562.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602096.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602083.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601832.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585919.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582066.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577715.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574091.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556767.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556305.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549205.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547401.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535859.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533206.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522795.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521098.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516543.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497457.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490371.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483636.jpg" />
 </div>
 
 

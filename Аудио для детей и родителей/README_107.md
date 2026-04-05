@@ -1,3 +1,32 @@
+###  Публикация: 488435   (90828) от 26.04.2012
+
+Алексей Рымов | Бесценное сокровище [2006] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиоспектакль по сказке Алексея Рымова.
+
+В ролях:
+Василий Ливанов, Виктор Раков, Юрий Назаров, Ирина Муравьёва, Антон Арцев, Мария Горбань, Сергей Фролов, Александр Тютин, Мария Гончар.2006Жанр: Сказка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB78EDB647750CE73D70DDC3A6F1F3CFC95217B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487900   (90741) от 25.04.2012
 
 VA - Песни и Музыка Для Малышей (2008) [MP3|192 kbps]<Детская музыка>
@@ -6,7 +35,7 @@ VA - Песни и Музыка Для Малышей (2008) [MP3|192 kbps]<Де
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90741.jpg" />
 </div>
 
 
@@ -43,7 +72,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90670.jpg" />
 </div>
 
 
@@ -79,7 +108,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90660.jpg" />
 </div>
 
 
@@ -105,7 +134,7 @@ VA - 77 детских песен на бис (2003) [MP3|320 kbps]<Детска
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90652.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90616.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ VA - Планета детства (1997) [MP3|320 кб/с]<Pop, песни дл
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90611.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90608.jpg" />
 </div>
 
 
@@ -228,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90410.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89862.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89264.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ VA - Детские Песни (2006) [MP3|224 кб/с]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89053.jpg" />
 </div>
 
 
@@ -344,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88739.jpg" />
 </div>
 
 
@@ -370,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88597.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88573.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88561.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87556.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87126.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87113.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86618.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ VA - Любимые песни для детей 3 (2012) [MP3|160-192 кб/с]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86197.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85869.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ VA - Девочка с планеты Земля. Детские песни и �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85728.jpg" />
 </div>
 
 
@@ -663,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85532.jpg" />
 </div>
 
 
@@ -689,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84980.jpg" />
 </div>
 
 
@@ -716,7 +745,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84908.jpg" />
 </div>
 
 
@@ -728,32 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:993185F3C0838746FFA836BA9BD77C56C0BC1565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471833   (83715) от 22.03.2012
-
-Владислав Крапивин | Белый шарик Матроса Вильсона (2012) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятая повесть из знаменитого цикла "В глубине Великого Кристалла" — история преданной дружбы Стасика, которого прозвали Матросом Вильсоном, и Белого шарика, маленькой звезды, которая научилась превращаться в мальчика. Верные друзья преодолевают вместе не одну опасность. Владея обыкновенным "звездным" умением творить чудеса и помогать тем, кто (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 07:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D24C0226E4D5D33EBBF7C1509288C25635537B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Billy Harper - The Believer (1980) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157963.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Clayton-Hamilton Jazz Orchestra - Absolutely! (1994) MLake Street Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157960.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Enrico Pieranunzi Quintet - Don't Forget The Poet (2006) CHallenge Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157923.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Django Reinhardt - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157853.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Jack DeJohnette - Sound Travels (2012) Entertainment One [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157728.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Stone Raiders - Truth To Power (2012) [FLAC|Lossless|tracks + .cue] <Eclectic Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157434.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Eddie Cano & His Quintet - Brought Back Live From P.J.'s (1967) 2014, Universal[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157401.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Kenny Dorham - Quiet Kenny (1959) 2001, Prestige[FLAC|tracks+.cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157365.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ The Dutch Swing College Band - The Best Of Dixie (1999) MasterTone Multimedia Lt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157295.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Archie Shepp Quartet - I Didn't Know About You (1990) 2015, Timeless Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157228.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Stacey Kent feat. Art Hirahara - Songs From Other Places (2022) Special Edition 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157197.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Doc Cheatham - The Eighty-Seven Years Of Doc Cheatham (1993) Columbia[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157040.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The J.J. Johnson Quintet - J Is For Jazz (1956) Remaster, 2015, Sony Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157026.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156998.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156987.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156967.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Casiopea - Dramatic (1993) Village[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156951.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Dexter Gordon - Ca'Purange (1972) 1999, Original Jazz Classics[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156404.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Erroll Garner - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156309.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Herlin Riley - Perpetual Optimism (2017) 2019, Mack Avenue [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156143.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Tony Parenti's All Stars - Happy Jazz (1955) 2007, Membran Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156126.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Benny Carter - Further Definitions (1961, 1966) 2005, Impulse! [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156098.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Paolo Fresu - Birth Of The Cool (2012) Musica Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156036.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ The Jaki Byard Quartet With Joe Farrell - The Last From Lennie's (1965) 2003, Pr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156022.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Claudio Roditi - Slow Fire (1989) Milestone Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156007.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Jim Snidero - Waves Of Calm (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155845.jpg" />
 </div>
 
 

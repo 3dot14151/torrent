@@ -1,3 +1,119 @@
+###  Публикация: 1326888   (380776) от 22.09.2019
+
+Paul McCartney - Amoeba Gig (2019) [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive My Car
+02. Only Mama Knows
+03. Dance Tonight
+04. C Moon(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388DD174D601F4F5298B45F482C74434D3DABA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326942   (380329) от 22.09.2019
+
+The 69 Eyes - West End (2019) [FLAC|Lossless|image + .cue] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Horns Up (feat. Dani Filth) (3:58)
+02. 27 & Done (4:17)
+03. Black Orchid (4:15)
+04. Change (5:38)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561A1424261F277022E470295CBBE5EC5102243C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949281   (379586) от 22.10.2015
+
+Rod Stewart - Another Country (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is
+02. Please
+03. Walking In The Sunshine
+04. Love And Be Loved(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2875C8B9750970B0C3FF9FEB989E6FC7A7DB66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415385   (379116) от 11.10.2020
+
+Leger De Main - A Lasting Impression (2005) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379116.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. To Live The Truth
+02. Crystal Fortune
+03. Immobile Time(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C18405D675E04DFC3C43754B53BD7154FB57354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415177   (379102) от 11.10.2020
 
 Robert Tepper - No Easy Way Out (1986) [APE|Lossless|image + .cue] <New Wave, Pop Rock>
@@ -6,7 +122,7 @@ Robert Tepper - No Easy Way Out (1986) [APE|Lossless|image + .cue] <New Wave, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379102.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ The Paz Band - Down The Rabbit Hole (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378956.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Black Keys - Let's Rock (2019) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378779.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Blues Pills - 6 albums, 3 EP, 11CD (2013-2020) [FLAC|Lossless|image + .cue] <Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378722.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ John Lennon - Gimme Some Truth - The Ultimate Mixes (2020) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378697.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bon Jovi - 2020 (2020) [FLAC|Lossless|tracks + .cue] <Rock, AOR, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378583.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Suzi Quatro - The Wild One (1993) Japanese Edition [FLAC|Lossless]<Rock, Glam Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377348.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Thick - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Punk, Garage Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377202.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Drew Charron - Spring Moons (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376987.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Clan of Xymox - Kindred Spirits (2012) [FLAC|Lossless]<Darkwave, Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_375546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375546.jpg" />
 </div>
 
 
@@ -300,7 +416,7 @@ Phantom Vision - Guilty (2019) [FLAC|Lossless|tracks + .cue] <Goth Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374627.jpg" />
 </div>
 
 
@@ -329,7 +445,7 @@ Derek Sherinian - The Phoenix (2020) [FLAC|Lossless|image + .cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374299.jpg" />
 </div>
 
 
@@ -358,7 +474,7 @@ Apnea - Sea Sound (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Grun
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373372.jpg" />
 </div>
 
 
@@ -387,7 +503,7 @@ Ghozer - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373371.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ Queen - Rare Cuts (2011)(6 CD Bootleg) [FLAC|Lossless|image + .cue] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373353.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ Bonniwell Music Machine - Ignition (2000) [FLAC|Lossless|tracks + .cue] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373330.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ Eagles - Hotel California - 1976 (Hybrid SACD WPCR-14165) (2011) [FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372611.jpg" />
 </div>
 
 
@@ -506,7 +622,7 @@ VA - Rock & Run (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371754.jpg" />
 </div>
 
 
@@ -535,7 +651,7 @@ Little Caesar - Amercian Dream (2012) [WavPack|Lossless]<Southern Rock/ Hard-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_371265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_371265.jpg" />
 </div>
 
 
@@ -570,7 +686,7 @@ Magical Colors - A Procesion das Bestas (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370948.jpg" />
 </div>
 
 
@@ -599,7 +715,7 @@ Arctic Octopus - Rise of the Octopus (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370947.jpg" />
 </div>
 
 
@@ -628,7 +744,7 @@ Denny Laine With Paul McCartney And Friends - Lovers Light (2012) [FLAC (tracks+
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_370887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_370887.jpg" />
 </div>
 
 
@@ -648,122 +764,6 @@ Denny Laine With Paul McCartney And Friends - Lovers Light (2012) [FLAC (tracks+
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298751   (370878) от 05.11.2016
-
-T.REX - Get It On: The Collection (2011) [APE|Lossless|image + .cue]<Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get It On (4:26)
-02. Ride A White Swan (2:14)
-03. Mustang Ford (2:58)
-04. Cat Black (the wizards hat) (2:52)(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C64F81C50562390E9874A55E050F2B059B44C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576087   (370843) от 12.09.2022
-
-Kadavar - For the Dead Travel Fast (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (2:19)
-02. The Devil's Master (5:07)
-03. Evil Forces (4:43)
-04. Children of the Night (6:03)(   Читать дальше...   )Жанр: Psychedelic Rock, Hard Rock, Stoner RockПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2217FAF56756B3B88143288045C096DB60D6A328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575887   (370699) от 12.09.2022
-
-Black Pearl - Black Pearl (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Town 04:58
-02. Cheap Perfume 04:05
-03. Delivery Man 06:25
-04. Price On Love 04:39(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075AB4EE1CA52E85792189245073C779322B067F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327783   (370192) от 27.09.2019
-
-Tito & Tarantula - 8 Arms to Hold You (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Worlds Collide (3:13)
- 02. It's Alright Now (3:46)
- 03. Goodbye Good Luck (3:13)
- 04. He's a Liar (4:40)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B72B2179876B2EA0B9B8107DEEF900307B31A35
 ```
 
 https://mybot314.ru/tekegram_catalog/

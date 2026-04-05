@@ -1,3 +1,29 @@
+###  Публикация: 1599036   (161457) от 21.12.2022
+
+BackStory Wallpapers 2.3.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161457.jpg" />
+</div>
+
+
+###  Подробнее
+
+BackStory Wallpapers использует фотографии из вашей библиотеки изображений для создания красивых фонов для вашего рабочего стола. Выберите аранжировку, несколько альбомов и, возможно, фильтр или два. Затем установите таймер и пусть BackStory покажет коллажи из ваших фото.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2022Разработчик: © 2022 Hyckenberg Software Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский и Шведский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4760C41536323FCF2E6B662FE057D9E51156D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674527   (161279) от 05.11.2023
 
 DMG Canvas 4.0.7 [En]
@@ -6,7 +32,7 @@ DMG Canvas 4.0.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161279.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Disk Space Analyzer Pro 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161268.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Mirror Magnet 1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161227.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Caps Lock Tone v1.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161206.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Disk Analyzer Pro 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161116.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Pasta Pro 1.3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160976.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ BuhoCleaner for Mac 1.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160847.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Living Wallpaper HD & Weather 5.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160837.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ FonePaw Data Recovery 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160642.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Transmit 5.10.3 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160551.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Rocket Typist Pro 3.0.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160477.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ LaunchBar 6 v.6.18.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160471.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Mach Desktop HD 3 v.3.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160455.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Get Backup Pro 3 v.3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160430.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Wipr – Ad and Tracker Blocker 1.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160398.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ AweCleaner Professional for Mac 5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160339.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ NetShred X 5.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160317.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ GrabIt 4.932 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160310.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Dato 5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160300.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ AnyMP4 Data Recovery for Mac 1.3.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160294.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Yoink 3.6.89  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160282.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Aiseesoft Mac Data Recovery for Mac  1.6.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160232.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Joyoshare UltFix 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160158.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Joyoshare iPasscode Unlocker 4.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160126.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ TunesKit iOS System Recovery for Mac 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160108.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ TunesKit iOS System Recovery для Mac, специальный инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7440C72AF0951B003DC13CA0963E2CDDA77C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599128   (160084) от 22.12.2022
-
-TunesKit iPhone Unlocker 2.3.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160084.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit iPhone Unlocker предназначен для того, чтобы избавить вас от проблем, связанных с различными сценариями, включая отключение iPhone после множества неудачных попыток, разбитый или не отвечающий экран вашего iPhone, неработающий Touch ID и многое другое. Таким образом, вы можете восстановить полный доступ к своему iPhone, iPad и iPod touch.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FECA69EAA2A9780BF4E3F1BFE385F5F0262BA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

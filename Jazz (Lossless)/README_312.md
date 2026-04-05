@@ -6,7 +6,7 @@ Stephanie Haynes With The Cedar Walton Trio - Here's That Rainy Day (1988) Trend
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114477.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wynton Marsalis - My Funny Valentine: Live At Bubba's (1980) 1998, Pulse [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114465.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ellis Marsalis - An Open Letter To Thelonious (2008) ELM Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114460.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Branford Marsalis - Trio Jeepy (1989) CBS [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114456.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114354.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114333.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114332.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114324.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114308.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114300.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wynton Marsalis - Wynton Marsalis (1982) CBS [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114290.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Charles Williams - Trees And Grass And Things (1971) 2017, Solid Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114288.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cedar Walton - Composer (1996) Astor Place [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114286.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cedar Walton Trio - Plays Billy Strayhorn (1974, 1988) 2009, Jazz Ball Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114109.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dave Brubeck - Trio Brubeck (1993) MusicMasters Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114106.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Stephane Grappelli Trio - I Got The World On A String (1996) 1998, West Wind [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114103.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lionel Hampton - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114101.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wynton Marsalis - Hot House Flowers (1984) CBS [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114100.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ V.A. - Chill Out Cafe Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114028.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Modern Urban Jazz Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113988.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Smooth Jazz Essence (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113981.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mark Maxwell, Dr. SaxLove - Lofi Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113980.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113966.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Classy Hotel - Jazz & Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113965.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dario Margeli - Smooth Jazz Electric Guitar (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113962.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113961.jpg" />
 </div>
 
 

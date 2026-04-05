@@ -1,3 +1,55 @@
+###  Публикация: 1770914   (32023) от 04.01.2025
+
+Pizza Tower (2023) [Ru/Multi] (1.1.271) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pizza Tower - это энергичный 2D-платформер, завязанный на движении, исследовании и комбо-атаках. Он отличается стилизованным пиксель-артом, который вдохновлен мультфильмами 90-х, и задорной музыкой. Пеппино Спагетти, удивительно ловкий и сильный толстяк, отправляется в опасное путешествие, чтобы уничтожить Башню Пиццы и спасти свой ресторан от разрушения. Вместе (   Читать дальше...   )Тип издания: RepackРазработчик: Tour De PizzaЖанр: Экшены, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3A00692DF97DEF23BD6C3C53B6702AD2A2626A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770978   (32015) от 04.01.2025
+
+Doomsday Hunters (2023) [Ru/En] (1.1.0/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рогалики - это не просто сдобные булки к чаю, это целый жанр игр. И перед вами новый последователь Binding of Isaac, Nuclear Throne, Enter The Gungeon, лучших традиций всех игр в этом жанре, который постарается удивить и поразить новыми возможностями. Мы сделали упор на бесконечную реиграбельность - создали сотни уникальных предметов и разнообразного оружия, скиллы, (   Читать дальше...   )Тип издания: RepackРазработчик: MoregamesЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36516DD30697C123BA2D1B906300F6EE5BD6D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764565   (32012) от 04.01.2025
 
 Guardians of the Sanctree (2024) [Ru/Multi] (1.1.2f6/dlc) Repack Let'sРlay
@@ -6,7 +58,7 @@ Guardians of the Sanctree (2024) [Ru/Multi] (1.1.2f6/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32012.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Janosik (2020) [Ru/Multi] (1.8.06a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31793.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Supraland (2019) [Ru/Multi] (1.23.7/dlc) Repack Let'sРlay [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31670.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Rusted Moss (2023) [Ru/Multi] (1.76) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31616.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Supraland Six Inches Under (2022) [Ru/Multi] (1.2.3349) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31614.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ ZERO Sievert (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31528.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Gestalt: Steam & Cinder (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31394.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.5.55.748x) Repack Let'
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31281.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Marko: Beyond Brave (2024) [Ru/Multi] (1.09) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31198.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Raccoon Roller (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31145.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Momodora Moonlit Farewell (2024) [Ru/Multi] (1.1f32) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31059.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Future Fragments (2024) [En] (1.0.4) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31004.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Wonder Boy: Asha in Monster World (2021) [Ru/Multi] (Build 8291740) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30965.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Running With Rifles (2015) [Ru/Multi] (1.98.1/dlc) Repack Pioneer
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30875.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0.43.1/dlc) Repack Other s [Complete Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30700.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Montezuma's Revenge - The 40th Anniversary Edition (2025) [Multi] (1.0.0.1.229) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30661.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Montezuma's Revenge: 40th Anniversary (2025) [Multi] (1.0/dlc) Repack FitGirl [D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30556.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Airhead (2024) [Ru/Multi] (0.569) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30506.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Beat Hazard 2 (2019) [Ru/Multi] (1.317) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30473.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30371.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Bartlow's Dread Machine (2020) [Ru/Multi] (Build 5929982) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30140.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Noreya: The Gold Project (2023) [Ru/Multi] (1.3.39) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29872.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Magenta Horizon: Neverending Harvest (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29821.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.0.2.21654) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29803.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.0.2.21654) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FE71AE363C61C9C3F3165B8BF130CEDF698006B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775448   (29700) от 26.01.2025
-
-Teslagrad Remastered (2023) [Ru/Multi] (Build 11359912) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство Электропия захвачено королём-тираном, держащим народ в железном кулаке. Юноша, на которого начинают охотиться по всему городу, укрывается в башне Теслы. Когда-то здесь жила секта технологических волшебников, известных как тесламанты, а теперь лишь хранятся древние технологии да позабытая история. Вы предоставлены сами себе, и для выживания у вас только (   Читать дальше...   )Тип издания: RepackРазработчик: Rain GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DD894CF8CBBB7B3AC5789A78409326ABA59685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775471   (29625) от 27.01.2025
-
-Teslagrad 2 (2023) [Ru/Multi] (Build 12140719) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29625.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Теслаград 2» является продолжением популярной основанной на физике игры, в которой выживание зависит от использования электромагнитных сил. Головоломка-платформер «Теслаград 2» предлагает новый захватывающий опыт благодаря улучшенным визуальным эффектам, расширенному игровому миру и новым инструментам для решения головоломок! Молодая тесламантка Люмина оказалась (   Читать дальше...   )Тип издания: RepackРазработчик: Rain GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8ADB4C0BC5A557ACE9A0719FF698B35BFE23DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

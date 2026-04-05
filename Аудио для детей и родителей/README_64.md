@@ -1,3 +1,32 @@
+###  Публикация: 267518   (301748) от 07.12.2010
+
+VA - Здравствуй, новый год! Детский праздник 4-8 лет (2007) [MP3|224 kbps]<Музыка и песенки для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301748.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новый год Муз. и сл. С. Балакин Исп. Маша Балакина 3:54
+2. Выезд Деда мороза и Снегурочки (звуковой эффект) 1:05
+3. Поздравление с новым годом (звуковой эффект) 0:22
+4. Елочка Н.Тимофеева, М. Клокова Исп. Наталья Тимофеева 1:50(   Читать дальше...   )Жанр: Музыка и песенки для детейПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4CF61000AF0E791832DF29BA22118B287FF677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078215   (301747) от 12.11.2020
 
 Марк Твен | Приключения Гекльберри Финна (2003) [MP3, Сергей Кирсанов]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301747.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ VA - Teen Voice. Сборник детских песен (2016) [MP3|320 Kbps] 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301644.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300771.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300702.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300280.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ VA - The Backyardigans - Born to Play (2008) [MP3|224 kbps]<Детские пе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300108.jpg" />
 </div>
 
 
@@ -173,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299838.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299788.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ VA - Das Traumstern-Orchester spielt Hits [12CD] (2010) [MP3|320 кб/с]<Instru
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297183.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296826.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296122.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296020.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296019.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295946.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295944.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295938.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Zouzounia - Christmas in the World (2009) [MP3|192 kbps]<Детские песе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295840.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ VA - Любимые детские песни (2009) [MP3|320 kbps]<Pop>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295645.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ VA - Новогодние детские песенки (2011) [MP3|320 kbps]<Д
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295500.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ VA - Детский карнавал. Сборник песен для дете�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295489.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294362.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294265.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294150.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294144.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293736.jpg" />
 </div>
 
 
@@ -680,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8288E79E44A85195A27309BDFB35A4161FA3C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334740   (293369) от 30.10.2019
-
-Марина Потоцкая | Происшествие в Плюшкине (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293369.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книжке много весёлых чудес и почти нет грусти. Марина Потоцкая, которая придумала все эти истории, точно знает, что для таких чудес не нужна волшебная палочка. Они запросто могут случиться и с тобой, и прямо сегодня. Ты когда-нибудь залезал в кастрюлю, чтобы маму повеселить? Ну, в большую такую кастрюлищу? А слона у бабушки на огороде видел? Не игрушечного, (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 01:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C25804DAE8FDDD28CE430FAC42AAA6C2B7DAD50
 ```
 
 https://mybot314.ru/tekegram_catalog/

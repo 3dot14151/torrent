@@ -1,3 +1,29 @@
+###  Публикация: 1662971   (186708) от 21.09.2023
+
+Евгений Уваров | Как найти пригодную женщину (2023) WEB-DLRip [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186708.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном вебинаре о поиске пригодной девушки вы узнаете, как распознать ту единственную среди множества. Вы сможете лучше различать психологию непригодных для отношения спутниц и тех, с кем у вас могут сложиться длительные и доверительные отношения. Автор поделится советами, стратегиями и инсайтами, чтобы помочь вам в ходе прохождения практики и поиске второй половинки. (   Читать дальше...   )Жанр: Психология отношенийЯзык озвучки: РусскийПродолжительность: 04:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77990C46027834AE3EFDBDE72A973196AFF5900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663310   (186704) от 21.09.2023
 
 Deworker Pro, Дмитрий Елисеев | Доменная модель и Event Storming (2023) WEB-DL [RU]
@@ -6,7 +32,7 @@ Deworker Pro, Дмитрий Елисеев | Доменная модель и E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186704.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Deworker Pro, Дмитрий Елисеев | Техзадание и дизай
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186700.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Deworker Pro, Дмитрий Елисеев | Практический рефа�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186687.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Deworker Pro, Дмитрий Елисеев | Модульное разделе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186669.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Deworker Pro, Дмитрий Елисеев | Устройство HTTP-фрей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186658.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ FILM EDITING PRO | Color Grading 101 in DaVinci Resolve (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186633.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Deworker Pro, Дмитрий Елисеев | Использование HTTP з
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186628.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186586.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186585.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186581.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186579.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186574.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186549.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186543.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Thinknetica Pro, Алексей Наумов | Под капотом Ruby on Rai
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186529.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186528.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186515.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ Slurm (Слёрм), Егор Лукьянов, Александр Вагнер |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186496.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186405.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186387.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Anthony GG | Full Time Go Dev (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186343.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ Udemy, Nikita Sergeev | Управление проектами: полное п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186341.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ Systems.Education, babok-school.ru, Дарья Колесова, Анна Вич
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186320.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186317.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ Systems.Education, babok-school.ru, Зоя Степчева, Анна Вичуг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186312.jpg" />
 </div>
 
 
@@ -664,32 +690,6 @@ Systems.Education, babok-school.ru, Зоя Степчева, Анна Вичуг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BA27119C83976930A5C30550A0C38EA20FACC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663973   (186263) от 24.09.2023
-
-Ирина Шпакова | Водопад (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:39:03Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B434DE030C1358E789E03E769C6E3BBFFA2EC2C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

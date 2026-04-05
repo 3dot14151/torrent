@@ -1,3 +1,55 @@
+###  Публикация: 1511554   (788730) от 21.11.2021
+
+Ruined King: A League of Legends Story (2021) [Ru/Multi] (57824) License FAIRLIGHT
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайте отпор Погибели - Соберите отряд чемпионов из League of Legends, исследуйте Билджвотер и отправьтесь на Сумрачные острова, чтобы раскрыть тайны смертельно опасного черного тумана в этой захватывающей пошаговой ролевой игре. Игра разработана студией Airship Syndicate, создавшей Battle Chasers и Darksiders, и оформлена знаменитым художником комиксов Джо Мадурейра (   Читать дальше...   )Тип издания: LicenseРазработчик: Airship SyndicateЖанр: RPGЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CA4059E46AC2750047C42C5CBDF2FC7D2D4B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511367   (788723) от 21.11.2021
+
+Dungeon No Dungeon (2021) [Multi] (2.0) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хардкорное исследование подземелий с пошаговым боем и возможностью прокачки героев - то, что Вас ожидает в Dungeon No Dungeon. Сюжета, как такового - нет, есть депрессивная полуразрушенная деревня, куда стягиваются разномастные герои в поисках приключений. Игровой процесс представляет собой сочетание тактического боя и перемещений по карте в виде настолки.Тип издания: LicenseРазработчик: 302 StudioЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9265A8C8247799C3F063F14295B98D9C06CBF10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078902   (788388) от 15.01.2019
 
 The Dwarves (2016) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
@@ -6,7 +58,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788388.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Solasta: Crown of the Magister (2021) [Ru/Multi] (1.2.9/dlc) License CODEX [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788282.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787931.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ King of Seas (2021) [Ru/Multi] (7677098) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787790.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Empire of Sin (2020) [Ru/Multi] (1.06.0.51066/dlc) License CODEX [Premium Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787766.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Winter Warfare: Survival (2021) [En] (1.0b7604797) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787756.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787431.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Darksburg (2020) [Ru/Multi] (1.0.11.17957) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787302.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Dungeons & Dragons: Dark Alliance (2021) [Ru/Multi] (1.20.1370/dlc) License CODE
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787275.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) License GOG (обновляема�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786777.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786018.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dex (2014) [Multi] (5.4.0.0/dlc) License GOG [Enhanced Version]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786007.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Kim (2016) [En] (1.4.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785175.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785034.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ FINAL FANTASY X/X-2 HD Remaster (2016) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784526.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Trials of Mana (2020) [Multi] (1.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783829.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Star Ocean: The Last Hope 4K & Full HD Remaster (2017) [Multi] (1.0.0.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783094.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Of Orcs and Men (2012) [Ru/Multi] (1.0.0.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781593.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ The Legend of Heroes: Trails of Cold Steel II / The Legend of Heroes: Trails of 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781552.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ DYNASTY WARRIORS 9 (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781113.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780320.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780008.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Zombasite (2016) [En] (1.021/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780005.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779857.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Final Fantasy XII: The Zodiac Age - возвращение классики! В�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3549F4F64BFFBC0CE09ADC381FA7982B0C7D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208499   (779843) от 22.02.2018
-
-Usurper (2018) [En] (1.000/hf3) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Usurper - RPG в стиле метроидвания. Древние ужасы были выпущены Цитаделью в мирный город, ваша задача - избавить Лондон от своих кошмаров. Используйте новую систему «Охранник», которая которая поможет выстоять в бою и победить тьму скрывающуюся внутри города.Тип издания: RepackРазработчик: Steve GalЖанр: Adventure, Action, RPG, PlatformЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B8B76F9A70BA748C58B1E3FFE5A84A4B5A4288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189410   (779552) от 24.02.2018
-
-Seven: The Days Long Gone (2017) [Ru/Multi] (1.0.8.1/dlc) Repack R.G. Catalyst
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если и есть в мире место, которого мастер-вор Териэль любой ценой старался избегать, так это остров Пе. Но однажды одно рискованное предприятие внезапно принимает неожиданный оборот, и Териэль приходит в себя в кандалах на дирижабле, направляющемся на печально известный остров.Тип издания: RepackРазработчик: IMGN.PRO, Fool's TheoryЖанр: Action, RPG, Stealth, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247CC91A582C6B85331EA4D951B3BD2E380D244F
 ```
 
 https://mybot314.ru/tekegram_catalog/

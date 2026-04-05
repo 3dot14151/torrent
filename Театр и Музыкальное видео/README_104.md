@@ -6,7 +6,7 @@ A Classic Rock Tribute To Led Zeppelin (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302045.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301703.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301599.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301295.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Dio - Evil Or Divine (Live in New York City) (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301180.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ New Order, Live In Glasgow (2008) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301135.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301086.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300992.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Slipknot - Day Of The Gusano (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300976.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) WEBRip 
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300925.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300923.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Queen – A Night At The Odeon (2015) (Recorded Live At The Hammersmith 1975) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300804.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Осенний марафон № 208: Хиты с доставкой на 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300795.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300786.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300606.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300445.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300416.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300003.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299829.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ U.D.O. – Steelhammer: Live from Moscow (2014) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299716.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299445.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298805.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298734.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298646.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Black Sabbath - The End (Live In Birmingham) (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298529.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298479.jpg" />
 </div>
 
 

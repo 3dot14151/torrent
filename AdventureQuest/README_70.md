@@ -1,3 +1,81 @@
+###  Публикация: 1696755   (119394) от 04.02.2024
+
+Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shards of Chaos - это визуальная новелла в жанре фэнтези с элементами мистики и детектива. Вы окунетесь в мрачный мир, покинутый богами, где предстоит разгадать тайну магической катастрофы. Главная героиня - наемница Рейн, вынужденная отправиться в опасное путешествие по заброшенному поместью Черной Розы. Ей предстоит найти и спасти юную Леллию, невольно оказавшуюся (   Читать дальше...   )Тип издания: SceneРазработчик: ChaoticwayЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2A4DE6D94BE914AD614ECEA1EE155501FBB6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696767   (119390) от 04.02.2024
+
+Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boxes: Lost Fragments бросает вас с головой в роскошную позолоченную клетку таинственного особняка. Вы - мастер воровства, соблазненный шепотом о забытых богатствах и рассказанных секретах. Но блеск золота быстро тускнеет, когда вы натыкаетесь на серию загадочных коробок-головоломок, каждая из которых - тайный замок, открывающий скрытую истину. То, что начиналось (   Читать дальше...   )Тип издания: SceneРазработчик: Big Loop StudiosЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27FA119B4B8018A81995D132B32BCF5FCA84CC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697017   (119249) от 05.02.2024
+
+The Last Worker (2023) [Ru/Multi] (1.0.11) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119249.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Last Worker является атмосферным проектом, представляющим собой интерактивное повествование в стиле инди-головоломки. Игроки столкнутся с разнообразными сюжетными историями, что будут изображены в кат-сценах. Между рассказами придется заниматься выполнением обязательств героя, что проживает в мире полной автоматики. Человечество добилось технологичного развития, (   Читать дальше...   )Тип издания: LicenseРазработчик: Oiffy, Wolf & Wood Interactive LtdЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551871   (119054) от 06.02.2024
 
 Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
@@ -6,7 +84,7 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119054.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Not Another Weekend (2021) [Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118971.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118866.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118863.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Steel Echoes (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118817.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118706.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Splice (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118681.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118645.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118528.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118514.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118506.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Axiom of Maria (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118501.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118314.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117898.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Doors: Paradox (2022) [Ru/Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117889.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Backrooms Deluxe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117886.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Terror Mansion (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117882.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117763.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Spirit Hunter: Death Mark II (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116779.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ CLeM (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116776.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ PARANOID (2023) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116450.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Don't Starve (2013) [Ru/Multi] (12527201/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116267.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116156.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF662D9092A69656AB71DE0EE2888B0FB5E73627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701958   (116116) от 23.02.2024
-
-Forgiveness (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forgiveness – отправьтесь навстречу типичному приключению с видом от 1-ого лица, сюжет которого разворачивается в 80-е годы. Герой только что развелся со своей женой и решает переехать в старый дом, где раньше жил с матерью. Но как только он туда переезжает, то сразу понимает, что там происходит нечто странное. Попросту говоря, окунитесь с головой в достаточно атмосферный (   Читать дальше...   )Тип издания: RepackРазработчик: GAZЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Польский, Турецкий, СловацкийЯзык интерфейса: Английский, Польский, Турецкий, Словацкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11E9AEEF908A432BEE071C3C882D180A6071238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702236   (115906) от 24.02.2024
-
-Lazaret (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lazaret - это напряженный психологический хоррор от первого лица, в котором геймеры примут на себя роль члена спасательной команды, вызванной для расследования сигнала бедствия, который поступил с корабля MTS Endurance, исчезнувшего четыре года назад во время путешествия через Атлантику. Теперь главному герою предстоит самолично выяснить, что за ужасы случились на (   Читать дальше...   )Тип издания: RepackРазработчик: Aegon GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD9F2D71AC9043B89B04E524D3685C058727FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702729   (115602) от 26.02.2024
-
-My Lovely Daughter (2024) [Multi] (1.27f6/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115602.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Lovely Daughter - симулятор алхимика, исследующий личные страдания любящего отца, потерявшего дочь. Игра дает в полной мере ощутить его пустоту, отчаяние и безумие. На что готов пойти любящий родитель, чтобы вернуть к жизни свое дитя? Игра исследует темные стороны человеческого сознания. Вы играете за Фауста - известного в округе алхимика. Он пытается во множественное (   Читать дальше...   )Тип издания: LicenseРазработчик: GameChanger StudioЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Английский, Китайский (традиционный, упрощенный)Язык интерфейса: Английский, Китайский (традиционный, упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4691FB6A3AC7367E83D704043A9DC3BF38AE6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

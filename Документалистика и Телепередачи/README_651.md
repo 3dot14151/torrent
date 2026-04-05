@@ -1,3 +1,159 @@
+###  Публикация: 1655892   (203907) от 28.08.2023
+
+Моя жизнь в Rolling Stones / My Life as a Rolling Stone (2022) WEB-DL [H.264/1080p] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203907.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом эпизоде будет представлен личный портрет одного из харизматичных участников группы (Мик Джаггер, Кит Ричардс, Ронни Вуд и покойный Чарли Уоттс), исследующий различные аспекты их личностей, их музыкальную гениальность и влияние на культуру. Цель сериала - раскрыть творчество The Rolling Stones, их вдохновение и то, как они индивидуально и вместе преодолевали (   Читать дальше...   )Производство: Великобритания, Mercury StudiosЖанр: документальный, история, биография, музыкаРежиссер: Сэм Энтони, James Giles, Оливер МюррэйУчастники: Мик Джаггер, Кейт Ричардс, Ронни ВудПеревод: одноголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: русские (Jaskier), английскиеПродолжительность: 4x ~01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD0D827A665E802EC0D555A8E5F212D10F748BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655888   (203900) от 28.08.2023
+
+Гага: 155 см / Gaga: Five Foot Two (2017) WEB-DL [H.264/1080p] [GoldTeam]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закулисное путешествие с главной звездой современной поп-музыки, которое покажет разные стороны жизни певицы: от борьбы за свои отношения до проблем со здоровьем, от поиска утешения в узком кругу людей до подавления всех проявлений неуверенности. Вместе с тем, как Леди Гага выпускает свой новый альбом и готовится к главному выступлению года, фильм расскажет о главных (   Читать дальше...   )Производство: США, Live Nation Productions, Mermaid Films II, Permanent WaveЖанр: документальный, история, биография, музыкаРежиссер: Крис МукарбельУчастники: Сандра Амадор, Майкл Берден, Тони БеннеттПеревод: двуголосый любительский (GoldTeam),  двуголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: английские (forced + full)Продолжительность: 01:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F237173C8E552417C63CA4C54ED148B35330549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655871   (203893) от 28.08.2023
+
+Что-то вроде рая / Some Kind of Heaven (2020) WEBRip [H.264/1080p] [EN / RU Sub]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поселение Вилладжес в штате Флорида — дом престарелых, который разросся до размера города: 130 тысяч американцев переехали сюда, чтобы провести старость вместе с ровесниками в идиллических декорациях пенсионной утопии. Теннисные корты и безупречные лужайки, уютные и одинаковые домики, цветочные клумбы и теплые бассейны, тихие кафе и игральные клубы — здесь как будто (   Читать дальше...   )Производство: США, 30WEST, Los Angeles Media Fund (LAMF), Protozoa Pictures, The New York TimesЖанр: документальныйРежиссер: Лэнс ОппенгеймУчастники: Деннис Дин, Линн Генри, Энн КинсерПеревод: субтитры (Людмила Баскелович)Язык озвучки: английскийСубтитры: русские, hardsub (неотключаемые)Продолжительность: 01:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF37DDA442C2DC63CE33D933E80FF2A6DA9F99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655896   (203883) от 28.08.2023
+
+Дитя девяностых / Kid 90 (2021) WEB-DL [H.264/1080p] Pazl Voice
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подростком в 90-х Солейл Мун Фрай носила с собой видеокамеру везде, куда бы она ни пошла. Она записала сотни часов отснятого материала, а затем заперла его более чем на 20 лет.Производство: США, Appian Way, STX EntertainmentЖанр: документальный, история, биографияРежиссер: Солейл Мун ФрайУчастники: Солейл Мун Фрай, Базз Олдрин, Дэвид АркеттПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced + full, Pazl Voice), английскиеПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9F1D49F2E2E3E985F37C8237964CB90505AC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655880   (203874) от 28.08.2023
+
+Racionais MC’s: с улиц Сан-Паулу / Racionais MC's: From the Streets of Sao Paulo (2022) WEB-DL [H.264/1080p] [Pazl Voice]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203874.jpg" />
+</div>
+
+
+###  Подробнее
+
+История влиятельной хип-хоп группы Racionais MC’s, которая силой своей музыки и злободневных текстов положила начало мощному движению в Бразилии и за ее пределами.Производство: БразилияЖанр: документальный, история, биография, музыкаРежиссер: Джулиана ВисентеУчастники: Мано Браун, Джорджина Элизабет, Ice BlueПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (Эльвира Сименюра / NF), украинские, португальские (бразильские), португальские (бразильские, SDH), английские (forced/full/SDH)Продолжительность: 01:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB267FA8ABADC8BE66C17066BC0D4D58FE61E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656029   (203847) от 28.08.2023
+
+Музыкальная шкатулка: Зазубренная / Заноза / Ущербная / Music Box: Jagged (2021) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203847.jpg" />
+</div>
+
+
+###  Подробнее
+
+О канадской певице и композиторе Аланис Мориссетт / Alanis Morissette (Аланис Надин, 01.06.1974) и её легендарном альбоме Jagged Little Pill (1995), который вывел Аланис в высшую лигу. Он стал одним из самых продаваемых дисков в истории. Мориссетт смогла пробить «стеклянный потолок» для многих девушек с гитарами на несколько поколений вперед, а Jagged Little Pill (   Читать дальше...   )Производство: США, HBO Documentary FilmsЖанр: документальный, история, биография, музыкаРежиссер: Элисон КлайменУчастники: Аланис Мориссетт, Никола Гледхилл, Лоррейн АлиПеревод: многоголосый профессиональный (SDI Media), двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced+ful, Pazl Voice), английские (full+SDH)Продолжительность: 01:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8AD9171C437FE908AE40F7E776888E0EC17D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655984   (203806) от 28.08.2023
 
 Мосты России (2023) WEBRip [H.264/1080p]
@@ -6,7 +162,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203806.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203790.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203773.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203758.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203744.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203739.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203699.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203682.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203678.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203657.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203628.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203626.jpg" />
 </div>
 
 
@@ -323,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203596.jpg" />
 </div>
 
 
@@ -349,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203589.jpg" />
 </div>
 
 
@@ -375,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203564.jpg" />
 </div>
 
 
@@ -401,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203487.jpg" />
 </div>
 
 
@@ -427,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203369.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203368.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203350.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203049.jpg" />
 </div>
 
 
@@ -518,165 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7610D77161B3372B297B324F765502BCCAAE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610928   (202917) от 09.02.2023
-
-Мир накануне катастрофы. XX век. Гиена Европы (2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202917.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сентябре 1940 года в Варшаве немцы провели торжественный парад. Гитлеровская Германия отмечала первую годовщину со дня покорения Польши. На центральной площади имени Пилсудского парад принимали высшие руководители рейха – генерал-губернатор Польши Ганс Франк и один из ближайших соратников фюрера, руководитель Имперской службы труда Константин Гирль. Победное шествие (   Читать дальше...   )Производство: Россия, Студия Град (History Lab) по заказу АО «ЦТВ»Жанр: документальный, история, политикаРежиссер: Юрий СтариковСубтитры: отсутствуютПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444BEF2F7EA0F062B7CDDC44F6FCA2D8FCEBAB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656854   (202880) от 01.09.2023
-
-Инженер Шухов. Универсальный гений (2014) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фамилия инженера Шухова, в первую очередь, вызывает ассоциации со знаменитой телебашней на Шаболовке. По чертежам Шухова возводились заводы, мосты, нефтепроводы, вокзалы, котлы, речные танкеры, башни и сотни других сооружений, многие из которых служат человечеству до сих пор. Человек-фабрика, русский Леонардо - так называли его те, с кем он работал. Его способность (   Читать дальше...   )Производство: Россия / Единая Медиа ГруппаЖанр: документальный, биографияРежиссер: Александр ЕвсюковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3776F836BE3676B252A31A1621CD5671B4DC297A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611208   (202847) от 10.02.2023
-
-Ферма Кларксона / Clarkson's Farm (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многогранная личность, особый британский юмор и харизма Джереми Кларксона позволяют бывшему ведущему Top Gear и настоящему ведущему The Grand Tour с успехом участвовать практически в любом телевизионном проекте. В этот раз Джереми решил попробовать максимально далекий от себя мир фермеров и снялся в сериале «Ферма Кларксона» / Clarkson’s Farm. Проект снят в том же (   Читать дальше...   )Производство: Великобритания, Con Dao Productions, Expectation, Amazon StudiosЖанр: документальный, познавательныйРежиссер: Гэвин УайтхедПеревод: многоголосый профессиональный (AlexFilm)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 8x ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01656C5C74FC269FE5C18A25501192726F70DC2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998048   (202803) от 11.02.2023
-
-Концлагеря. Дорога в ад  (2009)  TVRip [H.264] [1-6 из 6 серий]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная попытка более правдивой реконструкции ужасных событий Второй Мировой войны, но без "акцента" на холокост. В фильме используются редкие документы, кинофотоматериалы, показания свидетелей и историков.
-Фильм получил ТЭФИ-2010 в номинации "Телевизионный документальный сериал".
-
- 1 серия: "Начало" 00:38:37(   Читать дальше...   )Производство: ООО "Лидер ТВ"Телекомпания: ТВЦЖанр: ДокументальныйЯзык субтитров: ОтсутствуютПродолжительность: 6 серий по ~ 00:39:00, Общее время - 03:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4634ADE70B4EB8B01FEE2444FC0B9F9068438CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612517   (202666) от 15.02.2023
-
-Украина: жизнь под ударом / Ukraine: Life Under Attack (2022) HDTV [H.264/1080i] [DVO]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт Бланшетт описывает битву за Харьков, используя рассказы мирных жителей и спасателей, принявших на себя основную тяжесть российского наступления.Производство: Великобритания / Channel 4 TelevisionЖанр: документальныйРежиссер: Mani BenchelahПеревод: Двуголосый профессиональный (BaibaKoTV)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAFDA162DF46924A630250C2A612B7EA3C0D690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614430   (202492) от 22.02.2023
-
-Ферма Кларксона / Clarkson's Farm (2023) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многогранная личность, особый британский юмор и харизма Джереми Кларксона позволяют бывшему ведущему Top Gear и настоящему ведущему The Grand Tour с успехом участвовать практически в любом телевизионном проекте. В этот раз Джереми решил попробовать максимально далекий от себя мир фермеров и снялся в сериале «Ферма Кларксона» / Clarkson’s Farm. Проект снят в том же (   Читать дальше...   )Производство: Великобритания, Con Dao Productions, Expectation, Amazon StudiosЖанр: документальный, познавательныйРежиссер: Гэвин УайтхедПеревод: многоголосый профессиональный (AlexFilm)Язык озвучки: русскийСубтитры: английские (только первая серия)Продолжительность: 8x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A7501E6E003F351453C9B0177A35250B28F9C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

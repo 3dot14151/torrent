@@ -1,3 +1,61 @@
+###  Публикация: 1221956   (689675) от 27.04.2018
+
+1954 - A Part of Me (2018) Project: Mooncircle [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers of the Dead Man (03:09)
+ 02. It Was Love (03:18)
+ 03. Hermann's Dream (02:59)
+ 04. Colored Lies (03:41)(   Читать дальше...   )Жанр: Leftfield, DowntempoПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99ABC9C7F4D421ADC959A7D3A69D2EC1D3934095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221958   (689672) от 27.04.2018
+
+Goldmund - Occasus (2018) Western Vinyl [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before (03:25)
+ 02. Above (02:36)
+ 03. Bounded (03:10)
+ 04. Breaking (03:06)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE614C2B775D777B9C44D9F08CA9A8D72ECBC058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221903   (689555) от 27.04.2018
 
 Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Space-Synth>
@@ -6,7 +64,7 @@ Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [FLAC|Lossless|image + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689555.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tangerine Dream - Quantum Gate / Quantum Key (2018) Kscope [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689306.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Armin Van Buuren - The Best Of Armin Only (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688885.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Halftribe - Luxia (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688850.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688762.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Public Service Broadcasting - The Race For Space / Remixes (2016) [MP3|320 кб/
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688760.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Cut Copy - Freeze, Melt (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Dance 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688568.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Foals - Collected Reworks Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688567.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Foals - Collected Reworks Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688563.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance Classics - The Best Of (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688560.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Need For Synth (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688556.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ NINA feat. LAU - Synthian (The Remixes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688555.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Armin Van Buuren  - Live At Tomorrowland  (The Digital Festival) (2020) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688465.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Ibiza Springtime (20 Sunset Cocktails) (2019) [MP3|320 Kbps] <House, DeepHo
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688383.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Faderhead - Starchaser (2019) EP [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688378.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Super8 & Tab - Past, Present & Future (2019) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688373.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Robert Miles - Dreamland (1996) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687731.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Amon Tobin - ISAM (2011) [FLAC|Lossless|WEB-DL|24/44.1] <Rhythmic Noise, Field R
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687629.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Chill Trackz 2017 [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_687598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_687598.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687582.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ NX1, Stephanie Sykes, Jay Quentin - ://About Blank 004 (2018) ://about blank [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_687579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_687579.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Time Piano And Relax (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687569.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Papa DJ Presents Cote D'azur Exclusive Party (2017) [MP3|320 Kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687558.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687494.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE59380E776127277562A0F1CB88C1598721DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222259   (687490) от 28.04.2018
-
-VA - Toxic Nights Sensual Jazz Tracks (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matteo Curcio – Morbossa (Original Mix)
-02. Randy Phillips – Down To The Bone (Original Mix)
-03. Ingvi Thor Kormaksson – Enduring Love (Original Mix)
-04. Image Sounds – Jazz Lounge Pt.1 (Original Mix}(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954B1C78DB6D7F92A3D73074FBA2193D3EC28631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222266   (687487) от 28.04.2018
-
-VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivanshee - Eclipse  07:03
-02. Coffein - Detective  05:45
-03. Andrew MacTire - Insurrection  08:22
-04. Superidea - Ocean  02:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336C87A523DD8AF75F095AE1775560AC75042E40
 ```
 
 https://mybot314.ru/tekegram_catalog/

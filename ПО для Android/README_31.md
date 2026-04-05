@@ -1,3 +1,108 @@
+###  Публикация: 1480286   (1006208) от 18.07.2021
+
+Blokada - AD Blocker for Android v5.14.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blokada для Android - мобильное приложение для блокировки рекламы и отслеживания на смартфонах и планшетах. Blokada включает различные фильтры для блокировки рекламы и отслеживания, а также блокировки спама и вредоносных сайтов.Тип издания: OriginalРелиз состоялся: 15 июля 2021г.Разработчик: BlokadaПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF65C329FA14C2FF82C786E1B453A67950E05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301821   (1006184) от 18.07.2021
+
+Здоровая спина v3.3.8 Premium [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведь не зря говорят: "Человек настолько молод и здоров насколько гибок его позвоночник". В наше время боль в спине, пояснице и отсутствия гибкости позвоночника, встречается очень часто, не говоря уже таких болезнях как сколиоз. В приложении содержится 90 специально подобранных и проверенных временем на эффективность упражнений для укрепления мышц спины (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 23.03.2021Разработчик: mEL StudioПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF1FFF4E4A1FBA098A67BE87EFC09B20F1B6E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485498   (1005439) от 25.07.2021
+
+Picture Fish - Fish Identifier v2.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мгновенно определяйте рыб!
+Просто возьмите или загрузите снимок рыбы, и Picture Fish поможет вам идентифицировать ее за секундыТип издания: Пиратка (Premium)Релиз состоялся: 16 июля 2021 г.Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC662988F83D054BD3502D4D8E91F83117477859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485377   (1005432) от 25.07.2021
+
+File Converter v12.1.14 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте наше приложение для преобразования файлов, чтобы конвертировать аудио, электронные книги, видео, 3D-модели, документы, презентации, чертежи САПР, изображения, LaTeX, шрифты, электронные таблицы, печатную плату Gerber и даже метаданные из более чем 2000 исходных форматов! 👀Тип издания: Пиратка (Premium)Релиз состоялся: 2 июня 2021 г.Разработчик: Ice Cold AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9C1D8AF0836D336E58A8C91F129890976031E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485369   (1005415) от 25.07.2021
 
 Photo Translator v8.4.5 [Ru]
@@ -6,7 +111,7 @@ Photo Translator v8.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005415.jpg" />
 </div>
 
 
@@ -35,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005064.jpg" />
 </div>
 
 
@@ -63,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004968.jpg" />
 </div>
 
 
@@ -89,7 +194,7 @@ Rotation - Orientation Manager v22.2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004465.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изобра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003098.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ Money Pro v2.0.13  [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001881.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001813.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ Fake GPS Location v3.5 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001541.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ Seven – 7 минутные тренировки. Упражнения для �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001495.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ Audio MP3 Cutter Mix Converter v1.90 Pro [Ru/Multi] - обрезка и конв
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001331.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ VK Coffee v8.00 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000973.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Private Browser - Fast VPN Incognito Browser 3.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000797.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ GFX Tool for PUBG 8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000767.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ WorkAudioBook v4.4.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000761.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997079.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992619.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ Cheat Engine 1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992449.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992311.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990538.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ Self Camera HD Pro 4.2.21 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990367.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989684.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988693.jpg" />
 </div>
 
 
@@ -572,113 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7D8AF337AA9DEFBFF3261A3A5AAE5F71CCD00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354567   (987823) от 22.01.2020
-
-Free Audiobooks v1.14.7 [En/Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог бесплатных аудиокниг, доступных в общественном достоянии. Найдите и послушайте тысячи классических аудиокниг. Аудио книгу можно транслировать через Интернет в любое время в любом месте. Жанры книги доступны для поиска в нашем приложении: романтика, стихотворение, тайна, научно-фантастические, дети и многое другое! Здесь вы можете найти свои любимые книги (   Читать дальше...   )Тип издания: Пиратка (Mod: разблокирован Pro и русифицирована)Релиз состоялся: 20.01.2020Разработчик: Sanity Audio AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский и Русский (руссифицированный Mod)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6864AC4D323847EC8F1D895EDF651E269558E527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751431   (985319) от 03.01.2016
-
-GreenPower Premium 9.21 [Ru] - Экономная работа аккумулятора
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для экономной работы аккумулятора. В отличие от других программ для экономии батареи, которые требуют регулярного взаимодействия с пользователем (Battery Booster, ApnDroid), GreenPower - полностью автоматический: после настройки он работает и экономит аккумулятор в фоновом режиме. Это достигается путем умного управления Wi-Fi и мобильной передачей данных. (   Читать дальше...   )Релиз состоялся: 03.01.16Разработчик: ManDuTimЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B21AAC41EA772ECE3FB184C7BC136324159A35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356915   (976473) от 01.02.2020
-
-TurboScan Paid 1.5.7 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Турбоскан использует лучшие и быстрые алгоритмы обработки документов для обрезки, выравнивания, устранения теней, и установки идеального контраста – черного на белом.
-Режим SureScan, позволяет получать резкие изображения без смаза от движения камеры. В режиме SureScan Вы фотографируете документ 3 раза, и специальный алгоритм выдает очень резкий результат (SureScan (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 03.11.2019Разработчик: Piksoft Inc.Поддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C794FEE469DED9B8920E3DD5ED3E94AE89B5479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357022   (976381) от 01.02.2020
-
-Compass Pro 1.49 (Paid) [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компас – это инструмент, который содержит свободно вращающуюся магнитную стрелку, которая указывает направление на магнитный север и ориентируется по нему.
-
-Многие люди знают, как использовать компас чтобы определить где находится север. Но немногие знают, как использовать компас в качестве навигационного инструмента. Навык ориентации по компасу и карте является (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 01.02.2020Разработчик: espengineerПоддерживаемая ОС: Android. 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47804DF1C08C7462507A9AC2CB5E25CB071181E
 ```
 
 https://mybot314.ru/tekegram_catalog/

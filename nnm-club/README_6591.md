@@ -1,25 +1,24 @@
-###  Публикация: 1274972   (791718) от 09.01.2019
+###  Публикация: 1274678   (792186) от 08.01.2019
 
-Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+Смерть ей к лицу / Death Becomes Her (1992) AC3 5.1, НТВ+ [hand made]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Остальное
+>>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 John Coltrane - Giant Steps:
-01. Giant Steps [4:47]
-02. Cousin Mary [5:50]
-03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
+Эликсир вечной молодости! Сколько женщин мечтают о нем! О нем мечтали и бродвейская звезда Мэдлин Эштон, и Хелен Шарп, у которой эта коварная Мэдлин отбила жениха Эрнеста Мэнвилла, гениального врача-специалиста по пластическим операциям.
+
+Прошли годы, и изрядно полинявшие и уставшие друг от друга дамочки, обращаются за чудотворным снадобьем к некоей колдунье. Итак, (   Читать дальше...   )Производство: США / Universal PicturesЖанр: Фантастика, КомедияРежиссер: Роберт ЗемекисАктеры: Мэрил Стрип, Брюс Уиллис, Голди Хоун, Изабелла Росселлини, Иан Огилви, Адам Сторке, Нэнси Фиш, Алайна Рид Холл, Мишель Джонсон, Мэри Эллен ТрейнорПеревод: Многоголосый закадровый, профессиональный (НТВ+)Продолжительность: 01:43:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
+magnet:?xt=urn:btih:1544DB73A525F6D223DC8F27C464C53B549A8283
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274843   (791717) от 09.01.2019
+###  Публикация: 1274726   (792185) от 08.01.2019
 
-Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+Бутырка - Голубка (2019) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enferma Humanidad
-02. Sabor a Muerte
-03. Pastores Oscuros
-04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
+01. Намяла жизнь бока (3:54)
+02. Голубка (5:10)
+03. Близкие (4:55)
+04. Вы не спешите говорить (3:16)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
+magnet:?xt=urn:btih:11628E3C7C62536E8F20B29E7241E172EA3171DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275040   (791716) от 09.01.2019
+###  Публикация: 1274628   (792184) от 08.01.2019
 
-Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
+Север пробуждается - Исландия / The North Awakens - Iceland (2017) WEBRip [H.264/1440p] [2K]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ars Moriendi  (4:06)
- 02. Dawn of Misery  (3:58)
- 03. Requiem  (2:02)
- 04. Post-Mortem Feast  (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:34
+Художники Джонатан Беслер, Кевин Мэй и Флориан Гамперт отправились в путешествие по живописному ландшафту Исландии, чтобы запечатлеть самые потрясающие виды страны. В пятиминутном видеоролике под названием «Север пробуждается» они с помощью дрона записывают ареальные виды изрезанных горных вершин, ледников и яркого северного сияния.Производство: ГерманияЖанр: Документальный, видовойРежиссер: Джонатан БеслерПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DF06B12499FFF542FEB4BA91102EC6FC05F25E0
+magnet:?xt=urn:btih:65DC84F09C272CDF86DE5A0AA736A8D14B6CF68B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274842   (791715) от 09.01.2019
+###  Публикация: 1274766   (792183) от 08.01.2019
 
-1917 - Vox Fatum (2007) [FLAC|Lossless|image + .cue] <Death Metal>
+Маленький Николя / Le petit Nicolas (2009) Blu-ray [H.264/1080p] [custom]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Legado Sombrío
-02. Contemplaciones
-03. Trofeos de Honor
-04. La Iniquidad Penitente (Pt. 1)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
+Маленький мальчик по имени Николя доволен своей жизнью, его любят родители, у него есть замечательные друзья с которыми можно вытворять все что угодно. Однажды друг главного героя Жаоким, рассказывает своим товарищам о том, что у него появился братик, и как это ужасно, ведь теперь родители его не любят. Теперь главный герой озабочен тем, чтобы предотвратить такую (   Читать дальше...   )Производство: Франция, Бельгия, Fidélité Productions, M6, M6 Films, Mandarin Films, Orange Cinéma Séries, Région Wallone, SCOPE Invest, Scope Pictures, Wild BunchЖанр: Комедия, СемейныйРежиссер: Лоран ТирарАктеры: Максим Годар, Валери Лемерсье, Кад Мерад, Сандрин Киберлен, Франсуа-Ксавье Демезон, Мишель Дюшоссуа, Даниэль Прево, Мишель Галабрю, Анемон, Франсуа ДамиенсПеревод: Многоголосый закадровыйСубтитры: Русские, немецкиеПродолжительность: 01:31:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
+magnet:?xt=urn:btih:3DBEF8C606FD84454A61836119AB2A52F81BCD94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +107,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275036   (791714) от 09.01.2019
+###  Публикация: 1274707   (792182) от 08.01.2019
 
-VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
+Братья Мейсон / The Mason Brothers (2017) WEBRip [MVO] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tortuga - Hell's Red Roads (03:25)
-02. Sylosis - Visions of Demise (04:26)
-03. Romeo Must Die - Who Died and Made You God (03:19)
-04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
+Организованная преступная группировка, состоящая из братьев, планирует ограбить один из банков Лос Анжелеса на десять миллионов долларов. Во время операции в банк врываются неизвестные в масках, планы рушатся. Лидер и старший из братьев Рэн Мейсон нанимает охотника за головами Джерри, чтобы узнать, кто стоит за перестрелкой и предательством в банке.Производство: СШАЖанр: Триллер, драма, криминалРежиссер: Кит СатлиффАктеры: Карлотта Монтанари, Хулиен Цезарио, Насо Браво, Тим Парк, Кит Сатлифф, Грегори Гордон, Стив Бетерс, Эрика Соуза, Дэвид А. Тревино, Мэттью УэббПеревод: Многоголосый закадровый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:56:32Реклама: Присутствуют вставки видео, голосовой и текстовой рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
+magnet:?xt=urn:btih:C9B4D436E6CB2741B085463CBC02ED1006F30420
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275042   (791713) от 09.01.2019
+###  Публикация: 1274742   (792181) от 08.01.2019
 
-Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
+В.К. Прилипко, И.И. Коваленко | Физические основы квантовых вычислений. Динамика кубита (2019) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peeled Back Organs (3:57)
- 02. Embalmed in Perservatives (3:10)
- 03. Slime (3:36)
- 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
+Предлагаемое издание продолжает обширную тему квантовых вычислений, основаниям которых посвящена наша книга «Физические основы квантовых вычислений. От битов к кубитам». В идейном плане книга состоит из двух частей. Первая часть посвящена теме реализации квантовых вычислений в рамках схемной модели и демонстрации уникальных возможностей, даваемых квантовыми алгоритмами. (   Читать дальше...   )Жанр: Физика, информатикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
+magnet:?xt=urn:btih:2EC7D3721995760D2B8B1C3E2BD91C4E9719C3A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +159,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274838   (791712) от 09.01.2019
+###  Публикация: 1274590   (792180) от 08.01.2019
 
-Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+Каспер / Casper (1995) Blu-ray EUR [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birth of the Universe
-02. Moonchild
-03. Surveillance Society
-04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
+Увлекательная и смешная фантастическая история рассказывает о старомодных привидениях в наше компьютерное время. Главный герой фильма — маленькое дружелюбное приведение по имени Каспер, не желающее походить на своих хулиганствующих собратьев. Его дружба с девочкой-подростком Кэт помогает ей и ее отцу, доктору Харви, справиться с опасностями, поджидающими их в населенном (   Читать дальше...   )Производство: США, Universal Pictures, Amblin Entertainment, Harvey Entertainment CompanyЖанр: Фэнтези, Семейный, КомедияРежиссер: Брэд СилберлингАктеры: Билл Пуллман, Кристина Риччи, Чонси Леопарди, Спенсер Врумэн, Малачи Пирсон, Кэти Мориарти, Эрик Айдл, Бен Стайн, Дон Новелло, Фред Роджерс, Терри Мерфи, Эрнестин Мерсер, Даг Брукнер, Джо Найпот, Джо Аляски, Брэд ГэрретПеревод: Многоголосый закадровыйСубтитры: Русские, английские, японские, португальские, испанские, французские, немецкие, итальянские, китайские, чешские, нидерландские, датские, Финские, греческие, венгерские, корейские, норвежские, польские, шведские, тайские, турецкиеПродолжительность: 01:40:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
+magnet:?xt=urn:btih:02AF89690731DF7A205AE25F8538C9FA973C4EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +185,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274839   (791711) от 09.01.2019
+###  Публикация: 1274382   (792179) от 08.01.2019
 
-Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
+Тереза О'Нилл | Это неприлично. Руководство по сексу, манерам и премудростям замужества для викторианской леди (2018) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Evermore
-02. Prisoner
-03. The Fallen
-04. Pursuit of Desire(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 00:59:38
+Вы когда-нибудь мечтали перенестись в прошлое и пожить в эпоху, романтизированную Джейн Остин, сестрами Бронте и многочисленными кинофильмами? Тогда эта книга для вас. Вы окунетесь в мир, где в крем для лица добавляли мышьяк, нижнее белье было с разрезом между ног, а процесс освобождения от одежды требовал помощи нескольких человек.Жанр: Любовь и отношения, Мода и стиль, Популярно об историиПродолжительность: 06:29:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D7ABB344D09B1F58C6CD1C7826D95D5C1006A3F
+magnet:?xt=urn:btih:28B19509AFB11B52C15AD491BBFFE9007B367747
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +211,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274991   (791710) от 09.01.2019
+###  Публикация: 1274572   (792178) от 08.01.2019
 
-VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
+Джиперс Криперс 2 / Jeepers Creepers II (2003) BDRemux [H.264/1080p]
 
->>Electronic
->>House
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
-02. Jay Frog & Amfree - Is This Love (Radio Edit)
-03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
-04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
+Раз в 23 года зловещий крылатый и когтистый монстр пробуждается от долгого сна, чтобы 23 дня насыщаться человеческой плотью и страхом своих жертв. На исходе последний день его кошмарного пира, и сегодня древнее неведомое зло ждет богатый улов - спортивная команда и очаровательные болельщицы, возвращающиеся с триумфальной игры. Они одни в сломанном автобусе на пустынном (   Читать дальше...   )Производство: США, American Zoetrope, Jeepers Creepers II LLC, Myriad Pictures Inc., United ArtistsЖанр: Ужасы, ТриллерРежиссер: Виктор СальваАктеры: Рэй Уайз, Джонатан Брек, Гарикайи Мутамбирва, Эрик Неннингер, Никки Эйкокс, Трэвис Шиффнер, Лена Кардвэлл, Билли Аарон Браун, Марайа Делфино, Дайан Делано, Том Тарантини, Аль Сантос, Джош Хэммонд, Касан Батчер, Том Госсом мл.Перевод: Дублированный, профессиональный многоголосыйСубтитры: АнглийскиеПродолжительность: 01:44:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
+magnet:?xt=urn:btih:E070E31A59348A8441BF621AB959044F0C0F273D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +237,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274946   (791709) от 09.01.2019
+###  Публикация: 1274743   (792177) от 08.01.2019
 
-VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
+Суперрастения. Цветущая революция / Superplants. Die buhende revolution (2016) HDTVRip [H.264/720p-LQ]
 
->>Electronic
->>House
+>>Зарубежные TV-бренды
+>>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steven Draxler - Right Time (Club Mix) 4:28
-02. Christopher G - Bassline Drops (Club Mix) 4:56
-03. Tom Bekker - What You Got (Instrumental Mix) 4:49
-04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
+Существуют растения, способные так эффективно поглощать тяжелые металлы, что с их помощью можно очищать зараженные почвы. При помощи других можно собирать ценные ресурсы: от меди до цинка и никеля. Фильм рассказывает о феномене фитомайнинга (добыче металлов) и о фитосанации (очистке зараженных территорий при помощи растений). Суперрастения также применяют в медицине (   Читать дальше...   )Производство: Германия, Франция, Florianfilm GmbH, АrteЖанр: Документальный, исследование, природаРежиссер: Кристоф ван ХэлПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
+magnet:?xt=urn:btih:D6C6AA903AA015158CCE54EB33CA962818C1A223
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +263,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274880   (791708) от 09.01.2019
+###  Публикация: 1274665   (792176) от 08.01.2019
 
-VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
+Шрифты - Creative Market - Galpon Family, Greek+Cyrillic - 365913 [OTF]
 
->>Electronic
->>House
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Block & Crown - Dice (Original Mix)
-02. Jose Ogalla - After Now (Chris Montana Piano Dub)
-03. Scotty Boy - Ya'll Came to Jack (Original Mix)
-04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
+Galpón довольно интересный, стильный шрифт, который подойдет под Ваши веселые мультяшные идеи.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
+magnet:?xt=urn:btih:0B9FAEACCACC603D770E8156672FB8C20D209C8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +289,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274888   (791707) от 09.01.2019
+###  Публикация: 1274499   (792175) от 08.01.2019
 
-Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+Конкорд: Аэропорт '79 / The Concorde: Airport '79 (1979) BDRip [H.265/1080p] [10-bit] [PR]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Float (08:22)
- 02. Carousel (06:01)
- 03. Abandoned (18:00)
- 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
+Сьюзэн Блэйкли в роли популярного телерепортера принимает активное участие в полной напряжения международной драме, разворачивающейся на борту самолета, который, направляется в Москву. Именно Сьюзэн подвергает опасности всех находящихся в "Боинге" пассажиров, потому что ее преследует бывший любовник, коварный торговец оружием Роберт Вагнер. Жизни пассажиров (   Читать дальше...   )Производство: США / Universal PicturesЖанр: Драма, ТриллерРежиссер: Дэвид Лоуэлл РичАктеры: Ален Делон, Сьюзан Блейкли, Роберт Вагнер, Сильвия Кристель, Джордж Кеннеди, Эдди Альберт,
+Биби Андерссон, Чаро, Джон Дэвидсон, Андреа МарковиччиПеревод: Многоголосый закадровый ("ТВ Новости" по заказу СТС)Субтитры: английскиеПродолжительность: 01:53:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
+magnet:?xt=urn:btih:96B5B8E7240C3EC0EE1CED0A1E7854FB11EC9DDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,198 +316,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274141   (791706) от 09.01.2019
+###  Публикация: 1201588   (792174) от 25.01.2018
 
-VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
-02. Find Your Way (Sunrise Mix)-Moon Rocket
-03. Baakoya (Armonica Remix)-Mabiisi
-04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274889   (791705) от 09.01.2019
-
-VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
-02. Nico Del Prato - Anymore (Radio Edit) 3:07
-03. Enormous Cats - Ready Or Not (Club Mix) 4:31
-04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274852   (791704) от 09.01.2019
-
-Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unsoi (4:54)
-02. Aamu Ja Kaste (6:20)
-03. Lumikuuro (7:02)
-04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274912   (791703) от 09.01.2019
-
-Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remote (17:58)
- 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274609   (791702) от 09.01.2019
-
-Dropzone 3.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2019Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353CF1AAFF737BFBEFC38945E5EE2D48A4A4D7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275067   (791701) от 09.01.2019
-
-Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I (4:58)
-02. II (4:42)
-03. III (5:15)
-04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275031   (791700) от 09.01.2019
-
-Джин-Тоник - Нетакой (2016) [MP3|320 Kbps] <Rock>
+Coal (Надя Гордиенко) - Фиванский алфавит (2018) [MP3|320 Kbps] <Rock, Art Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Нетакой (feat. Ксения Стрижакова)
-2. Вдруг это всё (feat. Алексей Кортнев)
-3. Селфи (feat. Валерий Сюткин)
-4. Старпёрская (feat. Евгений Маргулис)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:48
+01. La isola
+02. Бисером
+03. Зверь
+04. Молитва(   Читать дальше...   )Жанр: Rock, Art RockПродолжительность: 00:21:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F946C75BB70A00A6186BA5E54009BB27656DE07B
+magnet:?xt=urn:btih:D2FFC37739095658611847BD39C3E3F8C38C27D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,28 +345,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274945   (791699) от 09.01.2019
+###  Публикация: 1201634   (792173) от 25.01.2018
 
-VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
+Журнал | Моя прекрасная дача. Спецвыпуск №6. Картофель (2018) [PDF]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Avantgardet - Walk Of Shame
-002. Hazey Eyes - Scars (Ukiyo Remix)
-003. Horses Without Makeup - Forget About Chlorine
-004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
+Новая серия специальных выпусков от известного дачного издания. Все секреты щедрого урожая. Ответы на сложные вопросы. Проверенные временем советы.
+
+Этот номер коллекции посвященЖанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
+magnet:?xt=urn:btih:C31535C8E1A63D099BBED3E8164A5E3301D5CA2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,44 +373,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274948   (791698) от 09.01.2019
+###  Публикация: 1201625   (792172) от 25.01.2018
 
-VA - Soft Rock Nuggets (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - Blue Morning, Blue Day
-02. Chicago - Little One
-03. Daryl Hall & John Oates - When the Morning Comes
-04. America - Don't Cross the River(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967B7CC533A689DC4E66503AA89580DEA712543F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274749   (791697) от 09.01.2019
-
-Журнал | Автомир [Россия] №2 (январь 2019) [PDF]
+Журнал | Автомир [Россия] №5 (январь 2018) [PDF]
 
 >>Автомобили
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792172.jpg" />
 </div>
 
 
@@ -622,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:100438E5F47A9B3850C76F1AA1464A41262025BC
+magnet:?xt=urn:btih:8278A4558E2F28E9D68DE9BDD1771CA4EB176000
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,28 +400,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274895   (791696) от 09.01.2019
+###  Публикация: 1201245   (792171) от 25.01.2018
 
-VA - Soul Connection: True Love (2019) [MP3|320 Kbps] <DnB, Dubstep>
+Каково врать в Америке / Telling Lies in America (1997) DVDRip [MVO] [PR]
 
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Highpro - Conflict (Original Mix)
-002. Vital - Clarted
-003. Brookes Brothers - Every Minute
-004. Bakground - Clubjammerz(   Читать дальше...   )Жанр: DnB, DubstepПродолжительность: 08:22:25
+Америка, эпоха рок-н-ролла. В Кливленде правит бал ди-джей на местном радио, стильный и заводной Билли Мэйджик. Для 17-летнего Карчи, застенчивого сына венгерских иммигрантов, он — недосягаемый символ Свободной Америки, но однажды происходит невозможное: Карчи выпадает шанс познакомиться с Билли! Пронырливый ди-джей сразу понимает, что он может использовать наивного (   Читать дальше...   )Производство: США / Banner Entertainment, Ben Myron Productions, Kuzui EnterprisesЖанр: Драма, МузыкальныйРежиссер: Гай ФерлендАктеры: Брэд Ренфро, Кевин Бэйкон, Максимилиан Шелл, Калиста Флокхарт, Пол Дули, Джонатан Риз Майерс, Люк Уилсон, Дэмен Флетчер, Джерри СвиндоллПеревод: Двуголосый закадровыйСубтитры: РусскиеПродолжительность: 01:37:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19E2EA826115FC4093822893F3098DF839A73943
+magnet:?xt=urn:btih:D71E2CC29D18D0A30868D65F1303B5D22206121C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +426,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274981   (791695) от 09.01.2019
+###  Публикация: 1201263   (792170) от 25.01.2018
 
-BestReminder v2019.01.09.09 Final [Multi/Ru]
+Aryeh Frankfurter - Celtic Whispers (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Moved Through the Fair
+02. Ae Fond Kiss
+03. Aye Waulkin O'
+04. The Sandpit(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B281BFBD4B038E1D582693E1CFBE5DD8EC7706E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201530   (792169) от 25.01.2018
+
+VA - Ministry Of Sound: The Biggest Dance Hits Of All Time (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fatboy Slim  -  Right Here Right Now  3:56
+02.  Armand Van Helden  -  You Don't Know Me (feat. Duane Harden)  4:01
+03.  Fedde le Grand  -  Put Your Hands Up For Detroit  6:34
+04.  Benny Benassi & The Biz  -  Satisfaction  4:45(   Читать дальше...   )Жанр: HouseПродолжительность: 01:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63941DDA0BF9B26C8260B85E7C904674EEDC8179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201533   (792168) от 25.01.2018
+
+Барбара Брыльска. Мужчины не имеют шанса (2018) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барбару Брыльску мы полюбили за одну ночь, когда на экраны ТВ вышла картина «Ирония судьбы, или С легким паром!» Для всех зрителей актриса навсегда осталась героиней из того фильма. Многие думают, что и Барбара такая же, как Надя — нежная, ранимая, скромная. Но это далеко не так. Мы съездили к Барбаре в гости в Польшу и сняли эксклюзивное интервью с актрисой. Весной (   Читать дальше...   )Телекомпания: Россия / Первый каналЖанр: Документальный, Биография, ИскусствоЯзык субтитров: Русский, teletext (888)Продолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC9E8AE424CCC782BE5C6EB5DA2FCDB63829209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201414   (792167) от 25.01.2018
+
+Александр Сергеевич Пушкин | Сказка о царе Салтане (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка о царе Салтане, о сыне его славном и могучем богатыре князе Гвидоне Салтановиче и о прекрасной царевне Лебеди – вот полное название сказки Пушкина, знакомой нам с самого детства.Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47869F25A1BEF7CAE73D89AE65040B1CF794CF1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201470   (792166) от 25.01.2018
+
+Aiseesoft Video Converter Ultimate 9.2.36 RePack (& Portable) by ZVSRus [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
-Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
-А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
-Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
+Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский | Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBFD122EB49563904A3413D49C63BB6226EFCC81
+magnet:?xt=urn:btih:AC5EB3D458339725376B06E5D38D580681307AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,28 +562,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274855   (791694) от 09.01.2019
+###  Публикация: 1201382   (792165) от 25.01.2018
 
-DJ Emerson - At The Controls (2018) [MP3|320 Kbps] <Techno, Tech House>
+Кеша Гомельский - Косячок (2005) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лагерная характеристика
+02. Совесть
+03. Карманник
+04. Два горя, две беды(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AF3420FF9901BFCBBCAE4BEC5A87654B1EDA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201587   (792164) от 25.01.2018
+
+Анатомия драмы (2017) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792164.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме типируются посетители одного дорогого ресторана и препаруются чеховские мотивы: любовь русского человека к страданиям.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Владимир ЦаренкоАктеры: Наталья Бурмистрова, Ян Цапник, Александр Баргман, Антон Васильев, Лёха Никонов, Юлия Топольницкая, Катерина Максудова, Игорь Грабузов, Эмилия СпивакСубтитры: ОтсутствуютПродолжительность: 00:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC50BB8A3A2F06A9556F82FA017CFE1FF1582BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201534   (792163) от 25.01.2018
+
+Navicat Premium 12.0.22 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Namtrak – What You Need (DJ Emerson Remix)6:02
-2. DJ Emerson – XLR8r (New Edit)5:38
-3. DJ Emerson – Etonic (Original Mix)6:35
-4. DJ Emerson – Boy Got Bass (Original Mix)6:44(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 04:37:34
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.
+
+Navicat Premium совмещает в себе функции других приложений Navicat. При наличии соединений, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2018Разработчик: PremiumSoftПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD40576BD019B35E1ECFE15F6D3EC709E20160CD
+magnet:?xt=urn:btih:CC1F841809B84257798544579DAD56B254E6EE2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,26 +645,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274495   (791693) от 09.01.2019
+###  Публикация: 1201631   (792162) от 25.01.2018
 
-Завтрак на обочине / When Strangers Appear (2001) WEB-DL [1080p] ATV [MVO]
+Журнал | GEO №2 (236) (февраль 2018) [PDF]
 
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один раненый. Группа таинственных незнакомцев. У каждого своя история. Кому верить? Когда перепуганный, истекающий кровью Мэтт входит в затерянное кафе, которым владеет Бет, там закручивается серия загадочных событий. Трое внешне безвредных незнакомцев прибывают в кафе, но, как утверждает Мэтт, они ищут его, чтобы убить.
-Бет решает спасти Мэтта, но его последующее (   Читать дальше...   )Производство: Австралия, Новая Зеландия, США / Beyond Films, Midnight Film Productions Limited, Persona Non Grata FilmsЖанр: Триллер, Боевик, ДетективРежиссер: Скотт РейнольдсАктеры: Рада Митчелл, Джош Лукас, Бэрри Уотсон, Кевин Андерсон, Джонатан Блик, Эрин Уилсон, Майкл Лоу, Стивен Рэй, Дра МакКэй, Серафин РочериПеревод: Профессиональный многоголосыйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 01:40:24
+Ведущий европейский научно-популярный журнал о познании окружающего мира. GEO сочетает в себе увлекательные репортажи и эксклюзивные фотографии лучших российских и мировых фотографов и журналистов, современный дизайн и премиальную полиграфию, позволяя читателю проникнуться духом удивительных открытий и дальних странствий.Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24E0B70982A1D33AE1D5C13EFDF7236F3F30471A
+magnet:?xt=urn:btih:322E9D2E73453EA976BD395E65AD5C7CF30C0419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201585   (792161) от 25.01.2018
+
+The Who - Maximum As & Bs: The Complete Singles (2017) 5CD Box Set [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoot Suit (as The High Numbers) (2:01)
+02. I'm The Face (as The High Numbers) (2:34)
+03. I Can't Explain (2:05)
+04. Bald Headed Woman (2:10)(   Читать дальше...   )Жанр: RockПродолжительность: 04:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED38B578C53FDE6B97267A4BA721F596E8EF8A60
 ```
 
 https://mybot314.ru/tekegram_catalog/

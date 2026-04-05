@@ -1,3 +1,112 @@
+###  Публикация: 617068   (974071) от 11.02.2013
+
+Журнал | Fatal Forum letter № 2 [2001] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный андеграундный журнал из Нижнего Новгорода, посвящён металлической музыке (автор пишет: "Я выношу на страницы леттера любую металлическую музыку (дэт, дум, грайнд, блэк, трэш, хэви, пауэр и т.д.), кроме индастриала и хардкора").
+Выходит с подзаголовком "Подземное издание о металлической музыке".
+
+В настоящее время издаётся как полноценный "толстый" журнал "Fatal Forum Magazine".
+
+В номере 20 страниц, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D92B934C6F5AC65B980781429AB04B49272D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617025   (974049) от 11.02.2013
+
+Журнал | Валентина № 5 [1995] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание по рукоделию представляет разнообразные изделия, связанные крючком: салфетки разнообразных форм и расцветок, ажурную шляпку, веер, зонтик и сумочку миниатюрных форм, декоративные украшения.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9AA92ADDFF4A382DB2003191ACCCC14FD704486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617043   (973973) от 11.02.2013
+
+Журнал | Все сама! Вяжем, плетем. вышиваем № 1 [2011] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973973.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале присутствуют разделы: вязание спицами, крючком, вышивка, плетение из бисера, креативные идеи.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8F0A4E84DCCD4A1C248E3FD571295D0221BC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617050   (973972) от 11.02.2013
+
+Журнал | Любимое вязание № 12 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый рукодельный журнал с акцентом на вязание спицами. Предлагает различные модели для вязания для взрослых и детей, аксессуары и предметы интерьера с подробными схемами и описаниями.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A17492DE55E4A1D1F02ED15D2E6982421EBD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617028   (973970) от 11.02.2013
 
 Журнал | Валентина № 6 [1995] [PDF]
@@ -6,7 +115,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973970.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973968.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973967.jpg" />
 </div>
 
 
@@ -84,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973962.jpg" />
 </div>
 
 
@@ -110,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973902.jpg" />
 </div>
 
 
@@ -136,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973873.jpg" />
 </div>
 
 
@@ -162,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973717.jpg" />
 </div>
 
 
@@ -189,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973601.jpg" />
 </div>
 
 
@@ -215,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973354.jpg" />
 </div>
 
 
@@ -241,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973353.jpg" />
 </div>
 
 
@@ -267,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973296.jpg" />
 </div>
 
 
@@ -293,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973294.jpg" />
 </div>
 
 
@@ -320,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973281.jpg" />
 </div>
 
 
@@ -346,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973205.jpg" />
 </div>
 
 
@@ -373,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973175.jpg" />
 </div>
 
 
@@ -399,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973161.jpg" />
 </div>
 
 
@@ -425,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973134.jpg" />
 </div>
 
 
@@ -451,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973130.jpg" />
 </div>
 
 
@@ -477,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972626.jpg" />
 </div>
 
 
@@ -503,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972601.jpg" />
 </div>
 
 
@@ -533,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972597.jpg" />
 </div>
 
 
@@ -560,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972527.jpg" />
 </div>
 
 
@@ -571,114 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5DAA446CA9999B12C294EC33A36ACBA4F514C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617509   (972516) от 12.02.2013
-
-Журнал | Дом и я в нем № 7(8) [июнь 2007] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скоро лето, а вместе с ним — прекрасная пора, когда каждая хо­зяюшка имеет возможность воплотить свои изобретения, фантазии,
-не­стандартные задумки... в банках! Закаточный сезон откроют ароматные ягоды, хрустящие огурчики, нежные чесноч­ные стрелочки,
-краснобокие томаты, изысканная цветная капуста, слад­кий горошек... Мы постарались собрать самые лучшие,
-проверенные вре­менем и одобренные читателями рецепты консервирования даров лета.
-Уверены, такие бесценные подсказки помогут разнообразить ваш зимний стол витаминными, пахнущими летними ароматами блюдами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E043ED6945C6222AA0E2AB38B6DC45B5DE0642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617491   (972470) от 12.02.2013
-
-Журнал | Добрые советы. Люблю готовить! № 6 [июнь 2008] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кулинарный журнал состоит из рецептов, присланных в редакцию читателями. По самым интересным рецептам шеф-повар редакции готовит блюда, и их фотографии появляются в журнале со знаком качества.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5FBD9115ABB5D1F766A7DD4E617E55B876B80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617974   (972462) от 12.02.2013
-
-Журнал | Добрые советы. Люблю готовить! № 12 [декабрь 2010] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кулинарный журнал состоит из рецептов, присланных в редакцию читателями. По самым интересным рецептам шеф-повар редакции готовит блюда, и их фотографии появляются в журнале со знаком качества.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF6B78F1D4D91667A4D0A6267760EF689E56BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617992   (972460) от 12.02.2013
-
-Журнал | Рецепты на бис № 1(14) [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Рецепты на Бис» кулинарный журнал, который помогают составлять читатели. Каких рецептов тут только нет: аппетитные салаты, сытные закуски, супы, горячие блюда из мяса, рыбы, птицы овощей и грибов, домашняя выпечка, десерты.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D81196143FBE5ED0BBF11792222A685664293DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

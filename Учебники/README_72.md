@@ -1,3 +1,55 @@
+###  Публикация: 1330756   (333233) от 14.10.2019
+
+К.Е. Нестеров, А.М. Зюзев | Программирование промышленных контроллеров (2019) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит основные сведения по системе программирования промышленных контроллеров серии Simatic S7-200, поясняет формат и назначение его основных команд. Здесь же рассмотрены примеры задач и предложены задания для самостоятельной работы, которые могут выполняться на специальных стендах, представляющих собой упрощенные макеты электроприводов и электрооборудования (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC82DD2AE259AC9E81722C8116485400367C1B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957003   (327377) от 17.11.2015
+
+Рэндал У. Биард, Тимоти У. МакЛэйн | Малые беспилотные летательные аппараты: теория и практика (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание посвящено управлению беспилотными летательными аппаратами (БЛА). Акцент в книге делается на системы повышения устойчивости управления. Других изданий, которые бы охватывали вопросы моделирования динамики летательных аппаратов, разработки автопилотов (решающих задачи «низкого уровня»), оценки состояния БЛА, а также расчета траектории полета (задачи «высокого (   Читать дальше...   )Жанр: АвиацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C345F41D8EA026948A65818AB37402A65D66541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581624   (326250) от 06.10.2022
 
 С.Л. Соболев | Уравнения математической физики (1950) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326250.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325445.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325323.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325302.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323080.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322162.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321257.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320634.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319780.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319342.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319340.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319331.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319328.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319326.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319214.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319211.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319207.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319080.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318374.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318298.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318221.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316413.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316176.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315664.jpg" />
 </div>
 
 
@@ -623,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A67FD07838681725FB521D1E66504B394E0D56F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182800   (314881) от 11.11.2017
-
-Е.М. Грязнова и др. | Геотехнический мониторинг в строительстве (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Термин «геотехнический мониторинг» появился в практике отечественного строительства в 90-х гг. ХХ в. в ряде нормативных документов, обобщающих накопленный к тому времени опыт по реконструкции и новому строительству объектов в историческом центре таких мегаполисов, как Москва и Санкт-Петербург.
-Излагаются и обосновываются вопросы организации и проведения геотехнического (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9EAC9EE2F178014F626CF54D85C27B726CD724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582983   (314861) от 01.12.2012
-
-Сетков В.И., Сербин Е.П. | Строительные конструкции [2005] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314861.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике излагаются основы проектирования и расчета наиболее простых и широко распространенных в строительной практике несущих конструкций.
-Издание рассчитано на студентов и преподавателей строительных колледжей и техникумов, а также других средних профессиональных учебных заведений, ведущих подготовку специалистов по строительным специальностям, и прежде всего по специальности «Строительство зданий и сооружений» (спец. 2902) со всеми ее специализациями базового уровня. Может представлять интерес для студентов высшей школы, где дисциплина «Строительные конструкции» имеется в учебных планах, но не является профилирующей. Может быть полезным для техников-строителей, занимающихся производственной деятельностью или проектным делом в области нового строительства или реконструкции в жилищно-коммунальном комплексе, и особенно в малом бизнесе.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029DD804A9850259969232EF28F8AEEC4D5D8F30
 ```
 
 https://mybot314.ru/tekegram_catalog/

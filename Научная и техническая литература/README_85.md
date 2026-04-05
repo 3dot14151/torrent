@@ -1,135 +1,3 @@
-###  Публикация: 1362035   (950897) от 22.02.2020
-
-С. А. Голунский, Б. М. Шавер | Криминалистика. Методика расследования отдельных видов преступлений (1939) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Науки нет там, где каждое явление, каждый процесс рассматриваются изолированно от окружающей среды. Ленин учил, что точка зрения жизни, практики должна быть первой и основной точкой зрения теории познания. Без постоянного обобщения и научного анализа практики расследования отдельных видов преступлений не может быть научно-организованного следствия. Правильная организация (   Читать дальше...   )Жанр: История, политология, криминалистика, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43131D8E71D83542811E04F52E26F6C85AA4BBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361928   (950839) от 22.02.2020
-
-Крис Импи | Чудовища доктора Эйнштейна. О черных дырах, больших и малых (2020) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши представления о черных дырах чаще всего основываются на популярных мифах и нескольких общеизвестных научных фактах. Описывая историю исследования черных дыр, Крис Импи с легкостью развенчивает наиболее распространенные заблуждения и приоткрывает дверь в загадочный мир далеких звезд и их невидимых, но влиятельных спутниц.
-История астрофизики предстает как череда (   Читать дальше...   )Жанр: Научно-популярная литература, АстрономияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C07741614F1702DEB9D3F404E6BD92BF9D6BBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361975   (950816) от 22.02.2020
-
-Вера Калмыкова | Как начать разбираться в архитектуре (2019) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана по материалам лекционного цикла «Формулы культуры», прочитанного автором в московском Открытом клубе (2012 – 2013 гг.). Читатель найдет в ней основные сведения по истории зодчества и познакомится с нетривиальными фактами. Здесь архитектура рассматривается в контексте других видов искусства – преимущественно живописи и скульптуры. Много внимания уделено (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC25A29477D9F2F466417466C341A68F9B98C814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361972   (950811) от 22.02.2020
-
-Паола Волкова | Средневековые мастера и гении Возрождения (2018) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950811.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание вошли самые известные труды Паолы Волковой, посвященные Средневековью и Возрождению, – «В пространстве христианской культуры», «Мистики и гуманисты», «Великие мастера» из цикла ее лекций «Мост через бездну».
-Паола Дмитриевна Волкова – советский и российский искусствовед, доктор искусствоведения, историк культуры, заслуженный деятель искусств РСФСР. (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3D871C81A8FBC3DF10E61470589F45EE28BD03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362121   (950796) от 22.02.2020
-
-М.Н. Иванов, В.А. Финогенов | Детали машин (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950796.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом разделе приводятся контрольные вопросы для самоподготовки и примеры, помогающие освоить методику расчётов и разрабатывать программы таких расчётов. При выполнении рисунков авторы стремились дать простые схемы, которые, однако, сохраняют основные черты конструкций и позволяют понять условия работы и расчета деталей, полагая, что конструкции деталей студенты (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6EB27EE4BC5140AFB0DBEEDCAEBA3E1E9E5F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362048   (950727) от 22.02.2020
 
 А.А. Крюков | Расширенное администрирование ОС Unix (Linux) (2006) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950727.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950719.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950583.jpg" />
 </div>
 
 
@@ -218,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950511.jpg" />
 </div>
 
 
@@ -245,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950063.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ Baxi | Газовые котлы BAXI, инструкции. [2010] [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950055.jpg" />
 </div>
 
 
@@ -302,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949975.jpg" />
 </div>
 
 
@@ -328,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949717.jpg" />
 </div>
 
 
@@ -354,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949574.jpg" />
 </div>
 
 
@@ -380,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949428.jpg" />
 </div>
 
 
@@ -406,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949370.jpg" />
 </div>
 
 
@@ -432,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949360.jpg" />
 </div>
 
 
@@ -460,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949157.jpg" />
 </div>
 
 
@@ -486,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949151.jpg" />
 </div>
 
 
@@ -514,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949145.jpg" />
 </div>
 
 
@@ -540,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949119.jpg" />
 </div>
 
 
@@ -566,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949073.jpg" />
 </div>
 
 
@@ -592,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949054.jpg" />
 </div>
 
 
@@ -619,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949050.jpg" />
 </div>
 
 
@@ -645,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949048.jpg" />
 </div>
 
 
@@ -671,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948946.jpg" />
 </div>
 
 
@@ -685,6 +553,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A4177FEA74E83AE839B47EE252D7CEDF50CD7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089379   (948938) от 05.01.2017
+
+Е.М. Овсянников | Электрический привод (2011) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник написан с учетом тенденций развития электропривода. Особое внимание уделено следящим и цифровым электроприводам, а также программному обеспечению. Приведены современные методы расчета систем электроприводов. Даны оригинальные схемные решения. Излагаемые методы расчета иллюстрируются практическими примерами.
+Предназначен для студентов высших учебных заведений (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045C67D6CB5C66F49DF0324002A171B26D6BDA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090068   (948837) от 05.01.2017
+
+Михаил Вознесенский | Украденная субмарина К-129 (2005) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948837.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Книга М.Вознесенского — это независимое журналистское расследование одной из трагедий советского подводного флота. При загадочных обстоятельствах в марте 1968 года у Гавайских островов погибла подводная лодка-ракетоносец К-129 с экипажем численностью 97 человек. Сам факт и обстоятельства гибели субмарины, имевшей на борту ядерное оружие, долгое время (   Читать дальше...   )Жанр: История войнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6888EBAB63633627F9D103F05A1623397A41512E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089650   (948830) от 05.01.2017
+
+В.И. Иголкин и др. | Методы и аппаратура электроразведки на переменном токе (2016) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены вопросы теории электромагнитного поля, приведено описание аппаратуры электромагнитных методов с использованием переменного гармонического тока в диапазоне частот 312,5–2250·103 Гц, рассмотрен принцип её действия, технические и методические характеристики. Освещена технология работ с этой аппаратурой, рассмотрены вопросы обработки полученных материалов исследования (   Читать дальше...   )Жанр: Геология, геофизика, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9352B29F9A3623D0E6534AC52D24F4E5ED68F035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089999   (948827) от 05.01.2017
+
+Роджер Форд | Знаменитые винтовки мира (2004) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948827.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: "Знаменитые винтовки мира" - бесценный источник информации и иллюстративного материала для каждого любителя оружия. В этом красочном издании читатель найдет более 50 цветных иллюстраций и схем, а также свыше 120 черно-белых и цветных фотографий лучших образцов стрелкового оружия. Автор - Роджер Форд - эксперт по оружейным технологиям и боевому (   Читать дальше...   )Жанр: Стрелковое оружиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83CDC59460BA030482CA83B0842DE737544048B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089949   (948825) от 05.01.2017
+
+А.С. Стаценко, В.В. Иванченко | Печные работы (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948825.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании даются общие сведения о строительстве, конструктивных элементах зданий, строительных работах и документации на их выполнение. Освещаются вопросы контроля качества работ, их оплаты и охраны труда в строительстве. Рассматриваются печные устройства и их элементы, тепловая работа печей, их размещение и конструкции, отбор и заготовка материалов, организация (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE598271B52746AC10141E3AFF0E229E3F6B733C
 ```
 
 https://mybot314.ru/tekegram_catalog/

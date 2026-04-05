@@ -1,32 +1,3 @@
-###  Публикация: 1462801   (1020831) от 16.04.2021
-
-RAM - TRAUMATIX 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Возьмем [03:10]
-02. Men in Black [02:41]
-03. Hesoyam (feat. LeanJe) [03:22]
-04. Как S1mple [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729E68132D1D2F1815C5D0DAD1FD2C738AC37447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463838   (1020144) от 20.04.2021
 
 Leanje - Мертвая петля (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ Leanje - Мертвая петля (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020144.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018916.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017087.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017081.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017071.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ BOULEVARD DEPO, Jeembo - ОМОФОР (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016137.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003252.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ ATL - Кривой эфир (2019) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001019.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975296.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963513.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963265.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959449.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959394.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955508.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945701.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_939561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_939561.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936536.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936252.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928410.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927616.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Tveth - Caps Lokk (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917561.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Redo - Underated 2 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917551.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ VELIAL SQUAD - Голову на плаху (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917521.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Jeembo & Tveth - PAINKILLER III (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917507.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ XIII - Город 13 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917504.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ XIII - Город 13 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23B000B7E1FD4C82AB3BD1C14B869A3251F20724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367266   (917312) от 15.03.2020
+
+GSPD - Музло (2019) [MP3|320 Kbps] <Rave, Dance, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. СЕКТА [03:07]
+02. Интердевочка [03:27]
+03. Кислотный дождь [03:25]
+04. Заряженный [03:54](   Читать дальше...   )Жанр: Rave, Dance, PopПродолжительность: 00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D1D4425ACD411F882EBC38258C047E602762BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

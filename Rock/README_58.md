@@ -6,7 +6,7 @@ VA - 00s Rock Party (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413189.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ After Tea - Jointhouse Blues (1970) Remastered, 2002, Progressive Line [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412835.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chris Norman - It's A Tragedy (2009) [MP3|256]<Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_412734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412734.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Van Morrison - Roll With The Punches (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412590.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Omega - Gammapolis & Live At Kisstadion (2022) 2CD, Compilation[MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412535.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Omega - Beat (2022) 1966-68, Compilation [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412531.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Methodica - Clockworks (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412026.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Queen + Adam Lambert - Live Around The World (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411739.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411163.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411154.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410827.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Art Boys Collection - Stoned Wall (1972) Reissue, 2001,  Garden Of Delights [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410599.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Parallels (project by Tim Morse) - Awaken (2022) Yes tribute [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410544.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ The Silver Birds - Under My Wing (2022) [MP3|320 Kbps] <Hard Blues Rock, Classic
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410543.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Tony Carey - Room With A View (1988) [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410484.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Nightwish - Oceanborn (1998) Remaster, 2015, Spinefarm Records [OGG Vorbis|485 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410413.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Suzi Quatro - Legend: The Best Of (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410255.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Mungo Jerry - Gold (2019) 3CD [MP3|320 Kbps] <Rock, Folk-rock, Psychedelic>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410094.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Ray Wilson - Makes Me Think Of Home (2016) [MP3|320 Kbps] <Alternative Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409920.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Roger Waters - Us + Them (2020) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409675.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Paul Kossoff (ex. Free) - Koss (1977) /1983, Street Tunes/ [MP3|320 кб/с]<Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409554.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Ulytau - Jumyr Kylysh (2006) [MP3|320 кб/с]<Ethno-Rock, Folk, Instrumental>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409352.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ John Lennon - Imagine (2018) The Ultimate Collection  [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408997.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crosso
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408868.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Feather Mountain - To Exit a Maelstrom (2022) [MP3|320 Kbps] <Progressive Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408864.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Klaatu - Klaatu / Hope (1976-77) Reissue, 2000, BGO Records [MP3|320 Kbps] <Art,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408847.jpg" />
 </div>
 
 

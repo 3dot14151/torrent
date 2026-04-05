@@ -1,3 +1,213 @@
+###  Публикация: 1496445   (123021) от 14.01.2024
+
+Gas Station Simulator (2021) [Ru/Multi] (1.0.2.5441S/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gas Station Simulator — это все о ремонте, развитии и эксплуатации заправочной станции у шоссе посреди пустыни. Свобода выбора, несколько подходов к управлению бизнесом и борьба с давлением внешних факторов - ключевые составляющие этой игры.Тип издания: RepackРазработчик: DRAGO entertainmentЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D570DBB5ABC80B20D64ABC15A9F04F24B9FB1FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691958   (122869) от 15.01.2024
+
+X-59: Первый взгляд на будущее сверхзвуковых полетов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122869.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASA и Lockheed Martin представили X-59, новый "тихий сверхзвуковой" самолет, который может изменить будущее как военных, так и гражданских авиаперевозок.X-59 разрабатывается в Lockheed Martin Skunk Works уже несколько лет после того, как в 2018 году NASA предоставило грант на $248 миллионов. Это был первый из многих научно-исследовательских проектов NASA, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691759   (122865) от 15.01.2024
+
+О новых российских изобретениях
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если в вопросах военных технологий Россия — безусловный мировой лидер, то в гражданском технологическом и социальном секторе наша страна пока отстаёт.За последнее десятилетие Россия смогла совершить просто гигантский скачок в разработке и, что самое главное, в реализации новых проектов, которые иначе как модным выражением хай-тек, не назовёшь.И это неудивительно, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637916   (122855) от 15.01.2024
+
+Amnesia: The Bunker (2023) [Ru/Multi] (1.8) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amnesia: The Bunker — хоррор от первого лица от создателей игр SOMA и Amnesia. Вы остались в одиночестве с единственной пулей в барабане револьвера в опустевшем бункере времен Первой мировой войны, где вам предстоит столкнуться с ужасом, таящимся во тьме. Любой ценой не дайте погаснуть свету и выберитесь живым. Погрузитесь в неподдельно гнетущую атмосферу ужаса.Тип издания: RepackРазработчик: Frictional GamesЖанр: Adventure (Horror), Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B4EB77FC0BD87A88CF7CFA277DBFC0468EA30D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077793   (122853) от 15.01.2024
+
+Transport Fever (2016) [Ru/Multi] (19002) License GOG
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transport Fever – железнодорожный бизнес-симулятор, в котором игроки создают процветающую транспортную компанию, начиная играть с 1850-го года. Новоиспеченным магнатам придется возводить вокзалы, аэропорты, доки и зарабатывать деньги, выстраивая транспортное сообщение в разных областях. Прокладывайте сложные автомобильные, железнодорожные, водные и воздушные пути (   Читать дальше...   )Тип издания: LicenseРазработчик: Urban GamesЖанр: Strategy (Manage, Busin, Real-time), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387ED6B14BDCC088344B79923515E23BD1A2047F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692010   (122660) от 16.01.2024
+
+Betavolt представила компактную ядерную батарейку BB100 с изотопом Никель-63 и алмазными полупроводниками
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_122660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китайский стартап Betavolt представил компактную, безопасную и долговечную ядерную батарейку BB100 с изотопом Никель-63 и алмазными полупроводниками.Разработчики пояснили, что размер батарейки меньше монеты, а также то, что её хватит на 50 лет.
+По заверению Betavolt, элемент питания абсолютно безвреден для людей, не имеет внешнего излучения, ему не страшны жара и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692014   (122488) от 17.01.2024
+
+Так кто же изобрёл радио: Гульельмо Маркони или Александр Попов?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_122488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попов, возможно, был первым — но он не запатентовал свои изобретения и не пытался их коммерциализироватьВ 1895 году русский физик Александр Попов использовал свой инструмент для исследования гроз для демонстрации передачи радиоволн
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692657   (122469) от 17.01.2024
+
+Windows 11 23H2 Professional [22631.2861] (05.01.2024) by bulygin-dima [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Облегчённая сборка основана на официальном образе от Microsoft MSDN Windows 11 Version 23H2 Consumer Edition. Быстрая установка без лишних действий. Требуется только выбрать диск и создать локальную учётку. Проверки DISM / SFC проходит.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8FA0FC028CB4B4B1D9898D2707741EAE60CC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690426   (122302) от 18.01.2024
 
 Игра смерти / И-Джэ скоро умрёт / Ijae, got jukseupnida / Death's Game (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) ColdFilm, LE-Production (обновляемая)
@@ -6,7 +216,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122302.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_122106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_122106.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121961.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121784.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121767.jpg" />
 </div>
 
 
@@ -136,7 +346,7 @@ Northgard (2018) [Ru/Multi] (3.3.16.36098/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121642.jpg" />
 </div>
 
 
@@ -162,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121641.jpg" />
 </div>
 
 
@@ -188,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121632.jpg" />
 </div>
 
 
@@ -214,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121624.jpg" />
 </div>
 
 
@@ -241,7 +451,7 @@ Redshift 3.5.23 [Unlocked GPU, Offline] for Cinema 4D, Maya, Houdini, 3DS Max [E
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121398.jpg" />
 </div>
 
 
@@ -267,7 +477,7 @@ Windows 11 23H2 (x64) 24in1 +/- Office 2021 by Eagle123 (01.2024) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121397.jpg" />
 </div>
 
 
@@ -293,7 +503,7 @@ Microsoft объявила о поддержке Windows 11 на компьют�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121382.jpg" />
 </div>
 
 
@@ -319,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121214.jpg" />
 </div>
 
 
@@ -347,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121068.jpg" />
 </div>
 
 
@@ -373,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121067.jpg" />
 </div>
 
 
@@ -399,7 +609,7 @@ Windows 10 Pro 22H2 19045.3930 x64 by SanLex [Lightweight] [Ru/En] (2024.01.19)
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121066.jpg" />
 </div>
 
 
@@ -425,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121065.jpg" />
 </div>
 
 
@@ -451,7 +661,7 @@ Windows 10 22H2 Compact (19045.3803) by Flibustier [Ru]
 >>33
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121064.jpg" />
 </div>
 
 
@@ -465,217 +675,6 @@ Microsoft Store, .NET Framework 3.5, 7-zip и StartIsBack++ — устанавл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7450652602A157DEBE1B9C83B720E8CFFC424ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693877   (121057) от 25.01.2024
-
-Легендарный Winamp впервые появился на iOS
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121057.jpg" />
-</div>
-
-
-###  Подробнее
-
-В марте 2023 года в сети представили полностью переосмысленную версию популярного плеера Winamp. Утилита пользовалась наивысшим спросом в 2000-х, а сейчас приложение превратилось в стриминговый сервис для прослушивания музыки.О том, как за десятки лет изменился Winamp, мы писали здесь. Если вкратце: теперь Winamp — это аналог Spotify, где пользователь платит не за (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694983   (120754) от 27.01.2024
-
-Прометей / Prometheus (2012) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120754.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках сакрального знания группа ученых отправляется в самые темные и неизведанные чертоги вселенной. Именно там, в отдаленных мирах, находясь на пределе своих умственных и физических возможностей, им предстоит вступить в безжалостную схватку за будущее всего человечества...Производство: США, Великобритания / Brandywine Productions, Scott Free ProductionsЖанр: ужасы, фантастика, триллер, приключенияРежиссер: Ридли СкоттАктеры: Нуми Рапас, Майкл Фассбендер, Шарлиз Терон, Идрис Эльба, Гай Пирс, Логан Маршалл-Грин, Шон Харрис, Рейф Сполл, Иман Эллиотт, Бенедикт ВонгПеревод: Дублированный (Лицензия)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10AB4D84309C807FC40B075207015A83E0BB4931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067719   (120741) от 27.01.2024
-
-The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.6.1170.0.8/dlc) Repack Other s [Special Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120741.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls V: Skyrim Special Edition — это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все DLC. Кроме того, в Legendary Edition была переработана графика, добавлены новые эффекты и увеличена детализация окружений.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, 1st Person, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB58EAB8809914B75507BA5FAB98024D4F2C68DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694982   (120740) от 27.01.2024
-
-Windows 11 23H2 Compact (22631.3007) by Flibustier [Ru]
-
->>3
->>16
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компактная сборка Windows 11 на основе оригинального образа от Microsoft MSDN.
-Базовая редакция Pro, при установке конвертируется в любую из поддерживаемых.
-Интегрированы все обновления на 27.01.2024 (OS Build 22631.3007).
-Обновлён кодек VP9VideoExtensions, все остальные UWP-приложения удалены.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135D61197930CB5D0C09916E59F7B26217B91E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694392   (120706) от 27.01.2024
-
-Израилю разрешат принять участие в "Евровидении"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_120706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организация добавила, что хочет сохранить статус конкурса как "мероприятия без политики, объединяющего публику по всему миру посредством музыки"Организаторы конкурса "Евровидение", который пройдет в этом году в городе Мальмё на юге Швеции, не намерены исключать Израиль из числа участников. Комментарий Европейского вещательного союза (ЕВС), который (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694817   (120591) от 28.01.2024
-
-Кроме «Слова пацана»: 5 российских сериалов, основанных на реальных событиях
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_120591.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 декабря вышел последний эпизод сериала «Слово пацана. Кровь на асфальте» — кажется, главного телепроекта года. Его события проходят в Казани в конце 1980-х. Столицу ТАССР тогда наполнили молодёжные группировки, которые делили город на зоны влияния.Это не единственный сериал, который воспроизводит эпизоды из отечественной истории. Рассказываем о ещё пяти проектах, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673325   (120574) от 28.01.2024
-
-Банда «ЗИГ ЗАГ» (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая Отечественная война, зима 1941 года. Запасы продовольствия иссякли, поставки были заблокированы. Осажденный Ленинград умирал от голода: в сутки служащим, иждивенцам и детям выдавали по 125 г хлеба. Именно тогда в городе появилась банда, промышлявшая мошенничеством и грабежами. Преступники в основном занимались подделкой продовольственных карточек. Название (   Читать дальше...   )Производство: Россия / Рен-ТВ, Star Media Vision, МТС МедиаЖанр: детективРежиссер: Виталий ВоробьевАктеры: Игорь Петренко, Александр Устюгов, Олег Филипчик, Сергей Белов, Сослан Фидаров, Денис Константинов, Роман Синицын, Алексей Потапов, Павел Трубинер, Екатерина ВилковаПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957A600F8BEA43079DBA97E8C0FE2DB6AD5290CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695217   (120559) от 28.01.2024
-
-Чужой: Завет / Alien: Covenant (2017) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время обследования удаленной планеты, расположенной на другой стороне галактики, экипаж колониального корабля «Завет» обнаруживает, что то, что они изначально приняли за неизведанный рай, на самом деле — тёмный и опасный мир. Его единственный житель — синтетический андроид Дэвид, оставшийся в живых после обреченной экспедиционной миссии «Прометей»Производство: США, Великобритания / 20th Century Fox, Brandywine ProductionsЖанр: фантастика, триллер, ужасыРежиссер: Ридли СкоттАктеры: Майкл Фассбендер, Кэтрин Уотерстон, Билли Крадап, Дэнни МакБрайд, Демиан Бишир, Кармен Эджого, Джусси Смоллетт, Калли Эрнандес, Эми Саймец, Натаниель ДинПеревод: Дублированный (Лицензия)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181D48FC17BF995E8C4765E815BAEC3A1A986091
 ```
 
 https://mybot314.ru/tekegram_catalog/

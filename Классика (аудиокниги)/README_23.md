@@ -1,3 +1,29 @@
+###  Публикация: 1550019   (592662) от 09.05.2022
+
+Константин Симонов | Четыре шага (1979) [MP3, В.Самойлов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль по повести Констатнтина Симонова "Четыре шага" о буднях военного корреспондента во время Великой Отечественной войны в Крыму.Жанр: Классика, РадиоспектакльПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EF1743E65F4DD8062A3B1285332BFC99B3A164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550341   (592488) от 10.05.2022
 
 Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 408-458 (2022) [MP3, Александр Клюквин]
@@ -6,7 +32,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592488.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592103.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592101.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591639.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591569.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590223.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587696.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586474.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585790.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584635.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583966.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583702.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583696.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582465.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581061.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579593.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579533.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579483.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579478.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579423.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575778.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575752.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575679.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574693.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574663.jpg" />
 </div>
 
 
@@ -662,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B97BE14AD09DA72D69067F267E2A36D11F2ED07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554928   (574010) от 01.06.2022
-
-Виктор Астафьев | Звездопад (1980) [MP3, Олег Борисов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть Виктора Астафьева «Звездопад» напоминает исповедь. Читателю видится немолодой уже, зрелый человек, который заглянул в свое прошлое и увидел в нем сквозь кровавые военные картины блики первой любви, самой чистой, беззаветной, незабываемой. В этой повести много автобиографического. Главный герой «Звездопада» Михаил тоже сибиряк, воспитывался в детском доме, (   Читать дальше...   )Жанр: Классика, РадиоспектакльПродолжительность: 01:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D08F3A83F39907AC53F448BEDEE5E3A414C405
 ```
 
 https://mybot314.ru/tekegram_catalog/

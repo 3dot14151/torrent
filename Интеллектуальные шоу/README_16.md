@@ -1,3 +1,29 @@
+###  Публикация: 1610026   (244584) от 05.02.2023
+
+Своя игра (05.02.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5FF7C27B16D0EF43E56F2CEDE783C05ECBD57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452465   (244545) от 06.03.2021
 
 Своя игра (06.03.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244545.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244456.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244397.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244322.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244318.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244189.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244141.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244058.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243820.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243819.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243599.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243460.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242801.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242798.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242587.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242580.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242561.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241681.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241534.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241482.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241480.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241411.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240992.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_240968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240968.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_240927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240927.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B6ED5DF36823538212BDB39C9D25ACFE2EFABEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620009   (240912) от 18.03.2023
-
-Своя игра (18.03.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6BEC002205584BAA2B58A965A892D729701DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

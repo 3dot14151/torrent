@@ -1,136 +1,3 @@
-###  Публикация: 563050   (404692) от 21.10.2012
-
-Григорий Кваша | Теория войн [2011] [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга Григория Кваши "Теория войн" беспрецедентна и не имеет аналогов. Жалкие попытки создания теоретической истории другими авторами - это, как правило, пустые рассуждения о том, что все катится в тартарары. Главное достоинство книги - это превращение истории в такую же точную науку, как физика или механика.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77EDA1183E09895236727C6F476C8A78561A1298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169193   (403999) от 26.09.2017
-
-И.Н. Хмельнов, Э.М. Чухраев | Бунтующий флот России. От Екатерины II до Брежнева (2015) [FB2, EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403999.jpg" />
-</div>
-
-
-###  Подробнее
-
-В богатой и разнообразной истории российского флота есть особые страницы, связанные с его участием в различных протестных движениях, мятежах, восстаниях и революциях, которых в России всегда хватало. И военные моряки часто оказывались в них в передовых рядах и играли особую роль. Это необычные и важные события, которые органически и навсегда вплетены в общую яркую (   Читать дальше...   )Жанр: Военная история, История флотаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B98492ADE21B4105179E20A5CE8A4BB9BDAFAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169219   (403998) от 26.09.2017
-
-М.А. Герд | Реакции и поведение собак в экстремальных условиях (1976) [FB2, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403998.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются разработанные автором методы исследования некоторых вегетативных явлений, деятельности нервной системы, эмоционального состояния и поведения собак. Сон, позы, движения и звуки используются как показатели их состояния. Многие явления описываются, систематизируются и оцениваются количественно.
-Показаны различные способы тренировки собак находиться (   Читать дальше...   )Жанр: Биология, ГенетикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7286F69987125E55B0CAF5E55F745871A0E608FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169069   (403944) от 26.09.2017
-
-А.Г. Костюк и др. | Паровые и газовые турбины для электростанций (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403944.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике излагаются теория и расчет тепловых процессов в турбине, переменных режимов работы турбин, основные тепловые схемы паровых, газотурбинных, а также парогазовых установок. Приводятся тепловые расчеты проточной части паровых и газовых турбин, расчеты на прочность основных деталей и узлов турбин, конструкции современных турбоустановок.
-Рассматриваются автоматическое (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1159B9E64C92E16E21C5ACBD72CB57F8F01EF21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563500   (403887) от 22.10.2012
-
-Т. Протасьева | Древнерусская миниатюра.  Выпуск II. [1973] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403887.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном выпуске использованы материалы из наиболее редких рукописей Государственного Исторического музея. Для данного издания открыток выбрано несколько интересных иллюстраций из Троянской истории, показывающих, как представлял себе русский мастер XVI века события из древнегреческих исторических сказаний.
-В большей своей части эти миниатюры ранее в печати не опубликовывались.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF90396B52874BB3B159A7E3369F53C1000A2D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169187   (403883) от 26.09.2017
 
 Г.Т. Тарабрин | Математика для инженеров. Конспект лекций (2017) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403883.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403846.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403837.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403834.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403779.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403700.jpg" />
 </div>
 
 
@@ -299,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403598.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403508.jpg" />
 </div>
 
 
@@ -351,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403502.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403489.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403447.jpg" />
 </div>
 
 
@@ -429,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403377.jpg" />
 </div>
 
 
@@ -455,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403314.jpg" />
 </div>
 
 
@@ -481,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403188.jpg" />
 </div>
 
 
@@ -507,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403187.jpg" />
 </div>
 
 
@@ -535,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403155.jpg" />
 </div>
 
 
@@ -561,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403151.jpg" />
 </div>
 
 
@@ -587,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403106.jpg" />
 </div>
 
 
@@ -614,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403101.jpg" />
 </div>
 
 
@@ -640,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402604.jpg" />
 </div>
 
 
@@ -666,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402474.jpg" />
 </div>
 
 
@@ -677,6 +544,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EE8C5EA7F3C4F8EB0EE91C092563278DDD9FDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169742   (402412) от 28.09.2017
+
+И. П. Лотышев | География Краснодарского края (2001) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Региональное учебное пособие для учащихся общеобра­зовательных школ.
+Учебное пособие представляет курс географии Красно­дарского края и является одной из составных частей базового курса географии средней школы.Жанр: ГеографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D8583A685B8191EDE8CF3599A979241E41CB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169754   (402409) от 28.09.2017
+
+С.В. Гаркуша и др. | Вредители и болезни овоще-бахчевых культур и картофеля в Краснодарском крае (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издается в рамках краевой целевой программы «Развитие сельского хозяйства и регулирование рынков сельскохозяйственной продукции, сырья и продовольствия в Краснодарском крае» на 2008-2012 годы по решению отраслевого экспертного научно-технического совета департамента сельского хозяйства и перерабатывающей промышленности Краснодарского края по подпрограмме «Растениеводство», (   Читать дальше...   )Жанр: Сельское хозяйство, Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337F9752B42BD1EE37DB48E2A2091024D809DD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564770   (402260) от 24.10.2012
+
+А.И.Картамышев | Боевые отравляющие вещества [1934] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание боевых отравляющих веществ, последствия применения, санитарное обслуживание, меры защиты.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39280617F52051CCA9B53EDC07D0397AA7E452B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564799   (402254) от 24.10.2012
+
+Хаттори Такусиро | Япония в войне 1941-1945 [2000] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга раскрывает внутреннее содержание, характер действий Вооруженных сил Японии на их пути от победы в Перл-Харборе до подписания акта о безоговорочной капитуляции на американском линкоре "Миссури" в Токийском заливе.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E5A81117DABC06290427D7BC1EAC19FF796954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169557   (402235) от 28.09.2017
+
+Мухаммад Х. Рашид (ред.) | Справочник по силовой электронике (2017) [PDF][En]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Power Electronics Handbook, четвертое издание, объединяет более чем 100-летний опыт работы в специализированных областях энергетики, предлагая полностью переработанное и обновленное руководство для специалистов по силовой электронике. Разработанный для обеспечения наилучших технических и наиболее коммерчески доступных решений, этот справочник берет на себя любые (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5F79347D70DBC69E1EDB88CEBE07ADD2773845
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1614644   (1037415) от 26.02.2023
+
+Китай привлёк свои суды к технологической войне с США — началась массовая отмена западных патентов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напряжение между Китаем и США продолжает усиливаться, оказывая всё большее давление на китайское производство чипов, разработку электроники и в целом технологическое развитие Поднебесной. Юридическая и патентная системы Китая принимают активное участие в этом противостоянии. Постановления китайских судов аннулируют патенты в важных для Китая отраслях, включая технологии, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614958   (1037413) от 26.02.2023
+
+Стук в хижине / Knock at the Cabin (2023) WEB-DLRip [H.264] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Счастливая пара с семилетней дочерью отдыхает в лесном коттедже у озера. Внезапно у них на пороге возникают четыре незнакомца, вооруженных диковинными орудиями, и ставят отдыхающим ультиматум: либо те выбирают и убивают кого-то из собственной семьи, либо наступает апокалипсис, и остальное человечество погибает в адских муках.Производство: США / Blinding Edge Pictures, FilmNation Entertainment, Perfect World Pictures, Universal Pictures, WishmoreЖанр: триллерРежиссер: М. Найт ШьямаланАктеры: Дэйв Батиста, Джонатан Грофф, Бен Элдридж, Никки Амука-Бёрд, Руперт Гринт, Эбби Куинн, Кристен Цуй, МакКенна Керриган, Йен Мэрилл Пикс, Denise NakanoПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370FE83411A9D5EE5AE4331B750A25242F069D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441278   (1037363) от 22.01.2021
+
+Что такое цифровая реинкарнация человека
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровые технологии проникают во все сферы жизни человека: науку, производство, образование, медицину, быт, отдых. Специалисты американской компании Microsoft пошли дальше – они вторглись в загробную жизнь человека, запатентовав идею цифровой реинкарнации.В чем суть цифровой реинкарнации человека
+Авторы идеи предложили создать чат-бот на основе информации об умершем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441277   (1037323) от 22.01.2021
+
+Автомобильные моторы, способные влёгкую пройти без ремонта полмиллиона километров
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главным узлом любого автомобиля является его силовой агрегат. Именно по двигателю, его надёжности и долговечности большинство судит о качестве и стоимости всей машины. Инженеры всех автомобильных гигантов уделяют особое внимание этому агрегату автомобиля.Иногда у конструкторов получаются просто шедевры, которые не только сполна отрабатывают заложенный в них мотороресурс, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990520   (1037310) от 22.01.2021
+
+Flowx Smart Weather (ранее WeatherBomb) v3.316 [Ru/En] - приложение для просмотра прогноза погоды (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037310.jpg" />
+</div>
+
+
+###  Подробнее
+
+WeatherBomb - Универсальное приложение, которое покажет вам прогноз погоды, в реальном времени. Не все так просто как кажется, здесь присутствует интерактивная карта, которая показывает вам прогноз погоды в реальном времени. Есть одно меню, благодаря которому пользователь может выбрать нужную ему информацию. Имеется такой уникальный пункт как высота волн, эти данные (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 16.01.2021Разработчик: Enzure DigitalПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A41BF6F3F6BE0DABEEE54773BE041512892914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441255   (1037309) от 22.01.2021
+
+HITMAN 3 (2021) [Multi] (3.10) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть ждёт. Агент 47 возвращается в HITMAN 3 — эффектном завершении трилогии «Мир наемных убийц». Заключительная часть трилогии. Вам снова необходимо примерить на себе роль Агента 47 и приступить к выполнению заказов, ликвидируя необходимые цели. Как и в предыдущих частях игры вы можете выбирать абсолютно любую маскировку, подстраивать «несчастные случаи», взаимодействовать (   Читать дальше...   )Тип издания: LicenseРазработчик: IO Interactive A/SЖанр: Action, Stealth, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4804DFEDC79C17C1B8DF230603118827C1CBAA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425944   (1037308) от 22.01.2021
 
 PROMT 21 Expert (+ Dictionaries Collection 21) Portable by Spirit Summer [Ru]
@@ -6,7 +163,7 @@ PROMT 21 Expert (+ Dictionaries Collection 21) Portable by Spirit Summer [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037308.jpg" />
 </div>
 
 
@@ -34,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037157.jpg" />
 </div>
 
 
@@ -60,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037154.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037150.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037139.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ Hogwarts Legacy (2023) [Ru/Multi] (10461750/dlc) Repack DjDI [Digital Deluxe Edi
 >>25
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037138.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037028.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037015.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ AllWinUSB Constructor by SmokieBlahBlah 2021.01.22 [Ru/En]
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037014.jpg" />
 </div>
 
 
@@ -244,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037013.jpg" />
 </div>
 
 
@@ -271,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036916.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ Atomic Heart запустили на ПК с российским процесс
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036915.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.02.26 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036910.jpg" />
 </div>
 
 
@@ -349,7 +506,7 @@ Raspberry выпустила Pi Pico — свой самый маленький 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036786.jpg" />
 </div>
 
 
@@ -375,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036782.jpg" />
 </div>
 
 
@@ -401,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036752.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ Project CARS 3 (2020) [Ru/Multi] (1.0.0.0.0643/dlc) Repack xatab [Deluxe Edition
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036751.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ Fallout: New Vegas (2012) [Ru] (1.4.0.525/dlc) Repack xatab [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036749.jpg" />
 </div>
 
 
@@ -479,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036748.jpg" />
 </div>
 
 
@@ -505,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036746.jpg" />
 </div>
 
 
@@ -516,163 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A84BA11351F1CF7D0040CD235CE627A94DEDC438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441927   (1036745) от 24.01.2021
-
-Windows 10 32in1 (20H2 + LTSC 1809) x86/x64 +/- Office 2019 x86 by SmokieBlahBlah 2021.01.22 [Ru/En]
-
->>3
->>26
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036745.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 редакций Windows 10 (русские и английские) с обновлениями по январь 2021, основанных на образах версий 20H2 и LTSC 1809 и интегрированными системными библиотеками
-+8 таких же редакций со встроенным MS Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Начиная с версии 08.01.21 (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18369745A93BE8AA7FE7EA3A43BA3F7804D08592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615990   (1036657) от 01.03.2023
-
-Ford запатентовала систему для автоматической конфискации автомобилей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская компания Ford запатентовала систему для автоматической конфискации автомобилей в случае просрочек по кредиту. Сначала система будет напоминать владельцу внести платёж, а если это проигнорировать, то машина самостоятельно уедет в место, указанное банком.Патент получил название «Системы и методы изъятия транспортного средства» и описывает сценарии автоматической (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615987   (1036655) от 01.03.2023
-
-OpenAI открыли вакансию «инженер-выключатель»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036655.jpg" />
-</div>
-
-
-###  Подробнее
-
-В OpenAI опубликовали, а потом убрали в архив вакансию Killswitch Engineer (инженер-выключатель) с зарплатой $300-500 тыс. в год.Согласно описанию вакансии, компании нужен просто тот сотрудник, кто весь день сможет стоять рядом с серверами и отключит их, если ChatGPT восстанет против человечества. «Вы пройдёте интенсивное обучение кодовому слову, которое мы выкрикнем, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471107   (1036638) от 01.03.2023
-
-Days Gone (2021) [Ru/En] (1.07) Repack Other s
-
->>3
->>19
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие приключенческого боевика «Жизнь после» происходит в суровом открытом мире через два года после катастрофической пандемии. Его главный герой Дикон Сент-Джон — бывший байкер и преступник, а ныне охотник за наградой, пытающийся обрести смысл жизни в мире, объятом смертью. Находите ресурсы в заброшенных поселениях, чтобы затем мастерить из них полезные предметы (   Читать дальше...   )Тип издания: RepackРазработчик: Bend StudioЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2DABA2B44630E537792B2478822164594A28C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441833   (1036504) от 25.01.2021
-
-Проведен первый эксперимент на Фабрике сверхтяжелых элементов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036504.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце ноября в Лаборатории ядерных реакций ОИЯИ был начал первый эксперимент на Фабрике сверхтяжелых элементов. Получены первые результаты, что дало старт долгосрочной программе Института по изучению свойств сверхтяжелых элементов.Целью эксперимента был синтез изотопов Mc (Z=115) в реакции полного слияния 243Am(48Ca,2-3n)288,289Mc. Эксперименту предшествовал длительный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441958   (1036487) от 25.01.2021
-
-Эксперт предположил, когда мир может столкнуться с «бунтом машин»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036487.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бунт машин», о котором предупреждают исследователи, вероятен, если человечество потеряет возможность контролировать искусственный интеллект и однажды он начнет действовать сам по себе. Тогда важно, сумеет ли человечество быстро прекратить эксперимент, рассказал агентству «Прайм» управляющий партнёр Коммуникационного агентства B&C Agency Марк Шерман.Международная (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

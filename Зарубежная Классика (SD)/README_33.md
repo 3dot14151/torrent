@@ -1,3 +1,55 @@
+###  Публикация: 1412448   (798091) от 06.11.2021
+
+Дочь пирата / Девушка пирата / Buccaneer's Girl (1950) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робингудствующий пират грабит только корабли богатого, но злобного торговца Нарбонна. Жизнерадостная Дэбби, пассажирка его последнего трофея, прячется на пиратском корабле и влюбляется в него…Производство: США / Universal International Pictures (UI or U-I)Жанр: Боевик, Мелодрама, Комедия, Приключения, МюзиклРежиссер: Фредерик Де КордоваАктеры: Ивонн Де Карло, Филип Френд, Роберт Дуглас, Эльза Ланчестер, Андреа Кинг, Норман Ллойд, Джей С. Флиппен, Генри Дэниелл, Дагласс Дамбрилл, Верна ФелтонПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D75A74F9B6F4B928A49DE6EA113B0234F63D33A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508212   (797976) от 07.11.2021
+
+Безумная любовь / Mad Love (1935) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по роману Мориса Ренара "Руки Орлака". Великий хирург д-р Гоголь безумно влюбляется в театральную актрису Ивон Орлак и узнаёт, что она состоит в браке со знаменитым пианистом Стивеном Орлаком. Но пианист попадает в железнодорожную катастрофу и калечит руки. Ивон, преодолевая свой страх, кидается к доктору, умоляя спасти руки мужа, который не сможет (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: мелодрама, ужасы, фантастикаРежиссер: Карл ФройндАктеры: Петер Лорре, Фрэнсис Дрэйк, Колин Клайв, Тед Хили, Сара Хейден, Эдвард Брофи, Генри Колкер, Кей Люк, Мэй Битти, Джордж ДэвисПеревод: профессиональный многоголосый (Светла)Субтитры: русские (вступление), английскиеПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69AAF95B3ACAA841582DFE773326E3B79C7EC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376539   (797757) от 24.05.2020
 
 Двойная страховка / Double indemnity (1944) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797757.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797440.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797394.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797376.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797325.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797270.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796893.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796849.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796715.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796486.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796477.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796161.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796088.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795782.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795393.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_795186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795186.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794781.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794758.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794489.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794327.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794045.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793984.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793701.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793643.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34CAB30428E1D1782F38AA7F2E811A31D02BF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357963   (793279) от 30.05.2020
-
-Досье Ипкресс / The Ipcress File (1965) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Циничного армейского сержанта Палмера шантажируют и заставляют работать на британскую разведку. Цепь интриг, предательств, насилия и убийств.Жанр: ТриллерРежиссер: Сидни Дж. Фьюри.Актеры: Майкл Кейн, Найджел Грин, Гай Доулмен, Сью Ллойд, Гордон Джексон, Обри Ричардс, Фрэнк Гэтлиф, Томас Бэптист, Оливер МакГриви, Фреда Бэмфорд. и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 01:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A604E6E54FD5FF28FBE94BC741D3213681080ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121396   (793090) от 06.04.2017
-
-Моя прекрасная леди / My Fair Lady (1964) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый профессор Генри Хиггинс заключает пари со своим другом, что сможет обучить безграмотную замарашку, уличную цветочницу Элизу правильной речи и высокосветским манерам и выдать ее за настоящую леди. Искрометный юмор, забавные ситуации, Золушка на глазах у зрителей превращается в принцессу, а убежденный холостяк — во влюбленного.Производство: США / Warner Bros. PicturesЖанр: Мюзикл, Драма, Мелодрама, СемейныйРежиссер: Джордж КьюкорАктеры: Одри Хепберн, Рекс Харрисон, Стэнли Холлоуэй, Уилфрид Хайд-Уайт, Глэдис Купер, Джереми Бретт, Теодор Бикел, Мона Уошборн, Изобел Элсом, Джон ХоллэндПеревод: Многоголосый закадровый, одноголосый закадровый, авторскийСубтитры: Русские (полные, форсированные на песни), английскиеПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A88DEB3C99E8E928EA94639F08F141361B7E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

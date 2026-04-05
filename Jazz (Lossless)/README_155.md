@@ -6,7 +6,7 @@ Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537281.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537275.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537270.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536748.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fres
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536746.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ella Fitzgerald - Sings Cole Porter & Rodgers and Hart Songbooks (1956) 3CD, 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536738.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bill Evans - Momentum, Vol. 2 (1972) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536735.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Cannonball Adderley - Jazz Profile (1960 - 1966) 1997, Blue Note [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536598.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Stan Kenton - Jazz Profile (1945 - 1967) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536597.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ McCoy Tyner - Jazz Profile (1967 - 1989) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536596.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Horace Silver - Jazz Profile (1952 - 1976) 1997, Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536594.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Donald Byrd - Electric Byrd (1970) /2015, Universal/ [FLAC|tracks+.cue]<Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535648.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bobby Caldwell - August Moon (1983) /Sin-Drome Records/ [FLAC|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535594.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ambient Jazz Ensemble - Suite Shop (2014) [FLAC|tracks|WEB-DL]<Jazz, Nu Jazz, Br
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535590.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Braxton Brothers - Steppin' Out (1998) [FLAC|image+.cue]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535588.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bugge Wesseltoft - Moving (2001) [FLAC|tracks +.cue]<Future Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535581.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Grover Washington Jr. - The Best Is Yet To Come (1982) Elektra [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535539.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Matthew Shipp - 4D (2010) Thirsty Ear [FLAC|Lossless|tracks + .cue] <Avant-Garde
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535490.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mose Allison - My Backyard (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535488.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Johnny Griffin - Congregation (1957) 2006, Blue Note [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535487.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Defunkt - Classic Defunkt (1996) [FLAC|Lossless|image + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535484.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lester Bowie's Brass Fantasy - The Fire This Time (1992) [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535423.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Members Of The Woody Herman Orchestra - A Tribute To Woody Herman (1997) Green H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535422.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Weather Report - This Is This (1986) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535416.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Weather Report - Domino Theory (1984) [FLAC|Lossless|image + .cue] <Jazz-Rock, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535415.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Naniwa Express - No Fuse (1982) Sony[APE|Lossless|image + .cue] <Jazz Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535141.jpg" />
 </div>
 
 

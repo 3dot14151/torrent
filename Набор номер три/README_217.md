@@ -1,3 +1,162 @@
+###  Публикация: 1521035   (764011) от 03.01.2022
+
+С Новым 2022 Годом!!!
+
+>>3
+>>15
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогие друзья! Наступает Новый 2022 год. Хочу всем  пожелать, чтобы Новый год принес  огромное счастье, крепкое здоровье (ведь это главное). Пусть все ваши мечты сбудутся в новом году, а все плохое останется в прошлом. Под бой курантов обязательно загадайте самое заветное желание и верьте, что оно сбудется. Пусть этот светлый праздник станет прекрасным стартом для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121581   (764010) от 03.01.2022
+
+Prana Breath / Праническое дыхание (Пранаяма) v9.4.2_3 Guru [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необходимо собраться с мыслями? Быстро и безопасно снять стресс? Вечерний приступ аппетита? Вам поможет Prana Breath - бесплатное приложение для удобных занятий дыхательною гимнастикой! Подойдет для практикующих йогу, а также для тех, кто старается вести здоровый образ жизни.Тип издания: Пиратка (Guru)Релиз состоялся: 21.11.2021Разработчик: Oleksandr AlbulПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E7953714A4A0C8507CC38DBF48CF1E6D39BCC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521283   (764007) от 03.01.2022
+
+Гарри Поттер 20 лет спустя: Возвращение в Хогвартс / Harry Potter 20th Anniversary: Return to Hogwarts (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэниэл Рэдклифф, Руперт Гринт и Эмма Уотсон встретятся со своими коллегами и впервые за долгие годы окажутся в стенах Хогвартса.Производство: США, Великобритания / Casey Patterson Entertainment, Pulse, Pulse Films, Warner Bros. Television, Warner Horizon Television, Warner Horizon Uned TelevisionЖанр: документальный, семейныйРежиссер: Эрен Криви, Джо Перлман, Джорджо ТестиАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Джейсон Айзекс, Рэйф Файнс, Хелена Бонем Картер, Гари Олдман, Альфред Энок, Бонни Райт, Эванна Линч, Робби Колтрейн, Том Фелтон, Крис Коламбус, Мэттью Льюис, Имелда СтонтонПеревод: Профессиональный, многоголосый (Amedia)Субтитры: АнглийскиеПродолжительность: 01:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE9BD910DFEF1FBB2C1F252F04953FB4A5BD3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315778   (764005) от 03.01.2022
+
+Graph Messenger (ex. Telegraph) T8.4.2-P9.6-2527x Mod [Ru/Multi] - неофициальный клиент Telegram (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неофициальное приложение для обмена сообщениями, которое использует API Telegram. На сегодня наверное самый функциональный клиент Telegram из всех. Кастомизация всего и вся. Поддержка https прокси. Изменение голоса. Теперь и все фишки от Telegram 5.x. В модификации от Alex.Strannik полностью удалена реклама,  заблокирована аналитика, встроено два актуальных перевода (   Читать дальше...   )Тип издания: Mod (перевод, нет рекламы и т.п.)Релиз состоялся: 24.12.2021Разработчик: ILMILIПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03848BC58830335813618461C86FE376868A54DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214329   (763861) от 22.03.2018
+
+IBM разработала компьютер размером с крупицу соли
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763861.jpg" />
+</div>
+
+
+###  Подробнее
+
+В перспективе нескольких лет такие нанокомпьютеры станут вполне обыденными, их начнут встраивать в различные бытовые приборы и вещи.IBM сообщила о разработке сверхминиатюрного компьютера, сравнимого по размерам с крупицей соли. Площадь устройства не превышает 1 х 1 мм.Несмотря на габариты, это полноценный ПК с производительностью уровня компьютеров девяностых годов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213996   (763852) от 22.03.2018
+
+Windows 10 Pro 1709 x86/x64 by kuloymin v12.4 (esd) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальных образах от MSDN: ru_windows_10_multi-edition_version_1709_updated_dec_2017.
+Удалены некоторые APPX, стандартные темы, отключено несколько компонентов, активирован протокол Samba.
+Очищена папка WinSxS\Backup.
+Очищена папка WinSxS\ManifestCache.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3561161044B974B962169E7338A2E41599C87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214627   (763845) от 22.03.2018
 
 Skype 7.41.32.101 RePack (& Portable) by elchupacabra  [Multi/Ru]
@@ -6,7 +165,7 @@ Skype 7.41.32.101 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763845.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Windows 7 SP1 BLACK EDITION Russian 16 versions on 2DVD ©SPA 2011(23.06.11) [Ru
 >>34
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763841.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ Time Boss v2.47 Eng/Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763769.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ The Movies + The Movies: Stunts and Effects / The Movies: Фабрика гре�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763759.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ Dungeon Siege 2 [Ru] (L) 2005
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763758.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763558.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763556.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763508.jpg" />
 </div>
 
 
@@ -218,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763495.jpg" />
 </div>
 
 
@@ -244,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763388.jpg" />
 </div>
 
 
@@ -270,7 +429,7 @@ Cent Browser 3.8.5.69 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763311.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763214.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763202.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763198.jpg" />
 </div>
 
 
@@ -375,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763193.jpg" />
 </div>
 
 
@@ -403,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763186.jpg" />
 </div>
 
 
@@ -429,7 +588,7 @@ Windows 7 Professional SP1 x64 Game OS 2.3 by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763184.jpg" />
 </div>
 
 
@@ -455,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763121.jpg" />
 </div>
 
 
@@ -482,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763107.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763050.jpg" />
 </div>
 
 
@@ -520,173 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 немного дешевле, чем в обычном магазине, хотя бывают и исключения
 экономия времени - не надо ходить по реальным магазинам и что-то там искать, можно спокойно выбрать всё дома
 (   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280394   (762751) от 24.04.2014
-
-Подшивка журналов | Радиомир. КВ и УКВ (1995-2014) [DJVU, PDF] [Обновлено 24.04.2014]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный массовый журнал радиолюбителей. Соревнования, техника и аппаратура, антенны, справочный материал – это все по радиолюбительской тематике. Издается как часть журнала РадиоМир и целиком посвящен любительской радиосвязи.
-До 2001.06 выпускался под названием "Радиолюбитель. КВ и УКВ"Жанр: Журнал для радиолюбителейФормат: DJVU; PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54343912AA823B0508EF9FD6839CC1576395D822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214199   (762741) от 23.03.2018
-
-Microsoft пообещала ускорить обновления Windows 10
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_762741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одно из наименее приятных свойств "больших" обновлений Windows, которые последнее время выходят дважды в год — это невозможность использовать компьютер во время установки, которая зачастую занимает более часа. В Microsoft пообещали облегчить "страдания" пользователей.Благодаря переработанному процессу установки следующее большое обновление Windows (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214710   (762735) от 23.03.2018
-
-Чёрные воды / Black Water (2018) WEB-DLRip [H.264/720p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент Уилер пробуждается в секретной тюрьме ЦРУ, расположенной на борту атомной подводной лодки. Обвиненный в предательстве, он пытается очистить свое имя и выйти сухим из воды, заручившись помощью не менее «пробивного» сокамерника.Производство: США, Канада / Red Square Motion, 9 Light EntertainmentЖанр: БоевикРежиссер: Павел ПатрикиАктеры: Аарон О'Коннелл, Дольф Лундгрен, Жан-Клод Ван Дамм, Патрик Килпатрик, Ал Сапиенца, Джасмин Уолтц, Джон Пози, Кристофер Ван Варенберг, Кортни Би ТуркПеревод: Двухголосый закадровый, любительский (HiWay Grope)Субтитры: ОтсутствуютПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7989E3A322D91613FC4DB643B88B574ACDCA4486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203691   (762456) от 25.05.2010
-
-Новый троян-вымогатель «ВКонтакте»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762456.jpg" />
-</div>
-
-
-###  Подробнее
-
-На прошлой неделе через социальную сеть «ВКонтакте» под видом нового приложения, изменяющего тему оформления персональной странички, начал распространяться троянец, модифицирующий на зараженном компьютере файл hosts ОС Widows.Чтобы при открытии файла hosts данные, добавленные троянцем, не были видны сразу, они записаны в конец файла после пустой незаполненной области, получившейся в результате перевода строк.В измененном файле hosts прописано около 100 наиболее популярных у российских пользователей сайтов.При попытке пользователя зараженного компьютера выйти на любой из этих сайтов (кроме vkontakte.ru), он перенаправляется на сервер, который выводит в браузере следующее сообщение, оформленное в стиле Web-антивируса Лаборатории Касперского:При попытке пользователя зайти на сайт vkontakte.ru, он перенаправляется на фальшивую главную страницу социальной сети. Расположена она на том же сервере, который выдает фальшивое сообщение KIS. Введенные логин и пароль отправляются злоумышленникам, после чего сервер возвращает (   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204026   (762444) от 25.05.2010
-
-Windows XP SP3 RU BEST XP EDITION Release 10.5.5  [русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows XP SP3 RU BEST XP EDITION Release 10.5.5  [русский]Год выпуска: 2010
-Версия: 10.5.5
-Разработчик: ALL-BEST
-Платформа: x86/32
-Совместимость с Vista: неизвестно
-Язык интерфейса: только русский
-Таблэтка: Не требуется• Компьютер и процессор
-Рекомендуется компьютер, оснащенный процессором(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172686   (762440) от 25.05.2010
-
-Остаться в живых / Lost (2010) HDTVRip (Сезон 6 полный, Серии 00-18) [LostFilm]
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавец-лайнер, совершающий полет из Сиднея в Лос-Анджелес, неожиданно терпит крушение. 48 пассажиров, оставшихся в живых, оказываются на пустынном острове посреди океана. Люди в панике.
-
-Надежда быть найденными довольно призрачна. Поэтому остается только одно: собраться с силами и постараться выжить на острове, начиненном множеством опасностейЖанр: Приключения, Драма, ТриллерРежиссер: Джек Бендер, Стивен Уильямс, Пол А. ЭдвардсАктеры: Нэвин Эндрюс, Мэттью Фокс, Хорхе Гарсиа, Джош Холлоуэй, Дэниэл Дэй Ким, Юн-жин Ким, Эванджелин Лилли, Терри О`Куинн, Эмили де Рэйвин, Майкл ЭмерсонПеревод: Многоголосый закадровый
-(00 серия русские сабы, отдельным файлом)Озвучка: Студия "Kravec"Продолжительность: ~00:43:00 каждая серия + 01:21:00 - пилотный эпизод. + 01:44:35 финальный эпизод
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,133 @@
+###  Публикация: 545877   (482512) от 11.09.2012
+
+Жил-был черный кот / Жив собі чорний кіт (2006) DVDRip [UKR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм для детей о том, как живется черном коту. Про бедного черного кота, с которым случаются неприятности.Жанр: Рисованная анимацияРежиссер: Юрий МарченкоПеревод: ОтсутствуетПродолжительность: 00:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB6651C09E48C9768DCE57AB3E23191F71D1DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545881   (482418) от 11.09.2012
+
+Маленький Мук (1938) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482418.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке Гауфа.Жанр: мультфильм, короткометражкаРежиссер: Ольга ХодатаеваПродолжительность: 00:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9A551BFC658610698A0D5E670F7DBCF9234373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545378   (482414) от 11.09.2012
+
+Симпсоны / The Simpsons (2000) DVDRip (Сезон 12, серии 01-21 из 21)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм - пародия на американский уклад жизни. Cемейство Симпсонов состоит из пяти членов: папаша Гомер, мать семейства Мардж, их дочери Лиза и Мэгги и несносный подросток Барт.Жанр: КомедияРежиссер: Марк Керклэнд, Джефф Линч, Сьюзи ДиттерАктеры: Дэн Кастелланета, Джули Кавнер, Нэнси Картрайт, Ярдли Смит, Гарри Ширер, Хэнк Азария, Памела Хейден, Тресс МакНилл, Карл Видерготт, Мэгги РосвэллПеревод: Многоголосый закадровый (Ren TV)Продолжительность: 21 серия по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71154478FA58474C0ECEAE67250579C155A7A949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384630   (482386) от 06.09.2011
+
+Детективный дуэт. Иван и Митрофан (1994-2004) SATRip (13 серий из 13)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482386.jpg" />
+</div>
+
+
+###  Подробнее
+
+В полку экранных сыщиков прирост. Расследованием киношных злодеяний займутся Иван и Митрофан - герои анимационного сериала Детективный дуэт. Роли в этом дуэте распределились весьма необычно. Шерлоком Холмсом, то есть главным сыщиком, является кот Митрофан, а человечку Ивану досталась лишь роль помощника - доктора Ватсона. Но это не мешает друзьям с блеском распутывать самые запутанные преступленияЖанр: Рисованая анимация, Детский, КомедияРежиссер: Сергей Айнутдинов, Александр Давыдов, Дмитрий Куприянов, Наталья Мальгина, Алексей Туркус, Алексей Шелманов, Инна Евланникова, Кирилл ПоликарповПерсонажи: Леонид Куравлев, Виктор Павлов, Михаил Ульянов, Владимир Самойлов, Наталья Крачковская, Татьяна Васильева, Наталья Селезнева, Евгений Стеблов, Роман Богомольный, Эдуард Радзюкевич, Авангард ЛеонтьевПродолжительность: 13 х ~ 00:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3ACF74F525EA9D59050D4D9CB9D99FDFB7BEEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545867   (482327) от 11.09.2012
+
+Приключения маленького паровозика / The Little Engine That Could (2010) [H.264] DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая экранизация известной американской сказки о маленьком паровозике, который должен преодолеть множество трудностей и вывезти из страны снов в реальный мир настоящего мальчика.Жанр: мультфильм, семейныйРежиссер: Эллиот М. БурПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: -Доцент-Продолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED56298A7C66C66CCF7CA91916CA158326B1837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545732   (482325) от 11.09.2012
 
 Золушка / Cinderella (1950) [1080p] Blu-Ray
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482325.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482308.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482057.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482040.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482029.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481629.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481485.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481461.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480684.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480639.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480489.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480272.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480250.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480212.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480197.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479966.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479777.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479634.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479537.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479535.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479465.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34BC43B8A72A5C640EAA5F06180C77E7B168AC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822811   (479425) от 18.09.2014
-
-Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of Awesome! (2014) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479425.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом мееееедленном городке мира четверо счастливчиков обнаруживают, что жизнь становится намного интересней, если слегка... поддать газку! Познакомьтесь с Гейджем, Уайеттом, Брэндоном и Рэттом. Эти ребята рождены для гонок. Поодиночке они отлично подготовленные рэйсеры, но вместе становятся настоящей КОМАНДОЙ ХОТ ВИЛС! Однажды по городу с ревом проносится загадочная (   Читать дальше...   )Производство: СШАЖанр: ДетскийРежиссер: Метт ДеннерПерсонажи: Грант Джордж, Дэвид Лодж, Николас Ройе, Бен Дискин, Фарук ТаухидПеревод: Дублированный (Лицензия)Продолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A799DB3324944A53E2C223C1F3C4424FDDBE52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405983   (479377) от 01.09.2020
-
-Бабушкин любимец / Grandma's Pet (1932) DVDRip [H.264] [hand made colored]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прочитав историю Красной Шапочки трем котятам в колыбели, Кролик Освальд засыпает, думая о девушке-героине. Во сне он видит, как мимо проходит девушка, и решает сорвать для нее пару цветов. Но стебли невероятно длинные, и сколько бы он ни тянул, они становятся все длиннее и длиннее. Тем временем волк, жаждущий корзины с вкусностями девушки, стягивает шерсть с ближайшей (   Читать дальше...   )Производство: США, Walter Lantz ProductionsЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Уолтер Лэнц, Уильям НоланПеревод: ОтсутствуетСубтитры: вшитые отключаемые, русскийПродолжительность: 00:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A833AE5045C2A54722C0031E41AA8BDF9BF71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406017   (479373) от 01.09.2020
-
-Каблуки Ада / Hells Heels (1930) DVDRip [H.264] [hand made colored]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое головорезов приезжают в Хил-Сити, чтобы ограбить банк. Один из них - Кролик Освальд, действующий жестко, но трусливо. Двое его товарищей, плохих парней - собака с повязкой на глазу и другая с деревянной ногой - заставляют его взорвать городской банк динамитом. Освальд выживает после взрыва, который превратил двух других злодеев в живых скелетов. Банк разрушен, (   Читать дальше...   )Производство: США, Walter Lantz ProductionsЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Уолтер ЛэнцПеревод: ОтсутствуетСубтитры: вшитые отключаемые, русскийПродолжительность: 00:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E2CF2D963C11BEC145EBABF94E11FFD25BEF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938839   (479369) от 19.09.2015
-
-Фимфарум – В третий раз повезло / Fimfarum do tretice vseho dobreho 3D (2011) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм состоит из трех историй. Первая история о том, как съемочная группа едет в шумавские леса на юге Чехии чтобы выяснить, жили ли там когда-то огры. Вторая история о царе, который посылает своих сыновей отыскать его шляпу с пером сойки, которую он оставил в пивнушке когда то в молодости. В третьей истории Разум и Счастье пытаются доказать свою важность в (   Читать дальше...   )Производство: Чехия / ACE, Ceská Televize, HBO, Krátký Film Praha, MAUR FilmЖанр: Мультфильм, Комедия, СемейныйРежиссер: Kristina Dufková, Vlasta Pospísilová, David SukupАктеры: Ян Верих,  Ота Йирак,  Мирослав Кробот,  Иржи МахачекПеревод: Многоголосый закадровый, любительский (Фениксклуб)Продолжительность: 01:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91E362BDD1064BFEAD6988CBEFB1703B2FF9F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822733   (479325) от 18.09.2014
-
-Том и Джерри: Потерянный дракон / Tom & Jerry: The Lost Dragon (2014) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеми любимая парочка, кот и мышь, вернулись в этой волшебной сказке! А вместе с ними  и песни, веселье и магия. Приключение наших героев начинается с того, что они находят странное яйцо, которое было украдено у огромного огнедышащего дракона! Вскоре из яйца вылупляется малыш Паффи и решает, что Том — это его мама. Настоящая мама-дракониха хочет вернуть своего драконёнка. (   Читать дальше...   )Жанр: мультфильм, комедияРежиссер: Тони ЧервонеПерсонажи: Келли Стейблз, Викки Льюис, Джим Каммингс, Лорейн Ньюмен, Уэйн НайтПеревод: Многоголосый закадровый (лицензия)Язык субтитров: русскийПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8477F9EB8F1C28016F22A6BD591C7AE6E4450A
 ```
 
 https://mybot314.ru/tekegram_catalog/

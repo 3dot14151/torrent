@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_625320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625320.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625068.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Jasmine 5.5.1 - IM клиент (11.07.2012) <Ru>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624521.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Daytona Rush 1.4.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624079.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ RESCUE: Heroes in Action 1.1.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623852.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Garmin: City Navigator North America NT 2016.10 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623294.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622804.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622546.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Zombie Hospital 1.5.1b Mod [Money/Ammo/Health] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622436.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Stickman Battlefields 1.8.1 Mod [Money] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622293.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Wakelock Detector Pro 2.0.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622291.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622099.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Season Zen HD 1.9.5.2033 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622018.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Dungeon Crawlers 2.0.9 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622013.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Wave Live Wallpaper 3.12 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622006.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ The Witcher Battle Arena MOBA 1.1.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621426.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Nova Launcher Prime 4.0.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621343.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Freak Circus Racing 1.0.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620662.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Night Vigilante 1.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620371.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MixRadio 3.0.2063 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620356.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dragon Blaze 1.0.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620230.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_620129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_620129.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Farming PRO 2015 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620120.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Heroes of Order & Chaos 2.0.1e [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619972.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ BLOOD & GLORY: IMMORTALS 2.0.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619840.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ MultiROM Manager 1.182 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619631.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ LEGO® Ninjago Tournament 1.04.2.71038 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641142.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Angry Birds Transformers 1.5.18 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640999.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Quick Memo v1.5.1 [Ru] - Быстрые заметки прямо на экра�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640798.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Google Pay v2.85.239456103 [Ru/Multi] GP
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640762.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640099.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639874.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639463.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ System app remover (менеджер приложений) 3.4.1015 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639424.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Face Swap 3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639313.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ PhotoFari 1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639299.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639253.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639228.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Stellio Плеер  4.02 - Плеер с приятным дизайном и с
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639177.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639067.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Winamp 2.0.1147 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639047.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Hiper Calc Pro 4.5.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638913.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ WinZip 1.0.1 - Работа с Zip архивами
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_638864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638864.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638080.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637876.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ edjing PRO – DJ-микшер 1.0.9.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637870.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ WGFM 1.0 [Ru] (Авторская раздача)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637817.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Farming Simulator 14 1.3.7  [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637307.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Sniper 3D Assassin: Free Games 1.6.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637295.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637197.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636911.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636692.jpg" />
 </div>
 
 

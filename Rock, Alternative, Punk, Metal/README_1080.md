@@ -1,3 +1,32 @@
+###  Публикация: 1677780   (149078) от 19.11.2023
+
+The Jack - Tribute to ACDC (2023) Live [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Wire [05:56]
+02. Shoot to Thrill [05:31]
+03. Givin' the Dog a Bone [03:59]
+04. Intro [00:43](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1047375741803CA4DA0FF969A960D3484857DBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968883   (149019) от 26.12.2015
 
 Roger Waters - The Wall (Live In Berlin) (1990) 2SACD, 2003, Mercury [FLAC|Lossless|tracks + .cue] <Classic Rock>
@@ -6,7 +35,7 @@ Roger Waters - The Wall (Live In Berlin) (1990) 2SACD, 2003, Mercury [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149019.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149005.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Police - Message In A Box: The Complete Recordings (1993) [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148986.jpg" />
 </div>
 
 
@@ -95,7 +124,7 @@ Sticky Fingers - Like A Rolling Stone (2012) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148970.jpg" />
 </div>
 
 
@@ -130,7 +159,7 @@ Shakra - Power Ride (2001) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148866.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ Desaster - Stormbringer (1997) Reissued 2003 [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148852.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ Willard Grant Conspiracy - Untethered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148831.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ Serpent Lord - Apocrypha (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148811.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ Jo Jo Gunne - Jo Jo Gunne (1972) Reissue, 2003, Collectors' Choice Music [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148807.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148770.jpg" />
 </div>
 
 
@@ -310,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148769.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Belore - Artefacts (2021) [Flac|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148762.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148717.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ Last Autumn's Dream - Secret Treasures (2018) Japanese Edition [MP3|320 Kbps] <H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148711.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ Fire Garden - Far and Near (2016) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148697.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Blops - Blops (aka Marzo, aka Locomotora) (1973) 2006, Shadoks Musi [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148650.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Khepra - Cosmology Divine (2016) [MP3|320 Kbps] <Oriental, Symphonic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148646.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Scrooge - Scrooge (2020) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148612.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Asphyxia Perception - Invalid Shape (2020) [MP3|320 Kbps] <Melodic Death, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148591.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148585.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148576.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ Le Orme - Collage (1971) 1990,  Philips [WavPack|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148574.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ PostNecrum - De Nocte Vento (2020) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148567.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ Jon Lord - Before I Forget (1982) Remastered /2012, EMI Records /[APE|Lossless]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148561.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148560.jpg" />
 </div>
 
 
@@ -729,35 +758,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C600EBDE4243A589017FC0BF744DA86C4AD95AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434779   (148554) от 26.12.2020
-
-Swng my prty - Лето 2020 (2020) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - ГО Щербинка [00:00:34]
-02 - Привидение [00:02:33]
-03 - Главный [00:03:33]
-04 - Терапия [00:02:48](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43702ABA79F517422AB7076F083C8600C9538B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

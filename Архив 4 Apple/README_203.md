@@ -6,7 +6,7 @@ ABBYY Lingvo European Dictionary 1.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787812.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tidy Up 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787724.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Scrutiny 8 v8.1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787660.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ QLab Pro 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787654.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ TunesKit Audio Converter 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787631.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VideoProc (former MacX Video Converter Pro) 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787585.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Aurora HDR 2018 v1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787559.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Path Finder 8.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787449.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Network Radar 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787448.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Process Monitor Pro 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787447.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ iMazing 2.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787445.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Substance 3D Designer 11.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787396.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Adobe Substance 3D Sampler 3.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787376.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adobe Substance 3D Painter 7.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787366.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Planner 5D Premium 4.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787355.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ TrashMe 2.1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787263.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ ShredIt X 6.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787261.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ MediaHuman Youtube Downloader 3.9.9.11 (1701) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787260.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ WebScraper 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787254.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ iShowU Instant (Advanced) 1.2.11(beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787253.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ TextSoap 8 v8.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787248.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ MarginNote 3 v3.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787244.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ A-Zippr 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787241.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ A Better Finder Rename 10 v10.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787153.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ DxO PhotoLab 2 ELITE Edition 2.1.2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787151.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787138.jpg" />
 </div>
 
 

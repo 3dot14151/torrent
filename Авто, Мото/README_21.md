@@ -1,3 +1,81 @@
+###  Публикация: 1794138   (67368) от 27.04.2025
+
+MotoGP. Этап 05 из 22. Гран-при Испании. Гонка (27.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67368.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 апреля 2025, воскресенье. 15:00 МСК. Этап 5, Херес. Гран-при Испании. Гонка (25 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1984FD906AE1D4AF63DD8C3936E10A9F038A207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796465   (66972) от 10.05.2025
+
+MotoGP. Этап 06 из 22. Гран-при Франции. Квалификация (10.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66972.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 мая 2025 суббота, 11:50 МСК. Этап 6 Ле Ман. Гран-при Франции. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015A5141C5E99361F2E0FB57FDD66B6A9409731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796506   (66963) от 10.05.2025
+
+MotoGP. Этап 06 из 22. Гран-при Франции. Спринт (10.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66963.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 мая 2025 суббота, 16:00 МСК. Этап 6 Ле Ман. Гран-при Франции. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1943B4036E16FD705FCFDD1AC92FAA0902B5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799137   (66539) от 25.05.2025
 
 MotoGP. Этап 07 из 22. Гран-при Великобритании. Гонка (25.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +84,7 @@ MotoGP. Этап 07 из 22. Гран-при Великобритании. Го�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66539.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ MotoGP. Этап 07 из 22. Гран-при Великобритании. Кв�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66528.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MotoGP. Этап 07 из 22. Гран-при Великобритании. Сп�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66527.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66223.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Спринт (07.06
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66222.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Гонка (08.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66218.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Гонка (22.06.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65866.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65847.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Спринт (21.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65845.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Квали�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65618.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Сприн�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65613.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Гонка 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65602.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65355.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Спринт (12.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65353.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Гонка (13.07
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65342.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Спринт (19.07.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65167.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65146.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Гонка (20.07.2025)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65084.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Гонка (14.04.2024) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59601.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ MotoGP. Этап 08 из 20. Гран-при Нидерландов. Квали�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51589.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ MotoGP. Этап 08 из 20. Гран-при Нидерландов. Гонка 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51391.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ MotoGP. Этап 08 из 20. Гран-при Нидерландов. Сприн�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51387.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Гонка (20.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39760.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Гонка (20.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D33A431BD3D7CD53CB646265DEF6A3A94E909A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756499   (39564) от 22.10.2024
-
-Ferrari Challenge Europe. Trofeo Pirelli. 7-й этап. Имола. Гонка 1 (2024) WEBRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имола, 17 октября 2024 года. На международной трассе Энцо и Дино Феррари в Имоле в самом разгаре соревнования Ferrari Final Mondiali. Внеконкурсные тренировки Corse Clienti только усилили ажиотаж на трассе в Романье. На них были представлены современные автомобили Ferrari из программы XX, исторические одноместные автомобили F1 Clienti и главное новшество сезона: (   Читать дальше...   )Жанр: спорт, автоспортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8E0D41853A6E2EEFB368C3DBEFD5CB70FB3907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757000   (39389) от 24.10.2024
-
-Ferrari Challenge Europe. Copa Shell AM. 7-й этап. Имола. Гонка 2 (2024) WEBRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имола, 18 октября 2024 года. На международной трассе Энцо и Дино Феррари в Имоле в самом разгаре соревнования Ferrari Final Mondiali. Внеконкурсные тренировки Corse Clienti только усилили ажиотаж на трассе в Романье. На них были представлены современные автомобили Ferrari из программы XX, исторические одноместные автомобили F1 Clienti и главное новшество сезона: (   Читать дальше...   )Жанр: спорт, автоспортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADB0E4658A729F75806E7AF1D3DBC9EEC58E0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796674   (18615) от 11.05.2025
-
-MotoGP. Этап 06 из 22. Гран-при Франции. Гонка (11.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18615.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 мая 2025 воскресенье, 15:00 МСК. Этап 6 Ле Ман. Гран-при Франции. Гонка (26 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31453798BB9766614AF3323B3ED223BEEB401D44
 ```
 
 https://mybot314.ru/tekegram_catalog/

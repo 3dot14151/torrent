@@ -1,3 +1,58 @@
+###  Публикация: 1060930   (444246) от 12.10.2016
+
+Сисси: Трудные годы императрицы / Sissi - Schicksalsjahre einer Kaiserin (1957) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Елизавета продолжает воспитывать детей, занимается государственными делами и достойно противостоит козням своей свекрови. Когда они вместе с графом Андраши уезжают в Венгрию, чтобы успокоить взбунтовавшихся дворян, эрцгерцогиня Софи распространяет слухи об их романе.
+Дипломатическая миссия успешно выполнена, но тяжелая болезнь вынуждает Елизавету отправиться на лечение (   Читать дальше...   )Производство: Австрия / Erma-FilmЖанр: Драма, КомедияРежиссер: Эрнст МаришкаАктеры: Роми Шнайдер, Карлхайнц Бём, Магда Шнайдер, Густав Кнут, Ута Франц, Вальтер Райер, Вильма Дегишер, Йозеф Мейнрад, Зента Венграф, Эрих НиковицПеревод: Многоголосый закадровыйЯзык субтитров: Русский, немецкийПродолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956D0E271F499E0FD99016F4CF356377755F0E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 391236   (444101) от 23.09.2011
+
+Зеленая миля / The Green Mile (1999) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обвиненный в страшном преступлении, Джон Коффи оказывается в блоке смертников тюрьмы «Холодная гора». Вновь прибывший обладал поразительным ростом и был пугающе спокоен, что, впрочем, никак не влияло на отношение к нему начальника блока Пола Эджкомба, привыкшего исполнять приговор.
+
+Гигант удивил всех позже, когда выяснилось, что он обладает невероятной магической (   Читать дальше...   )Жанр: Драма, Фэнтези, ДетективРежиссер: Фрэнк ДарабонтАктеры: Том Хэнкс, Дэвид Морс, Бонни Хант, Майкл Кларк Дункан, Джеймс Кромуэлл, Майкл Джетер, Грэхэм Грин, Даг Хатчинсон, Сэм Роквэлл, Бэрри ПепперПеревод: Дублированный, многоголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 03:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FF04660B39BE5F33A94F3E96D073E30135D489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162441   (443954) от 08.09.2017
 
 Дар любви / The Gift of Love (1958) DVDRip [H.264]
@@ -6,7 +61,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443954.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443889.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443784.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443167.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442565.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442522.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442327.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442268.jpg" />
 </div>
 
 
@@ -214,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442073.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_441878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441878.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441409.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440632.jpg" />
 </div>
 
 
@@ -319,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_440467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440467.jpg" />
 </div>
 
 
@@ -345,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440356.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440342.jpg" />
 </div>
 
 
@@ -398,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440165.jpg" />
 </div>
 
 
@@ -424,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439741.jpg" />
 </div>
 
 
@@ -450,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438274.jpg" />
 </div>
 
 
@@ -476,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438084.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438049.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437887.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437877.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437564.jpg" />
 </div>
 
 
@@ -606,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436585.jpg" />
 </div>
 
 
@@ -617,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F04DCC26CB6AD1B579CCA53964BB6B592E152CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057804   (436483) от 15.10.2016
-
-Труп моего врага / Le corps de mon ennemi (1976) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отсидев семь лет в тюрьме по ложному обвинению, Франсуа Леклер возвращается в родной городок. Он не может простить своих обидчиков, из-за которых потерял несколько лет жизни: Франсуа объявляет войну своей бывшей возлюбленной и ее отцу.Производство: Франция / Andrea Films, Cerito FilmsЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Анри ВернёйАктеры: Жан-Поль Бельмондо, Бернар Блие, Мари-Франс Пизье, Шарль Жерар, Даниэль Ивернель, Клод Броссе, Мишель Бон, Франсуа Перро, Рене Лефевр, Николь ГарсияПеревод: Многоголосый закадровый (Останкино)Продолжительность: 02:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDD0413EDF3E10780F0D007B1AE05BDAFFD5E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943668   (435829) от 09.10.2015
-
-Красная гора / Red Mountain (1951) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435829.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце Гражданской войны капитан мятежников бежит в Колорадо, чтобы присоединиться к армии генерала Куантрелла, задумавшего захватить федеральные территории при помощи индейцев и обеспечить Югу победу в войне. Судьба сталкивает капитана с золотоискателем, скрывающимся от линчевателей, и его девушкой, которых он вынужден взять в плен. Все меняется когда он влюбляется (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Вестерн, ДрамаРежиссер: Уильям Дитерле, Джон ФэрроуАктеры: Алан Лэдд, Лизабет Скотт, Артур Кеннеди, Джон Айрленд, Джефф Кори, Джеймс Белл, Берт Фрид, Уолтер Сэнд, Невилл Брэнд, Карлтон ЯнгПеревод: Одноголосый закадровый (erogg)Субтитры: ОтсутствуютПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3DA5D8D03E519CA4C7AA422D219D8468300EE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

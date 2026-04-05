@@ -1,3 +1,61 @@
+###  Публикация: 935248   (499406) от 08.09.2015
+
+АукцЫон - Бодун (1991) 2CD Remastered /2015, Геометрия/ [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Самолёт
+02. Немой
+03. Пионер
+04. Боюсь(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A181D95B30FD55413760231F8849274B13D2CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935364   (499404) от 08.09.2015
+
+Hail The Ghost - Forsaken (2015) [FLAC|Lossless|WEB-DL]<alternative rock, indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia 04:24
+02. Colony of Ants 03:46
+03. Ink & Blood 03:39
+04. Gabriel 03:52(   Читать дальше...   )Жанр: alternative rock, indieПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCCF8BFBFB8B7FB381B905485C391EA0F479ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935242   (499396) от 08.09.2015
 
 АукцЫон - Бодун (1991) 2CD Remastered /2015, Геометрия/ [FLAC|image+.cue]<Rock>
@@ -6,7 +64,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499396.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Creedence Clearwater Revival - Live at Woodstock (2019) [MP3|320 Kbps] <Rock, Co
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499378.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Slade - Get Yer Boots On (The Best Of Slade) (2004) [MP3|320 кб/с]<Hard Rock,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498995.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ Mark Knopfler - Privateering 2CD (2012) [FLAC|Lossless]<Rock / Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498922.jpg" />
 </div>
 
 
@@ -134,7 +192,7 @@ LVME - The Blazing Iniquity (2019) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498633.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ Magnus - Scarlet Slaughterer (1989) Nuclear War Now! Productions, 2021  [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498630.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ Lowdrive - Roller (2018) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498593.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ Regressor - Crescent Spoon (2022) [MP3|320 Kbps] <Progressive Rock, Fusion>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498586.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ YARuGA - Вайга (2020) [MP3|320 Kbps] <Ritual, Dark Pagan Folk Metal, Female
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498581.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498580.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498578.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ VA - New Psychedelic Sound - Les Genies Du Rock - LSD (1993) [MP3|320 кб/с]<G
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498506.jpg" />
 </div>
 
 
@@ -366,7 +424,7 @@ VA - Rock in Australia - Les Genies du Rock - Rock In Australia (1993) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498459.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ The Stooges - Les Genies du Rock - Kill City (1994) [MP3|320 кб/с]<Garage Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498451.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ Cold Showers - Matter of Choice (2015) [OGG| 462-555 кб/с]<Alternative, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498449.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ VA - Ultimate Rock Anthems Vol.1-2 (2005) [APE|image + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498417.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ Circa Waves - Young Chasers (2015) [FLAC|Lossless|WEB-DL]<Alternetive Rock, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498415.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ VA - Rock'n'Roll Collection (2003) [APE|image + .cue]<Rock/Rock'n'Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498401.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ VA - Legends Of Rock (2005) [APE|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498354.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ VA - Легенды Мирового Рока - Time (2001) [FLAC|image + .cue]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498238.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498195.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ Lou Rhodes - 3 альбома (2005-2010) [MP3|320]<folk rock,acoustic,folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498114.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ Distorted Harmony - Chain Reaction (2014) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497813.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ Yatrogeny - Taedium Vitae (2004) [FLAC|Lossless|image + .cue] <Melodic Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497811.jpg" />
 </div>
 
 
@@ -696,64 +754,6 @@ Yatrogeny - Taedium Vitae (2004) [FLAC|Lossless|image + .cue] <Melodic Black Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE52868F29E9F815D698A76D4F25A79A1179ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317985   (497809) от 04.08.2019
-
-Jean Leloup - 1985-2003: Je joue de la guitare (2005) [FLAC|Lossless|tracks + .cue] <French Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alger (3:29)
-02. Printemps ete (2:25)
-03. Isabelle (2:50)
-04. L'amour est sans pitie (version inedite) (3:27)(   Читать дальше...   )Жанр: French RockПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9CE2BD275DD7AA6FD8CF23E4D041704B1BBC9CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317926   (497797) от 04.08.2019
-
-Desert - Fortune Favors the Brave (2019) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fix Bayonets! [4:26]
- 03. Operation Thunderbolt [4:09]
- 07. I Gave You a Kingdome (feat. Georg Neuhauser & Fabio D'amore) [4:31]
- 04. Fortune Favors the Brave [3:56](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A9D8F8FD0CCF7415A7FF2D4F6FE3D4FC4D9783
 ```
 
 https://mybot314.ru/tekegram_catalog/

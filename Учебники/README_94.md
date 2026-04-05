@@ -1,3 +1,55 @@
+###  Публикация: 1652672   (194440) от 12.08.2023
+
+М.Н. Ляшко, К.М. Маркевич | Основы радиоэлектроники (1991) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194440.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии излагаются сведения о радиотехнических материалах, радиодеталях и радиокомпонентах, принцип работы полупроводниковых приборов, устройств на их базе, дается понятие об интегральных микросхемах, логических элементах и их применении. Первое издание вышло в 1986 г. Адресуется учащимся средней школы. Может быть использовано в спецклассах с углубленным изучением (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Народная асветаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F30B32E060B825BA09F025AC6D2499174065F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653168   (194367) от 14.08.2023
+
+Н.Д. Рогалёв, А.А. Дудолин, Е.Н. Олейникова | Тепловые электрические станции (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основы теории тепловых электростанций, методы определения показателей тепловой экономичности и обеспечивающие ее условия. Рассмотрены принципиальные и полные тепловые схемы современных ТЭС, в том числе газотурбинных и парогазовых установок, возможные компоновочные решения. Освещены вопросы расчета и проектирования ТЭС, приведены данные по новым технологиям (   Читать дальше...   )Жанр: Электротехника, энергетикаИздательство: НИУ МЭИФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF043FE0212B786C53F52D3C71B0D95291006FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432293   (194362) от 12.08.2023
 
 Б.П. Демидович, И.А. Марон, Э.З. Шувалова | Численные методы анализа (1967) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194362.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194351.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194152.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194147.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194139.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193967.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193909.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193837.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193813.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193784.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193766.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193760.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193758.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193403.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193211.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193150.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193144.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193013.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192936.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192833.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192792.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192587.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192579.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192565.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D3298A05E08C924B52D8E662AD3F1E0F7A84578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587558   (192288) от 01.11.2022
-
-Ю.Г. Решетняк | Курс математического анализа [2 части в 4 книгах] (1999 - 2001) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник «Курс математического анализа» в двух частях написан на основе лекционного курса, читавшегося автором в Новосибирском государственном университете, и отражает опыт работы кафедры математического анализа по совершенствованию преподавания этого предмета. Дается оригинальное изложение ряда тем, составляющих традиционное содержание курса. Читателю также представлены (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955E43C7F9AC3F314E1139FFB508078528FA5A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587945   (192098) от 02.11.2022
-
-Э. Илиел | Основы стереохимии 2-е изд. (2009) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное издание написано одним из крупнейших ученых в области стереохимии органических соединений, являющейся краеугольным камнем современной органической химии. Основы стереохимии изложены в форме, доступной для читателей, которые только начинают изучение органической химии.Жанр: ХимияПеревод: В.Д. ДемьяновичФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE03453160E12A841A78FDFB3D7E3E789B5249B
 ```
 
 https://mybot314.ru/tekegram_catalog/

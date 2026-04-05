@@ -1,3 +1,55 @@
+###  Публикация: 1013692   (776845) от 06.05.2016
+
+И.С. Туревский | Экономика отрасли. Автомобильный транспорт (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776845.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике рассмотрены основные разделы программы учебного курса «Экономика отрасли (автомобильный транспорт)»: отрасль и рыночная экономика; особенности и перспективы развития отрасли; экономические показатели развития отрасли; автотранспортное предприятие (АТП и другие) как хозяйствующий субъект; формы предприятий, их производственная и организационная структура; (   Читать дальше...   )Жанр: Транспорт, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88671129FD9FC8795805424F6AF44468C4259AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211849   (776777) от 09.03.2018
+
+В.И. Петренко | Защита персональных данных в информационных системах (2016) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие предоставляет собой курс лекций, способствующих приобретению необходимых знаний для обеспечения безопасности персональных данных, в нем рассмотрены основные термины и законодательство Российской Федерации в данной предметной области. Приведены этапы построения системы защиты персональных данныхЖанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2D58BD300C9DFBB174650D15FA6B41AF2E900A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013421   (776770) от 06.05.2016
 
 С.Е. Щеклеин, О.Л. Ташлыков (ред.) | Атомные электростанции с реакторами на быстрых нейтронах с натриевым теплоносителем [2 части] (2013) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776770.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776754.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776407.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775001.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774391.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774302.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774288.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773448.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773442.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773190.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773089.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773009.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771906.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769927.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768685.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768522.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768520.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767759.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767682.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767620.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767606.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767555.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767495.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767491.jpg" />
 </div>
 
 
@@ -622,60 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC98B284AFA271C0BD17DC6DEDA3E99574C567A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125629   (767083) от 16.04.2017
-
-А.С. Генкин | Планета Web-денег в XXI веке (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир стал ареной захватывающих конкурентных поединков транснациональных финансовых корпораций, карточных и сотовых операторов за рядового потребителя. Научиться жить в новом мире поможет вам эта книга.
-Для студентов, экономистов, юристов, специалистов в области электронных платежей, предпринимателей, для всех, кто уже пользуется электронными и мобильными деньгами (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3FE00D46514018D2A0E40E282045B04B2162CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125607   (767040) от 16.04.2017
-
-А.И. Фалько | Основы радиоприема (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит изложение фундаментальных принципов радиоприема. Предназначено для студентов дневной и заочной формы обучения. Для подготовки специалистов всех форм обучения направлений: «Радиотехника» и «Инфокоммуникационные технологии и системы связи». План учебного пособия содержит преимущественно изложение фундаментальных принципов радиоприема.
-  Успешное (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C5797A1D0D7BE2D7CB075A1362A6F79FFF1607
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1556213   (561382) от 08.06.2022
+
+Парящий тигр / The Tiger Rising (2022) HDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды 12-летний Роб Хортон, гуляя по лесу, набредает на железную клетку с бенгальским тигром. Тигр становится самой большой тайной мальчика. И только одному человеку на свете, новенькой однокласснице Сикстине, он открывает свой секрет. Дети решают выпустить зверя из клетки.Производство: США / GG Filmz, Bay Point Media, Streamline Global GroupЖанр: СемейныйРежиссер: Рэй ДжиаратанаАктеры: Кристиан Конвери, Дэннис Куэйд, Кэтрин МакФи, Куин Латифа, Сэм Трэммелл, Мадален Миллс, Анджела Джиаратана, Дуглас М. Гриффин, Фэйт Диллон, Села Кимбро Джонс и др.Перевод: Дублированный (iTunes)Субтитры: английские, украинские (вшитые отключаемые)Продолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499555ABFC5D69F694A23E64EB0D02CCD85B1A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814114   (560886) от 19.08.2014
+
+Белль и Себастьян / Belle et Sebastien (2013) HDRip [H.264] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560886.jpg" />
+</div>
+
+
+###  Подробнее
+
+По серии повестей «Белль и Себастьян» французской писательницы и актрисы Сесиль Обри.
+Там, где заснеженные горы поднимаются почти до неба, а окружающая природа кажется девственной, разворачивается трогательная история неразлучной дружбы между дикой собакой и маленьким мальчиком – история Белль и Себастьяна. Небольшая идиллическая горная деревушка во французских Альпах, (   Читать дальше...   )Производство: Франция / Centre National de la Cinematographie (CNC)Жанр: приключения, семейныйРежиссер: Николя ВаньеАктеры: Феликс Боссюэ, Чеки Карио, Марго Шателье, Дмитрий Сторож, Андреас Питшманн, Юрбен Канселье, Мехди Эль Глауи, Ян Оливер Шредер, Том ЗоммерлаттеПеревод: Одноголосый любительский (Компания АнВад)Субтитры: РусскиеПродолжительность: 01:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD908820774F4E3D8B2F69D6D38A1D289739D783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305019   (559258) от 28.05.2019
 
 Миа и белый лев / Mia et le lion blanc (2018) HDRip [MVO]
@@ -6,7 +59,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559258.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558496.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558460.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558144.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557009.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556766.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555628.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552734.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552287.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549085.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549063.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548383.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546714.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545074.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544692.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544680.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544109.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543564.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543335.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541704.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540032.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539629.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539613.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539491.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45F42C991C81EAA032FDBDC22BB6EF0A266E2496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532817   (534117) от 09.08.2012
-
-В пустыне и джунглях / W pustyni i w puszczy (1973) DVD9
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в 80-х годах девятнадцатого столетия. 8-летняя англичанка Нэль Роуписсон и 14-летний поляк Стась Тарковский должны отправиться из Порт-Сайда в Эль-Фоном к своим отцам в сопровождении гувернантки. Но волею обстоятельств юные герои оказываются втянутыми в водоворот событий, связанных с борьбой африканских народов против колонизаторов. Детей похищают, чтобы выкупить у английского губернатора заложников. По дороге Стасю удастся избавиться от похитителей, и дети остаются к глубине Африки с двумя неграми. Единственное спасение для них - выход к Индийскому океану. Но на их пути непроходимые джунгли, дикие звери, тропические ливни, малярия и ... работорговцы. Встреча со старым географом Линде, смелость и находчивость Стася помогают детям выйти победителями из всех злоключений.Жанр: ПриключенияРежиссер: Владислав ШлесицкийАктеры: Моника Роска, Томаз Менджак, Эдмунд Феттинг, Станислав ЯсукевичПеревод: ДублированныйЯзык субтитров: ПольскийПродолжительность: 03:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3222715230C0BAC59AE21A332B06949EA30F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312689   (530543) от 05.07.2019
-
-Шазам! / Shazam! (2019) DVD5 [Custom]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530543.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом из нас живет супергерой, нужна лишь толика магии, чтобы он проявил себя. Билли Бэтсон должен прокричать всего лишь одно слово — ШАЗАМ! — чтобы из сообразительного четырнадцатилетнего мальчишки превратиться во вполне себе взрослого супергероя Шазама, а все благодаря древнему волшебнику. В душе он остается ребенком, пусть и во взрослом могучем теле, поэтому (   Читать дальше...   )Производство: США / Warner Bros., DC Entertainment, DC ComicsЖанр: фэнтези, боевик, комедия, приключенияРежиссер: Дэвид Ф. СандбергАктеры: Закари Ливай, Мишель Борт, Джимон Хонсу, Марк Стронг, Джек Дилан Грейзер, Эшер Энджел, Марта Миланс, Миган Гуд, Грэйс Фултон, Адам БродиПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E89796EAF9A57DA9CAC793499DF3553137A616D
 ```
 
 https://mybot314.ru/tekegram_catalog/

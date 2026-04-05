@@ -1,3 +1,55 @@
+###  Публикация: 1454753   (151197) от 30.12.2022
+
+Immortals Fenyx Rising (2020) [Ru/Multi] (1.3.4/dlc) Repack Other s [Gold Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Immortals Fenyx Rising — приключение в вымышленном мире, где главный герой должен спасти греческих богов от могущественного Тифона. Увлекательное путешествие заносит протагониста на остров Благословенный, где обосновались опасные мифические существа.Тип издания: RepackРазработчик: UbisoftЖанр: Adventure, Action, RPG, 3rd Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6439680B1BC25BF198CB3EE62450D86F735C44F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521114   (151178) от 30.12.2022
+
+Честный развод (2021) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гена всю жизнь старался быть опорой семьи. Ради этого он даже отказался от бурной молодости и мечты стать звездой КВН. А когда спустя 25 лет жена назвала его скучным и предложила развестись, Гена решает наверстать упущенное — наполнить жизнь приключениями и поехать на фестиваль КВН в Сочи. А подталкивает его к этому путешествию новая знакомая — прекрасная девушка (   Читать дальше...   )Производство: Россия / MEGOGOЖанр: КомедияРежиссер: Иван КульневАктеры: Александр Робак, Агата Муцениеце, Андрей Борисов, Анна Невская, Андрей Федорцов, Юлия Сулес, Сергей Анненков, Ирина БезрядноваПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710B0561089A014AC1ABB569EAAACC47354259C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194887   (151163) от 27.12.2017
 
 Роскосмос "оцифрует" всю Россию к 2020-му году
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151163.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mozilla Firefox Quantum 57.0.3 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151104.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151015.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150936.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150933.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150931.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150919.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/Multi] (1.0.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150826.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150816.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Microsoft® Windows® 10 Ent 1809 RS5 x86-x64 Ru-En-De-Uk by OVGorskiy® 12.2018
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150812.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150802.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150800.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Udemy | Полный курс по кибербезопасности: Сете�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150795.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150792.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150790.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150784.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150781.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150776.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Microsoft Office for Mac Standard 2019 v.16.20.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150771.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150328.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Microsoft разрабатывает собственные процессоры
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150287.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Boris FX Mocha Pro 2021 v8.0.1 Build 101 standalone + plugins Adobe&OFX [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150153.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Majo no Tabitabi / Wandering Witch: The Journey of Elaina / Странствия
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150150.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150030.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ PROMT.One (Translate.Ru) – это онлайн и офлайн перевод�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C4D2ECD5EBB6C5805EFA3E502A31ED5CA8F74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968813   (149925) от 25.12.2015
-
-Adguard 6.0.146.791 RC [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard - одно из известных приложений разработчика программных продуктов компании Инсофт, предназначенное для блокирования рекламных баннеров и всплывающих окон при работе в сети Интернет. Данная утилита поддерживает фильтрацию при работе с такими браузерами, как Internet Explorer, Google Chrome, Mozilla Firefox, Safari, Opera, Maxthon, Avant Browser, Netscape Navigator, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F790AB26DC4C82C5AAE331E57D15763148712D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968831   (149856) от 25.12.2015
-
-IP-TV Player 0.28.1.8842 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149856.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP-TV Player - это высококачественный проигрыватель для вещания эфирных каналов IP-телевидения. Индивидуальные настройки для каналов, возможность записи потока в файл. Поддерживаются телепрограммы в формате JTV, планировщик записи/просмотра, фоновая запись.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1393C899EC56A81D9B0155149638C4F5962129DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

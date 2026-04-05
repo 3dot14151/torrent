@@ -1,3 +1,32 @@
+###  Публикация: 1569318   (453820) от 12.08.2022
+
+Norma Jean - Deathrattle Sing for Me (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Chaotic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1994 (3:32)
+02. Call for the Blood (3:15)
+03. Spearmint Revolt (5:02)
+04. Memorial Hoard (4:50)(   Читать дальше...   )Жанр: Chaotic MetalcoreПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135CCD0D143E527690BBBD9CA6DC6DE5916A6A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569299   (453818) от 12.08.2022
 
 The Сильное Непонимание - EATTHEREACH (2022) [MP3|320 Kbps] <Punk Rock>
@@ -6,7 +35,7 @@ The Сильное Непонимание - EATTHEREACH (2022) [MP3|320 Kbps] <P
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453818.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453777.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Norhod - The Blazing Lily (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453704.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nordic Union - Animalistic (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453671.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Aurora - 2 Albums (2016-2022) [MP3|320 Kbps] <Hard Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453666.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Kasabian - The Alchemist's Euphoria (2022) [MP3|320 Kbps] <Indie Rock, Neo-Psych
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453665.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bryan Adams - Get Up (2015) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453406.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Blue Stahli - The Devil (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453404.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Trivium - Silence In The Snow (2015) Special Edition [MP3|320 кб/с]<Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453400.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Halo Effect - Days Of The Lost (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453339.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Markscheider Kunst - Хамелеон (2016) [MP3|320 Kbps] <Ska, Afro-cuban jaz
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453219.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Lumen - Акустика (Концерт в центре им. Вс. Мейер�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453072.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Jessikill - Metal Knights (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452877.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Deicide - Overtures Of Blasphemy (2018) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452736.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Steely Dan - Les Genies du Rock - The Caves Of Altamira (1993) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452707.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Dirty White Boyz - Down And Dirty (2017) [FLAC|Lossless|tracks + .cue] < Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452704.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452672.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Pronoun - I'll Show You Stronger (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452604.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Nemesea - White Flag (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452593.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Steely Dan - Everything Must Go (2003) [MP3|320 кб/с]<Rock, Jazz Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452510.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Tarja (Tarja Turunen) - My Winter Storm (2007) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452487.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ VA - Greatest Ever Soft Rock (2017) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452404.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Metallica - 2019/07/21 Moscow, RUS - LUZHNIKI STADIUM (2019) [MP3|256 Kbps] <Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452383.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Three Days Grace - 10 релизов (2003-2011) [MP3|128-320 кб/с]<Rock/Alte
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452238.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Aurotanic - Ethereal Gate (2020) (EP) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451905.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ Aurotanic - Ethereal Gate (2020) (EP) [FLAC|Lossless|image + .cue] <Black Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1401908C08D469B92613124BB319174C7858045F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569541   (451904) от 13.08.2022
-
-Motherslug - 2 Relises (2014-2015) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devils Rise [00:06:27]
-02. Rollin' [00:05:52]
-03. Trippin' On Evil [00:07:33]
-04. Space Man [00:08:35](   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 2 CD, 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCD3E4EDDB421159EADD168CFAC56B9C02A0B6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

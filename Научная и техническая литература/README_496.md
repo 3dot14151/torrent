@@ -1,139 +1,3 @@
-###  Публикация: 1836110   (252279) от 08.11.2025
-
-Б.М. Смирнов | Атомные столкновения и элементарные процессы в плазме (1968) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены элементарные процессы, происходящие в плазме газового разряда, в газовых квантовых усилителях и генераторах, в магнитогидродинамических генераторах, в термоэлектронных преобразователях и в верхних слоях атмосферы. Эти процессы играют важную роль в явлениях, относящихся к астрофизике, проблеме плазменных двигателей и к проблеме преобразования термоядерной (   Читать дальше...   )Жанр: ФизикаИздательство: АтомиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13D3B8F11BE9591DEB3A4818C56EA0D9C19F37F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836111   (252278) от 09.11.2025
-
-С.А. Ребров | Троллейбусы Тр-8 и Тр-9 (1963) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252278.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описано устройство чехословацких троллейбусов Тр-8 и Тр-9: механическая часть, пневматическое и электрическое оборудование, рассмотрен принцип действия и устройство тягового электродвигателя, схем силовой цепи и цепи управления, а также основной аппаратуры управления и защиты. Кроме того, приведены основные положения технической эксплуатации.
-Книга рассчитана (   Читать дальше...   )Жанр: Техническое руководствоИздательство: Изд-во Минкомхоз РСФСРФормат: DJVU, PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0185569DE52D23996B5884771E6DCA6587A39B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836112   (252277) от 09.11.2025
-
-В.Л. Марковников, Д.И. Перкис | Троллейбус ЗиУ-5 (1964) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит характеристику, описание конструкции и технические данные серийного троллейбуса ЗИУ-5.
-Рассчитана на инженерно-технических работников и мастеров троллейбусных хозяйств.
-
-Может представлять интерес для любителей истории отечественного городского электротранспорта.Жанр: Техническое руководствоИздательство: СтройиздатФормат: DJVU, PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AA1CA3621FA6E1B4A6748F1A2ACA1328A208AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836114   (252275) от 09.11.2025
-
-Б.Ф. Асташкин, В.В. Мамлин и др. | Пассажирские троллейбусы ЗиУ-5, ЗиУ-7 (1966) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заводская инструкция по эксплуатации пассажирских троллейбусов ЗиУ-5 и ЗиУ-7.
-Может представлять интерес для любителей истории отечественного городского электротранспорта.Жанр: инструкция по эксплуатацииИздательство: Завод им. УрицкогоФормат: DJVU, PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D0488F5FEB5FC5C4FBAF69047A52CADA85DF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635038   (252080) от 23.05.2023
-
-А.В. Бабич | Введение в UML (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс поможет составить представление о UML, убедиться в его простоте и полезности, поверить в свои способности к UML-моделированию, наметить направления дальнейшего совершенствования своих знаний.
-Курс не сделает из читателя профессионала, но поможет понять основополагающие концепции рассматриваемой технологии, на которые читатель сможет в дальнейшем "нарастить" (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24FF5F047B5E8FA98846D110344A46E38F72356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636441   (251946) от 30.05.2023
 
 М.С. Костин, А.Д. Ярлыков | Архитектурно-конфигурируемые SDR-технологии радиомониторинга и телеметрии (2021) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251946.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251936.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251897.jpg" />
 </div>
 
 
@@ -220,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251850.jpg" />
 </div>
 
 
@@ -246,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251839.jpg" />
 </div>
 
 
@@ -272,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251664.jpg" />
 </div>
 
 
@@ -298,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251490.jpg" />
 </div>
 
 
@@ -324,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251300.jpg" />
 </div>
 
 
@@ -350,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251231.jpg" />
 </div>
 
 
@@ -376,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251216.jpg" />
 </div>
 
 
@@ -402,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251194.jpg" />
 </div>
 
 
@@ -429,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251021.jpg" />
 </div>
 
 
@@ -455,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250944.jpg" />
 </div>
 
 
@@ -481,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250934.jpg" />
 </div>
 
 
@@ -509,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250926.jpg" />
 </div>
 
 
@@ -536,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250838.jpg" />
 </div>
 
 
@@ -562,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250628.jpg" />
 </div>
 
 
@@ -588,7 +452,7 @@ Farzin Asadi | Circuits Laboratory Manual [4 книги] (2023 - 2024) [PDF] [En
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250426.jpg" />
 </div>
 
 
@@ -614,7 +478,7 @@ Dogan Ibrahim | LTspice Essentials: An Introduction to Circuit Simulation (2024)
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250420.jpg" />
 </div>
 
 
@@ -640,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250410.jpg" />
 </div>
 
 
@@ -666,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250369.jpg" />
 </div>
 
 
@@ -677,6 +541,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A057FD28095DCF283F1A863DADAF25DA820A70C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536773   (250302) от 13.03.2022
+
+Э.Г. Галиаскаров, А.С. Воробьев | Анализ и проектирование систем с использованием UML (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие представляет собой практическое руководство по использованию UML для разработки программных систем. Оно позволит научиться выявлять основные понятия предметной области и разрабатывать красивые диаграммы классов, описывать функциональные требования в виде спецификаций вариантов использования и превращать их в правильные проектные решения.
+Дополнительно (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7C1A0C93AB329AD4580063FFD525C703E70E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562843   (250266) от 11.07.2022
+
+Michael Dobrzycki | Искусство рисования драконов, мифологических зверей и фантастических существ/The Art of Drawing Dragons, Mythological Beasts, and Fantasy Creatures (2020) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Искусство рисования драконов, мифологических зверей и фантастических существ», наполненная пошаговыми проектами и полезными советами и техниками рисования, рассказывает, как создавать реалистичные рисунки драконов, фей, единорогов, гоблинов и других животных.Жанр: Рисование, РуководстваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21AF6E3FC650D3FAEEA648965BFEC3E4B2B3E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562847   (250258) от 11.07.2022
+
+М.А. Аль Аккад | Периферийные устройства и системное программирование (2022) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрыты базовые понятия, систематизирован терминологический аппарат, рассмотрены основы аппаратного обеспечения ввода-вывода, принципы создания программного обеспечения ввода-вывода, представлен банк заданий, актуальных для аудиторной и самостоятельной работы обучающихся. К каждому разделу представлены вопросы и задания. Предназначено для аудиторной и самостоятельной (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77633F17D52818CACAE36F44313F9D46593EAB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562947   (250255) от 11.07.2022
+
+Колин Таккер | Как управлять ядерным реактором (2022) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга объясняет, как устроен и как действует ядерный реактор и что нужно знать его оператору для обеспечения стабильной и безопасной работы. Коротко изложена история развития ядерных реакторов, представлены различные их типы и подробно рассмотрен один из них – водо-водяной реактор (PWR), начиная с конструкции и заканчивая особенностями управления. Автор книги, (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4D303B0A72FD1D3FEFC420F9B6A3F0387916B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617774   (250241) от 08.03.2023
+
+Г.Я. Мякишев | Динамические и статистические закономерности в физике (1973) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250241.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге на основе конкретного фактического материала детально анализируется соотношение между динамическими и статистическими закономерностями в физике.
+ Показывается, что динамические законы представляют собой первый, низший этап в процессе познания окружающего нас мира, статистические же законы являются более совершенным отображением объективных связей в природе, (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370D10ACDF7CF0B84DFF88AA06EFEB35BD49FD1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

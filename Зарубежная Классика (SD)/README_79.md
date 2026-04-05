@@ -1,3 +1,56 @@
+###  Публикация: 947537   (417974) от 17.10.2015
+
+Горизонты запада / Horizons West (1952) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата после Гражданской война возвращаются домой, в Техас. Но одному из них суждено получить пулю в погоне за легкими деньгами.Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Бадд БоттичерАктеры: Роберт Райан, Джули Адамс, Рок Хадсон, Джудит Браун, Джон МакИнтайр, Рэймонд Бёрр, Джеймс Арнесс, Деннис Уивер, Фрэнсис Бавьер, Том ПауэрсПеревод: Двуголосый закадровый (А. Воронов и Л. Смирнова "Chayka")Субтитры: ОтсутствуютПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52F9DDE6C8283E14F4F29487D1C6B3783404963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947717   (417819) от 17.10.2015
+
+Диверсанты / Commandos (1968) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая Мировая война 1942 год. Командование приказывает сержанту Салливану создать группу коммандос из солдат итальянского происхождения. Задание коммандос, проникнуть на базу снабжения в Северной Африке в расположение итальянцев-союзников фашистов и удерживать его до подхода основных сил американского батальона…Производство: Италия, Германия (ФРГ) / CCC Filmkunst GmbH, G.G.I. SpA Rome, PIC (Produzione Intercontinentale Cinematografica)Жанр: Боевик, Драма, ВоенныйРежиссер: Армандо КриспиноАктеры: Ли Ван Клиф, Джек Келли, Джампьеро Альбертини, Марино Мазе, Гёц Георге, Пьер Паоло Каппони, Ивано Стацциоли, Марилу Толо, Йоахим Фуксбергер, Хайнц РайнкеПеревод: Авторский, С.Рябов
+(с вставками VO Stalk и Nike Freman на непереведённые сцены)Субтитры: ОтсутствуютПродолжительность: 01:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44D091BAE09A2CBB807904EF0571503CCE79132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407907   (415384) от 30.09.2020
 
 Пианист / The Pianist (2002) BDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415384.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415289.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415164.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414400.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414387.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414234.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413327.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412527.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412395.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412215.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412212.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411757.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411528.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_411424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411424.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411190.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410715.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410632.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409566.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409529.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409523.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409077.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408737.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406614.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406555.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:912623CD60CD9ED43C7EB231EB164E8008AC4070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560185   (406279) от 16.10.2012
-
-Трюкач / The Stunt Man (1980) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрываясь от полиции, Кеймерон попадает на съемочную площадку фильма о Первой мировой войне. Жестокому режиссеру Кроссу нужен человек, который заменил бы погибшего каскадера. Кеймерон получает укрытие, но он должен заменить каскадера. Пройдя ужасы вьетнамской войны, Кеймерон в роли американского летчика, демонстрирует фантастическое мужествоЖанр: Боевик, Триллер, ДрамаРежиссер: Ричард РашАктеры: Питер О’Тул, Стив Рейлсбэк, Барбара Херши, Аллен Гарфилд, Алекс Рокко, Шарон Фаррелл, Адам Рорк, Филип Брунс, Чарльз Бэйл, Джон Гарвуд, Джим Хесс, Джон Пирс, Майкл Рэйлзбэк, Джордж Уоллес, Ди Кэрролл, Лесли Уиноград, Дон Кеннеди, Уайти Хьюз, Уолтер Роблз, А.Дж. Бакунас, Роберто Карузо, Фрэнк Алива, Стэффорд Морган, Джон Олдермен, Джек Палинкас, Сесил Бриттейн, Гаррет МакФерсон, Нельсон Тайлер, Луис Гартнер, Уильям Джозеф Арно, Джеймс Эйври, Френк Битсон, Грегг Бергер, Дианна Дае Коулмэн, Ларри Данн, Патриция МакФерсон, Росс Рейнольдс, Гордон Росс, Мэрион Вейн, Ли УэббПеревод: ДублированныйПродолжительность: 02:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17936A37C03CC3AFFC0A567E2D6A080538A822E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562190   (405407) от 19.10.2012
-
-Звездные войны: Эпизод 3 - Месть Ситхов / Star Wars: Episode III - Revenge of the Sith (2005) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времен, описанных во втором эпизоде, прошло 3 года. Энакин окончательно встает на темную сторону силы и превращается в Дарта Вейдера. Республика гибнет под ударами крепнущей Конфедерации, Джедаи теряют контроль над галактикой, а Падме готовится к тому, чтобы стать матерью. Все эти события будут разворачиваться на фоне грандиозной битвы, знаменующей финал Клонических войн…Жанр: Фантастика, Фэнтези, ПриключенияРежиссер: Джордж Лукас / George LucasАктеры: Юэн МакГрегор, Натали Портман, Хейден Кристенсен, Иэн МакДайармид, Сэмюэл Л. Джексон, Джимми Смитс, Фрэнк Оз, Энтони Дэниелс, Кристофер Ли, Киша Касл-ХьюзПеревод: ДублированныйПродолжительность: 02.20.00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682671E8E6CED52F048B56CB404B6F2AD16220D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

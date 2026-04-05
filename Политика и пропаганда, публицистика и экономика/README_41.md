@@ -1,3 +1,29 @@
+###  Публикация: 1816599   (4281) от 05.09.2025
+
+Бесогон ТВ. Мотоцикл с Аляской (05.09.2025) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесогон ТВ - авторская программа кинорежиссера Никиты Михалкова, который пытается вместе со своим зрителем поразмышлять на самые разнообразные и актуальные темы, затрагивающие нашу жизнь. Каждый выпуск порождает все новые и новые вопросы, ответы на которые каждый должен найти для себя сам, основываясь на фактах, предоставленных в программе.Производство: Россия, Бесогон ТВЖанр: телепередача, документальный, история, политика, публицистикаРежиссер: Никита МихалковПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF65D287B5A43D737EA9D861B3845F080778EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816891   (3849) от 07.09.2025
 
 Военная тайна с Игорем Прокопенко (06.09.2025) WEBRip [H.264]
@@ -6,7 +32,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3849.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2939.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2658.jpg" />
 </div>
 
 

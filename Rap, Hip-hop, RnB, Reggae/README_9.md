@@ -1,32 +1,3 @@
-###  Публикация: 1108173   (863803) от 24.02.2017
-
-Anacondaz - Выходи за меня (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Спаси, но не сохраняй
-02 - Чего ради
-03 - Смотри на меня
-04 - Рокстар(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CF8992A8AC61C2908807652A8477BEA4E56504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376317   (860622) от 17.04.2020
 
 Fardi - Черный сад, часть 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ Fardi - Черный сад, часть 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860622.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860495.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860491.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [FLAC|Lossless|Web-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860490.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Shabazz Palaces - The Don Of Diamond Dreams (2020) [MP3|320 Kbps] <Abstract Hip-
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860373.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Jah Khalib - 911 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860368.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ RJD2 - The Fun Ones (2020) [MP3|320 Kbps] <Abstract Hip-Hop, Experimental>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860366.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [MP3|320 Kbps] <Hip-Hop, Rap
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860363.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [FLAC|Lossless|WEB-DL|t
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860245.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Tech N9ne - ENTERFEAR (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860166.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ The Four Owls - Nocturnal Instinct (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860063.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856701.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Pyrokinesis - Моя Милая Пустота (2019) [FLAC|Lossless|WEB-DL|trac
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856574.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Wiz Khalifa - The Saga of Wiz Khalifa (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853422.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851649.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Czar - Pig Drum (Side B) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848423.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ lojii & Swarvy - Due Rent (Blends) (2020) [MP3|320 Kbps] <Hip-Hop, R&B, Soul>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848335.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Mnogoznaal - Круг Ветров (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848266.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Slik Jack - Dicey Buisness (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848263.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Twiztid - Mad Season (2020) [MP3|320 Kbps] <Hip-Hop, Rap, Horrorcore>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848256.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Jah Khalib - 911 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848182.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_848178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_848178.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Bones & Drew The Architect - DamagedGoods (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846519.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844635.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842902.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE3AA7089DC70CC167E78CFE30814A859DDE8B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378719   (842801) от 27.04.2020
+
+VA - NOW Reggae Classics (2020) [MP3|320 Kbps] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bob Marley & The Wailers - One Love / People Get Ready (Medley) 02:53
+2. Steel Pulse - Reggae Fever 03:26
+3. Toots & The Maytals - Reggae Got Soul 03:09
+4. Jimmy Cliff - You Can Get It If You Really Want 02:41(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C35FDA9DFF7F432C6C8C7B3DA45303C7D8BCC9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

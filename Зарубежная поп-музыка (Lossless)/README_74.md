@@ -6,7 +6,7 @@ VA - 538 Hitzone 91 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229221.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mcfly - Power To Play (2023) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229213.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 538 Hitzone 90 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229077.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Pure...Disco Funk (2010) Box Set, 4 CD [FLAC|Lossless]<Pop, Funk, Disco, Ba
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228440.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Fedez - Paranoia Airlines (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo Pop, Pop-R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228028.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Savage Garden - Affirmation (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synt
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226242.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sabrina - Erase/Rewind - Official Remix (2008) 2CD [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226104.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stars & Belles - Xmax in Harmony (1995) [FLAC|Lossless|image + .cue] <Acapella, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225984.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Geri Halliwell - Scream If You Wanna Go Faster (2001) [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225964.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Party Poppers - Sing-Along Christmas Party (1997) [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225952.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ V.A. - Суперхиты дискотеки 90-х - Золотые баллад
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225888.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ The Beloved - Happiness (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225873.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Rock'n'Roll Christmas (Unknown) [FLAC|Lossless|image + .cue] <Pop, Oldies>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225741.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Rock'n'Roll Christmas (2011) [FLAC|Lossless|image + .cue] <Pop, Oldies>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225733.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Mylene Farmer - Cendres De Lune (1987) [FLAC|Lossless|tracks + .cue] <Chanson, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225574.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Backstreet Boys - Backstreet's Back (1997) Unofficial Release [FLAC|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225538.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225274.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - New Pop Classics (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224326.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Supermax - Electricity (1983) Unofficial Release, Russia, 2014 [FLAC|Lossless|im
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224114.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ The Vision Mastermixers - Christmas Party Megamix (2000) [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224011.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Wilson Phillips - Wilson Phillips (1990) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223526.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Selena Gomez - For You (2014) /Scene/ [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222982.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ The Beloved - Where It Is (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222768.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - MNM Party 2019 Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222705.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Bill Wray - Seize The Moment (1983) Reissue, Remastered, 2023, Bad Reputation [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222288.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Odds - Crash The Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222273.jpg" />
 </div>
 
 

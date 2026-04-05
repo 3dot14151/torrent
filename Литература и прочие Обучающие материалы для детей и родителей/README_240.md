@@ -1,3 +1,57 @@
+###  Публикация: 925480   (539217) от 07.08.2015
+
+Алексей Олейников | Велькино детство (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о приключениях мальчика Вельки в южной деревеньке под Ростовом, где он проводит каникулы у бабушки. Велька то и дело попадает в переделки, находит новых друзей, спасает нутрий, летает на бричке и даже случайно поджигает далёкую южноамериканскую страну Уругвай.
+В 2007 году сборник рассказов «Велькино детство» стал лауреатом национальной детской (   Читать дальше...   )Жанр: Детская проза, Детские приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A22216017C7202934054219D66B0940D4F90423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925790   (539108) от 07.08.2015
+
+Дмитрий Николаевич Медведев | Это было под Ровно (1962) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор этой книги Дмитрий Николаевич Медведев (1898—1954) родился в городе Бежица, Брянской области, в семье рабочего-сталелитейщика. С малых лет он работал на брянском заводе, юношей вступил в ряды Красной гвардии, принимал участие в октябрьских боях.
+В 1920 году Медведев вступил в Коммунистическую партию. Тогда же он начал работать в органах советской разведки, (   Читать дальше...   )Жанр: Детская проза, военная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946748D4E948DFDE1163BDFB328643D2445E277D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925617   (539101) от 07.08.2015
 
 Виталий Губарев | Путешествие на Утреннюю Звезду (1961) [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539101.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539096.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538998.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538996.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538991.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538947.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538866.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538808.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538748.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538574.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538231.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538229.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538225.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538072.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538002.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537983.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537735.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537520.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537499.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537273.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537103.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536888.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536741.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536499.jpg" />
 </div>
 
 
@@ -635,59 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6B464E440CC0D7017CE367CD6822D0824A08972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312009   (536492) от 02.07.2019
-
-Николай Гарин-Михайловский | Детство Темы (1936) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкая книга. Дети в России. Школа в России.
-Для детей младшего возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380A99B637BC153EDFF2102BCBCC34724D2D7EAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311864   (536395) от 02.07.2019
-
-Валерий Роньшин | Эмма Мухина и Тайна зефира в шоколаде (2019) [PDF, FB2, RTF, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективная повесть «Эмма Мухина и Тайна зефира в шоколаде» известного писателя В. Роньшина – первая из цикла книг о приключениях супер-девочки Эммы Мухиной, которая в один самый обыкновенный день поневоле становится сыщиком-разведчиком… Произведение отличают захватывающий сюжет, живой язык, неповторимый авторский юмор.Жанр: Детские детективыФормат: PDF, FB2, RTF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C76C51A1A3ACFC1DA0BCF81731125D503538FA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

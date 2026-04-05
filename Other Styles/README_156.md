@@ -1,3 +1,61 @@
+###  Публикация: 1666125   (180108) от 03.10.2023
+
+VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UMANNTO - Mahedi (feat. Soulpacifica) (7:17)
+02. Dmitry Kostyuchenko - Hiddekel (6:51)
+03. Den Macklin - Mad Emotional (5:29)
+04. Kakura - Bazaar (7:36)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7230C89842CC562942E4698828BBFCD62371E5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665885   (180070) от 03.10.2023
+
+VA - The Orient Collective: From the Ancient Lands (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Holt - Marrakech Dreaming (Ali Termos Remix) (6:50)
+02. DaDa Sound Project - Golden Desert (MI.LA Remix) (6:12)
+03. Ali Termos - Ederlezi (6:57)
+04. Amine'O - Kamanja (5:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB1CA031FC9D1D14A7F04161F051BCA788763FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666139   (179937) от 03.10.2023
 
 Sex Music Zone - Kiss N' Ride Erotic Lounge Music for Sex & Porno (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
@@ -6,7 +64,7 @@ Sex Music Zone - Kiss N' Ride Erotic Lounge Music for Sex & Porno (2023) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179937.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Christian Grey & Sasha Black - The Fire of Love (2017) [FLAC|Lossless|WEB-DL|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178243.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ neowake Biofrequencies - Утренняя мотивация 16 Гц: бинау
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178067.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177874.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ Ted Hammond Orchestra - Hammond & Sax (2022) Vol. 1,2 [MP3|320 Kbps] <Instrument
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177836.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ Blackmore's Night - Here We Come A-Caroling (2020) EP [FLAC|24/44.1|Lossless|WEB
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177371.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176682.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House,
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176529.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175130.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175018.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Samantha Delight - Passionately Sexy & Sensual Jazz Music with Orgasmic Vocal (2
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173691.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173656.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173516.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Loss
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173341.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Nytt Land - Torem (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172829.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Геннадий Гладков. Обыкновенное Чудо (2002) �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172732.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172542.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Malte Marten, Yatao, Leander Greitemann - To the Stars (Studio Live Sessions) (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171714.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170836.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Emma Swift - Blonde On the Tracks (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170613.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170532.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170462.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170423.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фоль�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170355.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фоль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA37C175577DD4F4CC0963EB94F108B21E3A5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515091   (170318) от 06.12.2021
-
-VA - Гармонь России 2 (2006) [FLAC|Lossless|tracks + .cue] <Фольклор, Русские народные песни>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Митрофановна - Сыпал снег буланому под  ноги (3:41)
-02. Митрофановна - Облепиха (3:50)
-03. Митрофановна - Вдовушки (3:16)
-04. Златые горы - Кобели (4:46)(   Читать дальше...   )Жанр: Фольклор, Русские народные песниПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C900E717E4614C9826321DB7DCB882A09FB14E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595844   (169859) от 10.12.2022
-
-Rome - Hegemonikon - A Journey to the End of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Martial Industrial, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Slaughter of Crows [00:04:49]
-02. No Second Troy [00:03:21]
-03. Icarus Rex [00:04:30]
-04. Surely Ash [00:03:45](   Читать дальше...   )Жанр: Martial Industrial, NeofolkПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5BD8E37C69A688C6CD360E2744D7D909875CC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

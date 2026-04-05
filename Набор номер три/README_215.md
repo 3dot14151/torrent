@@ -1,3 +1,162 @@
+###  Публикация: 1391971   (765879) от 02.07.2020
+
+Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 06.2020 2DVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765879.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор самых (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5931678E448B80D72A92BAAA84FE3E92881FF848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824896   (765878) от 02.07.2020
+
+Soviet Military Maps Pro / Советские военные карты Pro 4.4.3 [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советские военные карты в идеальном приложении с динамическими картами для туристических походов и поездок в места, где нет дорог, а также для путешествий и экспедиций. Приложение для навигации по бездорожью с мировыми топографическими картами (в основном, от Генштаба России). Эти карты до сих пор являются одними из лучших для многих стран Африки и Азии.Тип издания: Взломана / ПираткаРелиз состоялся: 24.11.2016Разработчик: ATLOGIS Geoinformatics oHGПоддерживаемая ОС: Android 2.3.3 или более поздняяЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB642DFA27AEE9D6F88DBF8E1203AB1510D2CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279090   (765862) от 29.01.2019
+
+Компания Blue Origin запустила в космос туристическую капусулу, расчитанную на шесть человек.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blue Origin удалось плавно приземлить ракету и капсулу суборбитального корабляГлава компании Джефф Безос сообщил, что высота подъема корабля New Shepard составила 107 км.
+Американская компания Blue Origin провела в воскресенье испытание своего суборбитального корабля New Shepard. Трансляцию запуска с пусковой площадки в штате Техас вела Blue Origin.Корабль New Shepard (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339762   (765826) от 29.01.2019
+
+Старики-разбойники (1971) DVDRip [Реставрация "КП"]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765826.jpg" />
+</div>
+
+
+###  Подробнее
+
+«—Люди делятся на тех, кто доживает до пенсии, и на остальных...»
+Следователя прокуратуры Мячикова, достигшего пенсионного возраста, пытаются насильно «уйти» с работы, так как на его место есть кандидат, присланный «сверху». Вместе со своим старинным другом, инженером Воробьевым, Мячиков решает организовать преступление, раскрыв которое он сможет доказать свою необходимость (   Читать дальше...   )Производство: СССР, МосфильмЖанр: КомедияРежиссер: Эльдар РязановАктеры: Юрий Никулин, Евгений Евстигнеев, Ольга Аросева, Георгий Бурков, Андрей Миронов, Валентина Владимирова, Юрий Белов, Валентина Талызина,
+Роман Филиппов, Нина Агапова, Готлиб Ронинсон, Георгий Куликов, Лев Дуров и др.Перевод: ОригинальныйСубтитры: отсутствуютПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9BE3604C90C1BAB4638314598C01CBFA61F086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279273   (765819) от 29.01.2019
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.01.28 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1F3F7F8D520DB2BFAD0BEC5B0EB7750EFCE0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858569   (765818) от 29.01.2019
+
+ПиКей / PK (2014) BDRip [H.264/720p-LQ] [MVO] [PR]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765818.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПиКей, инопланетянин, высаживается на Землю в городе, расположенном в пустыне Раджастан, для изучения человеческой природы и жизни на Земле. Но планета встретила его довольно грубо — у него украли пульт дистанционного управления, с помощью которого он держал связь с космическим кораблем. Теперь он должен найти пульт, а до тех пор ему придется выживать на Земле по-своему. (   Читать дальше...   )Производство: ИндияЖанр: Фэнтези, драма, мелодрама, комедия, детективРежиссер: Раджкумар ХираниАктеры: Аамир Кхан, Анушка Шарма, Санджай Датт, Боман Ирани, Саурабх Шукла, Сушант Сингх Раджпут, Парикшит Сахни, Амардип Джа, Рима Дебнатх, Диру ДривэдиПеревод: Любительский двухголосый (den904&DeadSno)Субтитры: Русские (только к словам песни)Продолжительность: 02:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFC1BA414F22C21427D429DA22E1AE771388287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279167   (765816) от 29.01.2019
 
 Крик тишины (2019) HDTV [H.264/1080i-LQ]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765816.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765813.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) Repack xatab [Gold 
 >>19
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765812.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765789.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765788.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765779.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765778.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765633.jpg" />
 </div>
 
 
@@ -219,7 +378,7 @@ Acronis BootCD 10PE x86/x64 by naifle (19.03.2018) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765623.jpg" />
 </div>
 
 
@@ -245,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>29
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765620.jpg" />
 </div>
 
 
@@ -273,7 +432,7 @@ HITMAN (2016) [Ru/Multi] (1.13.2 hf2/dlc) Repack R.G. Механики [GOTY Edi
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765619.jpg" />
 </div>
 
 
@@ -299,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765499.jpg" />
 </div>
 
 
@@ -327,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765498.jpg" />
 </div>
 
 
@@ -353,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765124.jpg" />
 </div>
 
 
@@ -380,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765093.jpg" />
 </div>
 
 
@@ -406,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765040.jpg" />
 </div>
 
 
@@ -432,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765039.jpg" />
 </div>
 
 
@@ -458,7 +617,7 @@ TNod User & Password Finder 1.6.2 Beta 3 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765033.jpg" />
 </div>
 
 
@@ -484,7 +643,7 @@ Dr.Web Security Space Pro 11.1.1 & Life 11.1.1 [Ru]
 >>18
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765026.jpg" />
 </div>
 
 
@@ -512,7 +671,7 @@ Genesis Alpha One (2019) [Ru/En] (1.0) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764987.jpg" />
 </div>
 
 
@@ -523,166 +682,6 @@ Genesis Alpha One (2019) [Ru/En] (1.0) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6628BA53225D6CCC38717DFC00375AA6F774AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279218   (764984) от 30.01.2019
-
-Windows 10 April 2019 Update: 7 новых функций и улучшений следующего крупного обновления
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следующее крупное обновление функций до Windows 10, версия 1903 – April 2019 Update или 19H1 – на данный момент находится на завершающей стадии разработки, поэтому мы хотим ознакомить вас с ключевыми нововведениями будущей версии Windows 10Весеннее обновление Windows 10 April 2019 Update (версия 1903), известное под кодовым названием 19H1, получит не только улучшения (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220303   (764983) от 30.01.2019
-
-S.T.A.L.K.E.R.: Shadow of Chernobyl - Darkest Time: Extended (2007/2016) [Ru] (1.0006/1.0.56) Repack/Mod West4it
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полгода прошло с того момента, как Меченый отключил Выжигатель... Многое изменилось. Группировки распались из-за внутренних разногласий, армия не справляется со своими полномочиями, мутанты распространяются по всей территории ЧЗО... В Зоне хаос.Тип издания: Repack/ModЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6AECC67105FC776AD085EBB6CCF43A04D0E532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963467   (764982) от 30.01.2019
-
-Дмитрий Зурков, Игорь Черепнев | Бешеный прапорщик [21 часть] (2017-2019) [FB2] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто-то, сидя за книжками, с детства грезил о сражениях и подвигах… Кто-то бессонными ночами хотел сделать великое открытие и стать Нобелевским лауреатом… Кто-то, лежа на солдатской койке после отбоя, мечтал стать генералом… Если ты долго смотришь в бездну, бездна тоже смотрит в тебя, — так говорил Ницше. И если шутить со Временем, то и Время может подшутить над тобой… (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C57E1D55F647A27D3D09DEF4EDA2283719AF357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 28557   (764981) от 30.01.2019
-
-Звездные Войны / Star Wars (1977-2005) 12xDVD-9 + 2xDVD-5
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное 14-дисковое коллекционное издание всемирно известной космической саги
-"Звездные войны".
-РЕЖИССЕРСКИЕ ВЕРСИИ!Жанр: Фантастика, приключенияВ ролях: Харрисон Форд, Билли Ди Уильямс, Марк Хэмилл, Фрэнк Оз, Джеймс Эрл Джонс, Уорвик Дэвис, Алек Гиннесс, Кэрри Фишер, Энтони Дэниелс, Кенни Бейкер, Питер Мэйхью, Себастьян Шоу, Иэн Макдайармид, Дэвид Проуз, Денис Лоусон, Джереми Баллох, Майкл Пеннингтон, Майкл Картер, Тим Роуз, Дермот Краули, Кэролайн Блэкистон, Тейлор Феми, Дэйвенпорт Клер, Эдмондс Майк, Басби Джейн, (   Читать дальше...   )Перевод: Профессиональный (многоголосый, закадровый от Tycoon studio), Профессиональный одноголосый (Гаврилов)
-Что бы не возникали вопросы с переводом вотПродолжительность: Эпизод 1 - 02:16:04 Эпизод 2 - 02:22:20 Эпизод 3 - 02:19:58  Эпизод 4 - 02:04:38 Эпизод 5 - 02:07:15 Эпизод 6 - 02:14:40 + бонусы
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521364   (764951) от 02.01.2022
-
-Что построено в России за 2021 год
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию краткую подборку научно-производственных новостей за 2021 год.В ней показано, что нового построено в России за этот период, запущено в производство, разработано, спущено на воду, запущено в космос, опробовано в воздухе и т.д.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521065   (764945) от 02.01.2022
-
-Выпуск программы для обхода систем глубокого анализа трафика GoodbyeDPI 0.2.1
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764945.jpg" />
-</div>
-
-
-###  Подробнее
-
-После двух лет простоя разработки вышла новая версия GoodbyeDPI, программы под ОС Windows для обхода блокировок интернет-ресурсов, осуществляемых с помощью систем глубокого анализа трафика (Deep Packet Inspection) на стороне интернет-провайдеров. Программа позволяет получить доступ к веб-сайтам и сервисам, заблокированным на государственном уровне, без использования (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 932775   (508163) от 30.08.2015
-
-Francoise Hardy - Star (1977) [FLAC 2.0 24/96 | image+.cue|(Vinyl Rip)]<Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508163.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Star
-Lyrics By (Adaptation) – F. Hardy
-Written-By – J. Ian
-A2	Chanson Sur Toi Et Nous(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D97A9DE8AC54A9F4CDA30F63A87D4A3FFF4350E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932885   (507968) от 30.08.2015
 
 Electric Light Orchestra - Time (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
@@ -35,7 +6,7 @@ Electric Light Orchestra - Time (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507968.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Antonio Vivaldi - The Four Seasons (1982) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507957.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Bill Mize - Coastin' (1998) (DTSCD OF) <new age, bakersfield sound>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507316.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ VA - Дискоклуб 4Б: Популярные русские песни и �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507063.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506070.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ VA - Concord Jazz: SACD Sampler. volume 1 (2003) [DTS 5.1 44.1/16 | .wav+.cue (S
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505316.jpg" />
 </div>
 
 
@@ -203,7 +174,7 @@ Francoise Hardy - Le Double Disque D'or De Francoise Hardy (1977) [FLAC 2.0 24/9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505286.jpg" />
 </div>
 
 
@@ -232,7 +203,7 @@ Megadeth - Countdown To Extinction (1992) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505200.jpg" />
 </div>
 
 
@@ -261,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503192.jpg" />
 </div>
 
 
@@ -290,7 +261,7 @@ Kiss - Dynasty (1979) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Glam Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500208.jpg" />
 </div>
 
 
@@ -319,7 +290,7 @@ Foreigner - 4 (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496444.jpg" />
 </div>
 
 
@@ -348,7 +319,7 @@ Rey Dorset & Mungo Jerry - Golden Orpheus Festival Live (1978) [FLAC 2.0 24/96|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496384.jpg" />
 </div>
 
 
@@ -377,7 +348,7 @@ Yes - Magnification (2001) [FLAC 2.0|96/24|tracks|DVD-Audio] <Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495893.jpg" />
 </div>
 
 
@@ -406,7 +377,7 @@ VA - Мельница - Песни Игоря Николаева (1987) [DSD2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495428.jpg" />
 </div>
 
 
@@ -435,7 +406,7 @@ Rainbow - On Stage (1977) 2LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494936.jpg" />
 </div>
 
 
@@ -464,7 +435,7 @@ Beth Hart - My California (2010) /2014/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494011.jpg" />
 </div>
 
 
@@ -493,7 +464,7 @@ Sting - Brand New Day (1999) [FLAC 2.0|48/24|tracks|DVD-Audio] <Pop, Soft Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491710.jpg" />
 </div>
 
 
@@ -522,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490675.jpg" />
 </div>
 
 
@@ -551,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488166.jpg" />
 </div>
 
 
@@ -580,7 +551,7 @@ AC/DC - For Those About To Rock (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487780.jpg" />
 </div>
 
 
@@ -609,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485173.jpg" />
 </div>
 
 
@@ -638,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483272.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483138.jpg" />
 </div>
 
 
@@ -696,7 +667,7 @@ VA - Робинзон - Леонид Дербенёв (1985) [DSD2.0|5,64MHz/1bi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481624.jpg" />
 </div>
 
 
@@ -725,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479937.jpg" />
 </div>
 
 
@@ -739,6 +710,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:992FC651038C8FE9812A2A290D85E65FE6748AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159319   (479756) от 22.08.2017
+
+Мираж - Снова Вместе (катушка 2) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Млечный путь [4:28]
+02. Где я [4:40]
+03. Море грёз [4:33]
+04. Я не шучу [3:15](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1058C3984588CB492182A6CD51B6072CF00B76
 ```
 
 https://mybot314.ru/tekegram_catalog/

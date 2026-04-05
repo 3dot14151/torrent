@@ -1,3 +1,56 @@
+###  Публикация: 1425090   (223352) от 19.11.2020
+
+Nik Complete 3 Collection by DxO v3.3.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
+Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: DxOПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63F8A7B41B8CC688257752BCD35495C35E256CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965744   (223315) от 15.12.2015
+
+Smith Micro Poser Pro v11.0.1.31230 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smith Micro Poser Pro — мощный и в тоже время простой в использовании программный пакет 3D-дизайна и анимации, позволяющий создавать высокореалистичные персонажи, трехмерные объекты и детали трехмерных сцен для WEB, печатной продукции и видео-производства. С Poser вы легко овладеете 3D-искусством, являетесь ли Вы опытным художником-аниматором, или же в первый раз (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 декабря 2015Разработчик: Smith Micro Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE523617AF9EDB03D89F2AF644843AEA45B022BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269001   (223246) от 13.12.2018
 
 Movie Edit Pro 3.7.3 (3.7.4) [En]
@@ -6,7 +59,7 @@ Movie Edit Pro 3.7.3 (3.7.4) [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223246.jpg" />
 </div>
 
 
@@ -36,7 +89,7 @@ Red Giant Trapcode Suite 16.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223100.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ LogTail 4.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222814.jpg" />
 </div>
 
 
@@ -91,7 +144,7 @@ iTubeDownloader 6 v6.5.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222784.jpg" />
 </div>
 
 
@@ -119,7 +172,7 @@ Blocks 3.6.0 (RapidWeaver plugin) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222704.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ oneSafe 2.4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222688.jpg" />
 </div>
 
 
@@ -172,7 +225,7 @@ Performance Index 64 Pro 4.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222349.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ WonderPen 2.3.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222108.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ calibre 6.24 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221845.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ Roxio Toast Titanium 17 v17.3.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221788.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Photo Image Editor Pixelstyle 3.7.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221419.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ Zee Timer 8.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221363.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ Nevercenter CameraBag Photo 2023.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221296.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ Folder Tidy 2.8.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221004.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ mSecure 3.5.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220908.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ PreSonus Studio One 6 Professional 6.2.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220644.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ OmniPlan Pro 3.6.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220615.jpg" />
 </div>
 
 
@@ -464,7 +517,7 @@ DM1 - The Drum Machine 2.1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220606.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ Unibox 1.5.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220254.jpg" />
 </div>
 
 
@@ -520,7 +573,7 @@ Kaleidoscope 4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220251.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ Adguard 2.5.1 Release[Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219894.jpg" />
 </div>
 
 
@@ -574,7 +627,7 @@ Metadata 1.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219803.jpg" />
 </div>
 
 
@@ -600,7 +653,7 @@ GlueMotion Unlimited  for Mac 2.1.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219798.jpg" />
 </div>
 
 
@@ -627,7 +680,7 @@ Text Scanner Pro - PDF & Document 1.4.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219748.jpg" />
 </div>
 
 
@@ -638,58 +691,6 @@ Text Scanner - это мощный инструмент сканирования
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54C81BD342367908460DF6C679D6E1844243C536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652078   (219549) от 09.08.2023
-
-Modern CSV for Mac 2.0.2 U2B [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern CSV — это мощное приложение для редактирования/просмотра табличных файлов для Windows, Mac и Linux. Профессионалы всех уровней технической подготовки используют его для анализа данных, проверки файлов для загрузки в базы данных, изменения файлов конфигурации, ведения списков клиентов и многого другого. Мы разработали его, чтобы компенсировать недостатки программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.08.2023Разработчик: © 2023 GALLIUM DIGITALПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E681B684A742C0C567441E9E1CAC3E5DBA73A4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514232   (219425) от 02.12.2021
-
-Movavi Academic 2022 v22.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Academic 2020 предоставляет учителям и ученикам мощный инструмент для создания комплексных образовательных видеороликов. Обогатите весь учебный процесс и переведите свой класс на новый уровень с помощью нашего программного обеспечения для редактирования видео для школ.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2021, Movavi Software LimitedПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA3E09E7AA158B4BD75EBD3FF95BB55BC576A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

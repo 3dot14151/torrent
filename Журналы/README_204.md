@@ -1,3 +1,110 @@
+###  Публикация: 1026404   (703951) от 15.06.2016
+
+Газета | Золотая коллекция рецептов. Спецвыпуск №58 (май 2016) [DJVU]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыбу надо употреблять хотя бы раз в неделю, это - полезный, насыщенный необходимыми для нашего здоровья микроэлементами продукт. Блюда из рыбы в домашних условиях - различные: закуски, супы, консервация, горячее... Узнайте, что приготовить из рыбы, с чем ее подать, как сервировать, чтобы будничный обед или праздник удался на славу. Смотрите простые рецепты из рыбы (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656196CD60453AB191AC2F1ACD0994DDAAA0F827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287561   (703614) от 07.03.2019
+
+Газета | Вкусно и просто. Спецвыпуск "Как украсить любое блюдо" (ноябрь 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание является специальным выпуском газеты "Скатерть-самобранка", серия "Вкусно и просто".
+Тема номера: украшения блюд.
+Предназначена для широкого круга читателей.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E191F040E09BF4FDD02B44B0BEF49300993A5E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287600   (703612) от 07.03.2019
+
+Газета | Скатерть-самобранка. Спецвыпуск №2. Новые идеи приготовления оливье и винегретов (2019) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета для тех, кто любит готовить. В каждом номере — множество полезной и интересной информации: рецепты, советы, секреты.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF88BB098442E50A678912FE317C4EEC7E6CCA21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894847   (703550) от 04.05.2015
+
+Приложение к журналу "Русская старина" | Русские деятели (1886) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русские деятели в портретах изданных редакцией исторического журнала  «Русская старина».  Второе собрание портретов.  В настоящем сборнике гравюр, кроме портретов русских деятелей, помещены портреты жен некоторых из них. В сборник вошли две интересные гравюры – рисунки Михайловского замка (1800 г.) и храма Воскресения Христова (проект 1882 г.)
+Гравюры исполнили художники: Г.И. Грачев, А.И. Даугел,  В.В. Матэ,  И.И. Матюшин.  К каждой гравюре  даны подробные биографические очерки.Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7582E85BC3E8243904DF65E6DF72F88403390E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287595   (703465) от 07.03.2019
 
 Газета | Скатерть-самобранка. Спецвыпуск №3 Пицца, расстегаи, чебуреки и другие пироги + рецепты самого вкусного теста (2019) [PDF]
@@ -6,7 +113,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703465.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703440.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703165.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703110.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702918.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702916.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702882.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702840.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702819.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702721.jpg" />
 </div>
 
 
@@ -266,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702490.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702434.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702428.jpg" />
 </div>
 
 
@@ -345,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702384.jpg" />
 </div>
 
 
@@ -371,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702382.jpg" />
 </div>
 
 
@@ -397,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702323.jpg" />
 </div>
 
 
@@ -423,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702291.jpg" />
 </div>
 
 
@@ -449,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702118.jpg" />
 </div>
 
 
@@ -475,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702067.jpg" />
 </div>
 
 
@@ -501,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702000.jpg" />
 </div>
 
 
@@ -527,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701889.jpg" />
 </div>
 
 
@@ -553,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701881.jpg" />
 </div>
 
 
@@ -564,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26857709912802B87846409EC5A186F9ABF89BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287680   (701872) от 08.03.2019
-
-Газета | Скатерть-самобранка. Спецвыпуск №6. Лучшие супчики (2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета для тех, кто любит готовить. В каждом номере — множество полезной и интересной информации: рецепты, советы, секреты.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2403878A15E08E40FE9C3CF4B4D0AAA23053E20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287684   (701870) от 08.03.2019
-
-Газета | Кулинарная школа Скатерти-самобранки. Спецвыпуск №1.  Блинчики, оладьи и панкейки (2019) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перебирая подшивки «Скатерти-самобранки» за прошлые годы, каждый раз поражаешься опыту и мастерству авторов, которые до сих пор продолжают щедро делиться своими секретами на страницах газеты. Некоторые кулинарные открытия - просто шедевр! Но распылился бесценный опыт по номерам, не скоро отыщешь. Нельзя эту золотую копилку терять. Это же настоящая школа для молодых (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25DD017629857DE4F1BE25BB0E090E830D99C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287780   (701771) от 08.03.2019
-
-Газета | Кулинарная школа Скатерти-Самобранки №6 (18). Про салаты и закуски (декабрь 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перебирая подшивки «Скатерти-самобранки» за прошлые годы, каждый раз поражаешься опыту и мастерству авторов, которые до сих пор продолжают щедро делиться своими секретами на страницах газеты. Некоторые кулинарные открытия - просто шедевр! Но распылился бесценный опыт по номерам, не скоро отыщешь. Нельзя эту золотую копилку терять. Это же настоящая школа для молодых (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECE2449BB65267AC45D6B2C21EE36B652F2EA71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287719   (701770) от 08.03.2019
-
-Газета | Домашняя кулинарная энциклопедия. Специальный выпуск №1 (9) (2019) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кулинарная газета для широкого круга читателей.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528F20E0E664EA76E3A4CE960B04267484B9C738
 ```
 
 https://mybot314.ru/tekegram_catalog/

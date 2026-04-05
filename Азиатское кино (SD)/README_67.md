@@ -1,3 +1,55 @@
+###  Публикация: 1760067   (37537) от 12.11.2024
+
+Приют. Шепот призраков / Bon Das Sa Neang Reatrei / The Night Curse of Reatrei (2024) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая воспитательница приезжает в детский приют вместе с младшей сестрой. Там их начинают преследовать призраки погибших здесь 10 лет назад детей и мстительный дух тогдашней главы приюта, обвиненной в их гибели. Чтобы успокоить призраков, девушкам придется восстановить события прошлого и раскрыть зловещую тайну этого мрачного места.Производство: Камбоджа / LD Entertainment, LD Picture Production, Real Bros Film ProductionЖанр: ужасыРежиссер: Леак Лида, Дип СелаАктеры: Дженна Нородом, Паинг Такхон, Юбин Шин, Тхаротх Сам, Нов Дана, Бан Сахрах Пич Моника, Мони Реакса, Оум Вутхичей, Еар Синан, Сим СопхеакмонейПеревод: Дублированный (Paragraph Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5D5C818E575B7C43B29ED5737350A8FEF54E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760810   (37071) от 16.11.2024
+
+Тигр / Daeho (2015) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1925 год. Японская оккупация Кореи. Японский военный министр, большой любитель тигриных шкур, приказывает изловить так называемого короля всех тигров Кореи. Понимая всю опасность задания, охотники обращаются к бывшему товарищу, некогда первому охотнику страны. Тот отказывается помогать, однако его сын после ссоры с отцом вступает в ряды охотников...Производство: Южная Корея / Next Entertainment WorldЖанр: драма, триллерРежиссер: Хун Чжон ПакАктеры: Мин Сик Чхве, Ман Сик Чон, Сан Хо Ким (I), Ю Бин Сон, Рен Осуги, Сок Вон Чон, Ми Ран Ра, Чжэ Мён Рю, Хон Фа Ким, Чон Кук У, Ин Су Пак, Ха Сок Чо, На Ра Ли, Сын Мин ХёнПеревод: профессиональный многоголосый, любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 02:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D58FB5FC0E747C391CA5919531A9A864732473C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761429   (36689) от 20.11.2024
 
 Слепое чудовище / Moju / Blind Beast (1969) BDRip [H.264] [VO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36689.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36406.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ V.I.P. / V.I.P. / Beuiaipi (2017) BDRip [H.264] [MVO]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36271.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36174.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36050.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35963.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35751.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35645.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35256.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35200.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34964.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34886.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34696.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34557.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34436.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33903.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33662.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33421.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32929.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32825.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32821.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30736.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30312.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30299.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1CBC1875D967A5F4590012ACA0345B567D7515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776557   (29024) от 01.02.2025
-
-Леди Каруидзава / Karuizawa fujin (1982) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студент университета отправляется на популярный горный курорт, чтобы подработать официантом, и заводит романтические отношения с женщиной постарше из богатой семьи...Производство: Япония / NikkatsuЖанр: драма, эротикаРежиссер: Масару КонумаАктеры: Мива Такада, Такаюки Годаи, Синдзиро Эхара, Акэми Нэгиси, Ёсио Цутия, Ёко Адзуса, Тосиюки Китами, Масанори Ириэ, Масато Ито, Юсукэ КоикэПеревод: любительский одноголосый (Сергей Гост)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48394931ADB224950E2308F401AAAC8F87356149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776765   (28915) от 02.02.2025
-
-Азуми / Azumi (2003) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средние века. В течение нескольких лет в уединённом месте десять детей под руководством Учителя осваивали науку убивать. Теперь они стали самыми искусными воинами. Пройдя последнее учебное испытание - парный поединок с лучшим другом, в котором в живых мог остаться только один - пятеро убийц-профессионалов, в том числе и лучшая из них юная Азуми, отправляются выполнять (   Читать дальше...   )Производство: Япония / Amuse Pictures Inc., Nippon Herald Films...Жанр: фэнтези, драма, боевик, триллерРежиссер: Рюхэй КитамураАктеры: Ая Уето, Шун Огури, Хироки Наримия, Кенджи Кохаши, Такатоши Канеко, Юма Ишигаки, Ясуоми Сано, Шиньджи Сузуки, Eita, Шого ЯмагучиПеревод: многоголосый (Cinema Prestige), одноголосыйЯзык озвучки: русский, японскийСубтитры: отсутствуютПродолжительность: 02:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C2CF35991047FA8540C6415C436DE3C0EA2922
 ```
 
 https://mybot314.ru/tekegram_catalog/

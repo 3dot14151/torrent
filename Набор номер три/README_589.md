@@ -1,3 +1,212 @@
+###  Публикация: 1668822   (172898) от 15.10.2023
+
+Искусственный интеллект создал странного ходячего робота: он не похож ни на что из существовавшего ранее
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа американских исследователей в публикации в Proceedings of the National Academy of Sciences рассказала о том, что искусственный интеллект по их запросу должен был разработать робота, способного ходить.В результате у него получился (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668906   (172883) от 15.10.2023
+
+Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 10.2023
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172883.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор самых необходимых (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B63A17274EE60C2E6FF3135BCA2E3B20469B746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668922   (172729) от 16.10.2023
+
+Россия научила Америку плохому. Сотовый оператор из США насильно переводит клиентов на дорогие тарифы «ради их же выгоды»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172729.jpg" />
+</div>
+
+
+###  Подробнее
+
+T-Mobile вынуждает абонентов переходить на новые более дорогие тарифы, утверждая, что они более выгодные. Разница в абоненткой плате – около 10%, притом не в пользу новых тарифов. Схожие рекламные уловки постоянно применяют российские операторы – их новые тарифы зачастую менее выгодны абонентам в сравнении со старыми, но это тщательно вуалируется.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669467   (172701) от 16.10.2023
+
+Adobe Photoshop Lightroom Classic 13.0.1.1 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8D307E183BF5EFE3944463DA1E75C52187D7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669294   (172693) от 16.10.2023
+
+Lords of the Fallen (2023) [Ru/Multi] (1.1.191/dlc) Repack Other s
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lords of the Fallen представляет совершенно новое эпическое ролевое приключение в огромном и сложном мире, который как минимум в пять раз больше мира оригинальной игры. После эпохи жестокой тирании демон-бог Адыр наконец был побежден. Но боги не гибнут навеки. И теперь, века спустя, близится воскресение Адыра. Станьте одним из знаменитых Темных крестоносцев и отправляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: HEXWORKSЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский (отдельно), Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский (отдельно), Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE38E1FBFE1E40ACBD323F8154AC74F96E74356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455820   (172691) от 16.10.2023
+
+English Galaxy v1.6.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172691.jpg" />
+</div>
+
+
+###  Подробнее
+
+English Galaxy - уникальное приложение для тех, кто хочет выучить английский язык с нуля до продвинутого уровня по грамматике и словарному запасу одновременно. Наша система обучения разработана на основе уникального авторского курса, который не имеет аналогов. Данный авторский курс состоит из 6 разделов, где представлены уроки с нуля до продвинутого (A0 - C1). Данные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.06.2023Разработчик: English GalaxyПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694B2F730AB311C75B524558088CDA212EE7B868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669572   (172528) от 17.10.2023
+
+Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2021 by Eagle123 (10.2023) [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 v22H2 19045.3570 и Windows 10 Корпоративная LTSC v21H2 19044.3570, включающие в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 10.2023, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6F67AADFCF6BC8515ACF20E71ED52D36FD1A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669475   (172414) от 18.10.2023
+
+Названа самая продаваемая игра в истории
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Minecraft рассказали о рекордных продажах игры. Об этом сообщает издание Windows Central.Во время мероприятия Minecraft Live представители студии Mojang заявили, что поставили новый рекорд по продажам игры. По их словам, тайтл распродали тиражом 300 миллионов копий. «Наше невероятное сообщество превратило Minecraft в то, чем оно является сегодня, и в (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567559   (172154) от 19.10.2023
 
 The Mortuary Assistant (2022) [Ru/Multi] (1.2.3) Repack Other s
@@ -6,7 +215,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (1.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172154.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172150.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171994.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ Kaspersky Free 21.15.8.493 Repack by LcHNextGen (20.10.2023) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171966.jpg" />
 </div>
 
 
@@ -110,7 +319,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.0 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171803.jpg" />
 </div>
 
 
@@ -137,7 +346,7 @@ MInstAll v.21.10.2023 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171616.jpg" />
 </div>
 
 
@@ -163,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171611.jpg" />
 </div>
 
 
@@ -189,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171610.jpg" />
 </div>
 
 
@@ -215,7 +424,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5413.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171609.jpg" />
 </div>
 
 
@@ -241,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171468.jpg" />
 </div>
 
 
@@ -267,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171460.jpg" />
 </div>
 
 
@@ -293,7 +502,7 @@ MInstAll v.21.10.2023 By Andreyonohov (Unpacked) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171449.jpg" />
 </div>
 
 
@@ -319,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171305.jpg" />
 </div>
 
 
@@ -345,7 +554,7 @@ F-Secure Freedome VPN 2.69.35.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171280.jpg" />
 </div>
 
 
@@ -371,7 +580,7 @@ Windows 11 22H2 (x64) 24in1 +/- Office 2021 by Eagle123 (10.2023) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171279.jpg" />
 </div>
 
 
@@ -397,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171278.jpg" />
 </div>
 
 
@@ -425,7 +634,7 @@ Adobe Lightroom Classic for Mac 13.0.1 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171276.jpg" />
 </div>
 
 
@@ -451,222 +660,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171123.jpg" />
 </div>
 
 
 ###  Подробнее
 
 В первом полугодии заметно выросло количество нелегальных ресурсов с медийным контентом (книги, фильмы, музыка), отмечает «Коммерсантъ» со ссылкой на данные опроса TelecomDaily. В отношении фильмов рост пиратства в основном наблюдается в части западной продукции, сообщили в официальных онлайн-кинотеатрах. Попытки властей вернуть зарубежный контент на легальные площадки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840870   (171098) от 25.10.2023
-
-Counter-Strike: Global Offensive (2012) [Ru/Multi] (1.38.8.1) Repack SE7EN
-
->>3
->>61
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Counter-Strike: Global Offensive - командный тактический шутер с видом от первого лица. Игрок принимает участие в конфликте между террористами и полицейскими. Counter-Strike: Global Offensive – призван углубить и усовершенствовать ту самую командную игровую механику «пять на пять», за которую все и полюбили Counter-Strike.Тип издания: RepackРазработчик: Valve Corporation, Hidden Path EntertainmentЖанр: MMO Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Русский и другиеЯзык интерфейса: Английский, Русский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C74B593455CC1C53A50E15AAD8130E8AE9E00F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343576   (170871) от 09.12.2019
-
-Евросоюз не разрешил использование стабильных криптовалют на своей территории
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_170871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евросоюз не разрешил использование на своей территории стабильных криптовалют (криптовалют, обеспеченных материальными ценностями). Об этом говорится в утвержденном в четверг заявлении Совета ЕС на уровне министров по экономике и финансам (ЭКОФИН)."Никакие глобальные стабильные криптовалюты не должны начать легально использоваться на территории ЕС до тех пор, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692163   (170727) от 09.12.2019
-
-Битва за Москву (1985) DVDRip [H.264] [Реставрация]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киноэпопея в двух фильмах.
-В фильме "Агрессия" показаны события, происходившие в Европе, на территории СССР накануне и в начале Второй мировой войны. Интереснейшая картина смотрится захватывающе. С первых дней войны столица СССР начала готовиться к обороне. Были эвакуированы учереждения и заводы, посольства и министерства. В Москву из Ленинграда, чтобы (   Читать дальше...   )Производство: СССР, Чехословакия, Германия (ГДР), Вьетнам / Мосфильм, Deutsche Film (DEFA), Filmové studio Barrandov, Defa, Favim VRЖанр: Военный, ДрамаРежиссер: Юрий ОзеровАктеры: Яков Трипольский, Михаил Ульянов, Александр Голобородько, Бруно Фрейндлих, Николай Засухин, Анатолий Никитин, Владимир Трошин, Степан Микоян, Вячеслав Езепов, Юозас БудрайтисПродолжительность: 4 серии - 05:38:05 (01:17:52 + 01:28:17 + 01:23:05 + 01:28:51)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A176FDBCFD13CF8BE1F3A700FE057E8ACCA8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070624   (170723) от 09.12.2019
-
-City Car Driving (2016) [Ru/Multi] (1.5.9) Repack Other s [Home Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170723.jpg" />
-</div>
-
-
-###  Подробнее
-
-City Car Driving – реалистичный симулятор вождения автомобиля, который поможет вам освоить базовые навыки управления машиной в различных дорожных условиях, с погружением в среду, максимально приближенную к реальной. "Умный" трафик, непредсказуемые пешеходы и внезапные опасные ситуации не дадут расслабиться и будут поддерживать атмосферу реальной дорожной (   Читать дальше...   )Тип издания: RepackРазработчик: Forward Development, Ltd.Жанр: Simulator (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF6F4FCDF54E1E5B26CAAF08000E00356206D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794   (170641) от 05.12.2021
-
-Tom Clancy's Splinter Cell: Double Agent (2006) [En] (1.02) License
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовьтесь спасать мир, Сэм Фишер снова в работе! Четвёртая часть знаменитой серии Tom Clancy`s Splinter CellTM предлагает Вам принципиально новый геймплей - захватывающий, насыщенный и напряженный. Сэм Фишер вернулся, но никогда ещё ветеран спецслужб не оказывался в столь сложной ситуации: лицом к лицу с опасным, умным и жестоким врагом. На этот раз агент сверхсекретного (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft Shanghai, Ubisoft Annecy и Ubisoft MilanЖанр: Action (Shooter), 3D, 1st Person, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0423A423AA0135F005E4CB24AC09C8128E2F1442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596052   (170619) от 08.12.2022
-
-Сердце пармы (2022) WEBRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский князь Михаил и юная Тиче — дети разных народов, разных миров и разных богов. Любовь молодого воителя и ведьмы-ламии кажется невозможной, но преодолевает все запреты, запуская маховик рока. Отныне только от Михаила зависит будущее родной пармы, древних суровых земель, напоенных чудодейственной мощью кровавых языческих богов. Здесь сталкиваются герои и призраки, (   Читать дальше...   )Производство: Россия, Профит, Star MediaЖанр: драма, фэнтезиРежиссер: Антон МегердичевАктеры: Александр Кузнецов, Елена Ербакова, Сергей Пускепалис, Евгений Миронов, Виталий Кищенко, Фёдор Бондарчук, Владимир Свирский, Роза Хайруллина, Елена Панова, Александр ГорбатовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95416C869CFB2FCFB62EEB5AD4E3E9F9048A36BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595682   (170614) от 08.12.2022
-
-Бесплатная лицензия Steganos VPN Online Shield Premium – безлимитный трафик на 1 год
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_170614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите бесплатную лицензию Steganos VPN Online Shield на 1 год (Premium с безлимитным трафиком) для 1 устройства. VPN-сервис для Windows, MacOS, Android и iOS защищает ваши личные данные, используя шифрование Интернет-соединения(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671441   (170606) от 26.10.2023
-
-В США открылись десятки автостоянок для тех, кто живет в авто
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_170606.jpg" />
-</div>
-
-
-###  Подробнее
-
-NYT рассказывает историю женщины по имени Одет. Ей 49 лет, она получает более $72.000 в год, работая социальным работником в Департаменте социального обеспечения и здравоохранения штата Вашингтон. Но сочетание невезения, плохих долгов и плохой кредитной истории вынудило её покинуть квартиру в Белвью. Теперь она живёт в машине.Автомобиль, ее самая большая инвестиция, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

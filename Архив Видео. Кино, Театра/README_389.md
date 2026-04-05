@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260291.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260242.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260150.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260147.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260109.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260009.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259994.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259985.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259948.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259946.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259891.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259811.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259754.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259734.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259706.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259694.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259670.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259667.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259664.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259637.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259589.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259565.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259487.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259484.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259483.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259477.jpg" />
 </div>
 
 

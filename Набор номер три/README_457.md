@@ -1,3 +1,212 @@
+###  Публикация: 1067778   (370322) от 05.11.2016
+
+BELOFF 2016.10.1 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. В сборник дополнительно добавлены портативные приложения, которые можно будет легко использовать как с диска и виртуального привода, так и с USB-накопителей, включая установку MInstAll и WPI. Для большего удобства использования сборника добавлено (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956C25FDA803FF2EC4C5372518CBAC9D07C6F984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069819   (370320) от 05.11.2016
+
+Adobe Acrobat Pro DC 2015.020.20042 Repack by D!akov [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C782B5A0191661C3443513B27B39545AF6AC8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820274   (370318) от 28.10.2014
+
+Подпольная империя / Преступная империя / Boardwalk Empire (2014) HDTV [H.264/720p-LQ] (Сезон 5, серии 1-8 из 8) (Amedia)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний сезон эпической гангстерской саги об Америке времен сухого закона. Прошло 7 лет с тех пор, как мы в последний раз видели Наки Томпсона. Великая Депрессия окончена. Наступили новые времена, и в них уже нет места непотопляемому королю Атлантик-Сити и его подпольной империи. Ему предстоит принять свой последний бой.Жанр: Драма, криминалРежиссер: Тимоти Ван Паттен, Аллен Култер, Джереми ПодесваАктеры: Анна Катарина, Стив Бушеми, Тодд Фредерикс, Уильям Хилл, Джек Хьюстон, Николас Мартино, Пьер О'Фэррелл, Кен Следик, Ши Уигхэм, Алекса Палладино и др.Перевод: Профессиональный многоголосый закадровый - АРК·ТВ по заказу AmediaОзвучка: Елена Шульман, Ирина Киреева, Валерий Сторожик, Сергей Чихачёв, Иван Литвинов, Денис НекрасовЯзык субтитров: Русский, английскийФормат: MKVПродолжительность: ~00:59:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8F1E18025226373182F08D40E60129CCCBC589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069783   (370315) от 05.11.2016
+
+Red Giant Magic Bullet Suite 13.0.1 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Bullet Suite 13 представляет собой пакет плагинов, используемых для профессиональной цветокоррекции, регулировки освещения в программах: After Effects, Premiere Pro, Edius 8, Vegas. Magic Bullet Люкс 13 включает в себя семь продуктов, шесть из которых были модернизированы, среди которых: Magic Bullet Looks 4, Colorista IV, Denoiser III, Mojo II, Cosmo II, Film (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B9926DE5C512175A6B2540C2C4D19003C37C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070052   (370310) от 05.11.2016
+
+Adobe Photoshop CC 2017 (2017.0.0) [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC — программа для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, трансформации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2016Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA399F1D89CBAB1DB4B67B8FD3BC6C80BB4C3CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068188   (370308) от 05.11.2016
+
+Дуэлянт (2016) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370308.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета профессиональный дуэлянт, который зарабатывает на жизнь, участвуя в поединках за других людей.Производство: Россия, Non-Stop ProductionЖанр: ДрамаРежиссер: Алексей МизгирёвАктеры: Пётр Фёдоров, Владимир Машков, Юлия Хлынина, Франциска Петри, Мартин Вуттке, Сергей Гармаш, Павел Табаков, Юрий Колокольников, Александр Яценко, Пьер БуреПеревод: Не требуется (русский) iTunesПродолжительность: 01:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4669801928586F717B5BF2F3BAAB928D6D7A5525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575717   (370065) от 12.09.2022
+
+Опубликован свободный звуковой кодек FLAC 1.4
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_370065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя девять лет с момента публикации прошлой значительной ветки сообщество Xiph.Org представило новую версию свободного кодека FLAC 1.4.0, обеспечивающего кодирование звука без потери качества. FLAC использует только методы кодирования без отбрасывания данных (lossless), что гарантирует полную сохранность изначального качества звукового потока и его идентичность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574764   (369940) от 14.11.2012
+
+AntiSMS 3.0 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффективная программа для быстрого автоматического лечения блокировщиков и троянов.
+В раздаче находится образ загрузочного диска и утилита для его записи на флешкуНазвание программы: AntiSMSЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327589   (369777) от 27.09.2019
 
 Google больше не будет. прослушивать разговоры пользователей без их разрешения
@@ -6,7 +215,7 @@ Google больше не будет. прослушивать разговоры
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369777.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ Windows 7 xDark™ Deluxe v4.5 x64 RG - Codename: State Of Independence [OKT. 01
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369766.jpg" />
 </div>
 
 
@@ -60,7 +269,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan [TV-3] | Атака титанов
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369747.jpg" />
 </div>
 
 
@@ -86,7 +295,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 18.10.10 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369745.jpg" />
 </div>
 
 
@@ -112,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369701.jpg" />
 </div>
 
 
@@ -138,7 +347,7 @@ Diskeeper 2012 Professional Edition 16.0.1017 (32 & 64bit) [Английский
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369699.jpg" />
 </div>
 
 
@@ -166,7 +375,7 @@ CyberGhost VPN 4.7.19.1229 [MULTi / Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369698.jpg" />
 </div>
 
 
@@ -194,7 +403,7 @@ Might And Magic. Heroes 6 / Меч и магия. Герои 6 [Ru/En] (Repack/1
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369695.jpg" />
 </div>
 
 
@@ -222,7 +431,7 @@ Call of Duty: Black Ops 2/II (2012) [Ru] (1.0.0.1) SteamRip R.G. Origins [Digita
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369694.jpg" />
 </div>
 
 
@@ -248,7 +457,7 @@ Microsoft Office 2013 VL RUS-ENG x86-x64 (AIO)
 >>18
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369693.jpg" />
 </div>
 
 
@@ -274,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369608.jpg" />
 </div>
 
 
@@ -300,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369492.jpg" />
 </div>
 
 
@@ -326,7 +535,7 @@ Windows 7 Professional SP1 x64 Game OS 2.7 by CUTA [Ru]
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369484.jpg" />
 </div>
 
 
@@ -352,7 +561,7 @@ System Ninja 3.1.1 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369401.jpg" />
 </div>
 
 
@@ -378,7 +587,7 @@ Monument Valley v2.4.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369290.jpg" />
 </div>
 
 
@@ -404,7 +613,7 @@ Adobe Illustrator CC 2015 (v19.1.1) x86-x64 RUS/ENG Update 3
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369281.jpg" />
 </div>
 
 
@@ -430,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369277.jpg" />
 </div>
 
 
@@ -456,7 +665,7 @@ HD Tune Pro 5.60 RePack (& portable) by KpoJIuK (25.10.2015) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369272.jpg" />
 </div>
 
 
@@ -467,219 +676,6 @@ HD Tune Pro - программа для планомерного детальн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DD3573F94E404DDF3604F566412A0F7797D4129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895556   (369271) от 26.10.2015
-
-Need for Speed Most Wanted  v1.3.69 [Ru] Mod Money
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need For Speed: Most Wanted для андроид - долгожданные гонки от EA Games добрались и на ваши устройства! Вас порадуют эффекты столкновений, реализованные при помощи новой физики, теперь аварийные ситуации выглядят ещё более реалистично. Царапины на кузове, разбитые стекла и фары, всё это так же присутствует в Need for Speed Most Wanted для андроид!
-От сумасшедших (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 2 сентября 2015 г.Разработчик: ELECTRONIC ARTSПоддерживаемая ОС: Android 2.3+Жанр: RacingЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C47B1EC536A20D20D7008ED5F69A52B7943724B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811563   (369270) от 26.10.2015
-
-Shadows Heretic Kingdoms (2014) [Ru/Multi] (1.0.0.8183/dlc) SteamRip Let'sPlay
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadows: Heretic Kingdoms это очередная глава саги Heretic Kingdoms, захватывающая экшен-рпг, разработанная студией Games Farm. Игра будет издана в 4 квартале 2014 года компанией bitComposer Games.
-Действие игры происходит через несколько лет после событий Kult: Heretic Kingdoms. Игроки окажутся втянуты в жуткий заговор и отправятся в эпическое путешествие по мрачному (   Читать дальше...   )Тип издания: SteamRipРазработчик: Games FarmЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE266948DD92A8DE2C44D5E2DFA1E55417506ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416163   (368986) от 15.10.2020
-
-DEATH STRANDING (2020) [Ru/Multi] (1.02) License CPY
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный разработчик Хидео Кодзима выпускает новую знаковую для жанра игру. Сэм Бриджес должен преодолеть мир, трансформированный Петлёй смерти. Держа в своих руках бессвязные остатки нашего будущего, он отправился в дорогу, чтобы восстановить связь между осколками мира. В главных ролях: Норман Ридус, Мадс Миккельсен, Леа Сейду и Линдси Вагнер.Тип издания: LicenseРазработчик: KOJIMA PRODUCTIONSЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B07CEC3E00CD99FDBF6B3FA0664EF7B0CED29C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416162   (368982) от 15.10.2020
-
-Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) License CPY
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть криминальной саги Mafia — 30-е годы, Лост-Хэвен, Иллинойс. Ремейк культовой игры, воссозданной с нуля. Постройте карьеру мафиози во времена сухого закона. После случайной встречи с мафией таксист Томми Анджело попадает в мир организованной преступности. Сначала он настороженно относится к семье Сальери, но большие деньги меняют его отношение…Тип издания: LicenseРазработчик: Hangar 13Жанр: Action, Adventure, Crime, Remake, Story RichЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F7A28AD29F3383C38AAB70616186D4A0996C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411718   (368981) от 15.10.2020
-
-Serious Sam 4 (2020) [Ru/Multi] (1.04/dlc) Repack Other s [Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество находится в осаде, орды Ментала распространяются по всему миру, уничтожая остатки сломленной и разбитой цивилизации. Последнее препятствие на пути захватчиков - Армия Обороны Земли, возглавляемая Сэмом Стоуном по прозвищу Крутой Сэм и его вооруженным до зубов отрядом солдат. Croteam возвращаются с мощнейшим приквелом к серии игр Крутой Сэм, увеличивая (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter, Survival), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854E2ACA416DE5B343C703A7E8AE061EF61C10A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416161   (368980) от 15.10.2020
-
-Вадим Прокопчук | Верстка сайтов от 0 до 1 (2020) PCRec
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как все происходит - 7 недель онлайн.
-В личном кабинете онлайн школы Вы будете получать 3 урока в неделю.
-В каждом уроке несколько видео для лучшего усвоения информации. После каждого урока домашнее задание. Проверка самостоятельно или ментором.
-По субботам будут проходить открытые вебинары: вопрос - ответ со мной, общий разбор домашних заданий, рандомные домашнее (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 35:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D60F331657BD7281416EE04190226124A0378F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176667   (368969) от 22.10.2017
-
-Acronis BootCD 7PE x86/x64 by naifle (22.10.2017) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis BootCD WinPE - загрузочный диск, содержащий пакет последних версий двух наиболее популярных русскоязычных программ компании Acronis - Acronis True Image и Acronis Disk Director, предназначенных для резервного копирования, создания точных образов жесткого диска и его отдельных областей. В числе функций диска восстановления системы, управление разделами: создание, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EFA4C8EF399A48E1E58680FD1AC5C07493D9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028835   (368962) от 22.10.2017
-
-Grim Dawn (2016) [Ru/En] (1.0.2.1/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grim Dawn - духовный наследник Titan Quest, который создается усилиями молодой студии Crate Entertainment основанной выходцами из Iron Lore Entertainment. Игра представляет из себя экшен/RPG выполненной в фэнтезийной стилистике. Действие сюжета Grim Dawn разворачивается в империи Каирн, ставшей полем битвы двух потусторонних сил. Одна собирается использовать людей (   Читать дальше...   )Тип издания: RepackРазработчик: Crate EntertainmentЖанр: RPG, Rogue, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DE194CDFE7783C1DF0F9D21E4D9B20C956CDB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

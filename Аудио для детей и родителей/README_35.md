@@ -1,3 +1,30 @@
+###  Публикация: 1401255   (711342) от 09.08.2020
+
+Владислав Крапивин | Такая была планета (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это удивительный, наполненный солнцем, запахами, вкусами и ощущениями лета рассказ. Рассказ, после которого тепло на душе и улыбка еще долго не уходит в памяти на второй план.
+Короткими штрихами он рисует потрясающе правдивые образы. Он возвращает в памяти детство.Жанр: Детская литератураПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87322339A32933590A1EDE81CA5A169CB8208FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532929   (710899) от 21.02.2022
 
 Лев Семенович Выготский | Проблема обучения и умственного развития в школьном возрасте (2016) [MP3, Александр Бордуков]
@@ -6,7 +33,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710899.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709955.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706029.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ VA - Babydream.Traume sub. vol.3 (2001) [MP3|320 kbps]<Колыбельная м
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706017.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ VA - Brazilian lullaby (1999) [MP3|320 kbps]<Колыбельные для ма�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706016.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705798.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705797.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705796.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705700.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705684.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705315.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705302.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705297.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ VA - Baby Einstein (2000-2006) (5CD) [MP3|192-320 kbps]<Классическая
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705119.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704927.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ VA - Die 30 Schonsten Kinderlieder (2002) [MP3|128 kbps]<Детские песе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704176.jpg" />
 </div>
 
 
@@ -442,7 +469,7 @@ VA - Zecchino D'Oro 53a Edizione (2010) (2CD)  [MP3|320 kbps]<Детские п�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704175.jpg" />
 </div>
 
 
@@ -471,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704061.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704053.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ VA - Philadelphia Chickens (2002) [MP3|140-160 kbps]<Детские песенк
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703999.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703980.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703929.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703812.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701962.jpg" />
 </div>
 
 
@@ -665,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701849.jpg" />
 </div>
 
 
@@ -677,32 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09B8AB10A60E818D75869FB2C1B6500DAC9EF747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402429   (701829) от 14.08.2020
-
-Николай Носов | Тайна на дне колодца (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Тайна на дне колодца» отличается от других, вышедших из-под пера замечательного детского писателя Николая Носова. В ней он рассказывает о своём детстве и о событиях, которые ему пришлось пережить. По словам автора, герой повести – он сам. «Так можно сказать, но это будет верно только отчасти. Когда я писал, мне хотелось, чтобы читатели увидели в моём герое (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 11:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82364997E85207723013AE097D753718667DD97
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1416331   (1039188) от 15.01.2021
+
+Torchlight III (2020) [Ru/Multi] (6056074/dlc) Repack xatab
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сто лет прошло со времени событий Torchlight II, и Эмберитовая Империя переживает упадок. В Torchlight III Новастрайе снова угрожает вторжение, и именно вам предстоит ее защищать от Нетерим и их приспешников. Cобирайтесь c мыслями, и вперед – на рубежи, навстречу славе, известности и новым приключениям!Тип издания: RepackРазработчик: Echtra Inc.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E9444D4D4A6D7A98AE1057B1CC39207D9EAFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614127   (1038708) от 21.02.2023
+
+Perseus: Titan Slayer (2023) [Ru/Multi] (1.1.0) Repack DjDI
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perseus: Titan Slayer - Free Trial - это возможность погрузиться в динамические приключения, где юзерам приходится насладиться древнегреческим сеттингом. Выйдет столкнуться с Аидом и его мифологическими существами, которые будут нападать на протагониста. Герой вынужден побеждать титанов, пробираясь с боем через Царство Теней, чтобы спасти Олимп. Проект является экшен-рогаликом, (   Читать дальше...   )Тип издания: RepackРазработчик: SicariusЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4ADDA1D715FC744DA05EF9D393829019FCB6140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310563   (1038617) от 17.01.2021
 
 Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.20.0.57604/dlc) Repack xatab
@@ -6,7 +58,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.20.0.57604/dlc) Repack xa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038617.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.5d/dlc) Repack xatab [Definitive Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037869.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.0.2) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037694.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Vampires Dawn 3 - The Crimson Realm (2021) [Multi] (1.11g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037430.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (1.4) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036765.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Rebel Galaxy Outlaw (2020) [Ru/Multi] (1.18d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036763.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.7.3.0.5135400/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036754.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.02/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035511.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035506.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Disjunction (2021) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035031.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Outward (2019) [Ru/Multi] (1.3.3/dlc) Repack xatab (обновляемая)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034750.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Battle Brothers (2017) [Ru/En] (1.4.0.47/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033836.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (2.3.0.5(a)) License GOG [Digital 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033815.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Sunrider 4: The Captain's Return (2023) [En] (1.2.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033808.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Vampire: The Masquerade - Coteries of New York (2019) [Ru/Multi] (1.0.12) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033804.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Empire of Sin (2020) [Ru/Multi] (1.03/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032605.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032194.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Windbound (2020) [Ru/Multi] (1.3.40746.183/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030299.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030166.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ WILD HEARTS (2023) [Multi] (1.1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029955.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029633.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Immortals: Fenyx Rising (2020) [Ru/Multi] (1.1.1) License EMPRESS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029435.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Disco Elysium (2019) [Ru/Multi] (8487d973) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029421.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029211.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (1.03) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A8C8EB96791EA7DE6F9262BA2EBBDCF5EB34FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510788   (1029204) от 02.04.2023
-
-Ruined King: A League of Legends Story (2021) [Ru/Multi] (60323/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соберите отряд чемпионов из League of Legends, исследуйте Билджвотер и отправьтесь на Сумрачные острова, чтобы раскрыть тайны смертельно опасного черного тумана. Игра разработана студией Airship Syndicate, создавшей Battle Chasers и Darksiders, и оформлена знаменитым художником комиксов Джо Мадурейра в его стиле. Ruined King: A League of Legends Story – первый проект (   Читать дальше...   )Тип издания: LicenseРазработчик: Airship SyndicateЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: Русский, Английский, Немецкий, Турецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999D6AFAC3365A595A8AF2F95C17F87C6A0A6854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451106   (1028577) от 28.02.2021
-
-The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2011) [Ru/Multi] (3.5.0.26a/dlc) Repack West4it [Enhanced Edition / Расширенное Издание]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит попробовать себя в роли ведьмака Геральта из Ривии, профессионального убийцы монстров. Очутившись в эпицентре политического хаоса, Геральту удается остановить Великого магистра Ордена Пылающей Розы. Вскоре после этого на короля Фольтеста покушается таинственный убийца, очень похожий на ведьмака. Геральту удается спасти короля и он становится его телохранителем.Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A993B78C0F6A178DA3AD7DF7257ACE1609ABC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

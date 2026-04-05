@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337373.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337367.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337363.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337187.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337183.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Comedy Woman (11.10.2019) WEB-DLRip (сезон 9, выпуск 6)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336377.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336366.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335919.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335888.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335831.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335755.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335214.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335068.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334775.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333578.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332791.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Comedy Баттл. Последний сезон. Этап 2. Выпуск №33
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331051.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Comedy Woman  (2015.11.13) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330907.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330828.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330789.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Comedy Баттл. Последний сезон. Выпуск №33  / Коме
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330327.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330169.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330151.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329411.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329204.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Stand Up. Сезон 3. Выпуск №9 (2015.11.15) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329178.jpg" />
 </div>
 
 

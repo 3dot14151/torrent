@@ -1,3 +1,32 @@
+###  Публикация: 1640910   (236879) от 20.06.2023
+
+Schizofrantik - Truth Is An Illusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truth Is An Illusion [00:07:25]
+02. Black Coats [00:04:59]
+03. Singularity [00:06:00]
+04. Princess And Dinosaur [00:05:31](   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD689D54D6D696AA0744B43BB484398EDD6EEFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608169   (236878) от 29.01.2023
 
 Anasazi - cause & consequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Rock>
@@ -6,7 +35,7 @@ Anasazi - cause & consequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236878.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sepultura - A-Lex (2009) Remaster, 2021, BMG Rights Management [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236872.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Reckless Love - 5 альбомов (2010 - 2022) [FLAC|Lossless|image + .cue, tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236871.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Liv Kristine - River of Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236864.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236844.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Disturbed - Prayer (2002) Maxi-Single [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236843.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Toychild - This Won’t Hurt At All (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236841.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Livlos - And Then There Were None (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236827.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Disturbed - Live and Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236822.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236820.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Rainbows Are Free - Heavy Petal Music (2008) Restore, 2023, Ripple Music [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236816.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Gartraada - A Night Of Winter Solstice (2013) [FLAC|Lossless|image + .cue] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236815.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Madrugada - 8 Albums (1999 - 2022) [FLAC|Lossless|tracks+.cue]<Indie, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236811.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Whitesnake - Still Good To Be Bad (2008) Remix, Remastered, 2023, Rhino Entertai
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236810.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Cancervo - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236805.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ The Replacements - Sorry Ma, Forgot To Take Out The Trash (1981) Deluxe Edition,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236804.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Buster No - Buster No (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236799.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Exilia - Heroes and Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236797.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236790.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Bronco Forte - Bronco Forte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236784.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Deathstars - Everything Destroys You (2023) [FLAC|Lossless|WEB-DL|tracks] <Indus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236780.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Destronomer - The Two Horns (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236778.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236772.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Abysslooker - 2 Albums (2020-2022) [MP3|320 Kbps] <Alternative, Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236767.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Sugarcult - Start Static (2001) 20th Anniversary Edition, 2021, Fearless Records
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236758.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Sugarcult - Start Static (2001) 20th Anniversary Edition, 2021, Fearless Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4617FC3AD54FEF0C31A463D6D41AF90995BDC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456099   (236756) от 21.03.2021
-
-Arret's Odyssey - Arret's Odyssey (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unending Nightmare [00:04:24]
-02. The Odyssey [00:05:02]
-03. Cosmic Vibrations [00:06:00]
-04. Equinox [00:06:06](   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD79BC224717CE548DE270E0930E17171701E64
 ```
 
 https://mybot314.ru/tekegram_catalog/

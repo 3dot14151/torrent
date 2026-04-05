@@ -1,3 +1,148 @@
+###  Публикация: 1504834   (808428) от 25.10.2021
+
+We're Wolves - Evil Things (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Alt.Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Hell (feat. Bryan Kuznitz of Fame On Fire)
+02. Wasteland
+03. Life Of A Parasite
+04. Wrath(   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, Alt.MetalПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E747415664DF7A9F226FD5B297EAB0E3C50DB3CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198307   (808401) от 11.01.2018
+
+Crack The Sky - Animal Notes / Safety In Numbers (1976-1977) Reissue, 1989, Lifesong [MP3, 320 Kbps] <Prog Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808401.jpg" />
+</div>
+
+
+###  Подробнее
+
+ANIMAL NOTES (1976)
+1. We Want Mine
+2. Animal Skins
+3. Wet Teenager(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ED48B24D54362B0B867E0A9986533BBE012541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198221   (808400) от 11.01.2018
+
+New Politics - Lost in Translation (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CIA
+02. One of Us
+03. Tell Your Dad (feat. Rivers Cuomo)
+04. Madeleine(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED53A877890B45ACCE1F7A48029A8504A4CA33A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198443   (808399) от 11.01.2018
+
+Tonight Alive - Underworld (2018) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Book of Love
+02. Temple
+03. Disappear (feat. Lynn Gunn)
+04. The Other(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61441F8AF98FF2D54CF7A36B1E8A7AE7B5E27A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198479   (808395) от 11.01.2018
+
+Amy Lee - Recover, Vol. 1 (2016) EP [MP3|320 Kbps] <Rock, Synth-Pop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Fire (03:38)
+02. With or Without You (04:08)
+03. Going to California (03:23)
+04. Baby Did a Bad Bad Thing (02:45)Жанр: Rock, Synth-Pop, ElectronicПродолжительность: 00:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA0B3F863767BD2200A3A43B7894CE829C85F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198517   (808393) от 11.01.2018
 
 Heidevolk - Vuur van Verzet (2018) [MP3|320 Kbps] <Folk Metal, Viking Metal>
@@ -6,7 +151,7 @@ Heidevolk - Vuur van Verzet (2018) [MP3|320 Kbps] <Folk Metal, Viking Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808393.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808334.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Black Rebel Motorcycle Club - Wrong Creatures (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808299.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Diablo Swing Orchestra - Pacifisticuffs (2017) [MP3|320 Kbps] <Avant-Garde Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808290.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Leaves' Eyes - Sign of the Dragonhead (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808287.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Clouds - Durere (2020) [FLAC|Lossless|Web-DL|tracks] <Melodic Doom, Funeral Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808275.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Elmsfire - Hour Of The Wolf (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808240.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ August Redmoon - Drums Of War (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808239.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ This Ending - Garden Of Death (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808237.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808214.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808207.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Black Veil Brides - Vale (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808157.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Choco (ex. Eloy) - Bubbles In Your Brain? (2014) [FLAC|Lossless|image + .cue]<Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808121.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Def Leppard - Too Many Jitterbugs (B-Sides and Rarities) (2020) [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808002.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Five Finger Death Punch - 11 Albums (2007-2020) 17 CD [FLAC|Lossless|Web-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807950.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807864.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Joe Satriani - What Happens Next (2018) [MP3|320 Kbps] <Instrumental Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807861.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ Geordie - Greatest Hits (2012) 2CD [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807789.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807717.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ ZZ Top - 9 альбомов (1970-2003) [FLAC|Lossless]<Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807669.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Enbound - The Blackened Heart (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807602.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Enbound - The Blackened Heart (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8B4630D2A0D84015E9C832A66575E7AB5C3B8D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009792   (807594) от 22.04.2016
-
-Агата Кристи - Коварство И Любовь (1991) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Art Rock, Goth Rock, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Агата Кристи - Инспектор По... (2:30)
-02. Viva Kalman! (2:40)
-03. Африканка (3:01)
-04. Сытая свинья (4:24)(   Читать дальше...   )Жанр: Art Rock, Goth Rock, AvantgardeПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E562C8C592F39D3880E3EFCBCB0D3C4EA73300A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119366   (807493) от 28.03.2017
-
-Harakiri for the Sky - III: Trauma (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling the Rain
-02. Funeral Dreams
-03. Thanatos
-04. This Life as a Dagger(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6932BABEA809B6647B20053BA13726EB5414F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009820   (807464) от 22.04.2016
-
-Агата Кристи - Позорная Звезда (1993) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Айлавью (4:16)
-02. Нисхождение (4:38)
-03. Сирота (4:19)
-04. Новый год (3:11)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737D4F6AC8376D17243968BC2E655BBCCFC978A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119433   (807348) от 28.03.2017
-
-Ol' 55 - Take It Greasy (1976) Reissue, 1991, Mushroom [FLAC|Lossless|tracks + .cue] <50's Classic Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Summertime, Summertime
-02. The Iridiscent Pink Sock Blues
-03. I Wonder Why?
-04. Almost Grown(   Читать дальше...   )Жанр: 50's Classic Rock, Rock'n'RollПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD958C943BC92669DE6012DD1331290B44781D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119482   (807342) от 28.03.2017
-
-Billy Swan - I Can Help (1974) Reissue, 1985, Epic [FLAC|Lossless|tracks] <Soft Rock, Country, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Please
-02. I Can Help
-03. I'm Her Fool
-04. I'd Like To Work For You(   Читать дальше...   )Жанр: Soft Rock, Country, Rock'n'RollПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A50249ADC746E4531F2E6EF4AFDE4AABB77FFCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

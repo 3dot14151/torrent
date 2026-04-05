@@ -1,134 +1,3 @@
-###  Публикация: 1481735   (1008134) от 04.07.2021
-
-Алексей Вербовой, Алексей Конеев | Военные речные флотилии в войнах XVIII–XX столетий в деле укрепления геополитического положения России (2019) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена вопросам создания и боевого применения речных военных флотилий на приречных театрах военных действий в войнах России с Турцией, Францией, Японией, Германией и Австро-Венгрией, происходивших в XVIII — начале XX века. Содержание работы не только отвечает современным представлениям исторической науки о рассматриваемых вопросах, но и в ряде случаев (   Читать дальше...   )Жанр: История военного делаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D87057726009E239A98BC08D036E69ADF9D851D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433824   (1008067) от 04.07.2021
-
-Н.М. Тупиков | Словарь древнерусских личных собственных имен (1903) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Словарь древнерусских личных собственных имен составлен крупнейшим специалистом по исторической антропонимики в дореволюционной РоссииЖанр: Исторические науки; ОномастикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAC2581AA7C78F57205C7594C3D96D4C9A8AFF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481730   (1008057) от 04.07.2021
-
-Елена Аверина и др. | Интенсивный курс английского разговорного языка по системе Авериной [3 книги] (2021) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами "Интенсивный курс английского разговорного языка по системе Е. Д. Авериной". Состоящий из трёх взаимодополняющих частей. Курс создан по методике, которая позволяет полноценно овладеть английским языком - думать на английском, говорить самому и понимать собеседника, читать без словаря, письменно излагать свои мысли, а при необходимости и синхронно (   Читать дальше...   )Жанр: Английский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6701D5A67B56CDFBEF2699B6245566476491151F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481812   (1008005) от 05.07.2021
-
-Вячеслав Рындин | Я обрёл бога в Африке: письма русского буш-хирурга (2021) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записки московского врача о своей 25-ти летней работе в Нигере, Анголе, Свазиленде и Южно-Африканской Республике, где он получил знания и профессиональный опыт, которые не принесли ему ни советское удостоверение хирурга высшей категории, ни диплом доктора медицинских наук. Книга рассчитана на студентов медицинских вузов и молодых врачей, но она доступна и развлекательна (   Читать дальше...   )Жанр: Биографии и мемуары, Книги о приключениях, МедицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933F0E313FAA689171DA47D9A788E5A8F97CF79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293289   (1007943) от 05.07.2021
-
-П.А.Бадмаев | Главное руководство по врачебной науке Тибета «Жуд-Ши» (1903) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система врачебной науки Тибета изложена в руководстве практической медицины и хирургии «Жуд-Ши», которую впервые перевёл на русский язык известный врач и основоположник врачебной науки Тибета в европейской части России - Бадмаев Пётр Александрович.
-Данное издание содержит две книги «Жуд-Ши» - первую и вторую. Примерно треть тома, около 80 страниц - труды самого Петра (   Читать дальше...   )Жанр: Нетрадиционная восточная медицина, раритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3704685D010DF9E2D36AE58E78943E1C7D18EB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 243998   (1007815) от 06.07.2021
 
 С.В.Максимов | Нечистая, неведомая и крестная сила (1903) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007815.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007760.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007753.jpg" />
 </div>
 
 
@@ -218,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007595.jpg" />
 </div>
 
 
@@ -244,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007593.jpg" />
 </div>
 
 
@@ -270,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007443.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007433.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007426.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007419.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ Indicator.ru | Автостопом по науке. 70 фактов из ист
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007406.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007284.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007182.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007154.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007144.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007099.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007093.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006987.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006978.jpg" />
 </div>
 
 
@@ -609,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006969.jpg" />
 </div>
 
 
@@ -635,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006968.jpg" />
 </div>
 
 
@@ -661,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006947.jpg" />
 </div>
 
 
@@ -672,6 +541,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:062A070804ECBFBEF4FE71CB46F64B30C756ACD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483338   (1006893) от 13.07.2021
+
+А.С. Скаридов | Морское право РФ (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие представляет собой анализ систематизированных российских источников в области морского права, сопоставляются и оцениваются различные научные доктрины. Оценивается развитие российского морского права в контексте эволюции национальной морской политики. Рассмотрены положения национальных правовых норм, в частности Кодекса торгового мореплавания РФ, Кодекса (   Читать дальше...   )Жанр: Морское право, учебная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91C0101C3D355E6672DC00E730C54D8FAB2548B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483391   (1006853) от 13.07.2021
+
+Ефим Кирюшин | Вычисления на счетах (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006853.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу настоящего издания были положены 4-й и 5-й выпуски "Вычисления на счетах". Весь материал этих выпусков был подвергнут автором основательному пересмотру и, где надо, переделке. В связи с обязательным введением у нас метрических мер и весов коренным образом изменена глава о мерах. Параграфы с действиями над именованными числами русской системы мер (   Читать дальше...   )Жанр: Учебники и пособияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0F06D9AB6B017198698793EC53CDA87FD3E0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483378   (1006834) от 13.07.2021
+
+П.Дж. Нахин | Красота простой физики (2021) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги берет на себя задачу простыми словами рассказать о физике повседневного мира. В отличие от многих популяризаторов науки, он предлагает читателю не набор разрозненных фактов для запоминания, а ряд оригинальных примеров, требующих аналитического подхода. В чем особенность приливных волн на Луне? Как рассчитать энергию движущейся воды? Можно ли при помощи (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C10DC88404FB7F9B4F345BAFE6D6A7AE8134C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621681   (1006729) от 14.07.2021
+
+А. Бахтиаров | Петербург - столица России (1904) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь высокого города богата глубокого интереса...
+Когда изъ далекой провинціи въ первый разъ прідете въ Петербургъ и очутитесь среди шумныхе улидъ столицы, —она поражаетъ васъ многолюдствомъ, величиною: городъ является чемъ-то необъятнымъ, подавляющимъ своею безконечной сутолокой ...Жанр: Историко - географическийЯзык: Русский (дореформенный)Издательство: «Синодальная типография» (СПб)Формат: PDFКачество: Удовлетворительный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF1D3CBEDF0AE39335EDF5CFEB9970A88154261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483507   (1006721) от 14.07.2021
+
+Оомия Нобумицу | Замечательные научные теории (2021) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важные научные открытия делают реальностью то, о чём ещё совсем недавно писали фантасты. Какие идеи в науке можно считать прорывными и как они изменили нашу жизнь? В этой книге затрагиваются концепции, принципы и законы, которые стали ключевыми для развития цивилизации и технологий.
+Автор рассказывает о масштабных достижениях учёных - начиная с изобретений древности (   Читать дальше...   )Жанр: Научно-популярная литература, Естественные науки, АстрономияПеревод: К.В. ПавловскаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9513C0C1C3A07638318F12BFFFB19D9678D38B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,137 @@
+###  Публикация: 902770   (660115) от 29.05.2015
+
+Журнал | Мир фантастики №6 (июнь 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660115.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мир фантастики» единственное издание в России, посвященное фантастике и фэнтези в самом широком смысле. В фокусе внимания — книги, кинофильмы, игры и все самое интересное в этой области.Жанр: Журнал фантастикиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DE617EB2FE216A990CFD576D247E475692969D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139485   (660103) от 02.06.2017
+
+Газета | Аргументы и факты. Спецвыпуск №3 (15) Лекарственный справочник (2013) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит удобный рубрикатор по лекарственным препаратам, которые применяются для лечения и профилактики различных заболеваний. Справочник содержит подробные сведения о свойствах препаратов, компаниях-производителях и стоимости этих лекарств в аптеках России.
+«Эксклюзивный лекарственный справочник» выходит в 4 частях, каждая из которых рассказывает о конкретных (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8357E2583840D53073ED05CB784605BC29007E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139404   (660098) от 02.06.2017
+
+Газета | Аргументы и факты. Спецвыпуск №2 (14) Лекарственный справочник (2013) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит удобный рубрикатор по лекарственным препаратам, которые применяются для лечения и профилактики различных заболеваний. Справочник содержит подробные сведения о свойствах препаратов, компаниях-производителях и стоимости этих лекарств в аптеках России.
+«Эксклюзивный лекарственный справочник» выходит в 4 частях, каждая из которых рассказывает о конкретных (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456F8FAAA0CC4DADEA46F36BEFB36E72A383F6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139370   (660096) от 02.06.2017
+
+Журнал | Похудей №6 (июнь 2017) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячное издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.
+
+ В сферу интересов журнала «Похудей» входит спортивное и вспомогательное оборудование, аксессуары, одежда, обувь, косметика для занятий различными видами фитнеса.Жанр: Здоровье, фитнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B957A83A125ED92B65D260D99C452D0A3B49336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139451   (659913) от 02.06.2017
+
+Журнал | Сам [Россия] №6 (июнь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Сам» - уникальная энциклопедия творчества, умений и мастерства, одна из его главных задач - распространение технических знаний и умений среди населения, развитие технического творчества в домашних условиях и приобретение навыков решать проблемы по строительству, обустройству и ремонту всего, что находится в домашнем хозяйстве, своими силами и с наименьшими (   Читать дальше...   )Жанр: Строительство и ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13596EF7D783DE79C3F55E285763466CEBE7B33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902723   (659728) от 29.05.2015
 
 Журнал | Playboy [Россия] №6 (июнь 2015) [PDF]
@@ -6,7 +140,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659728.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659717.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659411.jpg" />
 </div>
 
 
@@ -84,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659201.jpg" />
 </div>
 
 
@@ -110,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659146.jpg" />
 </div>
 
 
@@ -136,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659107.jpg" />
 </div>
 
 
@@ -162,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659106.jpg" />
 </div>
 
 
@@ -188,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658925.jpg" />
 </div>
 
 
@@ -214,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658817.jpg" />
 </div>
 
 
@@ -240,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658709.jpg" />
 </div>
 
 
@@ -266,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658504.jpg" />
 </div>
 
 
@@ -292,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658501.jpg" />
 </div>
 
 
@@ -319,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658288.jpg" />
 </div>
 
 
@@ -345,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658213.jpg" />
 </div>
 
 
@@ -371,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658211.jpg" />
 </div>
 
 
@@ -397,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658210.jpg" />
 </div>
 
 
@@ -423,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657870.jpg" />
 </div>
 
 
@@ -449,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657832.jpg" />
 </div>
 
 
@@ -476,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657806.jpg" />
 </div>
 
 
@@ -502,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657768.jpg" />
 </div>
 
 
@@ -528,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657762.jpg" />
 </div>
 
 
@@ -539,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:678FCF07158A726152B45FF6AC577DEFE324FE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903430   (657571) от 31.05.2015
-
-Журнал | Радиоаматор №5 (256) (май 2015) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Радиоаматор» - увлекательный путеводитель в мир радио для тех, кто ради увлечения либо по роду своей профессиональной деятельности работает в эфире, занимается разработкой и ремонтом разнообразных радиоэлектронных устройств. Это журнал для тех, кто привык работать со схемой на столе и с паяльником в руках, кто своим призванием считает практическую радиоэлектронику. (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D412FFB2347900F598A3D39E6C12031627DC0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225812   (657435) от 18.05.2018
-
-Журнал | Chip [Россия] №6 (июнь 2018) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B202DE7A10CA3BF096A4040A642DFDB498C586EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514915   (657222) от 25.06.2012
-
-Журнал | Самая. Спецвыпуск №4 Экономная хозяйка (апрель 2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657222.jpg" />
-</div>
-
-
-###  Подробнее
-
-На страницах выпуска вы узнаете о том как правильно относиться к деньгам и жить без долгов, как отдохнуть дешево и держать расходы и доходы под контролем, познакомитесь с 5 способами избежать ремонта и как провести генеральную уборку с выгодой, а также вас ждут оригинальные и простые блюда из привычных продуктов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7170E7805F78BFE63676B1C62867A13983DAA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539580   (657211) от 26.03.2022
-
-Журнал | Woodworker West №2 (2022) [PDF][En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Woodworker West - американский журнал, издаваемый раз в два месяца, посвящен столярному делу. В нем представлены: обзоры материалов, инструментов и технологий, а также идеи для творчестваЖанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26D7DCD4A41BC3EFA3BAE99008029D049619EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539604   (657202) от 26.03.2022
-
-Журнал | Woodworking Crafts №73 (2022) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Woodworking Craft — журнал по столярному делу представляет для всех мастеров по дереву новые идеи для творчества, обзоры деревообрабатывающей техники и оборудования для мастерской, проекты по изготовлению из дерева различной мебели, поделок, садовых беседок и прочих малых архитектурных строений, которые приводятся с пошаговыми инструкциями, фотографиями и чертежами, (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD869610DDD5592D35E665F35A7AA2532CB4A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1307096   (753165) от 11.07.2020
+
+Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – повар, который работает в личном передвижном кафе и путешествует по всему миру на нем. Постепенно к вам заглядывают посетители и желают опробовать вашу еду. Вы должны удовлетворить их требования и приготовить изысканные блюда. Сама же готовка будет проходить все этапы, начиная с приготовления ингредиентов и нарезки, заканчивая тщательным поджариванием и смешиванием. (   Читать дальше...   )Тип издания: RepackРазработчик: Big Cheese StudioЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2720EC7DEDA9FE2DB60446E9CF90DE5FD0ED17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281279   (752995) от 07.02.2019
 
 Adobe Photoshop CC 2019 20.0.3.24950 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +32,7 @@ Adobe Photoshop CC 2019 20.0.3.24950 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752995.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752993.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752857.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752803.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Black Mesa: Definitive Edition (2020) [Ru/Multi] (1.5.3) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752802.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Outlast 2 (2017) [Ru/Multi] (gog-4/19597) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752503.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ LEGO Star Wars: The Complete Saga [Ru] (P) 2009
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752350.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Gripen E - истребитель нового поколения от комп�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751752.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ MAGIX Video Pro X8 15.0.0.83 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751371.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Wink ATV Ultimate v1.16.1 (ревизия 2.6) Mod [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751290.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751289.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751288.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Google через Chrome предупредит о скомпрометиров�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751214.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [USA] 3.55 [PSN 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751175.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Act of Aggression - Reboot Edition (2015) [En/Multi] (260000390) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751174.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Ashes of the Singularity (2016) [En/Ge] (1.11) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751173.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Adobe Photoshop CC 2019 20.0.3 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751036.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751025.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ PotPlayer 220106 (1.7.21590) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750973.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750964.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2012-
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750475.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750093.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749851.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Flash Falcon - проект футуристического сверхзвук�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749850.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749745.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395637   (749725) от 13.07.2020
-
-Грейхаунд / Greyhound (2020) WEB-DLRip [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749725.jpg" />
-</div>
-
-
-###  Подробнее
-
-1942 год. Новым капитаном эсминца ВМС США «Грейхаунд» становится морской офицер Эрнст Краузе, который до этого еще не участвовал в военных действиях.Производство: Китай, Канада, США / Columbia Pictures, Stage 6 Films, Zhengfu PicturesЖанр: военный, боевик, история, биографияРежиссер: Аарон ШнайдерАктеры: Том Хэнкс, Стивен Грэм, Элизабет Шу, Майкл Бенц, Роб Морган, Дэвид Мальдонадо, Джими Стэнтон, Matt Helm, Том Бриттни, Мануэль РульфоПеревод: Многоголосый любительский (Hamsterstudio)Язык озвучки: русскийСубтитры: ОтсутствуютПродолжительность: 01:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D82BECE09618CAC15667F9B70D977216EBAC8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

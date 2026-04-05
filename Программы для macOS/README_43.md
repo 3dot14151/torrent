@@ -1,3 +1,56 @@
+###  Публикация: 1508048   (798133) от 06.11.2021
+
+DxO PhotoLab 5 ELITE Edition 5.0.1 CR2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE9E0F97A5F185ED5F7012A0E040F424F8E08F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508088   (798121) от 06.11.2021
+
+NCH Express Invoice Plus 9.14 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое программное обеспечение для выставления счетов. Для управления и отслеживания ваших счетов на Mac. Express Invoice позволяет создавать счета-фактуры, которые можно распечатать, отправить по электронной почте или факсу напрямую клиентам для более быстрой оплаты. Функция отчетности позволяет отслеживать платежи, просроченные счета, работу отдела продаж и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: © 2021 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FC4DA2C3CE58849A5836D3288DC5DFC95C30B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507942   (798117) от 06.11.2021
 
 MKVtools 3.7.2 [En]
@@ -6,7 +59,7 @@ MKVtools 3.7.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798117.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Stockfolio - Stocks, Real-Time Stock Portfolio 1.8.1 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797991.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ ACDSee Photo Studio 7 v7.1.2020 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797953.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ MacPilot 11 v11.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797814.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ AnyMP4 MP3 Converter for Mac 8.2.16 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797805.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ CrystalDiffract 6 v6.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797561.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ QuickLens 2.8 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797560.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Batteries 2.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797548.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Wondershare PDF Converter Pro 5.0.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797533.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Coherence X 4.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797517.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Paste 3.0.10 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797326.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ External Editors For Photos 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797009.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Caato Time Tracker Pro 1.1.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796928.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ ToothFairy 2.7.4 fix [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796874.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ HitPaw Watermark Remover 1.2.1 fix [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796864.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ PD (Progressive Downloader) 5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796862.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ On1 Photo 10.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796841.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Ableton Live Suite 11 v11.0.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796692.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ ColorSquid 1.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796321.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ Fantastical 2.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796317.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ Dropzone 3.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796309.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ Sip Pro 4.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796247.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ dBpoweramp Music Converter 17.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796241.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ Check Off- A Task Manager 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796063.jpg" />
 </div>
 
 
@@ -627,60 +680,6 @@ CheckOff- приложение для управления задачами, к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F012A6BD568BFD63CA6ACBF8B0E8ADDFE675B4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011617   (796039) от 28.04.2016
-
-FILTERiT 4.6.3 plug-in for Adobe Illustrator [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cvalley FILTERiT - плагин к Adobe Illustrator который позволяет создать больше чем 50 эффектов — от искажения и волн до увеличения и "осколков", а также включает такие фильтры как объемная трансформация, фрактализация, трассирование и др. FILTERiT предоставляет 13 «живых» эффектов.
-
-Например, эффект Live Circle автоматически распространяет различные копии (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: CValley, Inc.Поддерживаемая ОС: OS XЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A090491281BC1A5D3DFA66A96DEFEC1A71441A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385996   (795986) от 27.05.2020
-
-Librarian Pro 5 v5.1.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для каталогизации и систематизации различных вещей: книг, журналов, музыкальных, видео и игровых дисков и прочее. Вся создаваемая база сортируется отдельно по каждому типу вещей и содержит множество полей для максимального описания. Поля можно заполнить автоматически, скачивая необходимую информацию из интернета, поскольку программа поддерживает тесную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D191D57C7CBDA07D31163AF6878052315BA8F088
 ```
 
 https://mybot314.ru/tekegram_catalog/

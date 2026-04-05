@@ -6,7 +6,7 @@ Blocs 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326596.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Path Finder 7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326590.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ On1 Photo 10 (10.0.0.2241) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326468.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SketchUp Pro 2016 (16.0.19913) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326307.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Alfred Powerpack 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325787.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325738.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Adele - 25 (2015) [AAC|256 кб/с]<Indie, Pop>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325691.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325534.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325403.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Vectorworks 2015 20.0.0 (234280) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325217.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ ChronoSync 4.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324925.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Beamer 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324879.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ CodeRunner 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324833.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ CleanMyMac 3.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324706.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Vector Magic Desktop Edition 1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324436.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ ChronoSync 4.8.2 & ChronoAgent 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323838.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Invisible 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323833.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PeakHour 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323724.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Fax Templates for Pages 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323715.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ iMazing 2.12.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323685.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Airmail 3 v3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323624.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Certificates Templates for Pages 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323595.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Flyers Templates for Pages 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323591.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Postbox 5.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323574.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Duplicate Photos Fixer Pro 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323531.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ ScreenFlow 8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323408.jpg" />
 </div>
 
 

@@ -1,82 +1,3 @@
-###  Публикация: 1447784   (1031621) от 14.02.2021
-
-Т.Э. Уотсон | Свет и камень. Очерки о писательстве и реалиях издательского дела (2021) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга разделена на две части: «Свет» и «Камень».
-В первой части Т.Э. Уотсон рассказывает о типичных ошибках начинающего писателя, о том, что мешает на пути к вершине и как этого избежать. Вы узнаете, как научиться концентрироваться и зачем нужно расписание, как начать писать (и успешно продолжить!), где найти вдохновение, цель и смысл. Если вы сомневаетесь, стоит (   Читать дальше...   )Жанр: Литературоведение, Фольклористика, РуководстваПеревод: Наталья ФедянинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BCA2A4E45D8E92D61F6AE8F1DEF8CAF6BE5A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448417   (1030908) от 17.02.2021
-
-Сергей Горюнков | Закулисье пушкинских сказок (2020) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030908.jpg" />
-</div>
-
-
-###  Подробнее
-
-С детства все знают пушкинское присловье «сказка ложь, да в ней намёк», но с детства же все привыкают смотреть на него как на чисто поэтический оборот речи. А если и соглашаются понимать намёк буквально, то лишь в морализаторском смысле. Но почему? Не потому ли, что, в отличие от прежнего, так называемого традиционного сознания, в сознании современных людей почти (   Читать дальше...   )Жанр: Культурология, ЛитературоведениеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF4EAB16DB16804C1EB599DD0F02394C2854C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448622   (1030709) от 18.02.2021
-
-Людмила Соколова | Мосфильм. Вчера, сегодня и всегда (2021) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030709.jpg" />
-</div>
-
-
-###  Подробнее
-
-История киноконцерна «Мосфильм» – неотъемлемая часть культуры нашей страны. Имена великих режиссеров и актеров так же прочно вписаны в наше сознание, как имена правителей, политических деятелей и литературных героев. Более того, часто именно образы, воплощенные актерами в фильмах, помогают нам сформировать представление о литературных героях и исторических персонажах. (   Читать дальше...   )Жанр: Кинематограф, театр, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F190EA67F4DF30F5B0D1C11ABB7C63712926967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448671   (1030684) от 18.02.2021
 
 Роберт Хьюз | Шок новизны (2020) [EPUB]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030684.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030675.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030610.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030594.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030493.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030450.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029303.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028874.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028032.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027866.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026497.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025764.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025600.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025564.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025471.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025409.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025104.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024905.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024402.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024216.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024128.jpg" />
 </div>
 
 
@@ -640,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024059.jpg" />
 </div>
 
 
@@ -666,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024019.jpg" />
 </div>
 
 
@@ -677,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ECA0FDDAE5129B9826F2C538E9696BCE0E7117E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460091   (1023975) от 28.03.2021
+
+А. Мартынов | Русскiя достопамятности (тт.1-2) (1883) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые этот сборник, посвящённый описанию выдающихся памятников русской истории и культуры, вышел в 1862 году. В последующие годы он выдержал несколько переизданий, каждое из которых дополняло предыдущее. Огромное место в издании уделено истории и архитектуре Москвы и её окрестностей. В книгу вошли уникальные описания московских монастырей, соборов, церквей и гражданских (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525471CD1A6F713900B72328DF72AA0EE9087F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458302   (1023971) от 28.03.2021
+
+Бетти Эдвардс | Откройте в себе художника (2020) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изданная общим тиражом более 2,5 миллиона экземпляров и переведенная на семнадцать языков книга «Откройте в себе художника» является самым популярным в мире учебником рисования. Независимо от того, считаете ли вы, что не имеете способностей к рисованию и вам не под силу овладеть этим искусством, или любите рисовать, но никак не можете подняться выше детского уровня, (   Читать дальше...   )Жанр: Культура и искусство, Изобразительное искусствоПеревод: Т.И. ПоповаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598E8B1970CAF037F7BA98657A674DBF35CAE438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458856   (1023642) от 30.03.2021
+
+Валерио Либралато, Татьяна Лаптева | Рисуем цветы акварелью. Пошаговое руководство от итальянского мастера (2017) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валерио Либралато открывает удивительный мир тонкой, воздушной и чувственной акварельной живописи. Уникальный авторский метод обучения уже снискал успех в Италии, где многие начинающие художники освоили технику акварельной живописи в его знаменитой школе. С появлением этого пособия каждый, кто чувствует в себе творческий потенциал и мечтает освоить технику акварели, (   Читать дальше...   )Жанр: Изобразительное искусство, СамоучителиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1572E884FAC2A0DB32225F7F5CB8F149ACB6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

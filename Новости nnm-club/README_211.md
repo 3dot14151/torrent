@@ -1,3 +1,57 @@
+###  Публикация: 845516   (299032) от 03.12.2014
+
+LittleBigPlanet 3 / Little Big Planet 3 [PS3] [EUR] [Ru] [Multi 12] [4.65] (2014)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэкбой возвращается, да не один! На этот раз с ним его верные друзья – Тоггл, Оддсок и Свуп. Каждый из них обладает яркой индивидуальностью и, конечно, уникальными способностями.
+В Little Big Planet 3 Сэкбою и его товарищам предстоит отправиться на новую планету – настоящий рай для творчества, где сам воздух напоен креативными идеями. К сожалению, наш вязаный герой (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Sumo Digital , XDevЖанр: Arcade (Platform) / 3DЯзык озвучки: Русский/Multi 12Язык интерфейса: Русский/Multi 12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE9CEC03078AB9299D3F364CB1D7DDAFBD3662D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333432   (298467) от 27.10.2019
+
+В Минкомсвязи сочли изоляцию российского интернета "дорогим удовольствием"
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298467.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Минкомсвязи заявили, что Рунет не будет развиваться по пути Китая
+Интернет в России не будет развиваться по китайскому пути, иначе рынок рискует потерять 150 миллионов пользователей, заявил замглавы Минкомсвязи РФ Алексей Волин. Чиновник также сомневается в экономической целесообразности изоляции Рунета, передает ТАСС.«Мы совершенно не уверены, что это экономически (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184720   (298419) от 18.11.2017
 
 Need for Speed The Run (2011) [Ru] (1.1.0.0/dlc) Repack xatab
@@ -6,7 +60,7 @@ Need for Speed The Run (2011) [Ru] (1.1.0.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298419.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ A Way Out (2018) [Ru/Multi] (1.0) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298335.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298321.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.0.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298317.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Acronis True Image 2016 19.0.6027 BootCD [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298260.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Advanced SystemCare Pro 9.0.3.1078 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298252.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_297325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_297325.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ Neverwinter Nights (2005) [En] (1.6.9.0/dlc) License GOG [Diamond Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297283.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ Microsoft Windows Universal StartSoft 35-36 2016 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297281.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ Adobe Premiere Pro CC 2017 (v11.0.1) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297274.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297266.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ Depeche Mode отдали должное
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_297191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_297191.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297164.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ Zaz - 7 альбомов (8CD) (2010 - 2014) Дискография [FLAC|track,
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297161.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ VA - Просыпаемся с удовольствием! / Будильник�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297074.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_296678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_296678.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_296613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_296613.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ AusLogics BoostSpeed 8.1.2.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296327.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296320.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296306.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296300.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296297.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296296.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ Amazon будет перевозить данные клиентов в груз
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_295460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_295460.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ Amazon построила одну из крупнейших в мире ком�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421357   (295200) от 10.12.2011
-
-Том и Джерри / Tom and Jerry (1940-2005) DVDRip (Полная Коллекция 163 серии)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет большинства мультфильмов сосредоточен на безуспешных попытках Тома поймать мышонка. Поскольку в некоторых сериях персонажи довольно мирно уживаются между собой, остаётся непонятным, за что Том постоянно преследует Джерри. Можно выделить несколько сюжетных поворотов, приводящих к игре в «кошки-мышки»Жанр: Рисованная анимацияРежиссер: Джозеф Барбера, Уильям Ханна, Джин Дейч, Чак ДжонсПеревод: Профессиональный многоголосыйПродолжительность: 163x ~ 00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3E7059A0950D7B12E1550F12BA1F9297A172D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079245   (295150) от 03.12.2016
-
-Alien Skin Exposure X2 Bundle 1.0.0.88 Revision 35316 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295150.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Exposure X2 Bundle - это редактор фотографий и органайзер, который объединяет все плагины от Alien Skin’s для редактирования фотографий в одном продукте. Основой комплекта является Exposure X2, приложение редактирования фотографий , которое оптимизирует рабочий процесс и обеспечивает широкий набор творческих инструментов. Так же в этот комплект входят два дополнительных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A60D77DCDF38F003EF752F7B3D802B63932163E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 939680   (473210) от 22.09.2015
+
+Marie Laforet - Viens, Viens (1973) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Viens, Viens
+Written-By – H.R. Barnes, R. Bernet, Sven-Linus
+02.	Arlequin
+Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродолжительность: 00:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939749   (473093) от 22.09.2015
 
 David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Progressive Rock>
@@ -6,7 +35,7 @@ David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473093.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Thunderstone - Studio Albums (2002 - 2016) hand made [restored, declipped] [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472248.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470791.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469994.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468008.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Jack Dorsey's Big Band Gold - 50 Years Of Swing (The Ronco Music Library) (1983)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467664.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Peter Gabriel - Up (2002) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, New 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467442.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467329.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Down (Phil Anselmo, Pantera) - Дискография (6 releases) (1995 - 2014)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464086.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Jack Bruce - Songs For A Tailor (1969) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Ar
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462105.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Unisonic (Helloween, Gamma Ray, Iron Savior) - Studio Albums (2012 - 2014) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461945.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461729.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461549.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Savage - Tonight (1984) Ultimate Edition, Remastered, 2014, Мирумир [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461534.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Barclay James Harvest - XII (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461335.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458746.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Shinedown - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455565.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Gamma Ray (Helloween, Iron Savior, Unisonic) - Studio Albums (1990 - 2014) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455559.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454809.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454573.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Nazareth - Malice in Wonderland (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452770.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Robert Miles - Dreamland (1996/2019) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452297.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Sixx: A.M. (58, Brides Of Destruction) - Дискография (2007 - 2021) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451350.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448348.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Worl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448338.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Worl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061148   (448105) от 10.10.2016
-
-Эмиль Гилельс - Л. Бетховен (Сонаты "Патетическая" и "Лунная") (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Соната №8 до минор "Патетическая", соч. 13
-1. Grave. Allegro Molto E Con Brio  8:22
-2. Adagio Cantabile  5:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

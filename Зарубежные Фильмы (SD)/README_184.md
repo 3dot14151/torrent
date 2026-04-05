@@ -1,3 +1,82 @@
+###  Публикация: 1383814   (807572) от 17.05.2020
+
+Проект Даллас / The Dallas Connection (1994) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо гениальных ученых работали над программой всемирного разоружения. Троих из них убивают, остается только один.
+Задание федеральных спецагентов — спасти ему жизнь и Землю. И сексапильная красотка — главный козырь в этом.Производство: США / atlas International Film, H.R.S. Funai Co. Ltd., Sidaris Entertainment, World Media SalesЖанр: БоевикРежиссер: Кристиан Дрю СидарисАктеры: Брюс Пенхалл, Марк Барриере, Джули Стрэйн, Родриго Обрегон, Саманта Филлипс, Джули К. Смит, Венди Хэмилтон, Джералд Окамура, Роланд Маркус, Кэссиди ФиллипсПеревод: Многоголосый профессиональный, авторскийСубтитры: Английские (SDH)Продолжительность: 01:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BA8D08106CA027B50139AA498314F0D7D8ECA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009827   (807472) от 22.04.2016
+
+Без компромиссов / Blitz (2011) HDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь или восемь? Не в граммах, а в полицейских!.. Именно этим вопросом задается лондонский маньяк, решивший прославиться. Выбрав себе для первых полос таблоидов звучный псевдоним Блиц и вооружившись молотком, Барри Вайс выходит на улицы. И теперь главному герою придется спасать свою шкуру и пытаться остановить сумасшедшего убийцу… По произведению Кена Бруена «Блиц».Производство: Великобритания, Франция, США, Blitz Films, LionsgateЖанр: Триллер, Боевик, КриминалРежиссер: Эллиотт ЛестерАктеры: Джейсон Стэйтем, Люк Эванс, Эйден Гиллен, Пэдди Консидайн, Зэйв Эштон, Дэвид Моррисси, Рон Донаки, Джозеф Демпси, Марк Райлэнс, Элли Фэйрмэн, Нед Деннехи, Ричард РидделлПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: А.ГавриловЯзык субтитров: ОтсутствуютПродолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AD5B44D983BBBA1EC240397C983E2B4823DA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009687   (807468) от 22.04.2016
+
+Полицейский-самурай 2: Смертельная месть / Samurai Cop 2: Deadly Vengeance (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровно 25 лет назад в городе произошла череда странных и загадочных убийств, расследовать которые так и не удалось. Но теперь, спустя столько лет, полицейский Фрэнк Вашингтон решает возобновить те самые расследования, использовать имеющиеся данные и попробовать все-таки раскрыть загадочные дела. Помогать в расследовании Фрэнку будет его старый напарник Джо Маршал. (   Читать дальше...   )Производство: США, CineRidge Entertainment, Epoch EntertainmentЖанр: Боевик, триллер, криминалРежиссер: Грегори ХатанакаАктеры: Мэтью Каредас, Марк Фрейзер, Бай Лин, Кэйден Кросс, Томми Вайсо, Крэнстон Комуро, Лаурен Лэндон, Мелисса Мур, Мел Новак, Лекси БелльПеревод: Любительский одноголосый (Хихидок)Субтитры: ОтсутствуютПродолжительность: 01:33:42Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FA269B293212A3EBE57614D5DC8F4440E38E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 108054   (807431) от 17.05.2020
 
 2035 - Город-призрак / Nightmare City 2035 (2007) DVDRip
@@ -6,7 +85,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807431.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807223.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807179.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807047.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807013.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806960.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806950.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806938.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806769.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806759.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806570.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806469.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806051.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806013.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806003.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805999.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805970.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805873.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805859.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805841.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805827.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805761.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805712.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7C91551604A5911D2C8C725B693B82A02D2B2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505191   (805709) от 26.10.2021
-
-Последняя капля / On the Rocks (2020) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаура думает, что она счастлива замужем, но, когда её муж Дин начинает проводить вечера в офисе с новой коллегой, в её голову закрадываются сомнения. Лаура обращается за помощью к своему харизматичному и импульсивному отцу Феликсу, который предлагает начать слежку за Дином. Когда отец и дочь отправляются в приключение по ночному Нью-Йорку, неожиданно для себя они (   Читать дальше...   )Производство: США / A24, American Zoetrope, Apple Original FilmsЖанр: Драма, комедияРежиссер: София КопполаАктеры: Билл Мюррей, Рашида Джонс, Марлон Уайанс, Джессика Хенвик, Дженни Слейт, Лиянна Мускат, Александра Мэри Реймер, Анна Шанель Реймер, Барбара Бэйн, Джулиана КэнвилдПеревод: Дублированный (Apple TV+)Язык озвучки: РусскийСубтитры: Русские (forced hardsub, full), Украинские (full) отдельными файламиПродолжительность: 01:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AAAC9FBB30299BA3A605BD02C0A6B9357B1038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505170   (805703) от 26.10.2021
-
-Подводный дом / The Deep House (2021) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805703.jpg" />
-</div>
-
-
-###  Подробнее
-
-У молодой и современной пары, которая отправляется во Францию, чтобы исследовать подводный дом и поделиться своими находками в социальных сетях, серьезно меняются планы, когда они попадают внутрь странного дома, расположенного на дне моря. Их присутствие пробуждает темный дух, который преследует дом.Производство: Франция, Бельгия, Apollo Films, Centre National de la Cinématographie (CNC), Forecast Pictures, Investisseurs Tax ShelterЖанр: Ужасы, триллерРежиссер: Александр Бустильо, Жюльен МориАктеры: Камилль Роу, Джеймс Джаггер, Эрик Савен, Каролина МассеПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA2E418CC38C16852BAAD3B2B7F08ED0B28CE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119962   (805476) от 29.03.2017
-
-Предсмертная записка / Suicide Note (2016) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амбициозная 21-летняя Молли Уайтс, ученица психологического факультета просыпается однажды утром, узнав что её соседка по комнате совершила самоубийство, оставив после себя предсмертную записку, которая так хорошо характеризует последние моменты из жизни Эммы. Но когда Молли начинают преследовать сновидения о смерти Эммы, Молли понимает, что это не просто самоубийство, (   Читать дальше...   )Производство: СШАЖанр: ТриллерРежиссер: Джейк ХелгренАктеры: Кирби Блисс Блэнтон, Брэнт Догерти, Лекси Джованьоли, Стивен Коллетти, Гэбриэлль Картерис, Кайл Лезерберри, Максвелл Хигсмит, Мередит МэйПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:23:44Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3FA909A97E86C246B17035F54EFA3FFDA7BC512
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,137 +1,3 @@
-###  Публикация: 984169   (940611) от 08.02.2016
-
-Олег Лыткин, Павел Васильев | Гвардия советского футбола (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940611.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли биографии одиннадцати выдающихся советских футболистов, ставших легендами еще при жизни, и не только из-за своего футбольного мастерства. Михаил Якушин и Андрей Старостин, Григорий Федотов и Константин Бесков, Всеволод Бобров и Никита Симонян, Лев Яшин и Игорь Нетто, Валентин Иванов, Эдуард Стрельцов и Валерий Воронин — каждый из этих великих мастеров (   Читать дальше...   )Жанр: Биографии и Мемуары, СпортФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2727CF4B596B04E31C2803420553A22815AC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363688   (940513) от 29.02.2020
-
-Ричард Фейнман | Фейнмановские лекции по физике. Современная наука о природе [сборник] (2019) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В свое время преподаватели Калифорнийского технологического университета задумались о том, как можно было бы перестроить курс физики, чтобы сделать его более занимательным и современным. Изложение материала в старых учебниках было настолько скучным, что отбивало охоту к учению даже у самых усердных студентов. Ричард Фейнман с энтузиазмом подхватил эту идею и разработал (   Читать дальше...   )Жанр: Научно-популярная литература, Естественные наукиПеревод: А.В. Ефремов, Г.И. Копылов, О.А. ХрусталевФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A124689BBF338E284B2B55FB4AAEDC84314BAA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 238407   (940479) от 29.02.2020
-
-С.В. Дубровская | Календарь народной мудрости. Приметы, пословицы, обычаи, сад, огород, кухня [2008] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которую вы держите в руках, не просто календарь, посвященный тем или иным датам и событиям года. Она заменит вам несколько увесистых книг по ведению домашнего хозяйства, саду и огороду, кулинарии.
- Кроме того, на ее страницах вы найдете интересную информацию о православных и гражданских праздниках, правилах поведения.
- Для широкой читательской аудитории.Жанр: Научно-популярныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D33E2C3FA8F1BA29EA6A64CE0A72F0924429BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984329   (940288) от 08.02.2016
-
-А. М. Гинзбург (ред.) | Частный капитал в народном хозяйстве СССР (1927) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа представляет собой сводку материалов, собранных и разработанных Особой комиссией ВСНХ СССР, учрежденной в феврале 1926 года по распоряжению покойного председателя ВСНХ Ф. Э. Дзержинского.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B393CACFFE736E08C9CEF553D0614FFCAC6B47AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091422   (940223) от 11.01.2017
-
-С. Чаттерджи, Д. Датта | Введение в индийскую философию (1955) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель настоящей книги — дать элементарное введение в индийские философские системы.
-
-Индийская философия — одна из наиболее древних философий в мире: ее история исчисляется многими сотнями лет. Зарождение индийской философии относят обычно по традиции к X—IX вв. до н. э. Исторически первые философские системы в Индии, как в Китае и Греции, представлены различными (   Читать дальше...   )Жанр: История, политология, философия, психология, этика, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78476D1D8BEA7D92278F6BE27318EE6649AFBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984113   (940157) от 08.02.2016
 
 Филипп-Поль де Сегюр | История похода в Россию. Мемуары генерал-адъютанта (2014) [FB2]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940157.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940061.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939685.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939598.jpg" />
 </div>
 
 
@@ -247,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939516.jpg" />
 </div>
 
 
@@ -273,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939324.jpg" />
 </div>
 
 
@@ -299,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939273.jpg" />
 </div>
 
 
@@ -326,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939272.jpg" />
 </div>
 
 
@@ -354,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939247.jpg" />
 </div>
 
 
@@ -380,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939195.jpg" />
 </div>
 
 
@@ -407,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939014.jpg" />
 </div>
 
 
@@ -433,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939007.jpg" />
 </div>
 
 
@@ -459,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939004.jpg" />
 </div>
 
 
@@ -485,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939001.jpg" />
 </div>
 
 
@@ -511,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938935.jpg" />
 </div>
 
 
@@ -538,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938934.jpg" />
 </div>
 
 
@@ -564,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938930.jpg" />
 </div>
 
 
@@ -592,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938924.jpg" />
 </div>
 
 
@@ -618,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938855.jpg" />
 </div>
 
 
@@ -644,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938850.jpg" />
 </div>
 
 
@@ -670,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938844.jpg" />
 </div>
 
 
@@ -681,6 +547,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A121AB37C321E72409C6112BCC4FE3E42DB25CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984535   (938841) от 09.02.2016
+
+Владимир Антонов | Служба внешней разведки. История, люди, факты (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни одно государство не может обойтись без внешней разведки. Это доказала история. Это подтверждает и современность. Ведь основной ее задачей является добывание для высшего руководства страны достоверной, во многом упреждающей информации по тем проблемам, которые могли бы нанести ущерб ее интересам.
+Каким образом Советскому Союзу удалось создать самую эффективную (   Читать дальше...   )Жанр: Биографии и Мемуары, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4D53A451CAF04F5AC0F5B8C7E52EE9BC6820E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092190   (938758) от 12.01.2017
+
+В. М. Бехтерев | Психика и жизнь (1902) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+В последнее время основные психо-биологические вопросы все более и более привлекают к себе внимание ученых и образованной публики, благодаря, очевидно, тому обстоятельству, что психика и жизнь в их взаимных отношениях являются наиболее жгучими и важными вопросами, затрагивающими коренным образом наше мировоззрение. Естественно, что они заслуживают внимания (   Читать дальше...   )Жанр: История, психология, психиатрия, физиология, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F034D3F0F12BC8074919E86C3255DF593CB07B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091968   (938757) от 12.01.2017
+
+Т. Веблен | Теория праздного класса (1984) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор — крупный американский экономист и социолог является представителем критического, буржуазно-реформистского направления в американской политической экономии. В рамках капитализма Веблен противопоставлял две группы: бизнесменов, занятых в основном спекулятивными операциями, и технических специалистов, без которых невозможно функционирование «индустриальной системы». (   Читать дальше...   )Жанр: История, политология, социология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4739F5FFE4558570732D0AF58897F6531488466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983775   (938735) от 09.02.2016
+
+В.П. Шеховцов | Расчет и проектирование ОУ и электроустановок промышленных механизмов (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие предназначено для направленной подготовки обучаемых к выполнению КП-ЭО, приобретения и закрепления навыков проектирования ЭУ. Объем систематизированного материала с элементами нового позволяет преподавателю варьировать его, обеспечивая оптимальный вариант задания с учетом индивидуальных особенностей обучаемого. Достоинством разработки является наличие (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615FE7C44EB72D5E9A294DA717E9982804C703A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984417   (938731) от 09.02.2016
+
+З. П. Пехова (ред.) | Венгрия. Справочная карта (1978) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938731.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Венгрии с административным делением (масштаб 1:750 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39D8EA703EFCA9282544C6977D2C31AA5BE2308
 ```
 
 https://mybot314.ru/tekegram_catalog/

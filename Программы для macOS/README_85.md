@@ -1,3 +1,61 @@
+###  Публикация: 929823   (518286) от 20.08.2015
+
+Affinity Photo 1.3.5 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Photo — профессиональный фоторедактор для Mac OS X
+Программа Affinity Photo – это кульминация пятилетнего труда по объединению инструментов для ретуши изображений.
+
+Спектр доступных опций более чем солиден и включает в себя наборы линз, элементы управления масками и каналами, поддержку систем EXIF и ICC, широкие возможности для экспорта-импорта форматов. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 августа 2015Разработчик: Serif (Europe) LtdПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45385414025A8A3AA09FF417DE3A9809F97EC73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897329   (518270) от 20.08.2015
+
+BlueHarvest 6.2.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518270.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlueHarvest - автоматически удаляем скрытый мусор
+BlueHarvest -  утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
+
+Данная программа будет полезна для тех, кто любит включенную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 августа 2015Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD08B2FBDCDA7EDD108C69D834D918FB3B7AA366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929955   (516901) от 21.08.2015
 
 Noiseless Pro 1.1.0 [En]
@@ -6,7 +64,7 @@ Noiseless Pro 1.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516901.jpg" />
 </div>
 
 
@@ -33,7 +91,7 @@ Typed for Mac 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516136.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Parallels Desktop 18 for Mac Pro Edition Technical Preview
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515427.jpg" />
 </div>
 
 
@@ -89,7 +147,7 @@ Microsoft Office 2021 for Mac LTSC v16.62 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513317.jpg" />
 </div>
 
 
@@ -117,7 +175,7 @@ IconKit 4.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512926.jpg" />
 </div>
 
 
@@ -146,7 +204,7 @@ Troga - Translate. Forget. Recall. Repeat 1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512868.jpg" />
 </div>
 
 
@@ -173,7 +231,7 @@ Wondershare Filmora 6.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512665.jpg" />
 </div>
 
 
@@ -202,7 +260,7 @@ Hider 2 2.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508919.jpg" />
 </div>
 
 
@@ -230,7 +288,7 @@ Paragraphs 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507066.jpg" />
 </div>
 
 
@@ -259,7 +317,7 @@ Bumpr 1.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503820.jpg" />
 </div>
 
 
@@ -286,7 +344,7 @@ PowerPhotos 2.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503817.jpg" />
 </div>
 
 
@@ -312,7 +370,7 @@ Color Folder 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503722.jpg" />
 </div>
 
 
@@ -338,7 +396,7 @@ Kingpin Private Browser 2.0.24 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501671.jpg" />
 </div>
 
 
@@ -365,7 +423,7 @@ Project Office Pro 10.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500583.jpg" />
 </div>
 
 
@@ -391,7 +449,7 @@ Switch Pro 4 v4.5.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500500.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Smarky 2.12.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499751.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ beQUIETsimple 3.45 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499745.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.20.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499740.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ SILKYPIX JPEG Photography 10 v10.2.20.0 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499719.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ Color Ray 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499715.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ Clobbr - test endpoint speed 1.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499713.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ FTP Disk for Mac 1.4.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499708.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ PCDJ DEX PRO 3 v3.18.0.0 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498590.jpg" />
 </div>
 
 
@@ -629,7 +687,7 @@ MDB ACCDB Viewer 2.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498579.jpg" />
 </div>
 
 
@@ -643,58 +701,6 @@ MDB ACCDB Viewer 2.2.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:955B90A0FC0DC7BA3CE578BB065FC4B1D2A56888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564696   (498533) от 20.07.2022
-
-Couverture 1.1.4 [Multi]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Couverture — это редактор пружинных и плавных кривых, который позволяет усиливать анимацию в приложениях, веб-сайтах и ​​прототипах. Кривые Spring, Easing или Timing Curves предназначены для указания скорости изменения анимации с течением времени. Couverture позволяет вам управлять, редактировать и просматривать эти кривые в режиме реального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2022Разработчик: © 2022 IXEAUПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E523B7163B2298AACD10328CAC3AEBE2854A864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564902   (497790) от 21.07.2022
-
-Scroll 2.4.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497790.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью приложения Scroll исправьте чрезмерно чувствительную прокрутку в некоторых приложениях с помощью Magic Mouse или прокрутите только одним касанием трекпада. Ограничьте прокрутку Magic Mouse. Прокрутите одним касанием сенсорной панели. Поддерживает Magic Mouse и любой трекпад Apple.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2021Разработчик: © 2021 Ryan HansonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AF8476F577C97A24A7B8998127DC4F4ED4B25B
 ```
 
 https://mybot314.ru/tekegram_catalog/

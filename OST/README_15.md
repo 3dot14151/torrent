@@ -1,29 +1,3 @@
-###  Публикация: 548961   (464362) от 19.09.2012
-
-Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49FF2007F203724193D6D550894766B9E023C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058890   (464044) от 03.10.2016
 
 Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи Дракса (2016) [MP3|320 Kbps] <Score>
@@ -32,7 +6,7 @@ Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи �
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464044.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460057.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ Nicklas Schmidt - Ronal Barbaren (2011) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453984.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ Ennio Morricone - Ennio Morricone Lounge Vol 2 (2017) [MP3|320 Kbps] <Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450215.jpg" />
 </div>
 
 
@@ -148,7 +122,7 @@ Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450102.jpg" />
 </div>
 
 
@@ -177,7 +151,7 @@ Contagion - Thrill Kill (1998) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449448.jpg" />
 </div>
 
 
@@ -206,7 +180,7 @@ Tommy Tallarico - Evil Dead: Hail To The King (2000) [MP3|~190 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449289.jpg" />
 </div>
 
 
@@ -235,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448586.jpg" />
 </div>
 
 
@@ -264,7 +238,7 @@ Edward Shearmur - K-PAX / Планета Ка-Пэкс (2001) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448049.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ VA - Музыка из т/с «Два Антона» (2009-2010) [MP3|128 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447469.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ Nile Rodgers & VA - Путешествие в Америку / Coming to America
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444871.jpg" />
 </div>
 
 
@@ -357,7 +331,7 @@ Sergey Eybog - Бесконечное Лето (Original Game Soundtrack) (2013)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442854.jpg" />
 </div>
 
 
@@ -386,7 +360,7 @@ VA - Underworld Collection 1-5 / Другой мир 1-5 (2003-2016) [MP3|128-32
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442396.jpg" />
 </div>
 
 
@@ -415,7 +389,7 @@ VA - Friday the 13th / Пятница 13-е (2009) [MP3|192 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442215.jpg" />
 </div>
 
 
@@ -444,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439982.jpg" />
 </div>
 
 
@@ -473,7 +447,7 @@ Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436935.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Roque Banos - Don’t Breathe / Не дыши (Original Motion Picture Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435160.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ VA - Criminal Mind / Мыслить как преступник (2005-2015) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433270.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ doseone - Enter the Gungeon (Original Soundtrack) (2016) [MP3|320 кб/с]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432531.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432517.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ Johnny Jewel - Lost River / Как поймать монстра (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432516.jpg" />
 </div>
 
 
@@ -647,7 +621,7 @@ VA - Overwatch (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432155.jpg" />
 </div>
 
 
@@ -676,7 +650,7 @@ VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429316.jpg" />
 </div>
 
 
@@ -705,7 +679,7 @@ VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427335.jpg" />
 </div>
 
 
@@ -731,7 +705,7 @@ VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426080.jpg" />
 </div>
 
 
@@ -745,6 +719,35 @@ VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B2B883710722466940001F5D6F9A3C0E780C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250600   (424608) от 28.09.2018
+
+Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. Discovery
+03. Rory
+04. Project Stargazer(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739DADB5545B139AC00A893F2592A77A2ABFD12B
 ```
 
 https://mybot314.ru/tekegram_catalog/

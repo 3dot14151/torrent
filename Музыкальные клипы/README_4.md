@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974857.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974326.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972478.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972461.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972353.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972350.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972275.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972200.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971758.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971741.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Romantic Collection (Hits 1983-2001)TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971675.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971671.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Зимний марафон № 219: Самые сливки Нового �
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970575.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Babooshka (Александр Константинов) - 7 Music Videos (2019-2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969634.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969633.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969394.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969258.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tom Boxer & Morena - Las Vegus (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968794.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968675.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968530.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Paramore -  Now (2013) [1080p] HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967734.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967688.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
 </div>
 
 

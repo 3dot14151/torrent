@@ -1,178 +1,3 @@
-###  Публикация: 1265276   (275205) от 27.11.2018
-
-VA - Bravo Hits Zima 2019 (2018) [MP3|320 Kbps] <Dance, Pop, R&B, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275205.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Morandi - Kalinka
-2. Eldzhey - Rvanie jinsy
-3. Ariana Grande - Breathin(   Читать дальше...   )Жанр: Dance, Pop, R&B, Hip-HopПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FF1588EEC211910776A410E874175A6F38BB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265317   (275204) от 27.11.2018
-
-VA - Ministry Of Sound: Heartstrings (2018) 3CD [MP3|320 Kbps] <Pop, Folk, Soft Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275204.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Shotgun - George Ezra
-02. I Miss You - Clean Bandit feat. Julia Michaels
-03. Naked - James Arthur(   Читать дальше...   )Жанр: Pop, Folk, Soft Rock, BalladПродолжительность: 03:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0179042CCA999C54E006516130B6CB2A89AECFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265263   (275190) от 27.11.2018
-
-VA - Playlist of Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Santa Baby
-02. Shannon & Keast - O Holy Night
-03. Meg Birch - Santa Claus is Coming to Town
-04. Ed Clarke & Chris Snelling - Winter Wonderland(   Читать дальше...   )Жанр: Pop, Acoustic, Easy ListeningПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D44AE77A69DF6A0237611951286C1583F73CA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265281   (275187) от 27.11.2018
-
-VA - 90'S The Collection 2018 (2018) 2CD [MP3|320 Kbps] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275187.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. MC Sar & The Real McCoy - It's On You (The Ultimate Freshline Allstars Remix)
-02. Corona - Try Me Out (Lee Marrow Eurobeat Mix)
-03. DJ Space'C - Forever Young (International Club Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A5984F58788898A34186C78BD20BED16425751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850965   (275120) от 17.12.2014
-
-VA - Absolute Dance Winter 2015 (2014) 2CD [MP3|320 кб/с]<Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Absolute Dance - более 23 лет является ведущим брендом для современной танцевальной музыки. На сегодняшний день продано более 3 миллионов копий!
-Вот это, наверное, последняя коллекция в этой популярнейшей серии. Встречайте Новый 2015 Год с Absolute Dance Winter.CD1:
-01. OMI - Cheerleader (Felix Jaehn remix)  (3:02)
-02. Calvin Harris feat. John Newman - Blame  (3:31)
-03. Avicii - The Days  (3:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6A5D019EF713B8CB4D257D5D60354C8A9B0A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337385   (274802) от 10.11.2019
-
-VA - Another Side of Mike Mareen Part Two (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amadeus Liszt - The Devil Wins (Maxi Version) (5:56)
-02. Laurent Antony - Flies (Remix) (4:42)
-03. DJ's Project - Vision of Love (Maxi Version) (7:49)
-04. Gayle Robertson - Africa (Maxi Version) (5:27)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Synth-popПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460ED1B829C8894F07A3C062F1A1F7DCB2911B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337382   (274752) от 10.11.2019
 
 VA - Another Side of Mike Mareen Part One (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Disco, Euro-Disco, Synth-pop>
@@ -181,7 +6,7 @@ VA - Another Side of Mike Mareen Part One (2016) Italo Box Music, 2019, Remaster
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274752.jpg" />
 </div>
 
 
@@ -210,7 +35,7 @@ V.A. - The Hits Album: 80s Young Guns (2019) 4CD [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274665.jpg" />
 </div>
 
 
@@ -239,7 +64,7 @@ VA - Another Side of Mike Mareen Part Three (2016) Italo Box Music, 2019, Remast
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274620.jpg" />
 </div>
 
 
@@ -268,7 +93,7 @@ Mireille Mathieu - Made in France (2017) [MP3|320 Kbps] <Pop, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274570.jpg" />
 </div>
 
 
@@ -297,7 +122,7 @@ Mireille Mathieu - Made In France (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Cha
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274520.jpg" />
 </div>
 
 
@@ -323,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274407.jpg" />
 </div>
 
 
@@ -352,7 +177,7 @@ VA - Суперхиты 2017 (2016) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274389.jpg" />
 </div>
 
 
@@ -381,7 +206,7 @@ Plazma - The Best (2016) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274383.jpg" />
 </div>
 
 
@@ -410,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274365.jpg" />
 </div>
 
 
@@ -439,7 +264,7 @@ Systems In Blue - Melange Bleu (The 3rd Album) (2017) [MP3|320 Kbps] <Euro-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274346.jpg" />
 </div>
 
 
@@ -468,7 +293,7 @@ Mary Wilson - Mary Wilson (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274143.jpg" />
 </div>
 
 
@@ -497,7 +322,7 @@ VA - Future Trance - Return to the Millennium 2000er (2018) 3CD [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274127.jpg" />
 </div>
 
 
@@ -526,7 +351,7 @@ Champagne Explosion - Champagne Explosion (1978) LP [MP3|320 Kbps] <Electronic, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273704.jpg" />
 </div>
 
 
@@ -555,7 +380,7 @@ Lucio Dalla - Storie di casa mia (1971) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273669.jpg" />
 </div>
 
 
@@ -584,7 +409,7 @@ Lucio Dalla - Dalla (1980) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273588.jpg" />
 </div>
 
 
@@ -613,7 +438,7 @@ VA - 100 Superhits From the 80's (1998) 5CD, Compilation [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273332.jpg" />
 </div>
 
 
@@ -642,7 +467,7 @@ VA - Die Mega - 90er Best Of (2017) [MP3|320 Kbps] <Eurodance, Euro-House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273331.jpg" />
 </div>
 
 
@@ -671,7 +496,7 @@ Burito - Белый альбом (2017) [FLAC|Lossless|image + .cue] <Pop-Rock, 
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273160.jpg" />
 </div>
 
 
@@ -700,7 +525,7 @@ VA - Le Son Dancefloor 2019 (2018) 4CD [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273104.jpg" />
 </div>
 
 
@@ -729,7 +554,7 @@ VA - Discofox 2019 (2018) 2CD [MP3|320 Kbps] <Schlager Music, Disco, German Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273048.jpg" />
 </div>
 
 
@@ -743,6 +568,178 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9073882EBD0095139BC762FA652B889A9B3448B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265834   (273026) от 29.11.2018
+
+Jeff and Jane Hudson - The Middle (2016) [MP3|320 Kbps] <Alternative Pop, Synthpop, New Wave, Electronic Rock, Post Punk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Middle
+02. Innocent
+03. Elephants
+04. Make It So(   Читать дальше...   )Жанр: Alternative Pop, Synthpop, New Wave, Electronic Rock, Post PunkПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B40E09D09388B8F0A3A30170CABB3780915F6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265854   (273025) от 29.11.2018
+
+VA - Pure Gold-25 Priceless Tracks (1999) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Surf>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273025.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Billy Fury - Wonderous Place [02:26]
+2. The Animals - The House Of The Rising Sun [04:28]
+3. Kenny Rogers - Ruby, Don't Take Your Love To Town [02:55]
+4. The Supremes - Stop In The Name Of Love [04:17](   Читать дальше...   )Жанр: Pop, Rock, SurfПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF73DD102CDB744862DD1970574573BFB838B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265871   (272976) от 29.11.2018
+
+Clean Bandit - What Is Love? (2018) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony (feat. Zara Larsson)
+02. Baby (feat. Marina and The Diamonds & Luis Fonsi)
+03. Solo (feat. Demi Lovato)
+04. Rockabye (feat. Sean Paul & Anne-Marie)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53893A6C95B35A891BEE5FA08CD9B442AC7D0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265753   (272970) от 29.11.2018
+
+Blow - Vertigo (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Synthwave, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertiges (3:11)
+ 02. New Moon Walker (3:18)
+ 03. Green Unicorn (3:07)
+ 04. Fall in Deep (3:40)(   Читать дальше...   )Жанр: Electronic, Pop, Synthwave, DowntempoПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DD4860FDD69EDC1504B8BFB0F7E91A2BD06C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084007   (272401) от 17.12.2016
+
+Transvolta - Disco Computer (1979) 12" [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект от  Dan Lacksman, продюсера и звуко-инженера из группы "Telex".01. Disco Computer  (6:53)
+02. You're Disco  (6:43)Жанр: Electronic, DiscoПродолжительность: 00:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91CE6D4E72B7363FAC45F0F76BB4D209CB63666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337759   (272363) от 12.11.2019
+
+Boney M. & Friends - Top 40 - Boney M. & Friends (2017) 2CD [MP3|320 Kbps] <Disco, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Ma Baker
+02. Boney M. - Brown Girl In The Ring
+03. Eruption - One Way Ticket
+04. Milli Vanilli - Baby Don't Forget My Number(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 02:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1E93D9B768F2196BDFBE1D139469320C13601A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1189537   (270421) от 06.12.2017
+
+Tale of Us - Endless Remixes (2017) Deutsche Grammophon [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Definizione dell'impossibile (Monoloc Remix) (05:16)
+02. Alla sera (Kettenkarussell's Triangle Player Rework) (06:56)
+03. Ricordi (Rødhåd Remix) (06:40)
+04. Oltre la vita (SCB Introspection) (10:49)(   Читать дальше...   )Жанр: Techno, Ambient, Dub TechnoПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11340B7E20CF9B4396F872B825D224E3981772EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189501   (270409) от 06.12.2017
+
+Fingers In The Noise - 11 Releases (2011-2017) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Monday (06:25)
+ 02. Black Water (05:24)
+ 03. Black Hole (04:18)
+ 04. Black Coffee (06:30)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Glitch/Dub Techno/DowntempoПродолжительность: 00:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F482C3017643BB7911520753B9932C586DBC397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184832   (270359) от 06.12.2017
+
+Miwon - Discography 4 Albums (2004-2017) City Centre Offices, n5MD [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Tech House, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuzzy Words (03:23)
+ 02. Charezza (04:44)
+ 03. Spiderman (03:59)
+ 04. Wolkengedoens (04:17)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM/ElectroПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AE5A83344B4D94389D9A21E99CCA68E3B0ACE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189414   (270280) от 06.12.2017
+
+Orbital - Live At the Eventim Hammersmith Apollo (02-12-2017) (2017) Live Here Now [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Breakbeat, House, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush 3 (07:58)
+ 02. Impact (The Earth Is Burning) Pt1 (06:28)
+ 03. Impact (The Earth Is Burning) Pt2 (01:32)
+ 04. Copenhagen (05:25)(   Читать дальше...   )Жанр: Techno, Electro, Breakbeat, House, Techno AmbientПродолжительность: 01:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554261542AB415E804A7BE6CE7339AF051C81964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189676   (270276) от 06.12.2017
 
 Nova - 2 Albums (1982, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Space>
@@ -6,7 +122,7 @@ Nova - 2 Albums (1982, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Space>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270276.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Progressive Trance Vol. 5 (2018) [MP3|320 Kbps] <Trance, Progressive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270079.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Ori Uplift & Redchild – Uplifting Only 303 (2018) [MP3|320 Kbps] <Trance,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270075.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ VA - The VERSE Uplifting Trance Journey (Mixed by Philip Langham) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270045.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ VA - Winter Chillout Lounge 2018: Smooth Lounge Sounds For The Cold Season (2018
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270039.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ VA - Love Of Lounge Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269867.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2019) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269826.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Cold Blue - Winter (2019) [FLAC|Lossless|WEB|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269771.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ VA - Amsterdam. The End Of Year Album (Mixed by Three Drives) (2017) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269621.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ VA - The Best Of Suanda True (Mixed by Tom Exo) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269618.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ VA - Transcendental Ambience: Chilled and Relaxing Music Playlist (2017) [MP3|32
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269596.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Lustmord - Maschinenfest (October 2 2011) (2017) Vaultworks [FLAC|Lossless|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269584.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ VA - Post Workout Stretching: Music Chillout After Your Workout (2017) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269571.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Little Big - GO BANANAS (2019) EP [MP3|320 Kbps] <Rave, Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269566.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ VA - Trance Pure (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269207.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ VA - Future Sounds. EDM 2019 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269197.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Mi-Sex - 5 Studio Albums (1979-2016) Collection [MP3|320 Kbps] <New Wave, Pop Ro
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269175.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Misja Helsloot - WhatTheHelsloot (2019) [MP3|320 Kbps] <Trance, Progressive Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269004.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ VA - A Tribute to Amateras (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268982.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Marc Hartman - 4 Seasons To Chill (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268924.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Escape With Romeo - Greatest Hits (1999) [FLAC|Lossless|tracks + .cue] <Electron
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268923.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ VA - Alternative Space: Ambient and Chillout Music Vol.4 (2017) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268893.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ VA - Alternative Space: Ambient and Chillout Music Vol.4 (2017) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0044053379CD2FE3647499D6FB524C2E86165BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190082   (268724) от 08.12.2017
-
-VA - Deep Meditation Yoga (Best of Calm Relaxing Music) (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dharma Frequency - Mojun Ambient
-02. Dharma Frequency - Deep Meditation
-03. Sami Sivananda - Lotus Yoga
-04. Prana Tones - Deep Relaxation Tunes(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A221973310B49ACBB4B2C40CD09E8299C1181738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266956   (268428) от 04.12.2018
-
-Prequel - Without You (2018) Distant Hawaii [FLAC|Lossless|WEB-DL|tracks] <Detroit House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song I Said I'd Make For You (07:08)
- 02. And Though It's Been Too Long (06:11)
- 03. People Say (04:40)
- 04. Give Me Things That Don't Get Lost (05:55)Жанр: Detroit House, Deep HouseПродолжительность: 00:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7132CE56BC8C6468F3924D104D4263074F5942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266950   (268427) от 04.12.2018
-
-au Voyage - Craosa (2018) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambion (01:15)
- 02. Octious (02:01)
- 03. Median (02:38)
- 04. Sasanian (02:34)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F576839AAC01F21548C49C792E523927E1E14A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266996   (268420) от 04.12.2018
-
-VA - Balearic Sundown Lounge-Beach Chill Out Summer Moods (2018) [MP3|320 Kbps] <Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Pilots - Any Lounge Color (Guitar Bar Classics Lounge Mix)
-02. Two Heroes - Dream Of Something Sweet (Chillin' Dire Guitar Mix)
-03. Ryan Pearce - Open All Night (Ibiza Guitar Lounge Mix)
-04. Joe's Diner, Victor Rodriguez - Clouded Minds (Spanish Guitar Chill Mix)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F8BF6BEADEC272E1DF9348D3228B8ED7A4B129
 ```
 
 https://mybot314.ru/tekegram_catalog/

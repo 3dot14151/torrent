@@ -1,3 +1,56 @@
+###  Публикация: 1567174   (476496) от 01.08.2022
+
+WidsMob Panorama 4.25 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте высококачественную панораму в один клик
+WidsMob Panorama - это профессиональная программа для создания панорам, которая автоматически создает панораму. Это программное обеспечение для сшивания панорамных изображений может сшивать панораму и обычные фотографии с невероятной скоростью и простыми шагами.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2022 WidsMobПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB49D90A7742F3CB612C33757B51159D7C8F2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567097   (476319) от 01.08.2022
+
+Digital Clock 3D 2.1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка цифровых часов, начиная от ретро и закачивая современным вариантом OLED. Подключить все это великолепие, можно, как в качестве обоев, так и в качестве заставки. Выберите стиль, который вам больше всего нравится или оставьте его на волю случая, смакуя ультра реалистичную 3D графику!Тип издания: macOS SoftwareРелиз состоялся: 31.07.2022Разработчик: 3PlanesoftПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A810B8678200D6806E7E0C546C971F897FFB563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245020   (475543) от 04.09.2018
 
 SEO Checker 2.0 [En]
@@ -6,7 +59,7 @@ SEO Checker 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475543.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Diagrammix 2.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475332.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Cornerstone 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475331.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Net Monitor 4.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475011.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ ABBYY Lingvo European 1.11.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474624.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Large Files Finder 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474551.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Filmographer 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474541.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Easy Markdown 1.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474434.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ Dato 4.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474428.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Smart File Renamer 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474425.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Speedy Duplicate Finder 1.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474421.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ SyncMate Expert 8.5.504 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474420.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ All Remixes 1.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474418.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Full Discography 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474417.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ OnyX 4.2.2 for macOS Monterey 12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474241.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Mailplane 3.7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474018.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Microsoft Excel 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473889.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Microsoft PowerPoint 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473884.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Microsoft Word 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473875.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ Malwarebytes for Mac Premium 3.0.2.422 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473764.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Feeder 3 v3.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473193.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472512.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Rename Photos 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472463.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ Private Contact 3.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472381.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ Private Contact - это приложение для управления на M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66AF4FF66872D27A45A6DDD9CC056E727971D529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567521   (472363) от 03.08.2022
-
-Eon Timer 2.9.1 U2B [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой в использовании Time Tracking для Mac с чистым интуитивно понятным интерфейсом. Следите за временем для всего вашего проекта в одном месте, а затем отправляйте его в свой онлайн-сервис, если хотите.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2022Разработчик: © 2011-22 Charlie Monroe Software, s.r.o.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A649D0C73A19260F901C57212F9DC890AA52372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567620   (472251) от 03.08.2022
-
-Klokki 1.3.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Klokki - это отслеживание времени на основе правил, которое автоматически запускает / приостанавливает таймер. Автоматизация основана на правилах, которые вы настраиваете, и это дает вам полный контроль над тем, что следует отслеживать, а что нет.Тип издания: macOS SoftwareРелиз состоялся: 05.07.2022Разработчик: © 2022 Klokki byStas MoorПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6994D67C6CB816789EC4AE8E8BEC860E1113FB40
 ```
 
 https://mybot314.ru/tekegram_catalog/

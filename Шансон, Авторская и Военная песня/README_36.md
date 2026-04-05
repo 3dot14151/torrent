@@ -1,3 +1,32 @@
+###  Публикация: 1072229   (354014) от 12.11.2016
+
+Игорь Растеряев - Дождь над Медведицей (2016) [FLAC|Lossless|image + .cue] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354014.jpg" />
+</div>
+
+
+###  Подробнее
+
+«По сравнению с предыдущими альбомами, «Дождь над Медведицей" получился крайне ностальгическим. Тема пионерского детства плавно переходит к произведениям "Кореш" и "Дед Агван", посвящённым людям, которых уже нет, но общение с которыми оказало на меня непосредственное влияние.01. Гармонь
+02. Песня о детстве
+03. Поезд
+04. Песня ангелов-хранителей(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F741F5A6EAFDB2DC70160AE0BEA1727C66C382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072227   (353997) от 12.11.2016
 
 Игорь Растеряев - Дождь над Медведицей (2016) [MP3|320 Kbps] <Авторская песня>
@@ -6,7 +35,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353997.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353946.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Marc Lavoine - Volume 10 (2010) [FLAC|image+.cue]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353144.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352820.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350918.jpg" />
 </div>
 
 
@@ -155,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350783.jpg" />
 </div>
 
 
@@ -184,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349953.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348799.jpg" />
 </div>
 
 
@@ -248,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348545.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348065.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347928.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ VA - Самые сливки шансона 2 (2002) [FLAC|Lossless|tracks + .cu
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347710.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347597.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347511.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346681.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346468.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ VA - Письма матери (2006) [FLAC|Lossless|tracks + .cue]<Шансон
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344545.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344315.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344300.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344212.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343300.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341207.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340214.jpg" />
 </div>
 
 
@@ -689,7 +718,7 @@ Serge Gainsbourg - De Gainsbourg A Gainsbarre (1990) 2CD, 1994 [FLAC|Lossless|tr
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338226.jpg" />
 </div>
 
 
@@ -718,7 +747,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336591.jpg" />
 </div>
 
 
@@ -732,35 +761,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8177671BBBD84E2B139534D183739D38BBB55816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330825   (336466) от 12.10.2019
-
-Михаил Круг - Лирика (1997) Master Sound, Remastered, 2004, Одиссей [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Осенний дождь
-02. У каких ворот
-03. Ништяк, Браток!
-04. Добрая, глупая, давняя(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29152738D5F4710AEDBBC159868865A09582A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

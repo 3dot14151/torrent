@@ -1,3 +1,30 @@
+###  Публикация: 1169628   (402292) от 28.09.2017
+
+WinZip 6.0.35.47 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402292.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinZip — мощный архиватор, который поможет легко и удобно сжимать и шифровать любые файлы, экономя место на диске и оптимизируя почтовые вложения. Архивация файлов не только позволяет уменьшить занимаемое файлами пространство, но и позволит отправлять архивы с комплектами документов по e-mail.
+WinZip предоставляет пользователям лучшие характеристики и функции WinZip (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2017Разработчик: Corel CorporationПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4914E720440C2153BA07C102DE7946AC55610D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169933   (401505) от 29.09.2017
 
 App Cleaner Pro 4.2 [En]
@@ -6,7 +33,7 @@ App Cleaner Pro 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401505.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Trim Enabler Pro 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401465.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ iRamDisk 3.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400606.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ TokenLock 4.72.9124 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400596.jpg" />
 </div>
 
 
@@ -118,7 +145,7 @@ CrossOver 16.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400317.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ Mail Act-On 4.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398688.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ Virus Scanner Plus 3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398633.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ QuartzCode 1.58.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397766.jpg" />
 </div>
 
 
@@ -224,7 +251,7 @@ Duplicates Expert 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394847.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ QuartzCode 1.59.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394158.jpg" />
 </div>
 
 
@@ -277,7 +304,7 @@ sdspeed 3.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391156.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ Wondershare Data Recovery 6.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390474.jpg" />
 </div>
 
 
@@ -332,7 +359,7 @@ Wallpaper Wizard 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390402.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ Crossover for Mac 11.3.1 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_388823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388823.jpg" />
 </div>
 
 
@@ -389,7 +416,7 @@ DiskExpert 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387527.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ Tap 1.5 11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387250.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ Desktop Clock 1.8.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386945.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ Deskovery3 v3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382655.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ WindowMizer 4.4.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380597.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ CleanMyMac X 4.6.14 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380475.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ OS X Server 5.0.15 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379149.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ Seasonality Core 2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379104.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Fireplace HD+ - Камин HD+: Заставки и фоны 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378459.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ Duplicate Detective: Cleaner 1.99.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377510.jpg" />
 </div>
 
 
@@ -669,7 +696,7 @@ Grabber : Screenshot Master 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377388.jpg" />
 </div>
 
 
@@ -683,32 +710,6 @@ Grabber : Screenshot Master позволяет захватывать экран
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDF02BF852B2E6C86D813F078F707741BC9D9E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415652   (376161) от 12.10.2020
-
-Adguard 2.5.0.902 release [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC55BAD193E4114ADB9E516F269989D8A425A8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

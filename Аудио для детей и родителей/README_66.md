@@ -1,3 +1,32 @@
+###  Публикация: 272704   (279046) от 19.12.2010
+
+VA - The Smurfs Christmas Party (1996) [MP3|192 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279046.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We Wish You A Merry Christmas
+2. Christmas With The Smurfs
+3. Smurfing Round The Christmas Tree
+4. Rudolph The Red-Nosed Reindeer(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED0B611496CD56CFEAE61088F91012589A9F343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082113   (279006) от 12.12.2016
 
 Юлия Бортновская-Медокс | Зимние сказки, стихи и загадки (2015) [MP3]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279006.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ VA - DisneyMania [7 CD] (2002-2010) [MP3|150-267 kbps]<Детские песни
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278822.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273706.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273022.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272788.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272484.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271652.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271588.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271579.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271508.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271454.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Nicolette Larson - Sleep Baby Sleep (1994) [MP3|160 kbps]<Колыбельные
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271325.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270773.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ VA - Вспоминая СССР. Любимые детские песни (1968
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270755.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Anthony Miles - Мама и ребенок / Mother & Baby (2000) [FLAC|Lossless
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270713.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270669.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270410.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ VA - Ритмы детства. Веселые детские танцеваль
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270137.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ VA - Новогодний мюзикл. Потому что Зима - это з
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269926.jpg" />
 </div>
 
 
@@ -519,7 +548,7 @@ VA - Barbie Let's All Party (2009) [MP3|160 kbps]<Детские песни/Danc
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269678.jpg" />
 </div>
 
 
@@ -548,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268217.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266661.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266504.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266486.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266414.jpg" />
 </div>
 
 
@@ -671,35 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2372A9692F44C0DCE54E7CC8EF39C01DF5CD482A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 429173   (266377) от 29.12.2011
-
-Анна Петряшева - Билетик в детство (2008) [MP3|320 kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1+/-12  Песенка сладкоежек
-2+/-13 Помогите бегемоту
-3+/-14 Рыжий кот
-4+/-15 Чудак(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCD3E40D96039A0A446CB66812DE9911A68DA1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

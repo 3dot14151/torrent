@@ -1,3 +1,55 @@
+###  Публикация: 1627235   (199610) от 18.04.2023
+
+И.Н. Бронштейн, К.А. Семендяев | Справочник по математике для инженеров и учащихся втузов (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник по математике И.Н. Бронштейна и К.А. Семендяева выдержал множество изданий. Благодаря краткости изложения, полноте и удачному построению материала он прочно завоевал большую популярность. Приведены сведения по алгебре, планиметрии, стереометрии, тригонометрии, аналитической и дифференциальной геометрии на плоскости и в пространстве, дифференциальному и (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C82F4BEAE3B44DA1B1ED2368CB2CE59C6E9E411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627748   (199575) от 20.04.2023
+
+А.А. Ермолицкий | Большой справочник по элементарной математике (2003) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый справочник — универсальное пособие для подготовки к вступительным экзаменам по математике в высшие учебные заведения. Теоретические разделы, включенные в книгу, охватывают программу для поступающих в вузы, а также содержат основные сведения по элементарной математике как для учащихся общеобразовательных школ, так и для обучающихся в спецклассах, гимназиях, (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6095AFFC8C8FBF7E08C278E1D65C19CAF46586E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627416   (199563) от 19.04.2023
 
 Г.П. Кутищев | Решение алгебраических уравнений произвольной степени: Теория, методы, алгоритмы (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199563.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199558.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199538.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199440.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199295.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199209.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199186.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198935.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198715.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198671.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198652.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198619.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198567.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198399.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198398.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198219.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198186.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198123.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198030.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198017.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197952.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197948.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197946.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197927.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD4B318DA362B0799807446D7679237E3EB4890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636619   (197727) от 31.05.2023
-
-Р.Г. Чембарисова | Механика. Курс лекций (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основные положения классической механики. Содержатся также главы, которые составляют предмет современной физики. Рассматриваются содержание и следствия специальной теории относительности, содержание и практические выводы общей теории относительности. Для более глубокого и ясного понимания некоторых «трудных» разделов приведены различные их практические приложения (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F580E5C7F85AB2B4D97A7DA21DE80BF4B7A28384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637058   (197648) от 02.06.2023
-
-Д.М.  Ахмедханлы, Н.В. Ушмаева | Основы алгоритмизации и программирования. Электронное учебно-методическое пособие (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методическое пособие «Основы алгоритмизации и программирования» содержит теоретические материалы по изучению дисциплины «Введение в профессию», методические рекомендации по выполнению практических заданий, примеры типовых задач, тестовые задания. Предназначено для студентов направления подготовки 09.03.03 «Прикладная информатика» (квалификация – бакалавр) (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A107A98E89BC2AD1735EE659FD5C85CE2FD5D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

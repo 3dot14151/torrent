@@ -1,3 +1,61 @@
+###  Публикация: 1563738   (502758) от 16.07.2022
+
+Graveshadow - The Uncertain Hour (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soldier Of 34
+02. Gwynnbleidd
+03. Sea Of Apparitions
+04. The Swordsman(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F55F8A7300EEED642D61F02648A6973FFE88ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563834   (502757) от 16.07.2022
+
+Celestial Wizard - Winds Of The Cosmos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda
+02. Revenant
+03. Ice Realm
+04. Powerthrone(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BC355B716620B18A423336142B6A06A8708437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563797   (502756) от 16.07.2022
 
 Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
@@ -6,7 +64,7 @@ Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502756.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Honey Bone Rush - Reptilia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502714.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Supasonic Fuzz - Cobracadabra (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502713.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Infernal Legion - Beast Reborn (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502712.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Taz Taylor Band - Nocturnal (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502711.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Depressed Mode - 2 albums (2007 - 2009) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502708.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Jason Richardson - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, J
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502707.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502704.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Fellowship - The Saberlight Chronicles (2022) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502702.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Palace - One 4 The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502700.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Full Scale Overload - Situation Sickness (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502699.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Disciples of the Apocalypse - Disciples of the Apocalypse 2: Hell on Earth (2022
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502698.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Flying Colors & The Neal Morse Band - Morsefest 2019 (2021) 4xCD, Live [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502616.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Jeff Beck & Johnny Depp - 18 (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502610.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Mojo Presents Yellow Submarine Resurfaces (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502563.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ The Sword - High Country (2015) [OGG| 435-535 кб/с]<70's Stoner Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502518.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Black Majesty - Cross Of Thorns (2015) [MP3|320 кб/с]<Heavy Metal, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502406.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Riverside - Love, Fear And The Time Machine (Limited Edition) (2015) 2CD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502399.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Animal Collective - Centipede Hz (2012) [FLAC|Lossless]<Indie/Experimental rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502358.jpg" />
 </div>
 
 
@@ -570,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502108.jpg" />
 </div>
 
 
@@ -602,7 +660,7 @@ Honkeyfinger - 2 Albums (1 Full-length, 1 EP) (2008 - 2009) [MP3|320 kbps]<One M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501756.jpg" />
 </div>
 
 
@@ -628,7 +686,7 @@ Orianthi - Believe II (2010) [MP3|320 kbps]<Alt. Rock/Modern Rock/Female Vocals>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501752.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ The Sorrow - Misery Escape (2012) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501735.jpg" />
 </div>
 
 
@@ -683,7 +741,7 @@ Mantar - Pain is Forever and This is the End (2022) [MP3|320 Kbps] <Black Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501732.jpg" />
 </div>
 
 
@@ -697,64 +755,6 @@ Mantar - Pain is Forever and This is the End (2022) [MP3|320 Kbps] <Black Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04CF49EC1BEA170352059C78A238466AC71E8158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564135   (501731) от 17.07.2022
-
-Quiet Confusion - Magella (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Long Wave
-02 Plastic Man
-03 Lady In Blue
-04 Wastin' Time(   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FBE3481476A86F8269BC3B20F47E77D25A958D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564141   (501730) от 17.07.2022
-
-Volt Ritual - Volt Ritual (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Approaching Jupiter
-02 Moon Sabbath
-03 Teufel Tanner
-04 War In The Sun(   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78527C4A5D122A9897920CE51237E679B4973129
 ```
 
 https://mybot314.ru/tekegram_catalog/

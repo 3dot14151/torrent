@@ -1,3 +1,29 @@
+###  Публикация: 1545757   (611125) от 21.04.2022
+
+Ювенальный суд / Суд по делам несовершеннолетних / Sonyeonsimpan / Juvenile Justice (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) SOFTBOX
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судья Щим Ын-сок всей душой ненавидит малолетних нарушителей. Поскольку закон в полной мере не может наказать несовершеннолетних даже за самые тяжкие преступления, женщина находит свой способ нести в мир справедливость.Производство: Южная Корея, GT:st, Gill PicturesЖанр: драма, криминалРежиссер: Хон Джон-чханАктеры: Ким Хе-су, Ким Му-ёль, Ли Сон-мин, Сон Док-хо, Ли Джон-ын, Ким Чхан-хён, Ким До-гон, Пак Чон-хван, Щин Джэ-хви, Ю Джэ-мёнПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: Русский, английский, корейскийСубтитры: Русские, Украинские, АнглийскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1306740761B4238DA5BDF92B9E5663D4B5737F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545756   (609371) от 22.04.2022
 
 Даль-ли и камджатхан / Далли и дерзкий принц / Dalriwa Gamjatang / Dali and the Cocky Prince (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16) SOFTBOX
@@ -6,7 +32,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609371.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604242.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604197.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603340.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603317.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601955.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596036.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593267.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592622.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592589.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592475.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592461.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587584.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584648.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569920.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556010.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551292.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533606.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531650.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520960.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507899.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507897.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496280.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493380.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490018.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C56019498BABE4393311CBA0A9037407F22503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244850   (477741) от 03.09.2018
-
-Стража / Pasukkun / Lookout (2017) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-32 из 32) HramDoram
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько человек потеряли близких с результате совершения преступлений, а виновные так и не были наказаны. Пострадавшие формируют организацию, чтобы вершить правосудие самостоятельно.Производство: Корея ЮжнаяЖанр: боевик, драма, триллерРежиссер: Сон Хён-сокАктеры: Ким Ён-гван, Ли Щи-ён, Ким Тхэ-хун, Ким Сыль-ги, Чхве Му-сон, Щин Дон-ук, Чон Ми-сон, Ким Сан-хо, Чо Дон-ин и др.Перевод: Многоголосый закадровый, любительский - HramDoramПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC5C919B09BFB773B25B01E91AAAB7DEE496373
 ```
 
 https://mybot314.ru/tekegram_catalog/

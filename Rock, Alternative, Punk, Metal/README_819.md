@@ -1,3 +1,32 @@
+###  Публикация: 1612923   (243417) от 18.02.2023
+
+Creye - III: Weightless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glorious (4:07)
+02. Air (3:39)
+03. One Step Away (3:39)
+04. The Game (3:00)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23093FB4DF3F78DBD4437BB2B49AE581B723CCBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538269   (243413) от 20.03.2022
 
 Antumbra - Split The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock>
@@ -6,7 +35,7 @@ Antumbra - Split The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243413.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nabokova - Кувшинки (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, I
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243397.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Audiobulldozzer - Pandemonium Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243392.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Arion - Vultures Die Alone (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243391.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ten Jinn - Ardis (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243385.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Red Rum - Book of Legends (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243377.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Perblind - The Dead And The Living (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243375.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ UFO - Werewolves Of London (Live 1998) (2022) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243373.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mystery - Redemption (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243371.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Veonity - Elements Of Power (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243354.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Delorian - It Is Time (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243353.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243352.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Gnarwhal - Gnarwhal (2023) [MP3|320 Kbps] <Hard Rock, Fuzz, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243346.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Warrant - Dirty Rotten Filthy Stinking Rich (1989) Japanese Edition [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243343.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Warrant - Dog Eat Dog (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243338.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243328.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Barry Goudreau’s Engine Room - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243313.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ L.A.Guns - Black Diamonds (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243310.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Blodkvalt - Algor Mortis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243308.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Korea - Яд (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243304.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Defleshed - Fast Forward (1999) Reissue 2002 [APE|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243290.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ TOOL - Opiate² (2022) single [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243289.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Dawn of Darkness - The First Seven Signs (2022) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243279.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Eta Lux - High and Low (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243273.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Odal - Geistes Unruh (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243271.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Odal - Geistes Unruh (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95A15512F764459E33D96558CEB56556B9F34DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613725   (243264) от 19.02.2023
-
-Abanamat - Abanamat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djinn [00:06:16]
-02. Thunderbolt of Flaming Wisdom [00:05:50]
-03. Voidgazer [00:08:24]
-04. Flying Fish [00:05:39](   Читать дальше...   )Жанр: Heavy Psych, StonerПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99D0477CD37652793253764A7D9C9439F4BC474
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1833750   (246321) от 02.11.2025
+
+SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой бизнесмен Перри Джейсон приезжает в город, чтобы совершить крайне выгодную сделку. Нет сомнений в том, что скоро разбогатеет. Перри решает пожить на всю катушку и снимает пентхаус в самом роскошном отеле в городе. Тем более эта чертова война с Конфедерацией наконец-то заканчивается! Но по прибытию в номер происходит ужасное…Тип издания: RepackРазработчик: MandragoraЖанр: Приключенческие игры, Инди, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230229DF37DC99C7089B8B3CC1962D3029C2DBE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833186   (246247) от 01.11.2025
+
+Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти. Боеприпасов (   Читать дальше...   )Тип издания: LicenseРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54EBB633B7E5E8449E59F3EEEA9E8999F6EBACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833032   (246192) от 31.10.2025
+
+Hollowbody (2024) [Ru/Multi] (2.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hollowbody бросает вас с головой в мрачный мир техно-нуара. Представьте себе короткий рассказ, но вы управляете главным героем, перемещающимся по разрушающемуся мегаполису, городу-призраку некогда бурлящего города. Забудьте о причудливой графике и зажигательной музыке, это всего лишь рассказ об окружающей среде. Пустынные улицы и заброшенные здания говорят о многом, (   Читать дальше...   )Тип издания: RepackРазработчик: Headware GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Португальский и другиеЯзык интерфейса: Русский, Английский, Испанский, Португальский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A387651F894B48B708FE50A43FE3D0B56EE996B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540017   (245498) от 29.03.2022
 
 A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
@@ -6,7 +84,7 @@ A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245498.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Expedition Zero (2022) [Ru/Multi] (1.01.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245153.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244766.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244694.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244676.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Noctem (2022) [Multi] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244581.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244443.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244343.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243332.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237664.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ South of the Circle (2022) [Ru/Multi] (23) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237353.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236481.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236275.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235338.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234577.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233780.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233614.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ JANITOR BLEEDS (2022) [Ru/Multi] (1.0.41) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232591.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232168.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231934.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230562.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229470.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Life after Death (2022) [Ru/En] (10.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228323.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Life after Death — это психологический триллер от �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3166ABB4DE64D5D31716E5D35CD1113C471F6AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583590   (228191) от 15.10.2022
-
-Scorn (2022) [Ru/Multi] (Build 9713371) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228191.jpg" />
-</div>
-
-
-###  Подробнее
-
-SCORN — атмосферный приключенческий хоррор от первого лица, действие которого происходит в ужасной искореженной вселенной. Он вдохновлен хайдеггеровской идеей «заброшенности». Вам предстоит исследовать связанные друг с другом регионы этого кошмарного мира в полном одиночестве. Окружение будет полноценным героем игры. В каждой локации вас ждут уникальный сюжет, загадки (   Читать дальше...   )Тип издания: RepackРазработчик: Ebb SoftwareЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E81752BDEC1054A7C04DF358E260D83CC13056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423389   (226363) от 17.11.2020
-
-Observer: System Redux (2020) [Ru/Multi] (1.1.35) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226363.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 2084 год. Будущее оказалось намного мрачнее, чем казалось раньше. Сперва появился нанофаг – цифровая эпидемия, унесшая жизни многих тысяч аугментированных людей. Затем началась война, превратившая Запад и Восток в руины. В образовавшемся вакууме к власти пришли корпорации, создав собственные империи беззакония. Вы инструмент корпоративного гнета. Вас боятся (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober Team, Anshar StudiosЖанр: Adventure (Cyberpunk-Horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9FB4B28C9185FC45B6D2E83F90FF22385802BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341956   (226331) от 30.11.2019
-
-Heavy Rain (2019) [Ru/Multi] (Build 362) Repack R.G. Механики
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в напряженный психологический триллер, где ваш выбор и действия могут привести к драматическим последствиям... и определите, кто останется в живых, а кто умрет. Мастер Оригами терроризирует город, который получил такое прозвище из-за своей жуткой визитной карточки — манеры оставлять на месте преступления сложенные из бумаги фигурки, не оставляет полиции (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure, Interactive, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5719F6CAA48F26C0A137B09FF0A91E839C85F82E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1288841   (691974) от 13.03.2019
+
+VA - Yoga & Meditation Selections Vol.06 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Tarasov - October (Original Mix) 6:19
+02. Dan Wack - A Beginning (Original Mix) 5:37
+03. Kirsty Hawkshaw & Sam Hyder - Thecosomata (Original Mix) 2:53
+04. Johannes Fischer - Farewell (Piano Version) 4:43(   Читать дальше...   )Жанр: Downtempo, ChillOut, Ambient, Meditation, NewAge, Relax, ElectronicaПродолжительность: 02:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C71E1C3064CB5B1F93060AACE8C328913E4122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288935   (691964) от 13.03.2019
+
+VA - Armin van Buuren - A State Of Trance Festival 900 - (Madrid) (2019) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilan Bluestone & Maor Levi – Everybody (Ilan Bluestone & Maor Levi Club Mix)
+02. Maor Levi & OTIOT – Bandana
+03. Maor Levi & OTIOT ft. Ashley Tomberlin – Turn Out The Lights
+04. Ilan Bluestone & Maor Levi ft. El Waves – Will We Remain?(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 07:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F2D0758F5A395BB852F54BC786EFE57167AEC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288849   (691958) от 13.03.2019
 
 Mr.Kitty - EPHEMERAL (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
@@ -6,7 +64,7 @@ Mr.Kitty - EPHEMERAL (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691958.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Fatum - All In Radio 001-017 (2020) [MP3|192 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691933.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Goa Culture - Season 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691931.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Clouds Over - Havana Vol.1: 30 Fantastic Chill Out Tunes (2017) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691659.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Stephanie Sante - In Your Eyes (2017) [MP3|320 Kbps] <Lounge, Nu Jazz, Smooth Ja
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691650.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Mykonos Deep House Session (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691543.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Marcus Meinhardt - 20 Years Best Of Marcus Meinhardt (2018) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691533.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691532.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Solitudine / Faces / Atlantide / Oak Tree (2018) EP [MP3|320 Kbps] <Electro
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691469.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Deluxe Top 10 April Music 2018 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691466.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Workout Vol. 4 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691465.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Zynic - 3 Albums (2011 - 2017) [FLAC|Lossless|image + .cue|tracks + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691302.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691266.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Respected Force - A Kaleidoscope Of Moments Chapter II (2017) [MP3|320 Kbps] <Ba
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691173.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Ari Mason - 2 альбома + EP (2014, 2016) [MP3|200 -320 Kbps] <Synthpop, Da
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690995.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Translinguistic Perceptions (2015) [MP3|320 кб/с] <Downtempo, Experiment
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690964.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Balkan Connection Summer 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690783.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Capsule Network - Discography 2 Releases (2018-2020) WéMè Records [FLAC|Lossle
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690694.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [MP3|320 кб/с] <D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690660.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Ministry Of Sound - Chilled House Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690654.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Blank & Jones - #WhatWeDoAtNight 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690530.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Bob Moses - The Silence in Between (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690514.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Bomfunk MC's - 2 Альбома (1999 - 2005) [FLAC|Lossless]<Breakbeat, House, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690201.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Sven Laux - Schachmatt (2018) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689676.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Sven Laux - Schachmatt (2018) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37832F40AACF44BEC2D956AC48D0D999441AF567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221956   (689675) от 27.04.2018
-
-1954 - A Part of Me (2018) Project: Mooncircle [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers of the Dead Man (03:09)
- 02. It Was Love (03:18)
- 03. Hermann's Dream (02:59)
- 04. Colored Lies (03:41)(   Читать дальше...   )Жанр: Leftfield, DowntempoПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99ABC9C7F4D421ADC959A7D3A69D2EC1D3934095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221958   (689672) от 27.04.2018
-
-Goldmund - Occasus (2018) Western Vinyl [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before (03:25)
- 02. Above (02:36)
- 03. Bounded (03:10)
- 04. Breaking (03:06)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE614C2B775D777B9C44D9F08CA9A8D72ECBC058
 ```
 
 https://mybot314.ru/tekegram_catalog/

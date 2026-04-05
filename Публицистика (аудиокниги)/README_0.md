@@ -1,3 +1,137 @@
+###  Публикация: 1848597   (1053167) от 20.01.2026
+
+Евгений Гаврильченко | Криштиану Роналду. Путь к мечте (2025) [MP3, Алексей Комиссаров]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криштиану Роналду – это не просто имя, это символ страсти, силы и сердца, который стал одним из величайших футболистов всех времен! Благодаря своей безграничной преданности делу, неиссякаемому труду и невероятной воле он превратился в мировую футбольную легенду, вдохновляющую миллионы. Эта аудиокнига – это не просто биография знаменитого спортсмена, а потрясающее, (   Читать дальше...   )Жанр: Футбол, спорт, биографияИздательство: БОМБОРАПродолжительность: 08:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F1D674EB9F7EFF82AE75796D3E266AC84B72A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848555   (1053130) от 18.01.2026
+
+Абрам Терц | Прогулки с Пушкиным (2024) [MP3, Максим Сергеев]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как получилось, что Александр Сергеевич Пушкин – писатель, раздвинувший границы русского языка, превратился в бронзовый монумент? Когда на автора навесили ярлыки «гражданственности» и «имперскости»? Где же настоящий Пушкин – и был ли он вообще?
+Литературный скандал! Книга вышла в 1975 году, но споры о ней не утихают. Имел ли право автор так вольно обращаться с Пушкиным? (   Читать дальше...   )Жанр: Литературоведение , ПублицистикаИздательство: Аудиокнига (АСТ)Продолжительность: 07:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055AE69898D369640597F54AE2576918230689AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848546   (1053121) от 18.01.2026
+
+Ян-Питер Барбиан | Литературная политика Третьего рейха (2025) [MP3, Дмитрий Стрелков]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сожжение десятков тысяч книг 10 мая 1933 года на Опернплац в Берлине – а затем и по всей Германии, – стало прелюдией к всеобъемлющему процессу утверждения и развертывания тоталитарной политики Третьего рейха в сфере литературы. Используя множество различных источников, историк Ян-Питер Барбиан – главный знаток дискурса об угнетателях и угнетенных, властителях и подвластных, (   Читать дальше...   )Жанр: Документальная литература, Историческая литератураИздательство: IndividuumПродолжительность: 17:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC28F640467A8D31D1A9BBCC435B807C80DC8930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848544   (1053120) от 18.01.2026
+
+Марк Солонин | Запретная правда о Великой Отечественной. Нет блага на войне! (2022) [MP3, Евгений Казмировский]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об этом молчит исторический официоз. Это отрицает кремлевская пропаганда. Эти неудобные факты пытается запретить «партия власти».
+
+Но горькая правда о Великой Отечественной прорывается сквозь негласную цензуру! В документальном расследовании ведущего историка-антисталиниста речь идет именно о тех событиях, которые Кремлю больше всего хотелось бы забыть: соучастии (   Читать дальше...   )Жанр: История, Военное делоИздательство: ЛитРесПродолжительность: 12:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DFD2D83ACF5A6EE59DB74399722BA6EDC6F6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848140   (1052537) от 16.01.2026
+
+Нюта Федермессер | Быть волонтером (2025) [MP3, Екатерина Салова]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каково это – быть волонтером? А быть волонтером в такой особенной сфере, как паллиативная и хосписная помощь? Какими путями приходят волонтеры в Благотворительный фонд помощи хосписам «Вера»? Что ими движет? Что им самим дает это высокое служение?
+Учредитель фонда Нюта Федермессер и волонтеры рассказывают истории из своей практики и делятся с читателями размышлениями (   Читать дальше...   )Жанр: ПублицистикаИздательство: АзбукаПродолжительность: 08:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C68A9D94ABBCCFEBF5C4CD06202B864F645DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848123   (1052536) от 16.01.2026
 
 Александр Солженицын | Двести лет вместе. Часть I (2011) [MP3, Валерий Будевич]
@@ -6,7 +140,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052536.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052535.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052474.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052430.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051506.jpg" />
 </div>
 
 
@@ -138,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048072.jpg" />
 </div>
 
 
@@ -165,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046994.jpg" />
 </div>
 
 
@@ -191,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046797.jpg" />
 </div>
 
 
@@ -217,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046471.jpg" />
 </div>
 
 
@@ -243,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045067.jpg" />
 </div>
 
 
@@ -269,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044707.jpg" />
 </div>
 
 
@@ -296,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043601.jpg" />
 </div>
 
 
@@ -322,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038355.jpg" />
 </div>
 
 
@@ -348,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038347.jpg" />
 </div>
 
 
@@ -374,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038343.jpg" />
 </div>
 
 
@@ -400,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037545.jpg" />
 </div>
 
 
@@ -426,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036579.jpg" />
 </div>
 
 
@@ -452,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027518.jpg" />
 </div>
 
 
@@ -478,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026113.jpg" />
 </div>
 
 
@@ -504,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024390.jpg" />
 </div>
 
 
@@ -533,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023409.jpg" />
 </div>
 
 
@@ -544,137 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B480BF25DB45FBBB69116DA4999DE295828A542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289081   (1021977) от 08.04.2021
-
-Виктор Суворов | Сборник произведений (1968-1995) [MP3]
-
->>След.
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: историко-документальная проза
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFD76A4D3605A2BA793DDCB5BCAE8FE7E1C3545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461401   (1021894) от 09.04.2021
-
-Ричард Докинз | Слепой часовщик. Как эволюция доказывает отсутствие замысла во Вселенной (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как работает естественный отбор? Является ли он достаточным объяснением сложности живых организмов? Возможно ли, чтобы слепая, неуправляемая сила создала столь сложные устройства, как человеческий глаз или эхолокационный аппарат у летучих мышей? Еще Дарвин убедительно ответил на эти вопросы, а наука с каждым новым десятилетием предоставляет все больше доказательств (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 16:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7F96F7E3EACC9AB6C27413D32A13A511255B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462706   (1021009) от 15.04.2021
-
-Петр Шарый | Внутри меня и вне меня два мира (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021009.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нынешнее время книг, статей, публикаций на тему, раскрывающую тайны жизни человека, можно найти достаточно много, но вот о внутреннем мире человека, особенно о главном его содержимом, душе, о тайнах ее духовной жизни — нужно еще и потрудиться. Большинство таких работ описывают предназначение души, связь ее с телом, ее энергетической составляющей, дальнейшее ее (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 07:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CF596C8E8F90685B9E34883B826B49FB7FB01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464557   (1019753) от 22.04.2021
-
-Уильям Ирвин | Радость жизни. Философия стоицизма для XXI века (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019753.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XXI веке античный стоицизм переживает новое рождение. Уильям Ирвин рассуждает о красоте стоической философии, ее теории и о том, как применять ее в современных реалиях. Радость достижима – все дело в практике и правильном мышлении.
-Уильям Ирвин – профессор философии в государственном университете братьев Райт.Жанр: Публицистика, ФилософияПродолжительность: 07:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5CF56682AF5CC28879BC9E7EB4EB0E444FF62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478879   (1009983) от 21.06.2021
-
-Умберто Эко | С окраин империи. Хроники нового средневековья (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009983.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этих ярких эссе, написанных в период с 1973 по 1976 годы, Умберто Эко исследует американскую культуру, её основные особенности и её влияние как на культуры ближайших стран-соседей, так и на европейскую культурную матрицу. Музеи и картинные галереи, города-призраки и парки развлечений, мистические пророчества и средневековые знания, пространство рекламы и кинематографа, (   Читать дальше...   )Жанр: Зарубежная публицистикаПродолжительность: 13:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF51ED13F179E719EB4EBF8AF9ED29A263967BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,59 +1,3 @@
-###  Публикация: 1318439   (494694) от 06.08.2019
-
-Дуглас Коупленд | Рабы Microsoft (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494694.jpg" />
-</div>
-
-
-###  Подробнее
-
-"""Компьютерные"" мальчики и девочки. Зануды-""яппи"", внезапно решившие покинуть безопасность ""родной корпорации"" и стать свободными.
-Но... что такое свобода?
-Есть ли она вообще?
-Есть ли она для ""рабов ""Майкрософта""?(   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4EDF5F8CC55D09FA81CE7AB5EF1072D797A61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935919   (494381) от 12.09.2015
-
-Вацлав Михальский | Храм согласия (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в русской литературе па страницах романа-эпопеи Вацлава Михальского «Весна и Карфагене» встретились Москва и Карфаген – Россия и Тунис, русские, арабы, французы. Они соединились в судьбах главных героинь романа Марии и Александры, дочерей адмирала Российского Императорского флота.
-"Храм Согласия, вероятно, возвышался на одном из холмов Карфагена, рядом (   Читать дальше...   )Жанр: РоманПродолжительность: 08:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14845E54471ECA39CE4FA23E4BF383611B85AF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243246   (494216) от 26.08.2018
 
 Энн Тайлер | Дилетантское прощание (2018) [MP3]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494216.jpg" />
 </div>
 
 
@@ -89,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493084.jpg" />
 </div>
 
 
@@ -117,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492596.jpg" />
 </div>
 
 
@@ -144,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492432.jpg" />
 </div>
 
 
@@ -170,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492389.jpg" />
 </div>
 
 
@@ -197,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492386.jpg" />
 </div>
 
 
@@ -224,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492377.jpg" />
 </div>
 
 
@@ -251,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492113.jpg" />
 </div>
 
 
@@ -277,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492094.jpg" />
 </div>
 
 
@@ -303,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491324.jpg" />
 </div>
 
 
@@ -329,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491307.jpg" />
 </div>
 
 
@@ -356,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490897.jpg" />
 </div>
 
 
@@ -383,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490160.jpg" />
 </div>
 
 
@@ -409,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490155.jpg" />
 </div>
 
 
@@ -436,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490115.jpg" />
 </div>
 
 
@@ -462,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490075.jpg" />
 </div>
 
 
@@ -489,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489112.jpg" />
 </div>
 
 
@@ -515,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488737.jpg" />
 </div>
 
 
@@ -541,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488187.jpg" />
 </div>
 
 
@@ -567,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488131.jpg" />
 </div>
 
 
@@ -593,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488042.jpg" />
 </div>
 
 
@@ -619,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487248.jpg" />
 </div>
 
 
@@ -645,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487135.jpg" />
 </div>
 
 
@@ -671,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486770.jpg" />
 </div>
 
 
@@ -683,6 +627,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F247BE5635A179BD1573F8F0ADABECA1CE3CD8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159193   (486245) от 19.08.2017
+
+Итало Кальвино | Если однажды зимней ночью путник... (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486245.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Если однажды зимней ночью путник» (Se una notte d'inverno un viaggiatore) — один из наиболее знаменитых романов итальянского писателя Итало Кальвино, впервые опубликованный в 1979 году.
+Культовый постмодернистский роман. Знаковое произведение в истории мировой литературы ХХ века. Изумительная проза и действительно оригинальная идея. Сложная, завораживающая структура (   Читать дальше...   )Жанр: ПрозаПродолжительность: 09:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE27BE7C8E0312CC3FB64DB7D74D6197039D4D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244000   (484200) от 31.08.2018
+
+Лоррен Фуше | Между небом и тобой (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жо только что потерял любовь всей своей жизни. Он не может дышать. И смеяться. Даже есть не может. Без Лу все ему не в радость, даже любимый остров, на котором они поселились после женитьбы и прожили всю жизнь. Ведь Лу и была этой жизнью. А теперь ее нет. Но даже с той стороны она пытается растормошить его, да что там растормошить – усложнить его участь вдовца до (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B5CB2DD07BCC437FA5291259C99E1E8EEA92D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

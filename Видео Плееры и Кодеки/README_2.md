@@ -1,3 +1,107 @@
+###  Публикация: 934003   (504110) от 03.09.2015
+
+ZJMedia Easy DVD Player 4.6.4.2065 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный в работе "все в одном", медиа проигрыватель для PC. Он способен воспроизвести разные Blu-ray диски с очень высоким качеством. Этот удивительный плеер, может воспроизводить не только blu-ray диски, но и все популярные видео и аудио форматы, а также ISO-образы. Он надежен и прост в применении.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529216EEFBF85FCC4A1002601F2F63ABAC80D703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935762   (498122) от 09.09.2015
+
+Corel WinDVD Pro 11.7.0.7.301148 [Multi/Ru]
+
+>>След.
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corel WinDVD Pro 11 — это передовой проигрыватель двух- и трехмерных видеоматериалов, поддерживающий Blu-ray 3D™, AVCHD™, DVD и все новейшие видеоформаты. WinDVD входит в число самых популярных продуктов в мире: на сегодняшний день продано уже более 250 миллионов копий. К особенностям этой новой версии относятся технология воспроизведения трехмерных видеоматериалов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C6AA4B19500FA7A4F02B36C6F6AC2CAF48176C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935867   (496998) от 10.09.2015
+
+Nvidia 3D Vision Video player 1.7.5 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоплеер от известного производителя видеокарт и драйверов компании Nvidia. Плеер способен воспроизводить видео форматы (*.avi), MPEG-1 (*.mpg), MPEG-2 (*.mpg, *.m2ts, *.mts, *.ts), MP4 (*.mp4), 3D Blu-ray files (*.ssif), Windows Media (*.wmv, *.asf), QuickTime (*.mov), Material Exchange Format (*.mxf), Matroska (*.mkv) и Flash (*.flv), поддерживает файлы Windows (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C27869C9A54E05031E2A3E24A1A180586DE82B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936545   (493305) от 12.09.2015
+
+Corel WinDVD Pro 11.7.0.7 RePack by KpoJIuK [Ru]
+
+>>След.
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corel WinDVD Pro 11 — это передовой проигрыватель двух- и трехмерных видеоматериалов, поддерживающий Blu-ray 3D™, AVCHD™, DVD и все новейшие видеоформаты. WinDVD входит в число самых популярных продуктов в мире: на сегодняшний день продано уже более 250 миллионов копий. К особенностям этой новой версии относятся технология воспроизведения трехмерных видеоматериалов, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6386E994474F5910084F5718E91AE554178D7AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544321   (488598) от 08.09.2012
 
 DVD X Player Professional 5.5.3.5 [MULTi / Русский]
@@ -6,7 +110,7 @@ DVD X Player Professional 5.5.3.5 [MULTi / Русский]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488598.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ ZJMedia Easy DVD Player 4.7.3.2691 RePack by вовава [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467049.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The KMPlayer 4.2.2.30 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445903.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ DVDFab Player 5 Ultra 5.0.3.1 [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433233.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Combined Community Codec Pack (CCCP) 2015-10-18 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410923.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405397.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ iTunes 12.5.3.16 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377462.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ DivX Converter 10.4.1 Portable by poni-koni [Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325478.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Apeaksoft Blu-ray Player 1.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311306.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Waltr 2 v2.7.17 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304778.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Aiseesoft Blu-ray Player 6.6.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300953.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ DVDFab Media Player Pro 3.2.0.1 RePack by вовава [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281751.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ PotPlayer 251119 (1.7.22735) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261526.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ PotPlayer 251114 (1.7.22710) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257800.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ VLC Media Player 3.0.22 RC2 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256619.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Zoom Player MAX 21.5.1 Build 2151 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253059.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.5 RePack (& Portable) by elchupaca
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252416.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ PotPlayer 251028 (1.7.22691) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250508.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ K-Lite Codec Pack 19.3.0 Mega/Full/Standard/Basic [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246229.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.5.0 RePack (& Portable) by KpoJIuK
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246150.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ Zoom Player MAX 22.0 Beta 3 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230371.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ Cowon jetAudio 8.1.11.22010 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213445.jpg" />
 </div>
 
 
@@ -567,113 +671,6 @@ JetAudio - это универсальный проигрыватель музы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC17C8C321E81FE12147099519BCBED861AAEF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830991   (212598) от 28.10.2025
-
-PotPlayer 251024 (1.7.22685) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212598.jpg" />
-</div>
-
-
-###  Подробнее
-
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B63002FF9716850DDB661F1AF0D804016E6D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830496   (205675) от 26.10.2025
-
-The KMPlayer 4.2.3.25 repack by cuta (build 3) [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205675.jpg" />
-</div>
-
-
-###  Подробнее
-
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F871FCC3D2E74619BC5F26D311958739C5A624E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616793   (201749) от 03.03.2023
-
-5KPlayer 6.9 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201749.jpg" />
-</div>
-
-
-###  Подробнее
-
-5KPlayer - это мощный и простой в использовании медиаплеер со встроенными кодеками. Он имеет такие функции как: (MKV) HD видео-плеер, музыкальный плеер, AirPlay медиа стример и онлайн видео-загрузчик.Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF6530A16E65C40540B22C22B637EEE021CC83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631793   (198721) от 07.05.2023
-
-MPV Player - Dolby Vision, HDR to SDR Mode Portable 0.35.1 (x64) RePack by Adventurer_Kun [En]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка преобразовывает по умолчанию Dolby Vision и HDR в SDR видео для просмотра на неподдерживаемых мониторах.
-Также подключает одноимённые субтитры и аудиодорожки из папок и подпапок рядом с видео.
-Целью сборки стояла максимальная производительность при воспроизведении видео в новых кодеках на старом железе.
-Возможность просматривать YouTube видео только (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FBBE1ABAC67F130AE3C9BD933A496C21B99EF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

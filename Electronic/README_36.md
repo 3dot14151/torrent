@@ -1,3 +1,61 @@
+###  Публикация: 1454550   (1026249) от 15.03.2021
+
+VA - Synthpop Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classix Nouveaux - Never Never Comes
+02. Talk Talk - Without You
+03. a-ha - Love Is Reason
+04. Kissing The Pink - Never Too Late to Love You(   Читать дальше...   )Жанр: Synthpop, New Wave, PopПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEB38EF2B64D825A196B50B85F01D945C84FE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454849   (1026151) от 16.03.2021
+
+Multiplex - Discography 10 Releases (1997-2006) Toytronic, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macao (05:00)
+ 02. My Synthesiser (04:50)
+ 03. Lito : A (04:17)
+ 04. Momensch (06:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Leftfield, Abstract, Ambient •Продолжительность: 07:39:34 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5E26D5937A3990C07DA4D4903A8393EBC9B1AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454660   (1026142) от 16.03.2021
 
 Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
@@ -6,7 +64,7 @@ Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Sp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026142.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Synth Elements - The Illusion of Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Spac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026141.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Table Of Elements Volume 5​.​0 (2021) M-Tronic [FLAC|Lossless|WEB-DL|tr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026140.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Synth Elements - The Illusion of Time (Remixes) (2016) [FLAC|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026137.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Synth Elements - Fifth Element (2017) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026133.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ dISHARMONY - Resonance (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL]
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026110.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Mono Peninsula - Archangelsk (2021) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025995.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Dub Techno (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025992.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Dense - Reflux Compressor (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025949.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Funki Porcini - Discography 40 Releases (1995-2021) Ninja Tune [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025876.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025865.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025827.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025821.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Chillout Retreat: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025801.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Jay-Jay Johanson - Rorschach Test (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025784.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025738.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Northern Electronics - Label-Pack 77 Releases (2013-2021) [FLAC|Lossless|tracks]
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025729.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Книга джунглей / Jungle book (1997 + 2000) [Том I FLAC + Т
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025712.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Jeff McIlwain (L'usine, Lusine, Lucine Icl, Lusine Icl., Lucine ISL) - Discograp
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025708.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Visions of Silence: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025649.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Future Symptoms Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025631.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025483.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Marsh - Lailonie (The Remixes: Part 1-2) (2021) [FLAC|Lossless|WEB-DL|tracks] <M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025310.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Black Hole Trance Music 03-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025295.jpg" />
 </div>
 
 
@@ -684,63 +742,6 @@ VA - Black Hole Trance Music 03-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9730A3A9BDABDABB1F807D7CF1F33CA13730782A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456278   (1025288) от 21.03.2021
-
-VA - Espectrum II: The Avantroots Dub Techno Compilation (2021) AvantRoots [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Segue - Stepping Up (06:36)
- 02. Pulshar - Accept Fate (05:53)
- 03. Sibling - Tunnel Vision feat. Drhamer (06:17)
- 04. Beat Pharmacy - Hemp Dub (06:37)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 01:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72AA362B90FC37871C9562E5CC5EF16F7B7C09A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321792   (1025284) от 21.03.2021
-
-Jon Gaiser | Void | Fraktion  - Discography 20 Releases (2006-2017) M_nus [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Never Works (06:47)
- 02. Disleb (07:03)
- 03. Acidrop (05:55)Тип издания: CD, WEBЖанр: Techno/MinimalПродолжительность: 00:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9F51877122E37E20387A9651BE004D3EC6378D
 ```
 
 https://mybot314.ru/tekegram_catalog/

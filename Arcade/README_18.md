@@ -6,7 +6,7 @@ Aztech Forgotten Gods (2022) [Ru/Multi] (1.0.8.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654639.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ THE MERCURY MAN (2018) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654428.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Spider: Rite of the Shrouded Moon (2015) [Ru/Multi] (1.1.1.11836) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LEGO Batman 2. DC Super Heroes (RePack/1.0.0.18994) [Ru/En] 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650783.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chicken Shoot 2 Edition 2012 (Р) [Multi9\+] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650782.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Lemma (2015) [Multi] (1.0.7.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650662.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Brigador (2016) [En] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649225.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ TEKKEN 7 (2017) [Ru/Multi] (2.21/dlc) License CODEX [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648188.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Brigador (2016) [En] (1.0) SteamRip ALiAS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647251.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Harold (2015) [Ru/Multi] (1.0.0.1.3) Repack xGhost
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646911.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646200.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Party Hard (2015) [Ru/Multi] (1.4.030.r/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644184.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Fossil Echo (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643354.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Pinball FX2 (2013) [Multi] (1.0.28/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642945.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Impact Winter (2017) [Ru/Multi] (1.0.10) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642238.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640826.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640712.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Vessel [Multi5\+] (RePack/1.13) 2012 l R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640590.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Fossil Echo (2016) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637645.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Unworthy (2018) [En] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637225.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Reassembly (2015) [Ru/Multi] (2019.03.28/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636897.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636687.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Krai Mira/Край Мира (2016) [Ru/En] (1.1) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635542.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ghostbusters (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635541.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Aquaria (2007) [En] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635080.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Shank - Дилогия (Lossless RePack) [Ru/En] 2010-2012 l R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634791.jpg" />
 </div>
 
 

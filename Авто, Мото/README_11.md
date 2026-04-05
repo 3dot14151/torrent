@@ -1,3 +1,86 @@
+###  Публикация: 1408613   (453778) от 13.09.2020
+
+Формула-2. Сезон 2020. 9-й Этап. Гран-При Тосканы. Гонка 1 (12.09.2020) HDTVRip [H.264/720p-LQ] [ hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по авто гонкам в классе Формула 2. 12 сентября 2020, суббота. 17:45 МСК
+Этап 9, Скарперия-э-Сан-Пьеро, Италия
+Гран-при Италии. Гонка 1 (33 круга)Телекомпания: Матч Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687928AD77B9FC9B3648BC6DDCE3917898018473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408783   (453610) от 13.09.2020
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Сан-Марино / MotoGP 2020. San-Marino GP (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453610.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02745CA3BB912659EBFFA1F7BC378176DE20E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409616   (443270) от 18.09.2020
+
+Серия Кубков NASCAR 2020. Плей-офф. 28-й Этап. Ричмонд 400. Гонка / NASCAR Cup Series 2020. Playoffs. Round 28. Federated Auto Parts 400. Race (2020) WEB-DLRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
+12 сентября 2020 года. Ричмонд (штат Вирджиния, США).
+28-й Этап. Ричмонд 400 (Federated Auto Parts 400)
+Гонка(   Читать дальше...   )Телекомпания: Матч! АренаЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEFEA2B04930A4F0A757212DFBE23BDFEAA366B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409625   (443269) от 18.09.2020
 
 Серия Кубков NASCAR 2020. Плей-офф. 28-й Этап. Ричмонд 400. Гонка / NASCAR Cup Series 2020. Playoffs. Round 28. Federated Auto Parts 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +89,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443269.jpg" />
 </div>
 
 
@@ -35,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438559.jpg" />
 </div>
 
 
@@ -64,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438558.jpg" />
 </div>
 
 
@@ -93,7 +176,7 @@ MotoGP. Этап 13. Гран-при Австрии. Квалификация (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436190.jpg" />
 </div>
 
 
@@ -119,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436152.jpg" />
 </div>
 
 
@@ -145,7 +228,7 @@ MotoGP. Этап 13. Гран-при Австрии. Гонка (21.08.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433952.jpg" />
 </div>
 
 
@@ -171,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431978.jpg" />
 </div>
 
 
@@ -200,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431977.jpg" />
 </div>
 
 
@@ -229,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431925.jpg" />
 </div>
 
 
@@ -258,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425723.jpg" />
 </div>
 
 
@@ -287,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425717.jpg" />
 </div>
 
 
@@ -316,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423153.jpg" />
 </div>
 
 
@@ -345,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423150.jpg" />
 </div>
 
 
@@ -374,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423061.jpg" />
 </div>
 
 
@@ -403,7 +486,7 @@ WRC 2020: Этап 5. Ралли Турции. Обзор (18-20.09.2020) / WRC 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422968.jpg" />
 </div>
 
 
@@ -429,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420631.jpg" />
 </div>
 
 
@@ -458,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420451.jpg" />
 </div>
 
 
@@ -487,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420449.jpg" />
 </div>
 
 
@@ -516,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408354.jpg" />
 </div>
 
 
@@ -542,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406818.jpg" />
 </div>
 
 
@@ -571,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402233.jpg" />
 </div>
 
 
@@ -597,7 +680,7 @@ MotoGP. Этап 14. Гран-при Сан-Марино. Гонка (04.09.2022
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388043.jpg" />
 </div>
 
 
@@ -623,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383623.jpg" />
 </div>
 
 
@@ -637,87 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91DAD86BA98F36A959FCF1B976396282EFC95A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414760   (383542) от 09.10.2020
-
-Мотоспорт. Спидвей. Гран-При 2020. Торунь (Польша). 8-й Этап (2020) IPTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по спидвею 2020 — международные соревнования между сильнейшими спидвейными гонщиками мира. Победитель определяется в гонках серии Гран-При.
-03 октября 2020 года
-8-й Этап. Торунь (Польша). Заключительный этап серии гонок Гран-При.
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: Спорт  МотоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72621F34F6DDE88192FFA2E5B12C72CA1BEE2704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415083   (378844) от 11.10.2020
-
-Дрэг-рейсинг. Чемпионат NHRA 2020. Этап 8 / NHRA Drag Racing Championship 2020. Event 8 - Mopar Express Lane NHRA Midwest Nationals presented by Pennzoil, World Wide Technology Raceway (04.10.2020) ...
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра. Реже проводятся заезды на (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути дрэг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8BEDA8C65918F4927B31F17A22603D0E93EC99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415589   (374288) от 13.10.2020
-
-Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Зольдер, Гонка 1-2 / DTM. Zolder, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:34:13 + 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B46D2ABBE418E8864A190C6498ED8467637BC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 982422   (947894) от 03.02.2016
+
+Adguard 6.0.183.953 RC3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard - одно из известных приложений разработчика программных продуктов компании Инсофт, предназначенное для блокирования рекламных баннеров и всплывающих окон при работе в сети Интернет. Данная утилита поддерживает фильтрацию при работе с такими браузерами, как Internet Explorer, Google Chrome, Mozilla Firefox, Safari, Opera, Maxthon, Avant Browser, Netscape Navigator, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:197A10784129849AE829E128827188E99AA4225D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982407   (947808) от 03.02.2016
+
+Антифашистский художественный фильм «Россия 88» заблокирован по решению Нарьян-Марского городского суда
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскомнадзор внес в реестр запрещенных сайтов и тем самым заблокировал на территории России  антифашистский художественный фильм «Россия 88» 2009 года выпуска.Режиссер данного фильма — Павел Бардин. В главной роли сыграл известный российский актер Пётр Фёдоров, в фильме также снялся Андрей Мерзликин.Данный фильм был награжден такими наградами, как премия «Ника» в (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982014   (947788) от 03.02.2016
+
+Стив Джобс / Steve Jobs (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947788.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни одного из самых выдающихся умов планеты, основателя компании Apple, Стива Джобса.Производство: США, ВеликобританияЖанр: Драма, биографияРежиссер: Дэнни БойлАктеры: Майкл Фассбендер, Сет Роген, Джефф Дэниелс, Кейт Уинслет, Майкл Стулбарг, Кэтрин Уотерстон, Перла Аней-Жардине, Рипли Собо, Макензи Мосс, Сара СнукПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: ColdFilmПродолжительность: 02:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8B98DB6F25CDE470332B3C5EDA5C2506EFCBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981885   (947787) от 03.02.2016
+
+S.T.A.L.K.E.R.: Тень Чернобыля - Альтернатива (2016) [Ru] (1.0004/1.3) Mod N.S.A.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это Ваша история. В моде Альтернатива, игрок играет сам за себя. Игра стартует после событий, которыми заканчивается Сталкер Тень Чернобыля. Перед игроком будут возникать ситуации, от выбора которых будет зависеть конец игры. В данный момент в игре присутствует две концовки и они не в одном месте. Оригинальный сюжет игры вырезан. Флэшка Стрелка теперь содержит другую (   Читать дальше...   )Тип издания: ModРазработчик: GSC Game WorldЖанр: Action (Shooter), Survival, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8DE4AD96F53B5CCA998E00F7A2346C7B0F153E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362000   (947683) от 24.02.2020
+
+Просто в космос: в России создадут ракету для бюджетных запусков
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сверхлегкая многоразовая ракета, которую разрабатывают российские ученые, доставит на 200-километровую орбиту Земли микро- и наноспутники. Стоимость отправки одного килограмма груза составит $10-20 тыс., что заметно дешевле, чем у ближайших конкурентов. Этого удалось добиться за счет упрощенной одноступенчатой конструкции носителя и инновационного метанового двигателя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362590   (947624) от 24.02.2020
+
+Microsoft оградит от вирусов и хакеров пользователей Linux
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft адаптирует антивирусную платформу Defender Advanced Threat Protection под Linux, и первая публичная бета выйдет в ближайшие дни. Также компания портирует ее на iOS и Android, а под macOS она вышла в марте 2019 г.Антивирус для LinuxКомпания Microsoft сообщила о ведущейся разработке особой версии своего антивирусного ПО Defender Advanced Threat Protection (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361608   (947563) от 24.02.2020
 
 День Защитника Отечества 2020!
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947563.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947558.jpg" />
 </div>
 
 
@@ -63,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947551.jpg" />
 </div>
 
 
@@ -89,7 +245,7 @@ Udemy | Полный Курс Python 3: от Новичка до Мастера 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947550.jpg" />
 </div>
 
 
@@ -117,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947547.jpg" />
 </div>
 
 
@@ -143,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947545.jpg" />
 </div>
 
 
@@ -169,7 +325,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.04) Repack xatab (обновля�
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947544.jpg" />
 </div>
 
 
@@ -195,7 +351,7 @@ Windows 7 для Eее РС Asus и других (Aspire One, MSI и т.д.) 201
 >>26
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947159.jpg" />
 </div>
 
 
@@ -223,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947132.jpg" />
 </div>
 
 
@@ -249,7 +405,7 @@ LiveCD Windows'7 v5.5 by xalex (11.01.2011) v5.5 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947085.jpg" />
 </div>
 
 
@@ -275,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946944.jpg" />
 </div>
 
 
@@ -301,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946817.jpg" />
 </div>
 
 
@@ -327,7 +483,7 @@ Kerish Doctor 2017 4.65 Final RePack & Portable by 9649 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946814.jpg" />
 </div>
 
 
@@ -353,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946813.jpg" />
 </div>
 
 
@@ -379,7 +535,7 @@ Autodesk AutoCAD 2017.1.1 N.301.0.0 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946812.jpg" />
 </div>
 
 
@@ -405,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946811.jpg" />
 </div>
 
 
@@ -431,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946774.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946768.jpg" />
 </div>
 
 
@@ -484,7 +640,7 @@ Warhammer 40.000: Dawn of War Anthology / Warhammer 40.000: Dawn of War Анто
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946767.jpg" />
 </div>
 
 
@@ -513,7 +669,7 @@ Linux Mint 17.1 Rebecca XFCE [x32, x64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946693.jpg" />
 </div>
 
 
@@ -526,162 +682,6 @@ Linux Mint — дистрибутив операционной системы Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:790AE39A1DD6ECF87E166589855B2166792B44BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610978   (946685) от 12.01.2015
-
-Снежная королева (2012) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946685.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стремлении сотворить Новый мир — холодный и практичный, где четкость линий призвана заменить эмоции, а северный ветер должен остудить людские души, Снежная Королева избавляется от всех представителей творческих профессий. Маленькой и смелой Герде, отправившейся в опасное путешествие, чтобы спасти своего брата Кая, предстоит столкнуться с этим холодным миром Снежной (   Читать дальше...   )Производство: Россия / Инлэй ФильмЖанр: Фэнтези, Приключения, СемейныйРежиссер: Максим Свешников, Владлен БарбэАктеры: Иван Охлобыстин, Нюша Шурочкина, Анна Ардова, Рамиля Искандер, Дмитрий Нагиев, Лиза Арзамасова, Галина Тюнина, Юрий Стоянов, Людмила Артемьева, Михаил ТихоновПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182E89EA2A6141307EF499693EE2AF03B1AC5D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982255   (946599) от 04.02.2016
-
-Ученые, расшифровывая сигналы мозга в реальном времени, научились определять изображения, видимые человеком
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946599.jpg" />
-</div>
-
-
-###  Подробнее
-
-При помощи электродов, внедренных в височные доли (temporal lobes) мозга людей, больных эпилепсией, ученым из Вашингтонского университета удалось в режиме реального времени расшифровать сигналы, связанные с изображениями, демонстрируемыми этим людям. Использованные учеными методы и технологии позволили по сигналам мозга распознать изображения лиц разных людей, зданий (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982400   (946498) от 04.02.2016
-
-Право на доступ в интернет предложили закрепить Конституцией
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минкомсвязи предлагает закрепить право россиян на доступ к услугам связи как средство реализации конституционного права на доступ к информации. Операторы связи смогут размещать оборудование и интернет-кабели в подъездах многоквартирных домов без необходимости одобрения собственников всех квартир, что и обеспечит реализацию права жильцов на доступ к информации.Уведомление (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982497   (946345) от 04.02.2016
-
-Advanced Systemcare Pro 9.1.0.1090 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced SystemCare PRO обеспечивает автоматический всесторонний сервис для ПК с удалением вредоносных программ, исправлением ошибок в реестре, защитой личных данных, очисткой системы и повышением производительности. Благодаря применению новейших технологий Защита Браузера и Ускорение Интернета, программа обеспечивает превосходную защиту и ускорение доступа при пользовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F377916CB89CB73BA132B49418FDA029B22448BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982328   (946330) от 04.02.2016
-
-"Заблокированные навечно" торрент-трекеры пытаются обойти запреты и сохранить свою аудиторию
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые антипиратские меры в интернете обсуждаются на фоне уже выполненных судебных решений о пожизненной блокировке сайтов, куда заходили за ворованной музыкой и фильмами. Мера призвана перенаправить больше пользователей на легальные ресурсы, но всё ещё остаются так называемые "серые" схемы доступа."Ресурс заблокирован". Больше недели это сообщение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982510   (946327) от 04.02.2016
-
-Кербела / Karbala (2015) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946327.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 год, операция "Иракская свобода". Иракские повстанцы, лояльные шиитскому лидеру аль-Садру, начинают мятеж. Городская мэрия Кербелы находится в осаде, ее защищать вынуждены 80 поляков и болгар, у которых боеприпасов и оружия только на 72 часа.Производство: Польша, Болгария, Miramar Film, Next FilmЖанр: Драма, ВоенныйРежиссер: Кшиштоф Лукашевич, Justyna Kapuscinska, Марчин ЛомницкийАктеры: Бартоломей Топа, Антони Круликовский, Христо Шопов, Атир Адель, Лешек Лихота, Михал Журавский, Томаш Шухардт, Лукаш Симлят, Петр ГловацкийПеревод: Двуголосый закадровый, любительский (DeadSno&Den904 по переводу Professor'a)Субтитры: ОтсутствуютПродолжительность: 01:50:42Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F027AC1EA7E435EF81266A9811970A3AB3C198
 ```
 
 https://mybot314.ru/tekegram_catalog/

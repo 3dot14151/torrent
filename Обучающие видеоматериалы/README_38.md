@@ -1,3 +1,29 @@
+###  Публикация: 1455994   (1025229) от 21.03.2021
+
+TalkPython, Michael Kennedy | Async Techniques and Examples in Python Course (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поддержка асинхронного и параллельного программирования в Python сильно недооценена. В этом курсе вы изучите весь спектр параллельных API Python. Мы начнем с рассмотрения новых и эффективных ключевых слов async и await вместе с базовым модулем: asyncio. Затем мы перейдем к потокам Python для распараллеливания старых операций и многопроцессорности для операций, связанных (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639A2E3C7AEB6990D23E6422D8E32987D2D60B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455985   (1025217) от 21.03.2021
 
 TalkPython, Michael Kennedy и др. | #100DaysOfCode in Python Course (2020) PCRec [En]
@@ -6,7 +32,7 @@ TalkPython, Michael Kennedy и др. | #100DaysOfCode in Python Course (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025217.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Udemy, Robert Petras | SwiftUI Masterclass 2021 - iOS 14 App Development & Swift
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025213.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Udemy, Bryan Cairns | Qt 6 Core Beginners with C++  (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025193.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Udemy, Maximilian Schwarzmüller | Next.js & React - The Complete Guide (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025187.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025160.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ TalkPython, Michael Kennedy | Consuming HTTP Services in Python Course (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025069.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ SciOne | Дамп YouTube-канала SciOne (2014-2021) WEB-DL
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025047.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025045.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Infosec Institute | IT & Security Courses Collection [Часть 1] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025028.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ Stepik, Анатолий Карпов и др. | Big Data for Data Science (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024978.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024875.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ Infosec Institute | IT & Security Courses Collection [Часть 2] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024858.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ Infosec Institute | IT & Security Courses Collection [Часть 3] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024857.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024837.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024813.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Skillbox | Руководитель digital-проектов (2020) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024803.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ TalkPython, Michael Kennedy | Managing Python Dependencies Course (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024728.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ TalkPython, Matt Makai | Introduction to Ansible Course (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024713.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ TalkPython, Nicola Iarocci | Eve: Building RESTful APIs with MongoDB and Flask C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024712.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Infosec Institute | IT & Security Courses Collection [Часть 4] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024711.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ ScienceVideoLab | Дамп Youtube-канала ScienceVideoLab (2015-2021) WEB-
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024704.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ TalkPython, Michael Kennedy | Python for Decision Makers and Business Leaders Co
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024598.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ TalkPython, Michael Kennedy | Python for the .NET Developer Course (2019) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024594.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ TalkPython, Matt Harrison | Python 3, an Illustrated Tour Course (2018) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024583.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ TalkPython, Michael Kennedy | MongoDB for Developers with Python Course (2017) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024574.jpg" />
 </div>
 
 
@@ -673,33 +699,6 @@ MongoDB - одна из самых захватывающих технологи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2747A09F4EB858D779DE059412FF1BDF3B626781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457162   (1024564) от 25.03.2021
-
-TalkPython, Michael Kennedy | Write Pythonic Code Like a Seasoned Developer Course (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс познакомит вас с более чем 50 наиболее популярными и полезными примерами кода, демонстрирующими код Pythonic. В примерах вы сначала увидите непитонический код, а затем более естественную питоническую версию.
-Одна из особых концепций Python - это идея написания идиоматического кода, наиболее согласованного с особенностями и идеалами языка. В Python мы называем (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E95C8281CE3CF84886024975430210CF0540CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

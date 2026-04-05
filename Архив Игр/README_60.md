@@ -1,3 +1,61 @@
+###  Публикация: 574735   (370126) от 14.11.2012
+
+Persona 4 ARENA [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: ЛицензияЖанр: FightingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4651AA7E51FDAA5CE512265C23218A0323969175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575475   (370079) от 14.11.2012
+
+F1 Race Stars [En/Multi7] (RePack/1.0.0.0) 2012 | R.G. ILITA
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370079.jpg" />
+</div>
+
+
+###  Подробнее
+
+F1 Race Stars - это аркадные картинговые гонки. Игра является своеобразным шуточным ответвлением от серии игр Formula One.
+Все трассы, болиды и гонщики приобрели несерьезный мультяшный вид, а процесс игры превратился в незатейливую и веселую аркаду.
+В этой игре вы встретите мировых звезд Формулы 1 - Льюиса Гамильтона, Фернандо Алонсо и Михаэля Шумахера в совершенно новом обличии.
+Трассы были переработаны для сверхзвуковых скоростей, с обескураживающими поворотами и каверзными петлями.
+Они усеяны ловушками, срезами, секретами и предметами, которые дадут вам превосходство над соперником.
+Играйте вчетвером на одном экране или присоединяйтесь к онлайн гонке на двенадцать человек.
+Отныне никаких правил, только скорость, навыки и львиная доля везения!(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский, Немецкий, Итальянский, Испанский, Польский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E27801D2E3BC0FC2354EDE8897980F20662649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574986   (369950) от 14.11.2012
 
 AMY [PS3] [ENG] [PAL] [PSN] [3.55] (2012)
@@ -6,7 +64,7 @@ AMY [PS3] [ENG] [PAL] [PSN] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369950.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Dead or Alive 5 [PS3] [ENG] [PAL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369922.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ F1 Race Stars [En/Multi7] (P) 2012 l FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369911.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Call of Duty Black Ops 2 [Ru] (Rip) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369709.jpg" />
 </div>
 
 
@@ -116,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_367737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_367737.jpg" />
 </div>
 
 
@@ -142,7 +200,7 @@ Call of Duty: Black Ops 2 [PS3] [ENG] [PAL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367363.jpg" />
 </div>
 
 
@@ -169,7 +227,7 @@ Call of Duty: Advanced Warfare [2014] [Region Free] [ENG] (L) [iXtreme LT+3,0] [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365797.jpg" />
 </div>
 
 
@@ -197,7 +255,7 @@ Minecraft [Ru/En/Multi56] (L/1.4.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364995.jpg" />
 </div>
 
 
@@ -223,7 +281,7 @@ Rage [Xbox360] [FullRus] [PAL] [XGD3] [LT+ 3.0] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_364977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364977.jpg" />
 </div>
 
 
@@ -251,7 +309,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.318) SteamRip InsaneRamZes [Premium Editio
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364523.jpg" />
 </div>
 
 
@@ -277,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363960.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.11807) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363648.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ Dead Age (2016) [Multi] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363442.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.11807) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363427.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Hybrid Wars (2016) [Ru/Multi] (4.89.11186/dlc) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363237.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.5.2-f3/dlc) Repack xatab [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360692.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ Dawn of Man (2019) [Multi] (1.3.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360665.jpg" />
 </div>
 
 
@@ -459,7 +517,7 @@ Record of Agarest War (Agarest: Generations of War) (2007) [Xbox360] [RegionFree
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360394.jpg" />
 </div>
 
 
@@ -485,7 +543,7 @@ Baldur's Gate II/2: Enhanced Edition (2013) [En] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359591.jpg" />
 </div>
 
 
@@ -513,7 +571,7 @@ Sword of the Stars II: Lords of Winter [En] (Steam-Rip/1.1.23976.3/4 DLC) 2011 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_359455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359455.jpg" />
 </div>
 
 
@@ -543,7 +601,7 @@ Counter-Strike: Source [Ru] (RePack/v34/4044) 2012 | kami sama и _Данил_
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359452.jpg" />
 </div>
 
 
@@ -570,7 +628,7 @@ Baldur's Gate (2012) [En] (1.2.0) SteamRip R.G. GameWorks [Enhanced Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359445.jpg" />
 </div>
 
 
@@ -596,7 +654,7 @@ Medieval II: Total War Gold Edition [Ru] (RePack) 2008 | R.G.R3PacK {Medieval II
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359003.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ Amnesia: A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358228.jpg" />
 </div>
 
 
@@ -639,59 +697,6 @@ Amnesia: A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:164E8362506EACCCD156AC70D919DB65BA9CA9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837076   (358021) от 02.11.2014
-
-Deadly Premonition (2013) [Ru/Multi] (1.1b) Repack R.G. Catalyst [The Director's Cut]
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой - секретный агент Френсис Морган, который был послан на расследование жестокого убийства местной красавицы. Среди заснеженных гор и городов, заселенных эксцентричными туземцами, агенту Моргану предстоит разгадать тайну этих убийств и выжить в месте, заселенном сверхестественными существами и маньяками-убийцами, которые добиваются прекращения этого расследования раз и навсегда.
-(   Читать дальше...   )Тип издания: RepackРазработчик: Access GamesЖанр: Action (Survival horror) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B603F48EA7F5B85E51FCEE317425344264D48465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408120   (357752) от 08.11.2011
-
-Pro Evolution Soccer 2012 [Wii] [Multi3] [PAL] (2011)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357752.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом сезоне Pro Evolution Soccer станет еще более реалистичным, чем раньше благодаря существенным улучшениям системы управления и искусственного интеллекта. В игре, лицензированной Лигой чемпионов УЕФА и Европейской Лигой УЕФА, представлены все звезды мирового футбола с учетом всех особенностей их игрового стиля и набором финтов. Усовершенствованная анимация и техника освещения, широкий выбор стилей игры и тактик, новые возможности для настройки пасов и розыгрыша стандартных положений — PES 2012 предоставляет игрокам возможность приобщиться к настоящему профессиональному футболу.Разработчик: KonamiЖанр: SportЯзык интерфейса: DE,GRE,FR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DDF75C5056AA8C899771FDD0368261DF2BEF6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

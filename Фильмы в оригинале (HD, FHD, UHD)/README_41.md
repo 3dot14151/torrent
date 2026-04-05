@@ -1,3 +1,29 @@
+###  Публикация: 1172096   (392665) от 08.10.2017
+
+Заклятье. Наши дни / The Crucifixion (2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392665.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2005 году пять священнослужителей обвиняются в убийстве монахини, над которой проводился обряд экзорцизма. Журналистка Николь начинает свое независимое расследование. Но по мере погружения в цепь необъяснимых событий она все больше становится их неотъемлемой частью и все больше склоняется к тому, что служители культа проиграли сражение с демонической сущностью, (   Читать дальше...   )Производство: Великобритания, Румыния / Motion Picture Capital, Premiere Picture, Safran Company, TheЖанр: Ужасы, Детектив, ТриллерРежиссер: Ксавье ЖансАктеры: Софи Куксон, Корнелиу Улич, Бриттани Эшворт, Мэтью Заяц, Диана Владу, Florian Voicu, Раду Банзару, Хавьер Ботет, Иван Гонсалес, Emil MandanacПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDFA971BE53C231B6FEAE279DA2DDEADEB7C1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172544   (392596) от 08.10.2017
 
 Тёмная башня / The Dark Tower (2017) BDRip [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392596.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390287.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386795.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385890.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385126.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384186.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383036.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382802.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382638.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382210.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381339.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380797.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379460.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379459.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379357.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379271.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379002.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378865.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377725.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377155.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377149.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376932.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376896.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374239.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374237.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EF1E466DCDA254360D1044D95BBD73F9C5D18A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176034   (373582) от 20.10.2017
-
-Тёмная башня / The Dark Tower  (2017) BDRemux [H.264/1080p] [EN / EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш мир — не единственный из существующих. Заклятые враги Роланд Дискейн, последний из ордена стрелков, и Уолтер О’Дим, известный также как Человек в черном, ведут извечную борьбу. На кону — мифическая Темная Башня, последний оплот и надежда вселенной, без которой мир будет повержен в полный хаос и разрушение. Силам добра и зла суждено столкнуться в последней схватке, (   Читать дальше...   )Производство: США / Sony Pictures Entertainment (SPE), Media Rights Capital (MRC), Imagine Entertainment, Weed Road PicturesЖанр: ужасы, фантастика, фэнтези, боевик, приключения, вестернРежиссер: Николай АрсельАктеры: Идрис Эльба, Мэттью МакКонахи, Том Тейлор, Клаудия Ким, Фрэн Кранц, Эбби Ли, Джеки Эрл Хейли, Кэтрин Уинник, Деннис Хейсбёрт, Майкл Барбиери, Хосе Суньига, Николас ХэмилтонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Арабские, Болгарские, Китайские, Хорватские, Чешские, Английские, Французские, Греческие, Иврит, Венгерские, Исландские, Индонезийские, Корейские, Латышские, Литовские, Малайские, Польские, Португальские, Румынские, Сербские, Словацкие, Словенские, Тайские, Турецкие, ВьетнамскиеПродолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B623E976026EA3B5FBEBE4DBF56DBC2A0B4696
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1793826   (20213) от 26.04.2025
+
+Udemy, Hamood Mehmood | Beginner Car Rigging & Animation in Blender (2025) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Независимо от того, являетесь ли вы новичком в 3D или хотите усовершенствовать свои навыки, этот курс проведет вас через весь процесс — от создания окружения до передовых методов анимации.
+Мы начнем с создания полностью процедурной дорожной системы (да, совершенно бесплатно!), а затем перейдем к созданию насыщенного и захватывающего окружения.
+Затем вы создадите (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, Риггинг, АнимацияЯзык озвучки: АнглийскийПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCE1A6B590D41EC064B1FAEADAA16D189D0D3BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793791   (20208) от 26.04.2025
 
 ArtStation, Navid Valizadeh | Master Creating Optimized Sci-Fi Space Station Door In MAYA 2024 and Substance 3D Painter (2024) PCRec
@@ -6,7 +34,7 @@ ArtStation, Navid Valizadeh | Master Creating Optimized Sci-Fi Space Station Doo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20208.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ Skillshare, Gui Jorge Porto | Blender Grease Pencil: Combining 3D and 2D Animati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20207.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20206.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Udemy, Canopy Games, Michael Bridges | Blender Python Scripting - A Step-by-Step
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20197.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ Domestika, Davide Virdis | Intro to 3D Livery Design: Decals for Digital Cars (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20192.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Photogrammetry Course: Photorea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20003.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ Artstation Learning, Javier Perez | Creating a Modular Sci-Fi Environment Using 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20000.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ Artstation Learning, Enrico Tammekand | Creating a Subsurface Scatter Material i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19958.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ Udemy, Chloe Gendron | Accelerate Your Learning with Master Studies in Pen and I
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19949.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ CG Cookie | CORE Fundamentals: 9 Essential Courses for Blender 4.2 (2024) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19916.jpg" />
 </div>
 
 
@@ -276,7 +304,7 @@ CG Cookie, Wayne Dixon | RIG: Blender's Character Rigging Playbook (2024) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19894.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ CG Cookie, Lucas Falcao | BASEMESH: Create Stylized Characters Quickly with Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19887.jpg" />
 </div>
 
 
@@ -331,7 +359,7 @@ The Gnomon Workshop, Jordan Soler | Realistic Dog Grooming for Production with X
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19834.jpg" />
 </div>
 
 
@@ -358,7 +386,7 @@ CG Cookie, Kent Trammell | THE COLLABS COURSE: A Raw Look Into Remote Blender Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19800.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ Peter Coulson Photography - In The Garden With Stefania (2024) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19639.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19502.jpg" />
 </div>
 
 
@@ -438,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19501.jpg" />
 </div>
 
 
@@ -467,7 +495,7 @@ Gumroad, John Grello | IONIC Sketchbook 2019 - Digital Edition (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19469.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19326.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19224.jpg" />
 </div>
 
 
@@ -549,7 +577,7 @@ Dale Barnard | Искусство и Ремесла Стиль Greene & Greene (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18493.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18385.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Kubernetes и H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18375.jpg" />
 </div>
 
 
@@ -631,7 +659,7 @@ Woodsmith PBS | Woodsmith shop (Season 6) (2012) TVRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18319.jpg" />
 </div>
 
 
@@ -657,7 +685,7 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18283.jpg" />
 </div>
 
 
@@ -668,33 +696,6 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:316C5CDAC489D8B24A01C57A4F1E5ED71069B574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797250   (18262) от 15.05.2025
-
-George Vondriska | Создать невозможный стол (2024) WEBRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я давно хотел построить невозможный стол и наконец сделал это. Такие столы также называют тенсегрити-столами. Они отлично подходят для разговора, потому что кажется, что стол ничем не поддерживается.
-Мой стол использует слэбы с живым краем для верхней и нижней части, что добавляет еще одну визуально интересную деталь столу. В качестве альтернативы вы можете склеить (   Читать дальше...   )Жанр: ДеревообработкаЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334B2F1939CECC59D2A371859DD3A3E92E4DE10B
 ```
 
 https://mybot314.ru/tekegram_catalog/

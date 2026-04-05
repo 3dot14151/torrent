@@ -1,3 +1,32 @@
+###  Публикация: 961137   (301416) от 01.12.2015
+
+Unleashed - Where No Life Dwells / And the Laughter Has Died... (1991) [FLAC|image+.cue]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Where No Life Dwells
+02 Dead Forever
+03 Before the Creation of Time
+04 For They Shall Be Slain(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC64B7687BA8130619DBA5FFFA7DB7AE0B916A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961237   (301326) от 01.12.2015
 
 Reece (ex.Accept) - Universal Language (2009) [FLAC|image+.cue]<Hard Rock>
@@ -6,7 +35,7 @@ Reece (ex.Accept) - Universal Language (2009) [FLAC|image+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301326.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Manimal - Purgatorio (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301294.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ A Dying Planet - Facing The Incurable (2018) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301286.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) Live [MP3|320 Kbps] <Rock, Progressive
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301276.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301269.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ringo Starr - What's My Name (2019) [FLAC|24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301251.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301240.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dio - Sacred Heart (1985) Japanese Edition [FLAC|image + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301239.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Fish (ex.-Marillion) - Sunsets On Empire (1997) [FLAC|image + .cue]<Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301238.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Butterfly Temple - Вечность (2015) [MP3|320 кб/с]<Folk Metal, Pagan M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301234.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Tarja - From Spirits and Ghosts (Score for a Dark Christmas) (2017) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301184.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Stereophonics - Scream Above The Sounds (2017) [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301178.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301171.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Matrixx - Здравствуй (2017) [MP3|320 Kbps] <Neo-Post-Gothic, Alter
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301163.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Alcest - Spiritual Instinct (2019) [FLAC|Lossless|Web-DL|tracks] <Post-Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301156.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ian Paice and Forever Deep - Made in Verona (2010) [MP3|320 кб/с]<Hard Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301103.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Deep Purple - The Infinite Live Recordings, Vol. 1 (2017) [MP3|320 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301080.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Pink Floyd - 1965 - Their First Recordings (2015) [FLAC|tracks + .cue]<Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301030.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ Queensryche - Empire  (1990) Remastered, 2000, DCC Compact Classics ‎[FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300965.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ AC/DC - Highway To Hell (1979) Japanese Edition, 1989, Atlantic [FLAC|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300932.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ The Mahavishnu Orchestra - 6 CD (1971 - 1976) [FLAC|Lossless]<Jazz Rock Fusion>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_300902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300902.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300815.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ Yngwie Malmsteen - Spellbound (2012) [MP3|320 кб/с]<Neoclassical Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300778.jpg" />
 </div>
 
 
@@ -690,7 +719,7 @@ Vernissage - Intensiv (1998) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300760.jpg" />
 </div>
 
 
@@ -719,7 +748,7 @@ Valley's Eve - Prodigia (1997) [FLAC|Lossless|image + .cue] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300759.jpg" />
 </div>
 
 
@@ -733,35 +762,6 @@ Valley's Eve - Prodigia (1997) [FLAC|Lossless|image + .cue] <Progressive Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3145572D124A8577204653F4EA823F15B245B890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423356   (300756) от 13.11.2020
-
-Versital - A New Millennium (1999) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Light Disappears
-02. You Can't Kill Me
-03. A New Millennium
-04. Come Back To Me(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F5CBCEB16C548C45E9DA48BD591836A6DA51F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1572832   (417256) от 29.08.2022
+
+Memento Mori - Songs For The Apocalypse Vol IV (1997) Reissue, 2019, Black Mark Production [FLAC|Lossless|image + .cue] <Doom Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Things You See (And The Things You Don't)
+2. Under My Blackened Sky
+3. One Sign Too Many
+4. Burned By Light(   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E03D39D94B20FF7810B1A617B4818105936D59A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572966   (417255) от 29.08.2022
 
 Hostage - The Swarm (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
@@ -6,7 +35,7 @@ Hostage - The Swarm (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417255.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Imperial State Electric - All Through The Night (2016) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417212.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417122.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Fae - 2 Albums (2020-2022) [MP3|320 Kbps] <Stoner, Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417119.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417117.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417093.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Ray Gillen - 5th Anniversary Memorial Tribute (1998) [APE|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417051.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Salvation For Me - Memories (2022) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416867.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ David Crosby - Lighthouse (2016) [FLAC|Lossless|image + .cue] <Acoustic, Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416823.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Nick Cave - HTV Music History (2001) Compilation [FLAC|Lossless|image + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416640.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Jimmy Eat World - Integrity Blues (2016) [FLAC|Lossless|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416632.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Lindemann - Steh auf (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416534.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Rammstein - Angst (2022) RMX by twocolors [FLAC 2.0|48/24|WEB-DL|tracks] <Indust
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416499.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416490.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416350.jpg" />
 </div>
 
 
@@ -431,7 +460,7 @@ Santana - Santana IV Live at the House of Blues Las Vegas (2016) 2CD [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416335.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ VA - The Many Faces Of The Beatles (2016) 3CD Box Set [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416334.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ Sunuthar - Us Auter Zyt (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416197.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Rezn - Chaotic Divine (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416194.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ Marche Funebre - Einderlicht (2020) [FLAC|Lossless|image + .cue] <Doom Metal, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416191.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ Fatal Fusion - The Ancient Tale (2013) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416187.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ The Archipelago - Mind And Failure (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416184.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416121.jpg" />
 </div>
 
 
@@ -663,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416095.jpg" />
 </div>
 
 
@@ -692,7 +721,7 @@ Delta Spirit - What Is There (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416038.jpg" />
 </div>
 
 
@@ -706,35 +735,6 @@ Delta Spirit - What Is There (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4223FBF32BEEFF8C0AADAE70DC551DB72C9E1421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412749   (416032) от 30.09.2020
-
-Stryper - Even The Devil Believes (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood from Above (3:21)
-02. Make Love Great Again (5:54)
-03. Let Him In (3:53)
-04. Do Unto Others (4:40)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BD09DE8C379D968CDFA918305C4DCC22633ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

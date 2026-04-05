@@ -1,30 +1,3 @@
-###  Публикация: 1125857   (594701) от 14.07.2017
-
-За строчкой архивной… (Закрытый архив) (2016) WEB-DLRip (1 сезон: 12 серий из 12)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не все события получают должную огласку. Многие факты неизвестны широкой публике. Истину нельзя утаить.
-Цикл программ о неизвестных политических, военных, социальных, экономических страницах истории России 20-го века.Телекомпания: Россия, ЗАО Телекомпания «ФОРМАТ ТВ»Жанр: Документальный, история, журналистикаПродолжительность: 12 х ~ 00:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE0FA5ACB5CA558700BC014388A593F4EEAE24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039890   (594426) от 02.08.2016
 
 Манипуляция американским сознанием / The Occupation of the American Mind (2016) HDTVRip [H.264/1080i-LQ]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594426.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594302.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593585.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592437.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592390.jpg" />
 </div>
 
 
@@ -165,7 +138,7 @@ RTД Репортаж. Мир в фокусе. 40 лет сопротивлен�
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591967.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591906.jpg" />
 </div>
 
 
@@ -221,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591438.jpg" />
 </div>
 
 
@@ -247,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591220.jpg" />
 </div>
 
 
@@ -273,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591000.jpg" />
 </div>
 
 
@@ -299,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590996.jpg" />
 </div>
 
 
@@ -325,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590744.jpg" />
 </div>
 
 
@@ -352,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590715.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590485.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590481.jpg" />
 </div>
 
 
@@ -430,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590446.jpg" />
 </div>
 
 
@@ -458,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590080.jpg" />
 </div>
 
 
@@ -487,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590000.jpg" />
 </div>
 
 
@@ -513,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589936.jpg" />
 </div>
 
 
@@ -539,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589513.jpg" />
 </div>
 
 
@@ -565,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589124.jpg" />
 </div>
 
 
@@ -591,7 +564,7 @@ Viasat Explorer. Взгляд изнутри: Американские наци�
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589096.jpg" />
 </div>
 
 
@@ -617,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588663.jpg" />
 </div>
 
 
@@ -643,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588643.jpg" />
 </div>
 
 
@@ -670,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588631.jpg" />
 </div>
 
 
@@ -681,6 +654,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45FD2256E25AF3D48CA59CD33E1611EDA10B80A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551634   (588417) от 19.05.2022
+
+После правды: Дезинформация и цена фейк-ньюс / After Truth: Disinformation and the Cost of Fake News (2020) WEBRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм исследует феномен «фальшивых новостей» в США и то влияние, которое подобная дезинформация оказывает на простых граждан. В центре внимания — несколько громких новостных сообщений последних лет, которые оказались ложными и повлекли за собой серьезные последствия. Особняком стоит печально известное дело «Pizzagate», повлиявшее на президентские выборы 2016 года.Производство: США, Abstract, HBO Documentary FilmsЖанр: документальный, историяРежиссер: Эндрю РоссиПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCDAD546C47017E72BE0B892D06342FD0332916
 ```
 
 https://mybot314.ru/tekegram_catalog/

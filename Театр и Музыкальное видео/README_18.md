@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953588.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953410.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953409.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952697.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Boney M. - On Stage & On The Road Fantastic Boney M. (1977, 1981) 2007 MSI, DVDR
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952605.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951601.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music En
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA – Heavy Rock Masterpieces: The Ultimate Anthology (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951292.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951014.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950980.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Slipknot - {sic}nesses (Live At Download) (2009/2012) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950967.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950218.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950217.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950207.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950139.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950119.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950100.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA – Fetenhits: The Real Classics (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949881.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Radiohead – 27 5 94 The Astoria London Live (1995, remastered 2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949811.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ New Order - A Collection (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949798.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Joe Dassin - a Toi... Live a L'Olympia (1977) 2005 Sony&BMG, DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949645.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Radiohead - The Best Of (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949642.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Chris Rea – The Road To Hell & Back (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949634.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949504.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949083.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949003.jpg" />
 </div>
 
 

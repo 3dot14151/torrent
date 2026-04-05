@@ -1,3 +1,29 @@
+###  Публикация: 27153   (177753) от 06.10.2023
+
+Max Net Entertainment | Аэробика без одежды/Totally Nude Aerobics (2000) [DVDRip]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый динамичный фильм с элементами эротики и участием красивых профессиональных актрис-спортсменок. Мастерство, необычный ракурс съемок и профессионализм режиссера , актрис раскрывают красоту обнаженного женского тела в движении. Фильм используется, как пособие для профессиональных спортсменок. Хорошо видны какие группы мышц работают при исполнении того или иного (   Читать дальше...   )Производство: США, Канада / Max Net EntertainmentЖанр: эротика, реальное ТВ, музыкаРежиссер: Рон ХаррисАктеры: Кэрол Бодро, Lisa Erwin, Шайна Ли, Elena Nevado, Shianne Seacord, Evelyn Terjanszky, Collette WhiteПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B507B8F2C2C1D07817CF29E376F31A030709B7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594548   (177571) от 01.12.2022
 
 Максим Добрый | Univer W3 (2022) PCRec [RU]
@@ -6,7 +32,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177571.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177521.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177509.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177287.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177259.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177214.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177182.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Udemy, Никита Ильин | Польский язык: С нуля до Б1
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177177.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Changellenge, Семен Бохер и др. | Excel для карьеры и п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177151.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ Skillbox, Артём Володкин, Андрей Неляпин, Михаил
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177126.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ Udemy, Илья Фофанов | Алгоритмы и структуры дан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177046.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177009.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176492.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176486.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ HolyJS 2020 Moscow | Конференция для JavaScript-разработч
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176449.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176427.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176416.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176398.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176387.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Slurm (Слёрм), Пётр Щербаков | Микросервисы: про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176379.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176368.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Rebrain, Алексей Рябов | HashiCorp Vault (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176360.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176348.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Node University | Подборка курсов по разработке на N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176288.jpg" />
 </div>
 
 
@@ -670,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176278.jpg" />
 </div>
 
 
@@ -684,34 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8045D57F95167620263BE520D075D78DAD0049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429510   (176225) от 06.12.2020
-
-Brejestovski Language School, Антон Брежестовский | Основная английская грамматика (2020) PCRec
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс-самоучитель “Основная английская грамматика”.
-
-Этот курс, проверенный и протестированный десятки раз за 12 лет своего существования, помог уже сотням студентов кардинально улучшить свою грамматику. Теперь он доступен и для самостоятельного обучения.Производство: Brejestovski Language SchoolЖанр: Английский языкПродолжительность: 06:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D79A3882686F24990394387D38B5B50A2C7BE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

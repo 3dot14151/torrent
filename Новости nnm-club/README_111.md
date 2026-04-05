@@ -1,3 +1,32 @@
+###  Публикация: 888260   (680765) от 15.05.2015
+
+Apple Final Cut Pro X 10.2.1,  Motion 5.2.1 & Compressor 4.2 [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+
+Motion. Анимация для Final Cut
+Создавайте великолепные титры, переходы, эффекты и многое другое в приложении Motion. Это отличное дополнение к Final Cut Pro. Новые смарт-шаблоны Motion позволяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 мая 2015Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.10.2 +Язык интерфейса: Английский, Китайский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9B9F451105298979CE0971570E31D3E58A177C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935468   (680547) от 01.05.2018
 
 This War of Mine (2014) [Ru/En] (4.0.0 (u2)/dlc) Repack R.G. Механики
@@ -6,7 +35,7 @@ This War of Mine (2014) [Ru/En] (4.0.0 (u2)/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680547.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Anthropics Portrait Professional Studio 10.9.5 + Portable [MULTi + Русски�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680447.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680104.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ BELOFF 2019.3 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679826.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 19.3.15 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679825.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ X4: Foundations (2018) [Ru/En] (2.20/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679819.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679756.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679731.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ VA - Этот великолепный и незабываемый Японск�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679729.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679035.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678759.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678753.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678752.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ Aldnoah.Zero / Aldnoah Zero / Алдноа.Зеро (ТВ-1) [2014, TV, 12 ep] B
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678743.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ Project CARS (2015) [Ru/Multi] (1.0.1.3/u2/dlc) Repack R.G. Games
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678742.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ Win10PE-x64-1803 xlx 01.05.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678697.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678694.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678685.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ Alice: Madness Returns (RePack) [Ru] 2011 | a1chem1st
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678266.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ Waking Life / Пробуждение Жизни / Жизнь Наяву (2001) V
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678016.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677999.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677801.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ Cold Fear (2005) [Ru/Multi] (1.0.0.0) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677772.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677761.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677758.jpg" />
 </div>
 
 
@@ -654,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A57D8C1AFFBB6BF5A61B7E5485F80FB378C4CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029711   (677756) от 28.06.2016
-
-Udemy.com | IT Безопасность Для Начинающих 2.0 : Сертифицированный Курс По Взлому (2015) PCRec [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сетевая и IT Безопасность это не шутки. В считанные секунды хакеры могут получить доступ к вашей сети и просмотреть файлы, аккаунты, и даже украсть вашу личность. Этот курс создан для того, чтобы познакомить Вас с концепциями и реальными тактиками, которыми пользуются хакеры, чтобы вы смогли защитить себя и вашу сеть.
-
-По мимо того что этот курс включает в себя пошаговые (   Читать дальше...   )Жанр: IT БезопасностьПродолжительность: 10:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1BCCB06A0ED90AD4F351DEDB8EA5E57AB8A8EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1382708   (816600) от 12.05.2020
+
+Дмитрий Валак | Основы HTML и CSS для начинающих (2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выучи основы HTML и CSS и научись создавать сайты с нуля! Подробные уроки в видео-формате с домашними заданиями и практикой.Производство: BrainsCloudЖанр: Верстка, HTML, CSSПродолжительность: ~13:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BB9E01FD93236F66267252B89EDD0FB084A64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 882651   (816350) от 29.03.2015
 
 Максим Федоров | С нуля до 101% в AutoCAD. Видеокурс (2012) PCRec [H.264]
@@ -6,7 +32,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816350.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815253.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Udemy, Gabriel Aguiar | Unreal Engine 4 - VFX for Games - Beginner to Intermedia
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815246.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815106.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814997.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814395.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813118.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813076.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ The Gnomon Workshop | Введение в ZBrush 4R8 / Introduction to ZBrush 4R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812971.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812951.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812948.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812804.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ TRX TV | TRX Strenght Workout (2008) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811755.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ kalachevaschool, Анна Михеева и др. | Акварель «Ката�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811539.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Mindvalley, Джим Квик | Супермозг (2018) WEBRip
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811536.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Mindvalley, Джим Квик | Скорочтение (2021) WEBRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811533.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ KNOWLEDGE Syndicate | Архитектура мобильных игр на UNIT
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811519.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811052.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ TRX Performance | Train Like The Pros (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809992.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ TRX Performance | Team Sports (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809991.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ TRX Kettlebell | Iron Circuit Conditioning (2009) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809839.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ Skillshare, David Jaasma | Animation for beginners: Create spherical animations 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809746.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Udemy, Andy Bek | The Ultimate Pandas Bootcamp: Advanced Python Data Analysis  (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809731.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809707.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ Udemy, David Bombal | The Complete Networking Fundamentals Course. Your CCNA sta
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809625.jpg" />
 </div>
 
 
@@ -668,34 +694,6 @@ Udemy, David Bombal | The Complete Networking Fundamentals Course. Your CCNA sta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B00DFC3685B508467A756FC2431EDB45C34CE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504843   (809611) от 24.10.2021
-
-Techworld With Nana, Nana Janashia | The Ultimate Kubernetes Administrator Course (CKA) (2021) WEB-DL [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте администратором K8s - Перейти от нуля к герою!
-Kubernetes - самая популярная платформа для оркестровки контейнеров. Все больше и больше компаний принимают его на вооружение. Итак, потребность в ИТ-специалистах, знающих Kubernetes, как никогда высока и растет с каждым годом.
- Это означает, что если вы потратите время на изучение K8s и получение сертификата (   Читать дальше...   )Производство: Techworld With NanaЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 14:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9719E14220221690411B6DF4696CF97CED117A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

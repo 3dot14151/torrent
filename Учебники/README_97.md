@@ -1,3 +1,55 @@
+###  Публикация: 1592997   (181685) от 25.11.2022
+
+В.Г. Герасимов (ред.) | Лабораторные работы по основам промышленной электроники (1989) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие соответствует программе по электротехническим дисциплинам для неэлектротехнических специальностей высших учебных заведений. Во втором издании исключены лабораторные работы по электровакуумным электронным и ионным приборам. Акцент сделан на изучение современных полупроводниковых приборов, аналоговых и цифровых интегральных микросхем, оптронов, микропроцессоров (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9017989AE0C8BA56E876D98E43B9E5609895E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592994   (181656) от 25.11.2022
+
+Г.Г. Рекус, В.Н. Чесноков | Лабораторные работы по электротехнике и основам электроники (1989) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181656.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены описания лабораторных работ, основные теоретические положения, общие методические рекомендации, представлены основные электроизмерительные приборы, правила техники безопасности.Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5252834DA7EBAF6B60B9949091CBFCDD1426616C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593146   (181649) от 25.11.2022
 
 Липман Берс | Математический анализ (1975) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181649.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181276.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181258.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181220.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181212.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181178.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180898.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180875.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180726.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180200.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180149.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180046.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179928.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179836.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179786.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179721.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179658.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179516.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179354.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179344.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179334.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178545.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178536.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178427.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EFB5B1929F8BCF5CBF0BB165AD76DA164F2BD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428576   (178203) от 04.12.2020
-
-Е.В. Захаров и др. | Уравнения математической физики (2010) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178203.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике представлен материал для первоначального изучения уравнений математической физики: даны математические постановки задач для уравнений в частных производных (теплопроводности, Лапласа, волнового); приведены доказательства теорем единственности, существования и устойчивости их решений; описаны методы построения решений.
-Для студентов высших учебных заведений.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6ED25F9371A1D0157008EB20071B3CE35C5F3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666808   (178199) от 06.10.2023
-
-Ю.Е. Верёвкин | Усилительно-Преобразовательные устройства (1976) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178199.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дан подробный анализ электрических схем, выполненных на полупроводниковых приборах и электронных лампах. Особое внимание уделено физическим процессам, происходящим в электрических схемах. Приведенный математический аппарат позволяет производить расчеты параметров различных каскадов. Единая методика построения и анализа электрических схем способствует легкому (   Читать дальше...   )Жанр: ЭлектроникаИздательство: СудостроениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66B41601B7B74BA341394359F8B8F4351F108E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

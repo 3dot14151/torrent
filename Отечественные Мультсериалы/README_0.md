@@ -1,3 +1,29 @@
+###  Публикация: 1300648   (1031732) от 13.02.2021
+
+Пластилинки. Зверушки (2019-2020) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) [Обновляемая]
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник развивающих мультфильмов для малышей о диких и домашних животных. Какие они бывают, где живут и чем занимаются? Не бойтесь познакомиться с ними поближе! Пластилиновые зверушки не кусаются и не бодаются – они хотят подружиться с маленькими зрителями и рассказать о себе много интересного. Из коротких мультфильмов длиной всего в две минуты малыши узнают, кто (   Читать дальше...   )Производство: Россия / СоюзмультфильмЖанр: Развивающий мультсериал для детейРежиссер: Сергей МериновАктеры: Андрей Лёвин, Юлия Рудина, Михаил Черняк, Марианна Мокшина, Ксения БржезовскаяПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:02:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25850F4D82378C271D0E728631EE317AFEF1948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340471   (1031004) от 16.02.2021
 
 Снежная Королева: Хранители Чудес (2019-2020) WEB-DL [H.264/720p-LQ] (сезон 1, серия 1-22 из 26) [Обновляемая]
@@ -6,7 +32,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031004.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023430.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020702.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020520.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020028.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019577.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019077.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018494.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016235.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016032.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013123.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002720.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002679.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001586.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001221.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984225.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982147.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979051.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978748.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978667.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977788.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975946.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971206.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968117.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967420.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E954CFEC6A9ACC94DD9B8BEE24DBBF2A4906AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977447   (966383) от 20.01.2016
-
-Тима и Тома (2015) WEBRip (1-12 серии)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966383.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тима и Тома» – новый совместный проект ЗАО «Детский канал» и ГК «Рики», производства Студии Компьютерной Анимации «Петербург». Сериал создан для дошкольников - фантазёров и мечтателей, для которых мир полон приключений, а границы между хорошим и плохим пока размыты. Характеры главных персонажей сериала настолько правдоподобны, что маленькие зрители легко узнают (   Читать дальше...   )Производство: Россия, Студия анимации «Петербург»Жанр: Мультсериал, детскийРежиссер: Анна БорисоваПродолжительность: 12 x ~ 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FD1E5C4B0272BA2E267ABB8967BB216A5798B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

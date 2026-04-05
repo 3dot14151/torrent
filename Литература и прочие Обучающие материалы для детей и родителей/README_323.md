@@ -1,3 +1,58 @@
+###  Публикация: 1422416   (310812) от 08.11.2020
+
+Ульф Нильсон | Комиссар Гордон [4 книги] (2019) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смешные и милые истории о комиссаре Гордоне и его помощнице Жаби, рассказанные Ульфом Нильсоном с прекрасными иллюстрациями Гитты Спе, вроде бы адресованы младшим читателям - дошкольникам и первоклассникам. Однако скромное обаяние сыщицкой действительности легко завоюет и взрослое сердце.Жанр: Детская литература/Сказки народов мира/ДетективПеревод: Мария ЛюдковскаяФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDC4FBF162B89D927F276E5B7D03407B315F374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422403   (310811) от 08.11.2020
+
+Винс Воутер | Бумажный мальчик (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько недель изменили жизнь одиннадцатилетнего разносчика газет. Встречи с людьми, чья жизнь не похожа на его собственную, и раскрытая тайна о собственном происхождении помогли герою обрести собственный голос и выбрать свой путь.
+На русском языке публикуется впервые.
+Дата перевода: 2021
+Дата написания: 2013Жанр: Детская литература/Проза для детей/Книги для подростковПеревод: Елена ТепляшинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F44BA3CBE6A04245BB53A9992FB8BB488531571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422387   (310809) от 08.11.2020
 
 Татьяна Александрова | Домовёнок Кузька (2020) [Сборник] [EPUB]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310809.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310805.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310803.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310722.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310720.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310334.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310332.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310320.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310208.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310045.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310021.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310018.jpg" />
 </div>
 
 
@@ -329,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309995.jpg" />
 </div>
 
 
@@ -358,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309952.jpg" />
 </div>
 
 
@@ -384,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309865.jpg" />
 </div>
 
 
@@ -413,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309788.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309785.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_309775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_309775.jpg" />
 </div>
 
 
@@ -496,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309774.jpg" />
 </div>
 
 
@@ -523,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309770.jpg" />
 </div>
 
 
@@ -549,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_309660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_309660.jpg" />
 </div>
 
 
@@ -575,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309638.jpg" />
 </div>
 
 
@@ -602,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309499.jpg" />
 </div>
 
 
@@ -628,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309497.jpg" />
 </div>
 
 
@@ -639,65 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FD23BAFB03123BF07EB3D0E28C548AD845F780A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729331   (309494) от 02.12.2013
-
-Михаил Булатов | Солнце, Месяц и Ворон Воронович (1977) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская народная сказка свеликолепными иллюстрациями Татьяны Алексеевны Мавриной.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9329C09ADA766B7539052D4ACF7918CA8DEC99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729469   (309492) от 02.12.2013
-
-В.И. Петров | Детство Ромашки (1972) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309492.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора
-Детство — самая светлая пора жизни.
-Хожу ли по улицам большого города, рабочего поселка или колхозного селения — всюду вижу, встречаю наших советских ребятишек, юношей, девушек. Бодрые, звонкоголосые, спешат они в школы, ремесленные училища, в институты, техникумы. И кто же не знает, что это шагает самое счастливое поколение, которое будет жить при коммунизме.
-Смотрю на это племя молодое, радуюсь и завидую, вспоминая свое детство.
-Мне и миллионам моих сверстников, глянувшим на белый свет в начале этого века, пришлось нелегко. Детства-то у нас, пожалуй, и не было.
-Царский строй, полицейщина, жизнь при нищенских заработках на капиталистических заводах и фабриках, в помещичьих имениях, у кулаков и купцов бросали трудовой народ в беспросветную нужду, а детей — в «люди», внаймы за кусок хлеба.
-О детстве, которого почти не было, я и вспоминаю в этой книге.
-Думается, что суровый путь жизни героев повести вызовет у вас, дорогие читатели, не только сочувствие. Мне бы хотелось, чтобы вы поняли, что ваши свобода (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005B5518CC41FC8BD0C689F01B2DC10F2D0753F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

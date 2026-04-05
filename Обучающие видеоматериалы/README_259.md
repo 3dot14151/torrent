@@ -1,3 +1,32 @@
+###  Публикация: 1518154   (156593) от 18.12.2021
+
+Skillbox, Дмитрий Бородин и др. | Финансовое моделирование (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь правильно составлять финансовые модели для компаний из разных отраслей. На их основе сможете проводить финансовый и инвестиционный анализ и интерпретировать результаты.
+Чему вы научитесь:
+Строить финансовые модели для любой отрасли. Изучите особенности финансового моделирования в разных сферах — от торговли до строительства.
+Оценивать эффективность инвестиций. (   Читать дальше...   )Производство: SkillboxЖанр: ФинансыПродолжительность: 21:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E139E2E0AE7A852631E3BD542F7F0F511CC41E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518133   (156546) от 18.12.2021
 
 Skillbox, Алина Гончаренко, Александр Чайка | Основы работы с маркетплейсами  (2021) WEB-DL [AD]
@@ -6,7 +35,7 @@ Skillbox, Алина Гончаренко, Александр Чайка | Ос�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156546.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Voitixler, Екатерина Векслер | Практический онла
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156478.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Slurm (Слёрм), Виталий Филиппов и др. | Ceph (2022) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156372.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ BigData Team, Алексей Драль, Артём Выборнов, Павел
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156233.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156207.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ Udemy, Vyara Georgieva | The Complete English Grammar Course - from A1 to C1 lev
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156202.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ Liveclasses, Антон Мартынов | Нейросети для генер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156137.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ Yandex.ru | Курсы информационных технологий, Тре
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155807.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155592.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Domestika, Trini Guzmán | Interior Mural Painting (2023) WEB-DL [AD] [ES / EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155454.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Udemy, Harsh Gupta | Paint and prep training in Nuke: fundamental – NK101 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155430.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ English For IT, Анна Гандрабура | Английский для те
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155355.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Udemy, Alex Hanneman | Introduction to Nuke VFX Compositing: The Essentials - NK
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155243.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Hudozhnik Online, Настасья Кучинская | Рисование те�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155217.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155209.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Grant Warwick, Grant Warwick | Mastering Lighting Lessons 5 (2016) PCRec [Час
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155196.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Grant Warwick | Mastering Lighting Lessons 5 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155112.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ Learn Squared, Paul Chadeisson | World Building (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155011.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ New Masters Academy, Erik Olson | Perspective 17: Drawing the Figure in Perspect
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154951.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ Cubebrush, Marc Brunet | Character Concept for Video Games (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154904.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154891.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ Gumroad, Cedric Lepiller | Sony BSP10 - Non-Destructive workfow on Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154880.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Udemy, Roman Dushkin | Блокчейн и атаки на него (2022) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154805.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Learn Squared, Philipp Kruse | Character Illustration (2020) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154782.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ ProfIT | DBA Введение в профессию (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154756.jpg" />
 </div>
 
 
@@ -686,35 +715,6 @@ ProfIT | DBA Введение в профессию (2018) PCRec [H.264]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF8B9D829FF3841CB42473C0E6E897BCD44C499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346915   (154719) от 21.12.2019
-
-devtodev | Введение в геймдев (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задумала этот курс уже много лет назад. Реализовывала его в виде текстового документа и инструктажей по его использованию для новых сотрудников. Постепенно об этом документе узнавали друзья из индустрии и просили доступ.
-Но всем желающим отдельный инструктаж не проведешь!
-Стало сложно успевать это делать даже внутри своей компании.
-Хватит это терпеть, подумалось (   Читать дальше...   )Производство: devtodevЖанр: Разработка игрПродолжительность: 10:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E9349DEC0B50E89DE55F0DED3046F91B3D33A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

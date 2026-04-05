@@ -1,3 +1,55 @@
+###  Публикация: 1554338   (232391) от 29.05.2022
+
+FlippedNormals, Emiel Sleegers | Creating Custom Decals for Games - In-Depth Tutorial Course (2022) PCRec [EN / RU, EN, ES, CN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как работает профессиональный художник по окружению при создании декалей с использованием различных техник, которые могут быть использованы в игровых движках. Вы узнаете, как создавать все: от процедурных до вручную нарисованных и скульптурных декалей, декалей только для карт нормалей и POM (Parallax Occlusion Mapping) декалей, декалей на основе изображений (   Читать дальше...   )Производство: FlippedNormalsЖанр: Разработка игр, Дизайн уровней, ДекалиЯзык озвучки: АнглийскийПродолжительность: 05:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A94034C343E13938E795E18056BD8B431048F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554266   (232318) от 29.05.2022
+
+Gumroad, Jan Urschel | Procedural Landscapes in Blender (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Процедурные ланшафты. Никакого моделирования, текстур, плагинов. Только Блендер. Создадим три реалистичных ландшафта, с помощью одного редактора шейдинга и рендер-движка Cycles.Производство: GumroadЖанр: Моделирование ландшафтаЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE50C632CBF5902084CED9DBC65FB80A8B2EEDBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554229   (232267) от 29.05.2022
 
 CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN]
@@ -6,7 +58,7 @@ CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232267.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Artstation, Aaron Villarreal | Creating a Stylized Diorama | Aaron Villarreal (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232161.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232093.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Lectoroom, Мария Павлова | Букет клубники маслом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231997.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ World Of Level Design | UE4 Fundamentals Vol.1: The Essential Beginner's Guide t
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231973.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Art box school | Mини цветы. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231964.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ Art box school | Листья. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231955.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Art box school | Эффектный пейзаж. Масло (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231945.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ milenanoda.school, Milena Noda | Марафон «Создание стилиз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231938.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ Lynda, Brian Morse | PFTrack Essential Training (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231937.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ Udemy, Michael Gerard | Unreal Engine 4 - Learn How to Create a Lost Road scene 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231911.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ The Gnomon Workshop, Gary Meyer | Fundamentals of Perspective Vol. 1-3 (2012) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231826.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ Rohan Dalvi | Procedural Modeling in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231698.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231307.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231247.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231215.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231128.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230633.jpg" />
 </div>
 
 
@@ -497,7 +549,7 @@ Artilike, Галина Гомзина | Акварельный интенсив 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230627.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ Fluidart, Екатерина Гаврилова | Онлайн курс «Сов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230612.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230601.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Artmeup, Кристина Бриль | Текстурная живопись (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230580.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ CG Forge, Tyler Bay | Pyro II - Flames & Sparse Pyro (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230523.jpg" />
 </div>
 
 
@@ -638,7 +690,7 @@ Skillshare, Yassine Larayedh | Create Realistic Looking Forests & Mountains in B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230413.jpg" />
 </div>
 
 
@@ -649,61 +701,6 @@ Skillshare, Yassine Larayedh | Create Realistic Looking Forests & Mountains in B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C13EF64EB71C23EDB4B9EDB55E5C7C1713093273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556490   (230393) от 09.06.2022
-
-FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade Tutorial - Tip Jar Edition (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет всем! Это идеальное учебное пособие для тех, кто хочет начать работу с Blender.
-2–часовой вводный курс, а также еще 2 часа – создание светошумовой гранаты. В общей сложности более 4 часов уроков по Blender для начинающих, а также полчаса по запеканию, текстурированию и рендерингу в Marmoset Toolbag 4!Производство: FlippedNormalsЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 04:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC926EB475DF35B0DF0960CF129F0F0D58C265F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556736   (230317) от 10.06.2022
-
-Skillshare, 3D Tudor | Substance Painter to Unreal Engine 5 Masterclass (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как создавать игровые AAA ассеты в Substance Painter и Unreal Engine, в этом мастер-классе.
-Вы узнаете, как создать замысловатый стилизованный фургон, находящийся в сцене у костра, которая вдыхает жизнь благодаря дизайну и анимации.
-В этом курсе вы узнаете обо всех техниках, которые используют профессионалы, и о том, как они их используют. Интеграция с Unreal (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 14:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570065B9F8A558A18C17CA54B5AE8CA091CE83E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

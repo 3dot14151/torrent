@@ -1,3 +1,29 @@
+###  Публикация: 1372931   (881998) от 05.04.2020
+
+Мариэтта Чудакова | Рассказы про Россию. 1861—1922 (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Мариэтты Чудаковой – члена Европейской академии, знаменитого литературоведа, историка литературы, биографа Михаила Булгакова, автора увлекательных романов для школьников – результат нескольких совпадений. Профессионального интереса ученого к истории Отечества. Гражданского темперамента общественного деятеля, члена Президентского совета при Б.Н. Ельцине. (   Читать дальше...   )Жанр: Проза для детей, Отечественная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374C745102C03E00E57CC97499C4E4279DD250C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373150   (881994) от 05.04.2020
 
 Б. А. Архангельский, Г. Н. Сперанский | Мать и дитя. Школа молодой матери (1955) [DJVU]
@@ -6,7 +32,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881994.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881991.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881970.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881896.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_881789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881789.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881434.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881187.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_881091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881091.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881072.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880527.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880524.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880486.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880482.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880479.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880469.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880457.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880432.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880181.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880092.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879802.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879798.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879796.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879786.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879663.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879607.jpg" />
 </div>
 
 
@@ -658,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39B5C31562C7450E0393716E725E0F6CE2EA9948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871526   (879542) от 22.02.2015
-
-Сергей Аксаков и др. | Грачи прилетели (1959) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга входит в серию небольших сборников стихов, рассказов и сказок, посвящённых четырём временам года. Остальные выпуски этой серии: "Летний дождь", "Приметы осени", "Два мороза".
-Для начальной школы.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD9F33727F194CE392D152BEE35B1AF9DFC5589
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1673723   (163419) от 03.11.2023
-
-Oasis - The Masterplan (1998) Remastered Edition, 2023, Big Brother Recordings Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Britpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acquiesce (Remastered) (4:25)
-02. Underneath The Sky (Remastered) (3:21)
-03. Talk Tonight (Remastered) (4:21)
-04. Going Nowhere (Remastered) (4:40)(   Читать дальше...   )Жанр: BritpopПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF77D9943F5736E130153D53119BC50E23004FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673731   (163413) от 03.11.2023
 
 Serenity - Nemesis AD (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Progressive Power Metal>
@@ -35,7 +6,7 @@ Serenity - Nemesis AD (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163413.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Bad Wolves - Die About It (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163404.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Van Morrison - Accentuate The Positive (2023) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163325.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Angra - Cycles Of Pain (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163199.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Аракс / Веселые Ребята - Песни На Стихи Ви�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163119.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Jean Michel Jarre - Oxymoreworks (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163019.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ John Di Martino's Romantic Jazz Trio - Lovegame - Tribute to LADY GAGA (2012) Ja
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162447.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162138.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Till Lindemann - Zunge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162115.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ HIM - Studio Albums (10 releases) (1997 - 2013) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161775.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161365.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Chicago - Greatest Christmas Hits (2023) Remaster [FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161305.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Chicago - Chicago Christmas Complete (2023) Remaster [FLAC 24/192|24/96|24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161290.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ DGM - Momentum (2013) Reissue, 2014, Night Of The Vinyl Dead Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160861.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160839.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160835.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Euro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160800.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160770.jpg" />
 </div>
 
 
@@ -551,7 +522,7 @@ Seventh Wonder - Mercy Falls (2008) Reissue, 2023, Frontiers Music SRL [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160667.jpg" />
 </div>
 
 
@@ -580,7 +551,7 @@ Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160655.jpg" />
 </div>
 
 
@@ -609,7 +580,7 @@ Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160628.jpg" />
 </div>
 
 
@@ -638,7 +609,7 @@ Bob Marley & The Wailers - Catch A Fire (50th Anniversary) (2023) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160596.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ David Coverdale - Whitesnake (1977) [FLAC|24/192|image |Vinyl-Rip] <Hard Rock, B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160421.jpg" />
 </div>
 
 
@@ -696,7 +667,7 @@ Gama Bomb - BATS (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160316.jpg" />
 </div>
 
 
@@ -725,7 +696,7 @@ Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160290.jpg" />
 </div>
 
 
@@ -739,6 +710,35 @@ Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB8EEFD90DD69020A9D39C198BEBE268DCB9DE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675598   (160288) от 09.11.2023
+
+D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock , Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard to Be Easy (5:10)
+02. Linger at the Edge of My Memory (5:05)
+03. Tiny Little Fires (3:33)
+04. Right Where You Should Be (3:43)(   Читать дальше...   )Жанр: Progressive Rock , Melodic RockПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6C6ADCB6C6AF2160BAF0D97A88C1EFEC15C6F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999825.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999635.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999323.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999314.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999303.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Slade At The BBC (1969-1991) (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999109.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998559.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998531.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998523.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998364.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998332.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998260.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998019.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997817.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997663.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996877.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996648.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995990.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995809.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995794.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995789.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ ABBA - ABBA (Deluxe Edition) (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995443.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995439.jpg" />
 </div>
 
 

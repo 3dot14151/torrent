@@ -7,7 +7,7 @@ Arknights: Endfield OST (2026) [MP3|320 kbps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056900.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Love Live! School Idol Project: Discography (2013-2015) [FLAC|tracks] <75CD-PV+O
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988319.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ The Herbalist OST (2015) [FLAC|Lossless|WEB-DL]<OST, Score>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985678.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Darker Than Black / Темнее черного [TV-1 / TV-2 OST] [2007][MP3|320
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958597.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ergo Proxy / Эрго Прокси OST [2006][MP3|320 CBR]<OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955050.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Charlotte OST (2015) [FLAC|Lossless|6 CD] <OST+OP+ED+Singles>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948061.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ushinawareta Mirai wo Motomete OST (2014-2015) [FLAC|Lossless|5 CD] <OST+OP+ED+S
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941782.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mairimashita! Iruma-kun | Добро пожаловать в ад, Ирума - 
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934391.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Senki Zesshou Symphogear | Песня боевых принцесс: Мехас�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926762.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Senki Zesshou Symphogear | Песня боевых принцесс: Мехас�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925049.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru OST / Мой подростко
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921031.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hugtto! Precure | Хорошенькое лекарство: Объятия (201
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913533.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Hugtto! Precure | Хорошенькое лекарство: Объятия (201
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911888.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Kirakira Precure A La Mode | Хорошенькое лекарство: В мо�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910642.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Kirakira Precure A La Mode | Хорошенькое лекарство: В мо�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908545.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Mahou Tsukai Precure! | Хорошенькое лекарство: Девочк�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906666.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mahou Tsukai Precure! | Хорошенькое лекарство: Девочк�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906663.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Maoyuu Maou Yuusha OST (2013, FLAC) <OST+OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896459.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Star Twinkle Precure | Хорошенькое лекарство: Мерцани
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896379.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Housekishou Richard-shi no Nazo Kantei | Загадочные дела ювел�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894749.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Housekishou Richard-shi no Nazo Kantei | Загадочные дела ювел�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894742.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Koi Suru Asteroid OST (2020) [MP3|320 kbps] <OP+ED>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893203.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Koi Suru Asteroid OST (2020) [FLAC|tracks] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893201.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Kantai Collection Anime OST (2015|FLAC) <OP|ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891029.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Rakuen Tsuihou -Expelled from Paradise- OST (2014|FLAC) <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887825.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Oshi ga Budoukan Itte Kuretara Shinu | Если мой кумир споёт н�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886608.jpg" />
 </div>
 
 

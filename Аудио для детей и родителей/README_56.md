@@ -1,3 +1,29 @@
+###  Публикация: 1066118   (414317) от 25.10.2016
+
+Джанни Родари | Джельсомино в Стране лжецов (2012) [MP3, Дмитрий Колыго]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414317.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой сказочной истории рассказывается о мальчике Джельсомино, с детства обладающим удивительным голосом - необыкновенно громким, способным разбивать предметы, разрушать стены и совершать другие чудеса. Путешествуя по свету, наш герой попадет в город, где по указу короля - бывшего пирата - все, даже животные, обязаны говорить неправду, Джельсомино вместе со своими (   Читать дальше...   )Жанр: СказкаИздательство: Говорящая книгаПродолжительность: 03:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB53B45712F3266BC94B6FED7F706AD5E2417D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413131   (411567) от 02.10.2020
 
 Александр Никонов | Физика на пальцах. Для детей и родителей (2020) [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411567.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ VA - Выпускной Вечер прощанья со школой (2012) [MP
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410805.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409853.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408355.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408239.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Sweet Little Band - Музыка для детей Led Zeppelin (2014) [MP3|320 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407881.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ VA - Волшебные голоса природы: Малыш у реки (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407850.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ VA - Лучшие песни из передачи "Радионяня" (2006) [
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407736.jpg" />
 </div>
 
 
@@ -231,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406899.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406765.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406620.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406545.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405254.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404879.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ VA - Nanourismata (2010) [MP3|320 кб/с]<Колыбельные для дет�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404809.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403778.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402810.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402760.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402321.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401946.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397306.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396075.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ VA - Спи, ангелочек, усни (2009) [MP3|320 kbps]<Колыбель
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396008.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393971.jpg" />
 </div>
 
 
@@ -672,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392690.jpg" />
 </div>
 
 
@@ -685,32 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37455F21B3DEC0ED0C2A2C652CFC593AFD40FCD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568999   (392550) от 02.11.2012
-
-Елена Качур | Детская аудиоэнциклопедия Дяди Кузи и Чевостика «Великие люди. А. С. Пушкин» [2012] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиоспектакль-путешествие познакомит маленьких слушателей с биографией и творчеством Александра Сергеевича Пушкина. Вместе с Чевостиком и дядей Кузей ребята побывают в местах, где жил и творил великие поэт, узнают, когда и как он сочинил свои самые известные произведения, и, конечно, услышат прекрасные пушкинские стихи.Жанр: детская познавательная литература
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4268714F5602A322E3EDE975DB9F35CF1076F78E
 ```
 
 https://mybot314.ru/tekegram_catalog/

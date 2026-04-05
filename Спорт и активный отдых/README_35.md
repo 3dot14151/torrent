@@ -1,3 +1,237 @@
+###  Публикация: 1485658   (1005305) от 26.07.2021
+
+Чемпионат мира по шоссейно-кольцевым гонкам Формула Е. Сезон 2021. Этап 12-13. Великобритания. Квалификация 1,2, Гонка 1,2 (24-25.07.2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005305.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-13 этап электрической формулы Formula E в Великобритания, Лондон.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:31:12 + 01:16:59 + 01:30:51 + 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543B3122B6FF2C0DF2E00F3C15F2CAD63E36987A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485071   (1005302) от 26.07.2021
+
+Серия Кубков NASCAR 2021. Этап 22. Нью-Хэмпшир. Гонка / NASCAR Cup Series 2021. Jockey Foxwoods Resort Casino 301. New Hampshire Motor Speedway (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0985EF7CA3B6B83EEC245EBC3D207E6323A9460E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484635   (1005299) от 26.07.2021
+
+Бразильская автоспортивная серия гоночных грузовиков. Сезон 2021. Этап 3. Каскавел. Гонка 1-2 / Copa Truck-2021 (ex- Formula Truck). Cascavel (PR). Race 1-2 (17.07.2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Copa Truck — бразильская автоспортивная серия гоночных грузовиков, до 2017 года она называлась Formula Truck.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19573C7A58A332AFA9144E4A0E44F1D925844955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485392   (1005079) от 28.07.2021
+
+Смешанные единоборства. UFC on ESPN 27: Кори Сэндхаген – Ти Джей Диллашоу / UFC on ESPN 27: Sandhagen - Dillashaw. Prelims & Main Card (24.07.2021) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005079.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 июля в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC on ESPN 27. Главным событием которого стал бой в легчайшем весе между Кори Сэндхагеном и Ти Джей Диллашоу. Бывший чемпион, Диллашоу, возвращается в октагон после двухлетнего отстранения от USADA. Для поединка с Генри Сехудо, Ти Джей спустился в наилегчайший вес за титул в той же (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 05:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCF13C717472FF16614F5FFFCEBA434B3678A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486403   (1004871) от 30.07.2021
+
+Чемпионат по дрэг-рейсингу NHRA 2021. 9 этап. Сонома / NHRA Drag Racing Championship 2021. Round 9. Sonoma (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра (1/4 мили). Реже проводятся заезды на 1/2 мили (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути драг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 02:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28A7D548F47BB5DDA462B51B173A41DACA61C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487210   (1004129) от 03.08.2021
+
+Чемпионат США по супербайку 2021. Этап 6. Брэйнард. Гонка 1-2 / MotoAmerica 2021. Rd. 6. Brainerd. Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004129.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoAmerica — это организация, которая продвигает серию AMA Superbike с 2015 года. С санкции Американской ассоциации мотоциклистов и Международной федерации мотоциклистов она предлагает пять классов шоссейных гонок: Superbike, Stock 1000, Supersport, Twins Cup и Junior Cup.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:17:08 + 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB5B0FCEB91647AE57B42B950B14D11A6F1CF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487200   (1004128) от 03.08.2021
+
+Национальное первенство Великобритании по супербайку 2021. Тракстон, Гонка 1-3 / British Superbike Championship. Thruxton, Race 1-3 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bennetts British Superbike Championship — ведущий чемпионат по шоссейным кольцевым мотогонкам в Великобритании, он также широко известен в мире, как ведущая серия гонок среди отечественных, английских супербайков.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 37:42 + 54:53 + 55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F250F56DD4625937B8DE9BAEB61399CEADACBEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487204   (1004127) от 03.08.2021
+
+Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2021. Оултон Парк, Гонка 1-3 / BTCC. Oulton Park, Race 1-3 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:19:46 + 32:49 + 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BD63C883E9FB497083D3687F5CE6B664EECF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487192   (1004126) от 03.08.2021
+
+Женская формульная серия W. Сезон 2021. Этап 4. Венгрия. Квалификация, Гонка / W Series 2021. Rd. 4. Hungary. Quali, Race  (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004126.jpg" />
+</div>
+
+
+###  Подробнее
+
+W Series была презентована публике 10 октября 2018 года. Она была создана в связи с отсутствием пилотесс, которые могут попасть на самую высокую ступень автоспортивного мира, особенно Формулу-1.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:28:21 + 04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A5E5E1808F4479132F33D2702F726D86149EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350222   (1003492) от 05.01.2020
 
 Monster Jam: Wales, Cardiff (18.05.2019) WEB-DL [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +240,7 @@ Monster Jam: Wales, Cardiff (18.05.2019) WEB-DL [H.264/1080p-LQ] [hand made 50fp
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003492.jpg" />
 </div>
 
 
@@ -32,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002805.jpg" />
 </div>
 
 
@@ -58,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002591.jpg" />
 </div>
 
 
@@ -84,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002587.jpg" />
 </div>
 
 
@@ -110,7 +344,7 @@ MotoGP. Этап 10. Гран-при Штирии. Гонка (08.08.2021) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002580.jpg" />
 </div>
 
 
@@ -136,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002577.jpg" />
 </div>
 
 
@@ -162,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002045.jpg" />
 </div>
 
 
@@ -188,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002044.jpg" />
 </div>
 
 
@@ -214,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001730.jpg" />
 </div>
 
 
@@ -240,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001309.jpg" />
 </div>
 
 
@@ -269,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999900.jpg" />
 </div>
 
 
@@ -300,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999264.jpg" />
 </div>
 
 
@@ -326,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992555.jpg" />
 </div>
 
 
@@ -358,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992393.jpg" />
 </div>
 
 
@@ -384,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991917.jpg" />
 </div>
 
 
@@ -413,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991626.jpg" />
 </div>
 
 
@@ -439,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991568.jpg" />
 </div>
 
 
@@ -451,259 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A909128374BB947C074B7EF3644DAC72A65249F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353836   (990730) от 19.01.2020
-
-Formula-E: Santiago E-Prix. Гонка [МАТЧ! Арена HD] (18.01.2020) DVBRip [H.264/1080i-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990730.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 этап Formula E 2019-2020 на трассе Parque O'Higgins Circuit.Телекомпания: МАТЧ! Арена HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов и Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2C5AB4E5482E24F88212EED682FF051F901FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353777   (990492) от 19.01.2020
-
-Смешанные единоборства. UFC 246: МакГрегор – Серроне / McGregor vs. Cerrone (19.01.2020) IPTV [H.264/1080i-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бои турнира UFC 246, главным событием которого стал поединок в полусреднем весе между Конором МакГрегором и Дональдом Серроне.Телекомпания: UFC ТВ HDЖанр: Спорт, ЕдиноборстваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:38 - 02:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A6854757D53098686A2454F04BFEC2F6B8F1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354136   (989762) от 20.01.2020
-
-Водное поло. Чемпионат Европы 2020. Будапешт (Венгрия). Женщины. Группа A. 1-й тур. Венгрия – Хорватия (12.01.2020) WEB-DLRip [H.264/1080p-LQ] [EN]
-
->>Спорт и активный отдых
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989762.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 января 2020 года
-Чемпионат Европы по водному поло среди женщин 2020 года. Будапешт (Венгрия).
-Предварительный раунд. Группа A. 1-й тур.
-Венгрия – Хорватия(   Читать дальше...   )Телекомпания: LEN TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F17AB9C014C1EF91F3BA88C1E18FE1F36AA16DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354131   (989757) от 20.01.2020
-
-Водное поло. Чемпионат Европы 2020. Будапешт (Венгрия). Женщины. Группа B. 1-й тур. Германия – Италия (12.01.2020) WEB-DLRip [H.264/1080p-LQ] [EN]
-
->>Спорт и активный отдых
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989757.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 января 2020 года
-Чемпионат Европы по водному поло среди женщин 2020 года. Будапешт (Венгрия).
-Предварительный раунд. Группа B. 1-й тур.
-Германия – Италия(   Читать дальше...   )Телекомпания: LEN TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F653B8183B6860C62E12D0EF35382A1792258341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354756   (987026) от 23.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Мужчины. Короткая программа (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-22 января 2020, среда. 13:30 МСК
-Мужчины. Короткая программа
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E50EAACACD2A725E71AA114290B107AFC5141B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354781   (987024) от 23.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Спортивные пары. Короткая программа (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-22 января 2020, среда. 21:15 МСК
-Спортивные пары. Короткая программа - 5 разминка
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0985CA798C6E9A750A271C22F72B4F3BE1780B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612773   (985284) от 02.02.2013
-
-Несколько слов / Few Words (2012) BDRemux [H.264/1080p] [EN]
-
->>Спорт и активный отдых
->>Экстрим
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнометражный фильм FEW WORDS с помощью самых последних технологий видеопроизводства описывает жизнь Кандида Тове: его детство в La Cluzas, его достижения, падения и травмы, интервью с друзьями и родными и, конечно, бесконечные путешествия и катание с лучшими лыжниками международного уровня.
-Кадры с катанием были сняты в разных частях планеты: Канада, США, Австрия, Швейцария, Франция и Южное полушарие. На каждый, даже самый короткий, кадр, ушло по несколько дней съемок.Жанр: Документальный, Спорт, ВидовойПеревод: ОтсутствуетЯзык субтитров: Английский, Французский, Немецкий, Испанский, Итальянский, Чешский, Русский, ЯпонскийПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1736C217B78FA49C4BBF6D18B096A662985B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355276   (984972) от 25.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Мужчины. Произвольная программа (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-23 января 2020 года, 14:00 МСК
-Мужчины. Произвольная программа
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC7967A8E129C025C395CF0BFCDC644F604579C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355231   (984931) от 25.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Спортивные пары. Короткая программа (2020) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-22 января 2020, среда. 21:15 МСК
-Спортивные пары. Короткая программа
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Беларусь 5 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055308776E4029FFAF7760421AEF8EA7B81408F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

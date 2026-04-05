@@ -1,3 +1,38 @@
+###  Публикация: 189859   (859607) от 07.04.2010
+
+Рада Рай - Радуюсь (2010) [MP3|320 кбит/сек]<шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Радуюсь
+02. Забыто
+03. За дальнею околицей
+04. Вишня
+05. Ты не стой на моем пути
+06. Протяни ладонь
+07. Прости, мама
+08. Ангел
+09. Помоги, боже
+10. Последняя любовь(   Читать дальше...   )Жанр: Шансон, ПопПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 647057   (857845) от 22.04.2013
 
 Елена Ваенга - 100 Лучших Песен (2013) [MP3|128-320 кб/с]<Chanson>
@@ -6,7 +41,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857845.jpg" />
 </div>
 
 
@@ -32,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856291.jpg" />
 </div>
 
 
@@ -61,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853676.jpg" />
 </div>
 
 
@@ -90,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851665.jpg" />
 </div>
 
 
@@ -119,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850885.jpg" />
 </div>
 
 
@@ -148,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847149.jpg" />
 </div>
 
 
@@ -177,7 +212,7 @@ VA - Шоферской-best (2010) [MP3|128-192 kbps]<шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846493.jpg" />
 </div>
 
 
@@ -212,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842864.jpg" />
 </div>
 
 
@@ -241,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838962.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838316.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838087.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837948.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836460.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833837.jpg" />
 </div>
 
 
@@ -418,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833766.jpg" />
 </div>
 
 
@@ -453,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829901.jpg" />
 </div>
 
 
@@ -482,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829582.jpg" />
 </div>
 
 
@@ -511,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827850.jpg" />
 </div>
 
 
@@ -537,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818649.jpg" />
 </div>
 
 
@@ -566,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813413.jpg" />
 </div>
 
 
@@ -595,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812886.jpg" />
 </div>
 
 
@@ -624,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810729.jpg" />
 </div>
 
 
@@ -659,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809843.jpg" />
 </div>
 
 
@@ -688,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808806.jpg" />
 </div>
 
 
@@ -717,7 +752,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802767.jpg" />
 </div>
 
 
@@ -731,35 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120333   (801807) от 31.03.2017
-
-VA - Песни под рюмочку... под пиво и водочку (2002) [MP3|320 Kbps] <Шансон, Фолк>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Круг & Вика Цыганова - Постой, душа
-02. Белый День - Дворовая тусовочка
-03. Вика Цыганова - Дорогой длинною
-04. Владимир Семашков - Улыбайся(   Читать дальше...   )Жанр: Шансон, ФолкПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB0CAFAC1597890365A41903B6BDCDDEB678B65
 ```
 
 https://mybot314.ru/tekegram_catalog/

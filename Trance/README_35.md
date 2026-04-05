@@ -1,3 +1,61 @@
+###  Публикация: 1330716   (338351) от 11.10.2019
+
+Airwave - Believe Remastered (Deluxe Edition) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Want To Believe (Remastered Dolphin Mix)
+02.Musings Of A Lifetime (Remastered Album Mix)
+03.Save Me (Remastered Album Mix)
+04.Another Dimension (Remastered Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B30BF67D245D6BC8115F341365157E59F108FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258570   (336649) от 30.10.2018
+
+VA - Trance Autumn Essentials (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Quelle - Badoor (Extended Mix)
+02. Lessov - Kami (Original Mix)
+03. Johan Vilborg - Swetro (Original Mix)
+04. Mango & Astroleaf - We Tried (Talamanca Dub Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760493E73FCB7C371C173A68EFF0A48E9B298DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258439   (336642) от 30.10.2018
 
 VA - Equilibrium In The Cosmos (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Equilibrium In The Cosmos (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336642.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Redux Selection Vol.10 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336496.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Silent Shore Trance - Autumn (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336495.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Uplifting Trance Top 25 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336483.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Uplifting Only Top 15 September (Extended Mixes) (2022) [MP3|320 Kbps] <Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336421.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Talla 2XLC - Fascinated (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336253.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Redux Derry Selection (Mixed by Paddy Kelly) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335113.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Paul Oakenfold – Four Seasons (2012)(4CD) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334583.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Suanda Music 2020 [Mixed by Roman Messer] (2020) [MP3|320 Kbps] <Trance, Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333980.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - We Are Trance Vol.4 - Autumn (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333958.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Silk Music Pres. Terry Da Libra 02 (2018) [MP3|320 Kbps] <Trance,Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333152.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Richard Durand – The Air We Breathe (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333028.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Sublime Trance Vol. 05 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332972.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Beautiful Vocal Trance Progressive 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331844.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330814.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327667.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Daybreakerz (Trance & Souls) Vol.3 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327287.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - FSOE - October (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327225.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - New Trance 2021 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327224.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Armin Van Buuren Presents: A State Of Trance Best Of (2015) [MP3|320 кб/�
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325789.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Dominik Von Francois - Last Resort (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324999.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (20
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324916.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Uplifting Trance Essentials Vol. 6 (2015) [MP3|320 кб/с]<Uplifting Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324031.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Recoverworld Radio 015 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323836.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Recoverworld Radio 015 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF7D90BF44D732E10F2D722149ABD1F24ECF9B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259098   (323409) от 02.11.2018
-
-VA - Ronski Speed - Evolve (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronski Speed - Room 346 (Evolve Album Version)
-02. Ronski Speed & Ciaran Mcauley - Corellia (Evolve Album Version)
-03. Ronski Speed & Alan Morris - Night Time (Evolve Album Version)
-04. Ronski Speed - Sea U (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C626CB87B2B03D538548F71F09B43BA382D3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181597   (322021) от 08.11.2017
-
-VA - EPIC Ibiza - Trance Anthems Vol.3 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Carlos De La Garza - Atardecer (Original Mix)  7:54
-02.  Derek The Bandit - Joburg Sunrise (Original Mix)  8:00
-03.  Matthias Springer - The Art Of Dissociation (Original Mix)  7:45
-04.  Hanney Mackoll - Rave (Original Mix)  3:06(   Читать дальше...   )Жанр: TranceПродолжительность: 03:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DCE5992D79D5E23FC479FA26F0431F23FC15CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

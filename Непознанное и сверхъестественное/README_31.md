@@ -6,7 +6,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285784.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285782.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285638.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285633.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285632.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285529.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285341.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284764.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284252.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284123.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283962.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283958.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283955.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283954.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283950.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283899.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283787.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282497.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281973.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280628.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280254.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279023.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277372.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275912.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275667.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274537.jpg" />
 </div>
 
 

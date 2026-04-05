@@ -1,3 +1,187 @@
+###  Публикация: 1029822   (675979) от 29.06.2016
+
+Электрический автомобиль Grimsel устанавливает новый мировой рекорд ускорения - 100 км/ч за 1.513 секунды
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_675979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мгновенно развиваемый электрическими двигателями крутящий момент позволяет специализированным электрическим автомобилям разгоняться до скорости в 100 километров в час быстрее, нежели это могут делать гоночные автомобили Формулы-1. Очередным подтверждением превосходства электрических автомобилей над обычными стал новый рекорд, установленный студенческой командой Grimsel (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290273   (675844) от 21.03.2019
+
+AMD подтвердила, что её процессоры не подвержены уязвимости Spoiler
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ранее в этом месяце стало известно об обнаружении новой критической уязвимости в процессорах Intel, которая получила название «Spoiler». Выявившие проблему специалисты сообщили, что процессоры AMD и ARM не восприимчивы к ней. Теперь же компания AMD подтвердила, что благодаря архитектурным особенностям Spoiler не представляет угрозы для её процессоров.Как и в случае (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 295429   (675826) от 15.05.2011
+
+Дневники вампира / The Vampire Diaries (Сезон 2 полный (22)) (2010) WEB-DLRip / HDTV-Rip [LostFilm]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя четыре месяца после трагической автокатастрофы, которая унесла жизни родителей, 17-летняя Елена Гилберт (Нина Добрев) и её 15-летний брат Джереми (Стивен МакКуин) все еще пытаются справиться с постигшим их горем и двигаться дальше. Елена всегда была звездой школы, красивая и популярная, она была вовлечена в жизни друзей и школы, но сейчас она пытается скрыть (   Читать дальше...   )Производство: СШАЖанр: Ужасы, фэнтези, драма, мелодрама, ...Режиссер: Маркос СигаПеревод: Профессиональный многоголосый закадровый -Продолжительность: ~ 42:00 мин серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030169   (675792) от 29.06.2016
+
+Microsoft вновь разрешила отменить обновление до Windows 10
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft вернула кнопку "закрыть" и опцию отмены обновления до Windows 10
+Американская корпорация Microsoft вновь разрешила отменять обновление операционной системы до версии Windows 10, сообщает издание The Verge.Так, многие пользователи выражали недовольство агрессивным навязыванием обновления со стороны компании. Компьютеры с лицензионными Windows самостоятельно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029981   (675786) от 29.06.2016
+
+Операторы просят сенаторов отклонить «поправки Яровой»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отклонить так называемые антитеррористические поправки, инициированные депутатом  Яровой и сенатором  Озеровым, попросили председателя Совета Федерации Валентину Матвиенко в своем совместном письме гендиректор «Вымпелкома», президент МТС, исполняющий обязанности гендиректора «Мегафона»  и первый заместитель гендиректора «Т2 РТК холдинга» (бренд Tele2).  Руководители (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029786   (675781) от 29.06.2016
+
+Пользователь отсудил $10 тысяч у Microsoft за неудачную автоматическую установку Windows 10
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американка отсудила у Microsoft $10 000 за принудительное обновление ПК до Windows 10
+Жительница Саусалито, Калифорния, отсудила у Microsoft приличные деньги за то, что компания без спроса попыталась обновить ее компьютер до Windows 10. Это первый известный иск, связанный с принудительным обновлением операционной системы Microsoft, пишет The Guardian.В 2015 году, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289859   (675755) от 21.03.2019
+
+Госдума приняла закон о двойной отсрочке от военного призыва для учащихся
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Депутаты Госдумы на пленарном заседании во вторник, 12 марта, приняли в третьем, окончательном чтении законопроект, позволяющий получить несколько отсрочек от армии на время обучения в вузах.Авторами инициативы стали депутаты от фракции «Единая Россия» во главе с вице-спикером ГД Ириной Яровой.«Мы фактически устраняем ту правовую коллизию (…), которая могла влиять (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290684   (675739) от 21.03.2019
 
 Проекты - VideoHive - Seamless Transitions v.5.0.2 - 21797912 [PRPROJ]
@@ -6,7 +190,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675739.jpg" />
 </div>
 
 
@@ -32,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675733.jpg" />
 </div>
 
 
@@ -58,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675711.jpg" />
 </div>
 
 
@@ -84,7 +268,7 @@ Linux Mint 18 Sarah (Mate, Cinnamon) [32bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675705.jpg" />
 </div>
 
 
@@ -110,7 +294,7 @@ Linux Mint 18 Sarah (Mate, Cinnamon) [64bit] 2xDVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675627.jpg" />
 </div>
 
 
@@ -136,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675617.jpg" />
 </div>
 
 
@@ -162,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675615.jpg" />
 </div>
 
 
@@ -188,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675613.jpg" />
 </div>
 
 
@@ -214,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675611.jpg" />
 </div>
 
 
@@ -240,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675609.jpg" />
 </div>
 
 
@@ -266,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675608.jpg" />
 </div>
 
 
@@ -292,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675607.jpg" />
 </div>
 
 
@@ -318,7 +502,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. / OreGairu / Мой подро
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675578.jpg" />
 </div>
 
 
@@ -346,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675482.jpg" />
 </div>
 
 
@@ -374,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674927.jpg" />
 </div>
 
 
@@ -400,7 +584,7 @@ Dragon's Dogma Online (2017) [Multi] (03020009) License
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674912.jpg" />
 </div>
 
 
@@ -426,7 +610,7 @@ Space Engineers Deluxe Edition (2013) [Ru/Multi] (01.186.5) License [Steam Early
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674911.jpg" />
 </div>
 
 
@@ -452,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674850.jpg" />
 </div>
 
 
@@ -478,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674849.jpg" />
 </div>
 
 
@@ -490,192 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3DC6BDA5E9A9201E86265A24A60E1A4216C22CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797803   (674847) от 19.06.2014
-
-Adobe Acrobat XI Pro (11.0.07) [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Acrobat® XI Pro — это не просто популярный конвертер PDF. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности для взаимодействия. Легко, быстро, профессионально.
-С усовершенствованной версией Acrobat Вы получаете новые возможности, которые сделают офисную работу намного проще! С Adobe® Acrobat® XI Вы сможете работать (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 08 июня 2014Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637691857C35F259677CBCE411A61AD4A6CC562F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899192   (674671) от 18.05.2015
-
-NVIDIA GeForce Desktop 352.86 WHQL + For Notebooks [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674671.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBECB05F2DC79D348198DACB1E464090D517E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899084   (674546) от 18.05.2015
-
-Adobe Photoshop CC 2014.2.2 (20141204.r.310) Registered & Unattended RePack by alexagf [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC 2014 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9A09E8550E90013D0114EF4C0B213C48FE53CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894607   (674539) от 18.05.2015
-
-Ирина Шипилова | Английский язык (2013-2015) CamRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучение английского языка с нуля с очень курьёзным и талантливым преподавателем. Уроки лаконичные, продолжительность в районе 5-25 минут. Процесс обучения идёт быстро, легко и весело.Жанр: Лингвистика, английский языкПродолжительность: 40:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4350704B416B6DC672246551ED3B8148E79D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136315   (674226) от 22.05.2017
-
-Начаты первые испытания нового рельсотронного орудия, способного делать 10 выстрелов в минуту
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_674226.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время специалисты Научно-исследовательского управления ВМФ США, при участии специалистов некоторых оборонных компаний, BAE Systems, в частности, параллельно на двух полигонах ведут монтажные работы и первые испытания двух новых рельсотронных орудий, энергия выстрела каждого из которых составляет по 32 Мегаджоуля. Но это будут орудия не просто с рекордной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047644   (674206) от 22.05.2017
-
-Обои - Обои с экрана блокировки Windows 10 [JPG]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674206.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самой свежей версии операционной системы от компании Microsoft появилась новая функция под названием Windows Spotlight. Она служит для периодической смены фоновых изображений на экране блокировки Windows 10. В этой раздаче вы сможете скачать все эти замечательные картинки на свой компьютер.
-Количество обоев: 376 шт.
-
-(Обновляемая раздача)(   Читать дальше...   )Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D9B52FB0F11C118F0D7EAEF39A41938661F64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136210   (674203) от 22.05.2017
-
-Если б я была мужчиной / Si j'etais un homme (2017) WEB-DLRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанне настолько не везет с мужчинами, что она сгоряча клянется не иметь с ними больше никаких дел. Каково же ее изумление, когда однажды она просыпается с мужским достоинством между ног! Отныне ее жизнь превращается в нескончаемую череду невероятных происшествий.Производство: Франция | CinГ©mage 11, Curiosa FilmsЖанр: КомедияРежиссер: Одри ДанаАктеры: Одри Дана, Кристиан Клавье, Эрик Элмоснино, Алис Белаиди, Антуан Гуи, Жозефин Дрэй, Виктуар Брюнелль-Реми, Эрик Да Коста, Джонатан ЛуисПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуютПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C068822F94054DC8E9F5E1C302E13100ACDF28BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

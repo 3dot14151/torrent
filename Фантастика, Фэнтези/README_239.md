@@ -1,29 +1,3 @@
-###  Публикация: 1586132   (26599) от 24.02.2025
-
-Генри Каттнер | Робот-зазнайка и другие фантастические истории [Сборник] (2022) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генри Каттнер, публиковавшийся не только под своей настоящей фамилией, но и под доброй дюжиной псевдонимов, считается одним из четырех или пяти ведущих американских фантастов 1940-х. Легендарные жанровые журналы, такие как «Future», «Thrilling Wonder», «Planet Stories» и «Weird Tales», более чем охотно принимали произведения, написанные им самостоятельно или в соавторстве (   Читать дальше...   )Жанр: ФантастикаИздательство: Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2C784B9D4997805586271D3AC1B5E412354AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783390   (25655) от 05.03.2025
 
 Сара Брукс | Территория чудовищ. Путеводитель для осторожных туристов (2024) [EPUB]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25655.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23959.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21864.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21385.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21363.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20968.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20930.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20831.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20599.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20499.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20090.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19863.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19052.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18538.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18106.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18075.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17371.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16740.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15477.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15231.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15066.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14857.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14611.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14320.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14182.jpg" />
 </div>
 
 
@@ -675,6 +649,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8ADC840250850826D12B7045EBE893AA5A631EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802831   (14081) от 19.06.2025
+
+Ребекка Дзанетти | Одна проклятая роза (2025) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красавица Алана — инфлюэнсер и наследница одной из четырех медиаимперий — оказывается втянута в опасные интриги. Враги стремятся разрушить ее компанию, но их покушение срывается.
+Таинственный спаситель Аланы — Торн Битах, глава конкурирующей империи и безжалостный убийца. Чудовище, одержимое непокорной красавицей.
+Торн прячет Алану в своем роскошном замке на берегу (   Читать дальше...   )Жанр: Зарубежное фэнтези Романтическое фэнтезиПеревод: Алина ЗаранкинаИздательство: InspiriaФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20758CC421D87590A89AD9856819721AE66E05C
 ```
 
 https://mybot314.ru/tekegram_catalog/

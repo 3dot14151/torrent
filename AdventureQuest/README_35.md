@@ -1,3 +1,81 @@
+###  Публикация: 1303837   (568403) от 23.05.2019
+
+American Fugitive (2019) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568403.jpg" />
+</div>
+
+
+###  Подробнее
+
+American Fugitive - классический экшн с открытым миром и изометрическим видом. Основатели компании Fallen Tree Games, разработавшей этот проект, славятся и другими первоклассными детищами: TimeSplitters, Crysis, Black и Goldeneye 007: Reloaded. В тихом городке Рэдрок кипит преступная жизнь. Вы - Уилл Райли. Не ангел, но и не убийца. После обвинения в хладнокровном (   Читать дальше...   )Тип издания: LicenseРазработчик: Fallen Tree Games LtdЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE359AC60D23EEDEB6EC5E6B497F95BE36A09118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151847   (568346) от 21.07.2017
+
+Gone Home (2013) [Ru/En] (1.02) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568346.jpg" />
+</div>
+
+
+###  Подробнее
+
+1995 год. Героиня Gome Home возвращается домой, а ее никто не ждет: на двери дома странная прощальная записка, внутри никого нет, да и вообще, похоже, что жизнь покинула это место. Оказавшись в безвыходном положении, девушка решает разобраться, что же произошло с ее семьей.Тип издания: RepackРазработчик: The Fullbright CompanyЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6132D9989E2A0BDAF7D5F6A05AE68E77ABA2544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304113   (566719) от 24.05.2019
+
+Observation (2019) [Ru/Multi] (1.04) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Observation - это научно-фантастический триллер, в котором вам предстоит взять на себя роль системы искусственного интеллекта S.A.M. на космической станции и раскрыть тайну событий, произошедших с доктором Эммой Фишер и её командой. Играя за S.A.M., вы будете использовать системы управления станцией, камеры и инструменты, чтобы помочь Эмме понять, что происходит (   Читать дальше...   )Тип издания: RepackРазработчик: No CodeЖанр: Adventure, Sci-fi, Thriller, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353EA468E50AC3556F6BBA73A57CE0769F3AE36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304127   (566715) от 24.05.2019
 
 PLANET ALPHA (2018) [Ru/Multi] (1.0.5.1) License GOG [Digital Deluxe]
@@ -6,7 +84,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0.5.1) License GOG [Digital Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566715.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dollhouse (2019) [Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564976.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ You Deserve (2016) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564903.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ You Deserve (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564670.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Reflecting Fate (2017) [En] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563028.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Pilot Brothers 2 / Братья Пилоты 2: Дело о серийном м�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562857.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dreamfall Chapters (2017) [Multi] (5.7.2.1/dlc) License CODEX [The Final Cut Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562743.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562722.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562719.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Door to Door (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560876.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Alter Cosmos (2018) [En/Pl] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560022.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Lost Eden (1995) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559260.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Firewatch (2016) [Ru/Multi] (1.09) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558364.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558051.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Conclusion (2016) [Ru/En] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557485.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557172.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ The Free Ones (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557169.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Dreamfall Chapters: The Final Cut (2017) [En/Ge/Fr] (5.7.2.1) Repack R.G. Cataly
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556694.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Trek to Yomi (2022) [Ru/Multi] (1.007) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556321.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0) License PLAZA [The Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556304.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Forgotton Anne (2018) [Ru/Multi] (5.5.3) License GOG [Collector's Upgrade]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555629.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Blame Him (2019) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555270.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554963.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7826C0B8801DA331B62F3ACA6FFCF6A3F9E89B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159605   (554073) от 13.06.2019
-
-Botanicula (2012) [Ru/Multi] (1.2.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Botanicula – это наполненная юмором игра-приключение, созданная творцами отмеченной наградами игры Machinarium, студией Amanita Design и чешской группой DVA. Пять друзей, маленькие древесные создания, действия, разворачивающиеся в приключении по спасению последнего семени их родного дерева, зараженного злыми паразитами.Тип издания: RepackРазработчик: Amanita DesignЖанр: Adventure, Point-and-click, PuzzleЯзык озвучки: Специальный язык BotaniculaЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6379E6F4AF406F0EB7D4F2EE3E604AE9A8900958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308434   (553865) от 14.06.2019
-
-Toki (2019) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращение чокнутой обезьяны — Токи отправляется в новое приключение! Культовый платформер в жанре экшен, впервые вышедший на игровых автоматах в 1989 году, возвращается в новой, великолепно «собезьяненной» версии! Она полностью перерисована вручную и целиком переработана! Воин Токи мирно живет в джунглях в компании своей возлюбленной Михо. Вдруг, откуда ни возьмись, (   Читать дальше...   )Тип издания: RepackРазработчик: MicroidsЖанр: Adventure, Action, Arcade, 2DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFDD756F407E9717345D71D9125C9149F78769E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236853   (553800) от 20.07.2018
-
-Figment (2017) [Ru/Multi] (1.1.5/dlc) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Figment — игра в жанре приключенческий боевик, где вам предстоит исследовать уникальную вселенную, полную музыки, юмора и сюжетных линий. Дасти и его неунывающая подружка Пайпер вместе пускаются в путешествие по разуму, разыскивая потерянную храбрость.Тип издания: LicenseРазработчик: Bedtime Digital GamesЖанр: Adventure, Puzzle, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89984DA1481A8C5BD88CA695E1AA3B9A6D744E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

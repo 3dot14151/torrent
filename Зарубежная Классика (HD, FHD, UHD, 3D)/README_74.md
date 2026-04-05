@@ -1,3 +1,112 @@
+###  Публикация: 1340534   (215834) от 07.12.2019
+
+Индиана Джонс и последний крестовый поход / Indiana Jones and the Last Crusade (1989) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть невероятных похождений прославленного археолога и искателя приключений Индианы Джонса. На этот раз бесстрашный Индиана разыскивает самую таинственную реликвию в истории человечества - Святой Грааль. В этом археологу помогает его отец – профессор Джонс старший.
+Теперь под бдительным оком своего отца и при помощи своих верных талисманов, неизменной шляпы (   Читать дальше...   )Производство: США / Lucasfilm Ltd., Paramount PicturesЖанр: боевик, приключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Шон Коннери, Денхолм Эллиот, Элисон Дуди, Джон Рис-Дэвис, Джулиан Гловер, Ривер Феникс, Майкл Бирн, Кеворк Маликян, Роберт ЭддисонПеревод: Дублированный, многоголосый профессиональный, одноголосый авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: русские (полные), английские (полные)Продолжительность: 02:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E46845207C88D93A02B93A2718AE488759193D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311019   (215457) от 23.11.2020
+
+Свяжи меня / Atame! / Tie Me Up! Tie Me Down! (1989) Blu-ray [H.264/1080p] [Custom] [Criterion Collection]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рики выписывается из психиатрической клиники и начинает преследовать Марину — актрису, порнозвезду и наркоманку, с которой имел случайную связь год назад во время одного из побегов. Герой похищает Марину и держит связанной, пока сам спит или вынужден отлучаться по делам. Постепенно у похищенной развивается стокгольмский синдром, и она влюбляется в Рики.
+Однажды Марине (   Читать дальше...   )Производство: Испания / El Deseo S.AЖанр: Драма, мелодрама, комедия, криминалРежиссер: Педро АльмодоварАктеры: Виктория Абриль, Антонио Бандерас, Лолес Леон, Мария Барранко, Росси де Пальма, Хульета Серрано, Франсиско Рабаль, Лола Кардона, Монтсе Г. Ромеу, Эмильяно РедондоПеревод: Профессиональный (многоголосый, двухголосый закадровый), Авторский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8705C48C2A738CF1AC986BA30DFC9C00F1A6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585672   (215046) от 27.10.2022
+
+Особые приметы: красавчик / Segni particolari: bellissimo (1983) WEBRip [H.264/1080p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый писатель Маттиа — красавец-сердцеед, в которого невозможно не влюбиться. Устав от навязчивого женского внимания, он решает платить своей соседке, юной Микеле, чтобы она под видом дочери отваживала от него толпы поклонниц. Вот только Маттиа никак не ожидает, что влюбится в нее сам.Производство: Италия / Rual CinemaЖанр: комедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Федерика Моро, Джанни Бонагура, Симона Мариани, Анна Канакис, Тиберио Мурджа, Кэтлин Квуае, Джакомо Росселли, Мишела Альбанезе, Антонелла РобустеллиПеревод: Многоголосый профессиональный (Студия "Кириллица")Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA81B99F329B4FFF609DC6AB0F1BB5852911C054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 110528   (214863) от 15.08.2023
+
+Квартира / The Apartment (1960) HDTVRip [H.264/720p]
+
+>>След.
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм задуман Билли Уайлдером как продолжение фильма «В джазе только девушки» и имел чрезвычайный коммерческий успех, принеся 25 миллионов долларов дохода.
+Мерилин Монро хотела сняться в фильме, но не получила роль.
+Позже на основе фильма был поставлен бродвейский мюзикл «Обещания, обещания».
+Си Си Бакстер (Джек Леммон), скромный служащий страховой компании в Нью-Йорке, (   Читать дальше...   )Производство: США, The Mirisch CorporationЖанр: драма, мелодрама, комедияРежиссер: Билли УайлдерАктеры: Джек Леммон, Ширли МакЛэйн, Фред МакМюррэй, Рэй Воллстон, Джек Крюшен, Дэвид Льюис, Хоуп Холидей, Джоан Шоули, Наоми Стивенс, Джонни СевенПеревод: Двуголосый закадровыйЯзык озвучки: РусскийПродолжительность: 02:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3EFF2DFF1FFAD9AFB31363DF3685B02417079E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 737277   (214741) от 23.12.2013
 
 Эммануэль 2 / Emmanuelle: L'antivierge (1975) BDRemux [1080p]
@@ -6,7 +115,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214741.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214174.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ The Beatles: Желтая подводная лодка / Yellow Submarine (1968
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214087.jpg" />
 </div>
 
 
@@ -84,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214025.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213851.jpg" />
 </div>
 
 
@@ -137,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213298.jpg" />
 </div>
 
 
@@ -163,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213263.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213210.jpg" />
 </div>
 
 
@@ -218,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213151.jpg" />
 </div>
 
 
@@ -245,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211835.jpg" />
 </div>
 
 
@@ -271,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211656.jpg" />
 </div>
 
 
@@ -297,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211633.jpg" />
 </div>
 
 
@@ -324,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211549.jpg" />
 </div>
 
 
@@ -350,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211463.jpg" />
 </div>
 
 
@@ -376,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211255.jpg" />
 </div>
 
 
@@ -402,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211104.jpg" />
 </div>
 
 
@@ -428,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210960.jpg" />
 </div>
 
 
@@ -454,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210896.jpg" />
 </div>
 
 
@@ -480,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210822.jpg" />
 </div>
 
 
@@ -507,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210400.jpg" />
 </div>
 
 
@@ -533,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210264.jpg" />
 </div>
 
 
@@ -559,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210093.jpg" />
 </div>
 
 
@@ -570,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9C0E2ADFBC3D53B2F3AA33104CF93AF9142ACAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640209   (209876) от 03.07.2023
-
-Моя дорогая Клементина / My Darling Clementine (1946) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209876.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённой книге Стюарта Лейка. Аризона. 1882 год. Братья Эрп — Уайетт, Морган, Вирджил и Джеймс — гонят скот в Калифорнию. По дороге они встречают семью скотоводов Клэнтонов, старика с четырьмя сыновьями, и от них узнают о ближайшем городке Тумстоуне. Братья едут в город, оставив самого младшего, Джеймса, караулить скот. По их возвращении в лагерь видят, что (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: драма, мелодрама, вестернРежиссер: Джон ФордАктеры: Генри Фонда, Линда Дарнелл, Виктор Мэтьюр, Кэти Даунс, Уолтер Бреннан, Тим Холт, Уорд Бонд, Алан Маубрэй, Джон Айрлэнд, Рэй РобертсПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1915C41FCF2C286A29FA2D5EA370ECDADAE99031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644731   (209698) от 06.07.2023
-
-Железный крест / Cross of Iron (1977) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военная драма, снятая по роману Вилли Хайнриха «Терпеливая плоть». 1943 год. Немецкая армия с тяжёлыми боями отступает на Восточном фронте. На замену убитому командиру батальона прибывает переведённый из Франции капитан Странский. Этот элегантный прусский аристократ ещё не бывал в настоящем сражении и мечтает любой ценой получить германский боевой орден "Железный (   Читать дальше...   )Производство: Великобритания, Германия (ФРГ), EMI Films Ltd., Incorporated Television Company (ITC)Жанр: драма, боевик, военныйРежиссер: Сэм ПекинпаАктеры: Джеймс Коберн, Максимилиан Шелл, Джеймс Мэйсон, Дэвид Уорнер, Клаус Левич, Вадим Гловна, Рогер Фриц, Дитер Шидор, Буркхард Дрист, Фред Штилькраут, Михаэль Новка, Вероника Венделл, Артур Браусс, Зента Бергер, Хайнц ЭнгельманнПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, немецкийСубтитры: русские, английскиеКачество: BDRipПродолжительность: 02:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1797173A98926B80F5BB07D4E8553DB9B396984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569876   (209690) от 25.08.2022
-
-Звёздные войны: Эпизод 4 – Новая надежда / Star Wars Episode IV - A New Hope (1977) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Татуин. Планета-пустыня. Уже постаревший рыцарь Джедай Оби Ван Кеноби спасает молодого Люка Скайуокера, когда тот пытается отыскать пропавшего дроида. С этого момента Люк осознает свое истинное назначение: он один из рыцарей Джедай. В то время как гражданская война охватила галактику, а войска повстанцев ведут бои против сил злого Императора, к Люку и Оби Вану присоединяется (   Читать дальше...   )Производство: США / Lucasfilm, Twentieth Century FoxЖанр: фантастика, боевик, фэнтези, приключенияРежиссер: Джордж ЛукасАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Алек Гиннесс, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу (I), Иэн МакДайармид, Фрэнк Оз, Джеймс Эрл ДжонсПеревод: ДублированныйСубтитры: Русские (forced, full), английские (forced, full, SDH)Продолжительность: 02:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2423C739E59F67E0909FAC23AB83DBBD43EE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601855   (209594) от 19.01.2023
-
-Великий побег / Большой побег / The Great Escape (1963) UHD BDRip [H.265/2160p] [4K, SDR, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм поставлен по книге Пола Брикхилла "The Great Escape", основанной на действительных событиях. Вторая мировая война. В особом лагере для военнопленных, подведомственном Люфтваффе, Геринг отбирал союзный летный персонал отдельно от других пленных к себе, и обеспечивал им лучшие условия, в надежде на ответную снисходительность для пленных немецких летчиков. (   Читать дальше...   )Производство: США, The Mirisch Company, AlphaЖанр: боевик, военный, драма, историяРежиссер: Джон СтёрджесАктеры: Стив МакКуин, Джеймс Гарнер, Ричард Аттенборо, Джеймс Дональд, Чарльз Бронсон, Дональд Плезенс, Джеймс Коберн, Ханнес Мессемер, Дэвид Маккаллум, Гордон ДжексонПеревод: Двухголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), украинские, английскиеПродолжительность: 02:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CD8D11DA15614220068899A0FDBE7419D0EA5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

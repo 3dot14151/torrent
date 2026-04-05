@@ -1,3 +1,61 @@
+###  Публикация: 1297787   (603090) от 24.04.2019
+
+VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Fading Like A Flower
+2.	Wind Of Change
+3.	Don't Let The Sun Go Down On Me
+4.	Vintage (Ballade To Australian Wine)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A4AD43251590195F00B8C3299F53EE5829F24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297703   (603089) от 24.04.2019
+
+Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Атомы любви
+2. Перезагрузи
+3. Родины нет во мне
+4. Рядом с тобой(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297558   (603082) от 24.04.2019
 
 Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
@@ -6,7 +64,7 @@ Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603082.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603075.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602652.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602644.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumenta
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602539.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602538.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Rec
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602518.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Dolly Parton - The Real... Dolly Parton (The Ultimate Collection) (2013) 3CD [FL
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602505.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602487.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Sax & Sex Collection (1995)(10CD)[FLAC|Lossless|tracks + .cue] <Smooth Jazz
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602365.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Deadpool 2 / Дэдпул 2 (2018) [MP3|320 Kbps] <Pop, Rap, Electronic>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602223.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602127.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601876.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Am
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601755.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король м
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601750.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король м
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601735.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ VA - Игра престолов / For The Throne (Music Inspired by the HBO Ser
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601683.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [MP3|320 кб/с]<
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601149.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Golden Cinema Hits (2006) [FLAC|image + .cue]<Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601132.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ Faun - Pagan (2022) [FLAC|Lossless|WEB-DL|tracks] <Medieval, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600253.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600216.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600134.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acous
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600022.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599928.jpg" />
 </div>
 
 
@@ -683,70 +741,6 @@ Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69BEB4327C932A1E1E22EB74BC700B66758C491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299143   (599901) от 01.05.2019
-
-Kenio Fuke - Atlantida (2008) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Spirit of the Water (5:07)
- 02. Atlantis Memory (5:25)
- 03. Atlantida (5:28)
- 04. Lost Continent (6:04)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF021B5F7BB057972672624B41A17E32DEC5758B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525923   (599618) от 23.07.2012
-
-Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native American, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Dance
-02. Flying Condor
-03. Allin Quampi
-04. Love Mountain
-05. May you walk in sunshine
-06. Five Spirit
-07. Sunquyman
-08. Four Circles of Live
-09. Tatanka
-10. Axtu Sumix(   Читать дальше...   )Жанр: New Age, Native American, FolkПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

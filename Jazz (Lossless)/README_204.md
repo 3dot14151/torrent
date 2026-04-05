@@ -6,7 +6,7 @@ Anat Cohen & Trio Brasileiro - Alegria Da Casa (2016) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366996.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mich Gerber - The Endless String (2003) [FLAC|Lossless|tracks + .cue] <Jazz, Wor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366881.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Hazeltine Trio - Cleopatra's Dream (2006) [FLAC|Lossless]<Jazz, Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366814.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Fred Hersch - Breath By Breath (2022) Palmetto Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366633.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Clark Terry, Freddie Hubbard, Dizzy Gillespie Plus Oscar Peterson - The Alternat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366623.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chet Baker - The Pacific Jazz Collection (1953 - 1958) 4CD, 2016, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366370.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wayne Shorter - Emanon (2013 - 2016) 3CD, 2018, Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366233.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Herb Ellis & Jimmy Giuffre - Herb Ellis Meets Jimmy Giuffre (1959) /1999, Verve/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366192.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Gerry Mulligan Quartet - Swiss Radio Days Jazz Series: Zurich 1962, vol.9  /2009
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366190.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Les Double Six - Rencontrent Quincy Jones (1960) /1999, Columbia/[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366189.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Art Blakey & The Jazz Messengers - The Witch Doctor (1961) /1999, Capitol/[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366188.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Blow Up A-Go-Go! Dancefloor Classics From The Legendary Blow Up Club (1999)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365938.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Basia - Butterflies (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz, Bossa Nova
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365896.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Ray Bryant Trio - Gotta Travel On (1966) 2011, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365532.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Donald Byrd - Slow Drag (1967) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365399.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Spaza - 3 Albums (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Experimental>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365389.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Tito Puente And His Orchestra - Mambo Macoco (1949 - 1951) 1992, Tumbao Cuban Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365387.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Music Magic - One Man Lady (1981) 2005, Cool Sound [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365385.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bill Evans With Jeremy Steig - What's New (1969) Remaster, 2014, Universal[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364660.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Weather Report - Live In Offenbach 1978 (2011) 2CD, WDR[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364655.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Gabor Szabo - 1969 (2004) Air Mail [FLAC|Lossless|tracks + .cue] <Jazz Fusion, G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364354.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Dave Brubeck - Just You, Just Me (1994) [FLAC|Lossless|tracks + .cue] <Jazz, Coo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364308.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Espen Eriksen Trio featuring Andy Sheppard - In The Mountains (2022) Rune Grammo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364281.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Martial Solal Trio - Balade du 10 Mars (1999) /Soul Note/[APE|image+.cue]<Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363884.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Mark Whitecage's Other Other Quartet - Research on the Edge (1999) /CIMP/[APE|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363882.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Johnny Hodges - With Billy Strayhorn And The Orchestra (1961) /1999, Verve/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363669.jpg" />
 </div>
 
 

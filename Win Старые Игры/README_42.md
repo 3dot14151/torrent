@@ -1,3 +1,55 @@
+###  Публикация: 1801085   (15246) от 08.06.2025
+
+RollerCoaster Tycoon 3 (2006) [Ru/Multi] (1.0) License GOG [Complete Edition]
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш парк. Ваши решения. В RollerCoaster Tycoon 3 вы найдете инструменты и возможности для воплощения любых своих идей в реальность. Постройте парк развлечений своей мечты! Управляйте бизнесом с умом и пробейтесь на вершину славы Управляйте финансами, магазинами, услугами и персоналом парка, чтобы привести его к успеху. Станьте настоящим магнатом и постройте развлекательную (   Читать дальше...   )Тип издания: LicenseРазработчик: Frontier DevelopmentsЖанр: Симулятор, Строительство, МенеджментЯзык субтитров: Русский, Английский, Датский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Датский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C2AD6EDBA5585ED775A7160411A0B664ED3465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801226   (15176) от 09.06.2025
+
+День рождения Алисы (2009) [Ru] (1.0) License Акелла
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рады вам представить детскую приключенческую игру "День рождения Алисы" с развивающими элементами, созданную по сюжету одноименного полнометражного анимационного фильма, снятого по мотивам произведений выдающегося писателя-фантаста Кира Булычева. Вместе с Алисой игроку предстоит увидеть футуристичные виды Москвы будущего, познакомиться с уникальными формами (   Читать дальше...   )Тип издания: LicenseРазработчик: Electronic ParadiseЖанр: Аркады, ПриключенияЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801817   (14783) от 13.06.2025
 
 I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License Акелла
@@ -6,7 +58,7 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14783.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Creatures: Village (2004) [En] (1.11) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14676.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Warhammer 40,000: Rites of War (1999) [En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14532.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14347.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13874.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13637.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13614.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13528.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13520.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13410.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13221.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Far Cry (2004) [Ru] (1.40) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13219.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Manhunt (2004) [Ru] (1.1) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13203.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13187.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13155.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11766.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11011.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10503.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9794.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9614.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9606.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9581.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ OpenSCP (2025) [Ru/En] (01.05) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9368.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8693.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:079327D0E923949246A18D3DE6232706FF358D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811451   (8460) от 11.08.2025
-
-Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (2005) [Ru] (1.02) Repack Fenixx
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8460.jpg" />
-</div>
-
-
-###  Подробнее
-
-О том, что представляет из себя работа Службы спасения, предпочитают не задумываться. Тем не менее эти люди всегда начеку и готовы прийти к вам на помощь в трудную минуту – будь то пожар или сердечный приступ. «Emergency 3» – это не похожий ни на что симулятор МЧС, отражающий все аспекты деятельности спасателей.Тип издания: RepackРазработчик: Sixteen Tons EntertaimentЖанр: Симуляторы, СтратегииЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD9FC32FB5B630ADE2746AD341E375F6AC2E33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811840   (8133) от 13.08.2025
-
-Emergency: Fighters for Life (1998) [En] (1.0) License
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emergency-игра, представляющая собой RTS, где вы берете на себя контроль над экстренными службами и проходите различные миссии (Например, поиск пропавшего человека.). В игре есть несколько баз (Например, главная или вертолетная), что придает реалистичности. Эта игра стала основой целой серии, которая пополнялась вплоть до 2023 года. По-моему, игра хорошо реализована, (   Читать дальше...   )Тип издания: LicenseРазработчик: TopWare InteractiveЖанр: Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572D4A68458F254768D5EA0C91D65CDC34EB5704
 ```
 
 https://mybot314.ru/tekegram_catalog/

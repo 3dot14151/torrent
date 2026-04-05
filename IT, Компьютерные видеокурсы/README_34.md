@@ -1,31 +1,3 @@
-###  Публикация: 1375373   (852774) от 21.04.2020
-
-ITVDN | Python Developer (2015-2020) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Python - это высокоуровневый язык программирования общего назначения, ориентированный на повышение производительности и читаемости кода.
-
-На сегодняшний день Python является одним из самых популярных языков программирования со стремительно растущим охватом сфер применения. Последние 5 лет он входит в ТОП-10 самых востребованных технологий на рынке IT.Производство: ITVDNЖанр: Программирование, PythonЯзык озвучки: РусскийПродолжительность: 78:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12A52AA08255F72CF4F3D1460464910A5480C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373656   (852772) от 21.04.2020
 
 ITVDN | Frontend Developer (2015-2020) PCRec
@@ -34,7 +6,7 @@ ITVDN | Frontend Developer (2015-2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852772.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ Michael Hartl | RUBY ON RAILS TUTORIAL (3RD ED.) (2014) PCRec [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851716.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851610.jpg" />
 </div>
 
 
@@ -113,7 +85,7 @@ LoftSchool | Комплексное обучение разработке на A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851609.jpg" />
 </div>
 
 
@@ -142,7 +114,7 @@ Shultais Education | Online-курс программирования на яз�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851602.jpg" />
 </div>
 
 
@@ -171,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850032.jpg" />
 </div>
 
 
@@ -197,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849948.jpg" />
 </div>
 
 
@@ -226,7 +198,7 @@ ProfIT | Git для профессионалов (2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849940.jpg" />
 </div>
 
 
@@ -252,7 +224,7 @@ Hexlet | Практические курсы по программировани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849928.jpg" />
 </div>
 
 
@@ -280,7 +252,7 @@ Pluralsight.com | Объединение и фильтрация данных в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849715.jpg" />
 </div>
 
 
@@ -306,7 +278,7 @@ Pluralsight.com | JavaScript объекты, прототипы и классы 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849700.jpg" />
 </div>
 
 
@@ -332,7 +304,7 @@ ITProTV | Cisco CCNP Enterprise ENCOR (350-401) (2020) PCRec [H.264/1080p-LQ] [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849468.jpg" />
 </div>
 
 
@@ -358,7 +330,7 @@ ProfIT | Правильный деплой приложений на PHP (2015) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848312.jpg" />
 </div>
 
 
@@ -384,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844367.jpg" />
 </div>
 
 
@@ -410,7 +382,7 @@ Udemy | Angular 9. Практический курс по созданию Ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844115.jpg" />
 </div>
 
 
@@ -437,7 +409,7 @@ Udemy | Практический курс для новичков по SQL и Po
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844004.jpg" />
 </div>
 
 
@@ -463,7 +435,7 @@ ProfIT | "Вуду" регулярных выражений (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842507.jpg" />
 </div>
 
 
@@ -492,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842499.jpg" />
 </div>
 
 
@@ -520,7 +492,7 @@ OTUS | iOS-разработчик. Базовый курс (2020) PCRec [H.264/1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842361.jpg" />
 </div>
 
 
@@ -546,7 +518,7 @@ OTUS | iOS Разработчик. Продвинутый курс v 2.0 (2020) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842286.jpg" />
 </div>
 
 
@@ -574,7 +546,7 @@ OTUS | Разработчик C# (2020) PCRec [H.264/1080-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842268.jpg" />
 </div>
 
 
@@ -600,7 +572,7 @@ loftschool | Платные видеокурсы [коллекция, 8 курс
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842260.jpg" />
 </div>
 
 
@@ -626,7 +598,7 @@ ProfIT | Паттерны и антипаттерны - помощники в р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839308.jpg" />
 </div>
 
 
@@ -655,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839184.jpg" />
 </div>
 
 
@@ -681,7 +653,7 @@ Geekbrains | АнтиБыдлоКодер (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_839178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_839178.jpg" />
 </div>
 
 
@@ -695,6 +667,32 @@ Geekbrains | АнтиБыдлоКодер (2015) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47F27D6BE14168FA6654C0342D679F1C2F79FA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112832   (839143) от 10.03.2017
+
+ITVDN | Angular2 Essential (2017) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс создан для изучения Angular 2, который является переработанной и улучшенной версией популярного фреймворка AngularJS. Среди преимуществ этой технологии можно отметить высокую производительность, удобство работы и использование TypeScript в качестве основного языка для разработки. Курс состоит из 7 уроков, в течении которых Вы изучите такие основные темы, (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 09:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6F335197C1BD42FA6BE84106400C59FC0DC06D
 ```
 
 https://mybot314.ru/tekegram_catalog/

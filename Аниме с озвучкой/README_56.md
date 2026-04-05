@@ -1,3 +1,133 @@
+###  Публикация: 1692288   (61548) от 28.03.2024
+
+Досанко-гяру чудо как милы | Девчонки с Хоккайдо чудо как милы | Dosanko Gal wa Namara Menkoi | Hokkaido Gals Are Super Adorable! [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какой идеал девушки у ОЯШа здорового человека? Скромная, аккуратная отличница с длинными тёмными волосами! Вот и наш Цубаса, столичный паренёк, переехавший в маленький городок на Хоккайдо, постоянно себя в этом убеждает. Он ещё не подозревает, что однажды посреди белой морозной пустыни на одинокой остановке он увидит Её... Гяру... в опасно короткой юбке... без колготок... (   Читать дальше...   )Производство: Япония / Студия Silver Link, BladeЖанр: Комедия, романтика, повседневность.Режиссер: Минато МирайЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED0A54C10BC86DF44AEF8ED06E745FB01BA288F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693717   (61345) от 30.03.2024
+
+Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Злодейка 99 уровня: Да, я скрытый босс, но не повелительница демонов [2024, TV, 12 из 12] WEBRip 1080p rus+raw
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этой отомэ-RPG происходит в королевстве Варшайн, где темные волосы стали клеймом проклятия и предвестником несчастий. Юмиэлла Долкнесс — дочь графа, которую с рождения ненавидят из-за черных как смоль волос. А ещё она - тайный босс по сюжету игры. Но в возрасте пяти лет Юмиэлла вспоминает свою прошлую геймерскую жизнь в Японии. Не интересовавшаяся романтическими (   Читать дальше...   )Производство: Япония, студия JumondouЖанр: приключения, фэнтезиРежиссер: Ямаока МиноруЯзык озвучки: Русский закадровый (AniBaza), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F42223E642692859438BE96378F998F5CEF86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690973   (61343) от 30.03.2024
+
+Oroka na Tenshi wa Akuma to Odoru | Глупый ангел пляшет с демоном | Неразумный ангел в танце с демоном | The Foolish Angel Dances with the Devil [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масатора Акуцу — демон, который отправляется в обычную школу под видом человека с целью найти тех, кто сможет помочь Аду в борьбе с их естественными врагами — ангелами с Небес. Его внимание сразу привлекает Лили Аманэ, которая сама недавно перевелась в эту школу. Очарованный красотой одноклассницы, Масатора решает привлечь её на свою сторону. Но Лили не та, кем кажется (   Читать дальше...   )Производство: Япония, студия Childrens Playground EntertainmentЖанр: комедия, фэнтезиРежиссер: Кавасаки ИцуроЯзык озвучки: Русский закадровый (Dream Cast), (КОМНАТА ДИДИ), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-10Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D0485148AE403EC6CF0A46B8DCB28FD911E433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711945   (61064) от 01.04.2024
+
+Great Pretender | Великий притворщик [2020, Web, 23 из 23] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не будет преувеличением сказать, что Масато Эдамура, вероятно, величайший в Японии мошенник. На пару с подельником Кудо он решает провернуть аферу в Асакусе и обмануть некоего Француза, однако в итоге оказывается обманут сам. Ведь Француз, не давший себя обдурить, — сам Ролан Тьерри, человек настолько влиятельный, что ему подчиняется даже мафия. Теперь Масато и Кудо (   Читать дальше...   )Производство: Япония, Wit StudioЖанр: приключенияРежиссер: Кабураги ХироЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 23 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C41CA3B013E6E5DD20FE9E5A9E291F4D786B6F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690608   (61029) от 02.04.2024
+
+Опасность в моём сердце [ТВ-2] | Boku no Kokoro no Yabai Yatsu (2024) | The Dangers in My Heart (2024) [2024, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61029.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Кётаро Ичикавы всё налаживается! Ещё недавно он был нелюдимым и мутным типом, который фантазировал об убийствах своих одноклассников, а теперь он дружит с первой красавицей школы, фотомоделью и просто замечательной девушкой Анной Ямадой. Да и не просто дружит: у них самая настоящая любовь! Правда, по законам жанра, напрямую признаться они в этом друг другу не могут. (   Читать дальше...   )Производство: Япония / Студия Shin-Ei AnimationЖанр: Комедия, романтикаРежиссер: Акаги ХироакиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78841EAA92E7A505A4A87BA2A1E9DFE609FBFC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690408   (61025) от 02.04.2024
 
 Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в одиночку [2024, TV, 12 из 12] WEBRip 720p raw+rus
@@ -6,7 +136,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61025.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61023.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61000.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Hime-sama "Goumon" no Jikan Desu | Время пытки, принцесса | T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60634.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Shingeki no Kyojin: The Final Season - Kanketsu-hen | Attack on Titan: Final Sea
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60502.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Sousou no Frieren | Sousou no Frieren | Фрирен, провожающая в 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60276.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59878.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59866.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59652.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59582.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59168.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58254.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Bleach: Sennen Kessen Hen Ketsubetsu Tan | Bleach: Thousand-Year Blood War - The
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58252.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58073.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58063.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57714.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ Hachi-nan tte, Sore wa Nai deshou! | The 8th Son? Are You Kidding Me? | Вось
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56991.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ NHK ni Youkoso! | Добро пожаловать в NHK [2006, TV, 24 эп.] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56922.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55166.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54859.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54443.jpg" />
 </div>
 
 
@@ -542,137 +672,6 @@ Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битв�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667154   (54417) от 04.06.2024
-
-Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жизнь в ином мире [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54417.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти от неизлечимой болезни парень по имени Хираку воскресает в новом мире. Решив стать фермером и жить подальше от цивилизации, Хираку получает в распоряжение волшебный сельскохозяйственный инструмент, который по его желанию может превращаться в любое полезное орудие. Оказавшись в удалённом лесу, парень рьяно принимается за дело.Производство: студия Zero-G / ゼロジーЖанр: повседневность, фэнтезиРежиссер: Курая РёитиЯзык озвучки: Японский, русский (AniDub, AniMaunt)Субтитры: Русские (Dniwe, ItoTakashi)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370835DADE6130E1101ACBE7204BE2C37244F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727966   (54269) от 05.06.2024
-
-Komada Jouryuusho e Youkoso | Добро пожаловать на вискарню Комады [2023, Movie] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы написать доклад о крафтовом виски, Котаро Такахаси отправился в вискарню семьи Комада. Прибыв на место, Котаро выяснил, что производством руководит неопытная ещё Руи Комада, которая отважилась взять управление семейным бизнесом под свой контроль. Добившаяся уважения вискарня простояла без дела несколько лет, но недавно получила финансирование. Радужные перспективы (   Читать дальше...   )Производство: Япония, студия P. A. WorksЖанр: приключениеРежиссер: Ёсихара МасаюкиПеревод: AniJoyЯзык озвучки: Японский, Русский (AniJoy)Субтитры: РусскиеПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB7BCC1261C81F530425BFDB2BD109CA799B647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729114   (53769) от 10.06.2024
-
-Моя подруга демон | Suki demo Kirai na Amanojaku | My Oni Girl [2024, Movie] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хиираги Яцусе - первоклассник, который изо всех сил старается завести друзей, несмотря на то, что стремится понравиться окружающим. Его жизнь принимает неожиданный оборот, когда однажды летним днем он встречает Цумуги, девочку-онни (демона), пытающуюся найти свою мать в мире людей. Таинственным образом начинает падать снег... и их приключения начинаются.Производство: Япония / Студия Studio ColoridoЖанр: Драма, приключения, сверхъестественноеРежиссер: Сибаяма ТомотакаЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBBD5792F0B6E8A8FE62CE05E9696D08EBAF038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712712   (53499) от 13.06.2024
-
-Бывший герой решил жить самостоятельно | Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katte ni Ikiru Koto ni Shita [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главного героя Аллена, прозванного неудачником за низкий уровень и отсутствие божественного дара, лишают дворянского титула и изгоняют из герцогства Вестфельдт. Правда, он этому только рад, ведь в прошлой жизни Аллен был великим героем, а теперь он наконец-то сможет жить так, как ему заблагорассудится.
-Однако радость была недолгой, ведь безмятежное существование (   Читать дальше...   )Производство: Япония / Студия Studio Deen, Marvy JackЖанр: Приключения, фэнтезиРежиссер: Кога КадзуомиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF5C65D3B3A4A99EDF35347F486F9D40C38AEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729585   (53346) от 14.06.2024
-
-Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мире [2022, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кандзи Якутани - гениальный фармацевт мирового уровня. Он работает не покладая рук на благо людей всего мира, забывая об отдыхе. Утомление и становится причиной его смерти. Однако впереди его ждёт жизнь в новом мире, где он - сын придворного врача, обладающий удивительным даром.Производство: DiomedeaЖанр: повседневность, фэнтезиРежиссер: Кусакава КэйдзоЯзык озвучки: Японский, русский (AniLibria, Force Media)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DEF869717EDF396009A0F85081731B85A418FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

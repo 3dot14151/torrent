@@ -1,3 +1,55 @@
+###  Публикация: 1711573   (61308) от 30.03.2024
+
+Allavsoft Video Downloader Converter 3.27.0.8852  [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 30.03.2024Разработчик: © 2024 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0723CFD16BCF97A776E826815912DECB0DF3F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711524   (61292) от 30.03.2024
+
+OwlOCR Pro for Mac 6.0.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61292.jpg" />
+</div>
+
+
+###  Подробнее
+
+OwlOCR — это мощный инструмент, который позволяет пользователям захватывать любой текст на экране, конвертировать изображения или сканы в PDF-файлы с возможностью поиска, открывать URL-адреса QR-кода, интегрироваться через CLI, использовать расширения Finder и многое другое. OwlOCR может захватить часть экрана, мгновенно идентифицировать любой текст в этой области (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2023Разработчик: © 2023 OwlOCRПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93480A2D9D109666FCA1ECC0983BEEA029895A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711507   (61290) от 30.03.2024
 
 Studies 1.8.7 [En]
@@ -6,7 +58,7 @@ Studies 1.8.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61290.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61277.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ BetterMouse for Mac 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61274.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ RipX DAW Pro for Mac 7.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61272.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ SiteSucker Pro 5.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61223.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Gopeed for Mac 1.5.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61177.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Fix My iPhone 2.4.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61170.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Photomator for Mac 3.3.4 Patch [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61117.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ OmniPlayer Pro - Media Player 2.1.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61091.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ File Juicer 4.99 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61072.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Serial Box & SerialSeeker 04-2024 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61068.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ JetBrains DataSpell for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61067.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ Incredible Bee Archiver 4 for Mac v.4.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61062.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ Adobe After Effects 2024 v.24.3.0 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61055.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ Adobe InDesign 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61024.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ Wondershare UniConverter for Mac 15.5.5 Intel/ARM [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61015.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Wondershare Recoverit for Mac 12.5.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61011.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ Adobe Media Encoder for Mac 2024 v.24.3.0 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61010.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ Downie 4 v.4.7.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61008.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ TechSmith Snagit for Mac 2024.2.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60998.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ TechSmith Camtasia 2023 Studio 2023.3.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60995.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Live Home 3D Pro Edition 4.9 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60985.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ Dato 5.2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60974.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ ProPresenter 7.16.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60973.jpg" />
 </div>
 
 
@@ -634,60 +686,6 @@ ProPresenter — это удобный многоцелевой инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B88F943E3FB836CEB49218CF7F3AB2E8832B4A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712529   (60969) от 02.04.2024
-
-Final Draft 13 v.13.0.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Draft — профессиональное программное обеспечение для написания сценариев фильмов, телевизионных шоу и спектаклей.
-Приложение представляет собой многооконный текстовый процессор с массой специализированных возможностей под написание сценариев.
-Для использования утилиты вам совершенно не требуется знать правила оформления сценариев — Final Draft автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2024Разработчик: © 2024 Cast & Crew Production Software, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DD1DC7FAEBB57831F844F0E2407B8B4B2BA437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712602   (60953) от 03.04.2024
-
-Apeaksoft iOS Unlocker 1.0.56 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экран iPhone заблокирован? Удалите пароль за считанные секунды. iPhone много раз отключался из-за неправильного ввода пароля? Экран iPhone заблокирован из-за разбитого экрана? Не беспокойтесь: Apeaksoft iOS Unlocker безопасно сотрет пароль на iPhone, iPad и iPod и получит доступ к данным вашего iPhone за считанные секунды.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2024Разработчик: © 2024 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934B7D0FEFC03EE469FDCEB36F51FD622E8903BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

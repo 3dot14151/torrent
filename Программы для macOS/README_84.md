@@ -1,3 +1,57 @@
+###  Публикация: 1559458   (524422) от 25.06.2022
+
+DoYourData AppUninser Pro 5.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524422.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoYourData AppUninser - очень мощный, но простой в использовании деинсталлятор Mac. Он может полностью удалить приложения, удалить связанные файлы и очистить все, что осталось. Он может полностью удалить даже самые «упрямые» приложения, аварийные программы, плагины, виджеты и панели настроек с вашего Mac. DoYourData AppUninser также может удалять ненужные языковые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.06.2022Разработчик: © 2021 DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EEAB17C42C419F3558FD7CDC556DDC81A8B34F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053838   (524279) от 18.09.2016
+
+Corporate Packs for Pages 2.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый взгляд для ваших документов  Pages! Corporate Packs for Pages  Jumsoft в комплект имеет 18 пакетов с последовательными визуальными стилями для практически любых типов документов, которые могут понадобиться в вашем офисе.
+
+Каждый пак содержит до 41 различных шаблонов, от базовой одной страницы счет-фактуры, резюме, или комплексной брошюры с до 12 вариантов обложек (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 марта 2016Разработчик: JumsoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988A8A24FFB3A89DD013768861026B43E7410B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463809   (524145) от 25.06.2022
 
 Translate Tab 2.0.17 [En]
@@ -6,7 +60,7 @@ Translate Tab 2.0.17 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524145.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ WinZip Pro 7.0.4521 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523641.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ inMusic Brands BFD3 for Mac 3.4.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523547.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Screens 3.6.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523288.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ DM1 - The Drum Machine 2.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523210.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Jaksta 1.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523093.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Resume Templates - Design 3.2.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522600.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Submerge 3 v3.9.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522044.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ RapidWeaver 8 v8.9.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521991.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ MacGourmet Deluxe 4.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521989.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Nik Complete 5 Collection by DxO v5.0.1 CR2 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521836.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ DiskWarrior [Bootable USB/DVD] 5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521260.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ Alfred 5 Powerpack 5.0 EA5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520879.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ WebTorrent Desktop for Mac 0.24.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520749.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ Acronis True Image 2016 (2.0.5531) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520312.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ GuitarFineTune 9.7.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519835.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ start 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519828.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ PowerPhotos 1.9.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519774.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ SignFlow - eSign PDF Editor for Mac 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519773.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ Steinberg VST Live Pro 1.10.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519720.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ IconFly 3.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518867.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ Acon Digital AudioLava for Mac 2.1.2 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518861.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Acon Digital Acoustica Premium Edition 7.4.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518793.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ ExpanDrive 2022.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518779.jpg" />
 </div>
 
 
@@ -633,64 +687,6 @@ ExpanDrive 2022.7.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1FF014C867861B07C8A9B9BEC3D31D13B454DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929823   (518286) от 20.08.2015
-
-Affinity Photo 1.3.5 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Photo — профессиональный фоторедактор для Mac OS X
-Программа Affinity Photo – это кульминация пятилетнего труда по объединению инструментов для ретуши изображений.
-
-Спектр доступных опций более чем солиден и включает в себя наборы линз, элементы управления масками и каналами, поддержку систем EXIF и ICC, широкие возможности для экспорта-импорта форматов. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 августа 2015Разработчик: Serif (Europe) LtdПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45385414025A8A3AA09FF417DE3A9809F97EC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897329   (518270) от 20.08.2015
-
-BlueHarvest 6.2.2 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518270.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlueHarvest - автоматически удаляем скрытый мусор
-BlueHarvest -  утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
-
-Данная программа будет полезна для тех, кто любит включенную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 августа 2015Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD08B2FBDCDA7EDD108C69D834D918FB3B7AA366
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1592492   (183158) от 23.11.2022
+
+Paragon - Controlled Demolition (2019) [FLAC|Lossless|image + .cue] <Power, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Controlled Demolition
+02. Reborn
+03. Abattoir
+04. Mean Machine(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6DEF15C56C57AB6EA1457D32383922D4E83040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664904   (183157) от 29.09.2023
 
 Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, Hard Rock, Post-Grunge>
@@ -6,7 +35,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183157.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Anima Hereticae - Descended from the Mountains (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183151.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Whirlwind - 1714 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183141.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Elvenking - Reader Of The Runes - Divination (2019) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183124.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183120.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183117.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Kiss - Jersey City 1976 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183093.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Asia - Asia (1982) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183065.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ AC/DC - Power Up (2020) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183025.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Languish - Feeding the Flames of Annihilation (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183019.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Grateful Dead - Wake of the Flood (1973) 50th Anniversary Deluxe Edition, Remast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182802.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Nickelback - 10 Albums (1996-2022) Full Studio Discography [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182693.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Riot In The Attic - Those Who Donґt Belong (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182592.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Black Royal - Earthbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Blue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182584.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Qantice - The Anastoria (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182566.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Shootki - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182563.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Skeletoon - Nemesis (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182561.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Yawning Man - 7 Albums (2005-2021) [MP3|320 Kbps] <Desert Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182558.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Iron Fist - Mettlehead Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182553.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182543.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182538.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Violet - Illusions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR, Fema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182533.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Ikarass - Relapse Into Desolation (2020) [FLAC|Lossless|tracks + .cue] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182520.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Liquify - Beyond The Frozen Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182503.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Coal and Steel - Miners for Real (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182498.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Coal and Steel - Miners for Real (2023) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDBD9EB2A909CA4911CEF129229CDA8AD23CBA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665414   (182457) от 30.09.2023
-
-Jonne Aaron - Onnen Vuodet (2013) [FLAC|Lossless|image + .cue] <Glam Rock, Melodic Rock, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ihanaa Elamaa
-02. Kulkurisydan
-03. Taivas Itkee Hiljaa
-04. Eteenpain(   Читать дальше...   )Жанр: Glam Rock, Melodic Rock, Gothic RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0B0F4ED4FFA1F11A2CF71556D6046271BDCA7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

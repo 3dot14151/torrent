@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4265.jpg" />
 </div>
 
 

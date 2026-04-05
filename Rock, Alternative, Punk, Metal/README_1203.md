@@ -1,3 +1,38 @@
+###  Публикация: 453110   (93646) от 17.02.2012
+
+Dollar Co. - Country Beatles (1981) [MP3|320 kbps]<Сountry, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Jude - Something (05:50)
+02. Ob-La-Di, Ob-La-Da - If I Nee (02:30)
+03. And I Love Her (03:38)
+04. I Want To Hold Your Hand (02:22)
+05. Eight Days A Week (03:03)
+06. Get Back (02:45)
+07. Help ! (02:53)
+08. With A Little Help From My Fr (04:01)
+09. A Hard Dayґs Night (03:08)
+10. Let It Be (03:29)(   Читать дальше...   )1981Жанр: Сountry, RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9514C728DD2E50B33B55BB70BFD4892452F75F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453056   (93569) от 16.02.2012
 
 Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
@@ -6,7 +41,7 @@ Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93569.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Opera IX - Maledictae In Aeternum (2012) [FLAC|Lossless]<Black Metal,Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93228.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91306.jpg" />
 </div>
 
 
@@ -105,7 +140,7 @@ Caligula's Horse - Bloom (2015) Reissue, 2018, Inside Out Music [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91281.jpg" />
 </div>
 
 
@@ -134,7 +169,7 @@ Buckingham Nicks - Buckingham Nicks (1973) Remastered, 2025, Rhino [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91189.jpg" />
 </div>
 
 
@@ -163,7 +198,7 @@ Bryan Adams - Roll With The Punches (2025) 3 x CD, Deluxe Edition, Limited Editi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91181.jpg" />
 </div>
 
 
@@ -192,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91143.jpg" />
 </div>
 
 
@@ -221,7 +256,7 @@ Before the Dawn - Rise of the Phoenix (2012) [FLAC|Lossless]<Melodic Death/Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91018.jpg" />
 </div>
 
 
@@ -256,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90937.jpg" />
 </div>
 
 
@@ -291,7 +326,7 @@ Manowar - Японские издания и Сборники (1982-2002) [MP3|1
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90852.jpg" />
 </div>
 
 
@@ -317,7 +352,7 @@ Richie Sambora(Bon Jovi) - Acoustic Set At Spain (1998) [MP3|320 кб/с]<Acoust
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90802.jpg" />
 </div>
 
 
@@ -352,7 +387,7 @@ Prong - Carved into Stone (2012) [FLAC|Lossless]<Crossover/Thrash/Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90798.jpg" />
 </div>
 
 
@@ -387,7 +422,7 @@ Marilyn Manson - Born Villain (2012) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90727.jpg" />
 </div>
 
 
@@ -422,7 +457,7 @@ Europe - Bag Of Bones [Japanese Edition] (2012) [MP3|192 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90584.jpg" />
 </div>
 
 
@@ -457,7 +492,7 @@ VA - 100 Hits: Rock Anthems (2011) [MP3|320 кб/с]<Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90448.jpg" />
 </div>
 
 
@@ -492,7 +527,7 @@ Fleet Foxes - Fleet Foxes (Special Edition) 2 CD (2008) [MP3|320 кб/с]<Indi-R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90422.jpg" />
 </div>
 
 
@@ -518,7 +553,7 @@ VA - Greatest Ever! Prog Rock (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90399.jpg" />
 </div>
 
 
@@ -553,7 +588,7 @@ Pink Floyd - Wish You Were Here (1975) Remastered /1993, Columbia, Legacy, Maste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89903.jpg" />
 </div>
 
 
@@ -583,7 +618,7 @@ Crazy Lixx - Riot Avenue (2012) [MP3|320 кб/с]<Melodic Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89800.jpg" />
 </div>
 
 
@@ -618,7 +653,7 @@ Dark Tranquillity - Zero Distance [EP] (2012) [MP3|320 кб/с]<Melodic Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89761.jpg" />
 </div>
 
 
@@ -648,7 +683,7 @@ Deuce - Nine Lives (2012) [MP3|320 кб/с]<Rap-Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89686.jpg" />
 </div>
 
 
@@ -683,7 +718,7 @@ Empires Of Eden - Channelling The Infinite (2012) [MP3|192 кб/с]<Melodic Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89593.jpg" />
 </div>
 
 
@@ -718,7 +753,7 @@ VA - The British Invasion - History Of British Rock (1991) Box Set 9 CD [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89288.jpg" />
 </div>
 
 
@@ -753,7 +788,7 @@ Trans-Siberian Orchestra - Beethoven's Last Night (2012) [MP3|320 кб/с]<Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89205.jpg" />
 </div>
 
 
@@ -788,7 +823,7 @@ Uriah Heep - The Best of Uriah Heep. Wizards (2CD) (2011) [MP3|320 кб/с]<Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89042.jpg" />
 </div>
 
 
@@ -799,41 +834,6 @@ Uriah Heep - The Best of Uriah Heep. Wizards (2CD) (2011) [MP3|320 кб/с]<Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:306D02532CB02F5A6F796A72E3447A638635A4C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484368   (88963) от 17.04.2012
-
-Оберег - Настроение личности (2011) [MP3|320 кб/с]<Psyhodelic,Ethnic,Punk,Folk,Metall>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88963.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Каждое утро
-2 Зверь
-3 Глобальный кризис
-4 Время
-5 Утренняя сказка
-6 Подземная война
-7 Крик
-8 Шаман
-9 Убегающему
-10 В.З.С.П.(   Читать дальше...   )2011Жанр: Psyhodelic,Ethnic,Punk,Folk,Metall,Post-HardcoreПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7D2A1929EC8F8B30A0E37EFDBBE0559401CCEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

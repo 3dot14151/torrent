@@ -1,3 +1,32 @@
+###  Публикация: 1639222   (237253) от 12.06.2023
+
+The 69 Eyes - Death Of Darkness (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Of Darkness
+02. Drive
+03. Gotta Rock
+04. This Murder Takes Two(   Читать дальше...   )Жанр: Goth Rock, Gothic MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD6C38DC561838A190CD6B9D02958C1CB6119FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452066   (237249) от 05.03.2021
 
 Harakiri For The Sky - Maere (2021) 2xCD [FLAC|Lossless|image + .cue] <Post-Black Metal>
@@ -6,7 +35,7 @@ Harakiri For The Sky - Maere (2021) 2xCD [FLAC|Lossless|image + .cue] <Post-Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237249.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Lunar Shadow - Wish to Leave (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237231.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dreamyth - Aletheia (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237228.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Scar Symmetry - The Singularity (Phase II - Xenotaph) (2023) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237214.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Iron Savior - The Landing (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237210.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Dirty Seeds - Beware The Beast Man (2023) [MP3|320 Kbps] <Heavy Rock, Stoner
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237209.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Iced Earth - Iced Earth (1990) [FLAC|Lossless|image + .cue] <Thrash Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237203.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Beyond The Touch - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237193.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237183.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Karnataka - Requiem For A Dream (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237179.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Dysplacer - Temple Heights (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237174.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Thorium - Empires In The Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237172.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Pure Reason Revolution - Eupnea (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237169.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Emomary - Добро Пожаловать В Космос! (2023) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237166.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Motus Tenebrae - 4 Albums (2008-2016) [MP3|320 Kbps] <Gothic Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237164.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Convocation - Ashes Coalesce (2020) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237156.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Enforcer - Zenith (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237155.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Archetype Of Disorder - Odyssey In Space (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237154.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Dakota - Runaway (1984) Reissue, 2002, AORchives [FLAC|Lossless|image + .cue] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237148.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Catacomb - When the Stars Are Right (2023) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237143.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Sensimillia - Strike by the Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237142.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ VA - Some Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237133.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Coldworld - Isolation (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Depressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237116.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Numenor - Draconian Age (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237101.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Tronos - Celestial Mechanics (2019) [FLAC|Lossless|image + .cue] <Groove Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237096.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Tronos - Celestial Mechanics (2019) [FLAC|Lossless|image + .cue] <Groove Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFE2B8DC0C304D202EDCFEEA8E51C97B25F1DA66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639396   (237092) от 13.06.2023
-
-Michael Thompson Band - The Love Goes On (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Love Goes On (5:30)
-2. Whispers And Dreams (4:58)
-3. War Of The Hearts (5:17)
-4. In Your Arms (4:36)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067153A945A2E5B26C7F4D96AE2E6307CE82EDE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

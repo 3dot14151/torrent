@@ -1,3 +1,122 @@
+###  Публикация: 1250899   (422656) от 29.09.2018
+
+VA - Deep House & Deep Techno #03: Best Of 5 Years (2018) [MP3|320 Kbps] <Deep House, Deep Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demax - Galantis (Original Mix) 7:38
+02. Robben Cepeda - Another Day (Original Mix) 6:35
+03. Valentin Timoshin - Drones (Original Mix) 6:17
+04. Carlos De Castro - Grooving Madness (Original Mix) 5:56(   Читать дальше...   )Жанр: Deep House, Deep TechnoПродолжительность: 05:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F107173F7461859A51560D330292A3659343E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250936   (422537) от 29.09.2018
+
+Ashnaia Project - Sacred Silence (2018) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devoted in Silence (06:47)
+ 02. Who Are You (09:14)
+ 03. Dreams of Hallucinations (06:34)
+ 04. The Other Side (07:44)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BFBB7DE5E8C3D2EFA9457AE614D20E683970ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557360   (422500) от 07.10.2012
+
+VA - Manhattan Deep Vibes Compilation: 2012 Deep House Compilation (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422500.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sam Franklin - Tree of Rhythm (7:26)
+2. Stoned Butterflies - Everything Is Bright (7:19)
+3. Jon Coombs - Let Me Go (7:52)
+4. Moreno Pezzolato - Word - Original Mix (8:03)
+5. Moreno Pezzolato - Word - Marcelo Tag Remix (7:00)
+6. Phreo - Hold Cheek (8:27)
+7. Luca La Greca - Rhythm Addiction (6:32)
+8. Lovework - Lady Deep (7:33)
+9. Applefly - Tonight? Tonight - Labaci Remix (6:43)
+10. Tonic Dj - Moofna Story (6:49)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373C5F042EE4F16677767A0A59EC433B7E61881B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199468   (422493) от 27.09.2020
+
+4lienetic - Discography 47 Releases (2013-2020) Blue Lies [FLAC|Lossless|WEB-DL|tracks] <Ambient, Future Garage, Downtempo, Modern Classical>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osiris (04:14)Тип издания: WEBПродолжительность: 08:20:05 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F7DFEE73B28280ACE970A3488F21FCDD8D231F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167033   (422069) от 18.09.2017
 
 Hertzman & Cousin Vic - The Others (2017) [MP3|320 Kbps] <Electronica, Downtempo>
@@ -6,7 +125,7 @@ Hertzman & Cousin Vic - The Others (2017) [MP3|320 Kbps] <Electronica, Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422069.jpg" />
 </div>
 
 
@@ -35,7 +154,7 @@ VA - Ibiza Closing Chillhouse (2016) [MP3|320 Kbps] <Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421898.jpg" />
 </div>
 
 
@@ -64,7 +183,7 @@ VA - Deep Trip (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Min
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421769.jpg" />
 </div>
 
 
@@ -93,7 +212,7 @@ VA - Internal Sign CMPL (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421600.jpg" />
 </div>
 
 
@@ -122,7 +241,7 @@ VA - Casa del Sol - Finest Chillout Selection (2019) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421492.jpg" />
 </div>
 
 
@@ -151,7 +270,7 @@ Aly & Fila - Beyond The Lights (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421440.jpg" />
 </div>
 
 
@@ -180,7 +299,7 @@ Bryan Ferry - Avonmore (The Remix Album) (2016) [FLAC|Lossless|WEB-DL|tracks] <H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421129.jpg" />
 </div>
 
 
@@ -209,7 +328,7 @@ rRine - Eaciv+ (2020) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420780.jpg" />
 </div>
 
 
@@ -238,7 +357,7 @@ Drottning Omma - Jag har alltid alskat svaghet (2020) offworldcolonies ltd. [FLA
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420778.jpg" />
 </div>
 
 
@@ -267,7 +386,7 @@ VA - Golden Summer Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420715.jpg" />
 </div>
 
 
@@ -296,7 +415,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 October (2015) [MP3|320 кб/�
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420700.jpg" />
 </div>
 
 
@@ -325,7 +444,7 @@ Pierre Ravan - KaRavan: With Love from Dubai to Ibiza - Vol. 9 (2015) [MP3|320 �
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420554.jpg" />
 </div>
 
 
@@ -354,7 +473,7 @@ VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection) Vol. 1 (2020) [FL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420447.jpg" />
 </div>
 
 
@@ -383,7 +502,7 @@ Moolsaasa - Sleepless EP (2016) Kopoc Label [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420285.jpg" />
 </div>
 
 
@@ -412,7 +531,7 @@ VA - Dance Religion 16 (House and Dance Tunes from Heaven) (2018) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420200.jpg" />
 </div>
 
 
@@ -441,7 +560,7 @@ Faithless - 2.0 (Remixes & Hits) (2015) 2CD [MP3|320 кб/с]<House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420188.jpg" />
 </div>
 
 
@@ -470,7 +589,7 @@ Frore - Discography 12 Releases (2009-2018) Relaxed Machinery, Spotted Peccary, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420149.jpg" />
 </div>
 
 
@@ -496,7 +615,7 @@ SubLab - Discography 65 Releases (2014-2020) UTM-Records, Sublab Music [FLAC|Los
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420141.jpg" />
 </div>
 
 
@@ -522,7 +641,7 @@ VA - Destination Relaxation (Special Music for Stress Relief) (2017) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419726.jpg" />
 </div>
 
 
@@ -551,7 +670,7 @@ VA - Autumn Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419667.jpg" />
 </div>
 
 
@@ -580,7 +699,7 @@ VA - Sexy House Bombs Vol.1: Cool Uplifting House Tunes for Clubbers Desires (20
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419661.jpg" />
 </div>
 
 
@@ -609,7 +728,7 @@ VA - Top 30 Club Hits (Autumn '17) (2017) [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419582.jpg" />
 </div>
 
 
@@ -623,122 +742,6 @@ VA - Top 30 Club Hits (Autumn '17) (2017) [FLAC|Lossless|WEB-DL|tracks] <House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8734F0A84A435EAEEC439F0178B170A25C4FB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065297   (419549) от 23.10.2016
-
-VA - Power Of Silence, Vol. 1 (Relaxing & Powerful Chill Out Tunes) (2016) [MP3|320 Kbps] <Dance, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Egor Grushin - Summer
-02. Peter Pearson - I Can Hear The Summer
-03. Mich Gerber - Harmatan
-04. Luis Hermandez - Summer In The City(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A93ADA1018EF5D638DAED7816250A5AE835848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065467   (419543) от 23.10.2016
-
-VA - I Love Lounge Music Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicola Giunta - Arp Noir
-02. Ordinary People - Perturbation
-03. DJ Tabu - Song for Malala
-04. Katia B - Are You Sleeping?(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5458066D06466C9949BE2567F3BE8A50C0ADA416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065462   (419393) от 23.10.2016
-
-VA - Moments Of House Music Vol.5 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benix - Kaneohe - Original Mix
-02. Silvestre M. - In My Head - Original Mix
-03. Andrez - In Your Afterglow - Matter Remix
-04. SummerMarian - Volcano - Ri Za Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B92DD1DC0C1E725B1D1AB9DB08E7D00DBCDD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065625   (419343) от 23.10.2016
-
-VA - Unfinished Business Vol. 4 (Compiled & Mixed by Luke Solomon) (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419343.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Luke Solomon - Unfinished Business Vol 4 (continuous mix Pt 1) (01:11:01)
-2. Luke Solomon - Unfinished Business Vol 4 (continuous mix Pt 2) (01:17:51)
-3. Honey Dijon - Houze (feat Seven Davis Jr - Deetron extended remix) (07:59)
-4. Eli Escobar - Chaka Khan (05:30)(   Читать дальше...   )Жанр: House, ElectronicaПродолжительность: 06:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A4AA0848C4E65A482BC0AE9E33AC0D991947E
 ```
 
 https://mybot314.ru/tekegram_catalog/

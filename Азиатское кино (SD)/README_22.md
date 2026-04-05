@@ -1,3 +1,55 @@
+###  Публикация: 1395067   (758633) от 08.07.2020
+
+Непобедимый дракон (Неуязвимый дракон) / Jiu long bu bai / The Invincible Dragon (2019) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принципиальный и честный гонконгский полицейский по кличке Безумец назначается на расследование убийства женщины-коллеги. Дотошный страж порядка не может найти ни одной зацепки, но, когда внезапно пропадает его невеста, тоже сотрудница полиции, становится ясно, что Безумцу придётся иметь дело с серийным убийцей.Производство: Гонконг, Китай, Pegasus Motion PicturesЖанр: боевик, детектив, криминалРежиссер: Фрут ЧанАктеры: Макс Чжан, Андерсон Силва, Кевин Чэн, Энни Лю, Стефи Тан, Жужу Чан, Энди Чоу, Лам Сует, Ричард Нг, Деон ЧунПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC1F4CCE92C3FF8658E9DA62540F15E657E7BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522360   (758395) от 07.01.2022
+
+Самокрутка / Sau gyun jin / Hand Rolled Cigarette (2020) BDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной солдат и молодой маргинал вынуждены бороться со своим тяжёлым положением, тогда как общество отворачивается от них.Производство: Гонконг, Hand-Roll Cigarette FilmЖанр: Драма, криминалРежиссер: Келвин ЧанАктеры: Гордон Лам, Бипин Карма, Майкл Нин, Бен Юэнь, Сингх Хартихан Битто, Чинь Сиу-Хо, Аарон Чоу, Чу Пак Хим, Тони Хо, Тай БоПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C392DEC475926BAD9F6D450C99580143777FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280749   (758081) от 04.02.2019
 
 Пылающий / Burning (2018) BDRip
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758081.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757096.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756911.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756511.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756331.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754942.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754517.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754469.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753654.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752025.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751947.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751554.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749683.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748992.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748990.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748399.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748192.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748083.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747979.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747964.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746518.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746035.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745437.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744578.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64D3443FFA2AE11C261C27AD7AF133B6B9A8F1D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020252   (744506) от 26.05.2016
-
-Цветок и змея: Ноль / Hana to hebi: Zero (2014) WEBRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мисаки Амемия, женщина-детектив, вступает в борьбу с подпольным сообществом. Банда похищает женщин и выкладывает их истязания на закрытом сайте в прямом эфире. В расследовании она продвигается слишком далеко и сама попадает в ловушку...Производство: ЯпонияЖанр: Триллер, ЭротикаРежиссер: Хадзимэ ХасимотоАктеры: Норико Хамада, Рина Сакураги, Наоки Кавано, Ючи Кимура, Хидэо Сакаки, Дайкити Сугавара, Кандзи Цуда, Юки ЦудзимотоПеревод: Одноголосый закадровый, любительский (Хихикающий доктор)Продолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0E95CF039E679E46649F0397A9C6896A464233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020632   (744497) от 26.05.2016
-
-Русалка / Mei ren yu (2016) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русалочка по имени Шан отправляется на миссию по соблазнению и убийству Лина Кхуана - промышленника, который загрязняет океаны, убивая в них жизнь.Производство: КитайЖанр: Фантастика, фэнтези, драма, мелодрамаРежиссер: Стивен ЧоуАктеры: Чао Ден, Юнь Линь, Шоу Луо, Юки Чжан, Пьер Бурдо, Кэ Бай, Иван Котик, Ляншун Конг, Кай Ман Тинь, Харк Цуй, Чжан Вэнь, Ифань У, Сялон БоПеревод: Любительский одноголосый (Вячеслав Замез)Субтитры: ОтсутствуютПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D650606F1E28C6C8578201D2A5B2493D0BC8F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

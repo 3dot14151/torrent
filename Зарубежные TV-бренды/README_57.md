@@ -6,7 +6,7 @@ NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621008.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Когда сталкиваются континенты / When Continents C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620928.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620777.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620738.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Выдающиеся женщины ХХ столетия. Агата Кр�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620695.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC: Выдающиеся женщины ХХ столетия. Одри Хеп�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620546.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620526.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Короли Леса / Kings of the Wood (2022) WEBRip [H.264/1080p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619904.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG: В пещере кристаллов / Into the Crystal Cave (2010) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619502.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery. Акула Тьмы: Ярость Субмарины / Shark of Darkn
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619490.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG.Запреты: Экстремальное лечение / NG.Taboo: Freaky 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619126.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618968.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618964.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618734.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618345.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618335.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617815.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616957.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC: Выдающиеся женщины ХХ столетия. Жозефина
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616884.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616842.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG: Осушить океан: глубокое погружение. Сабот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616834.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NGW: Акула против тунца / Shark vs Tuna (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616830.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ History Channel: Жизнь после людей / Life After People (2009) HDT
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616465.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Discovery: Головоломы (Мозголомы): Насилие над на
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616453.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG: С точки зрения науки: Магнитное поле Земл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615934.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTVRip [Сер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615927.jpg" />
 </div>
 
 

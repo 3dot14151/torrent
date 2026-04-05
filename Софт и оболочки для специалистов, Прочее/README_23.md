@@ -1,3 +1,107 @@
+###  Публикация: 1601299   (151738) от 30.12.2022
+
+SMath Studio Desktop 1.0.8348 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151738.jpg" />
+</div>
+
+
+###  Подробнее
+
+SMath Studio — абсолютно бесплатная программа для математиков, обладающая невероятным количеством возможностей. Приложение имеет простой пользовательский интерфейс с огромным количеством функций. Также данное средство имеет встроенный редактор графики с замечательной поддержкой единиц измерения. Несмотря на свой сравнительно маленький размер, программа удивляет своей (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE8628EF54DA0D397C226D737C6D7905287B1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825946   (150677) от 19.10.2025
+
+Microsoft Visual C++ 2026 Redistributable 14.50.35710.0 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable — это набор системных библиотек (runtime components), необходимых для запуска программ и игр, разработанных в среде Microsoft Visual Studio с использованием языков C и C++. Многие современные приложения не содержат этих библиотек в составе установочного пакета и требуют их наличия в системе отдельно.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01121AEB095138B145E8F2103AAF1A4485B35DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434667   (148806) от 25.12.2020
+
+Simple Bootable Flash Drive by StartSoft Presentation 27-2020 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочная флешка созданная на базе образа ISO предназначена для настройки компьютеров и установки операционных систем  Windows 7 sp1 и Windows 10 c русским, либо с английским языковыми интерфейсами, а так же поддерживает установку Windows на разметки жесткого диска стандартов GPT или MBR.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99E9D646F4E5DB69AD076E69722820F2FD4804C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969186   (148101) от 26.12.2015
+
+SDL Passolo 2015 15.1.418.0 Collaboration Edition Portable by Evgenii724 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148101.jpg" />
+</div>
+
+
+###  Подробнее
+
+SDL Passolo - это шаблонный редактор ресурсов любого формата, с расширенными возможностями, тонкими настройками и встроенной проверкой орфографии. Это — мощная утилита для локализации программного обеспечения. Passolo поддерживает непосредственную обработку большого числа специальных форматов файлов, включая исполняемые программы, файлы ресурсов и файлы на основе (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5234C4B4106C780A043020B202FF11C59DC884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678148   (147025) от 20.11.2023
 
 Altair EDEM Professional 2023.0 [En]
@@ -6,7 +110,7 @@ Altair EDEM Professional 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147025.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139391.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136916.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Open Server Panel 6.4.5 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136880.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136833.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Microsoft  Visual C++ Runtimes AIO v0.102.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136733.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Microsoft® SQL Server® 2012 Express с пакетом обновления 1 (
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135074.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ CADlogic Draft IT 5.0.15 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134489.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ Altair HW FEKO 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134146.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ CST Studio Suite 2024.01 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134085.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ Antenna Magus 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134083.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ Embarcadero RAD Studio 12 Athens 29.0.50491.5718 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132207.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ NVIDIA GeForce Desktop Studio 581.57 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128922.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ JetBrains PyCharm Professional 2023.3.1 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127501.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127311.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Radeon Software Slimmer 1.11.0 Portable [En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124595.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122636.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ VPstudio V12.01 C9 x64 SP2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122610.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ SamDrivers 24.0 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122450.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ Java SE Development Kit 11.0.22 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122192.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119739.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ SimInTech 2.24.1.26 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119522.jpg" />
 </div>
 
 
@@ -572,113 +676,6 @@ SimInTech – система автоматизированного проект
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A44E237A1F4650A4EC91AD54507D4CD66B82180C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696881   (119389) от 04.02.2024
-
-Java SE Runtime Environment 8.0.4010.10 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java Runtime Environment (JRE) - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FF90B3A39141E9CE65E920436E908949BCB4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698523   (118478) от 09.02.2024
-
-Creative Sound Blaster Command 3.5.10.0 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sound Blaster Command - программное обеспечение для новейших моделей внутренних и внешних звуковых карт Creative. Программа позволяет настраивать воспроизведение и запись звука, добавлять звуковые эффекты, управлять эквалайзером, настраивать аудио входы и выходы, а также переключаться между звуковыми профилями. Также, в состав Sound Blaster Command включены актуальные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E4E585529049E843F0135933D403F9B44F048E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701859   (116245) от 22.02.2024
-
-FileMaker 20.3.2.201 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116245.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMaker Pro Advanced - это средство для создания пользовательских приложений. Можно также использовать FileMaker Pro для доступа к удаленным приложениям с компьютера Windows или Mac. Начните работу с импорта данных из электронной таблицы или используйте встроенное типовое приложение для управления контактами, складскими запасами, совещаниями и многим другим. Кроме (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99D93A8A6DFE4FDFF3E83F4C4A63966F272FE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702650   (115757) от 25.02.2024
-
-VMware vCenter Converter Standalone 6.6.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115757.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware vCenter Converter Standalone, конвертер VMware P2V и V2V – бесплатное приложение для конвертации и миграции компьютеров, серверов и виртуальных машин в виртуальные машины VMware на Windows. Включает 3 компонента: сервер, агент, клиент
-
-VMware vCenter Converter Standalone – бесплатное приложение, которое предоставлено официально с сайта VMware и его можно установить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9537ABB80DFEBBB3C04078ADB9E22E3FDCAF37D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1019777   (746901) от 25.05.2016
+
+Сергей Волконский | Быт и бытие (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Князь Волконский – величайшая историческая личность. Он был и директором Императорского театра, и критиком, и историком культуры, и даже создателем актёрской школы. В 1921 году он эмигрировал из России и стал директором консерватории в Париже. Большое место в мемуарах «Быт и бытие» автор уделил описаниям своих путешествий и своим друзьям. Самым близким другом для (   Читать дальше...   )Жанр: Философия, эссе, искусствоведениеПродолжительность: 06:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A764CF1AC678BB2B97A22F34DC02A10517ED40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020127   (746895) от 25.05.2016
+
+Юрий Воронов | Страницы истории денег (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, которую вы держите в руках, — не пособие по нумизматике. В ней обсуждаются преимущественно теоретические, политэкономические проблемы денег и денежного обращения, а это — занятие не менее увлекательное, чем собирание старых монет.
+Задача автора — показать разнообразие мира денег и попытаться вместе с читателем увидеть, что скрывается за всеми этими блестящими, (   Читать дальше...   )Жанр: Познавательная литератураПродолжительность: 08:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2086F23B065FC6B436B395B87D41CA383145D462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019982   (746826) от 25.05.2016
 
 Жюль Верн | Юные путешественники (2016) [MP3]
@@ -6,7 +59,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746826.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746821.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746736.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745517.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745388.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745315.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745295.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745248.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745198.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745160.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744895.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743453.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743346.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743006.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741958.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741803.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740994.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740887.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740686.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739063.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738771.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738768.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738454.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738085.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2EA3D13421FDE530A4651ED8A217BFAA259A3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527191   (737339) от 27.01.2022
-
-Российский аудиофонд | Коллекция "Старое Радио" [С] (2022) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции сайта "Старое Радио" по состоянию на январь 2022 года.Жанр: РадиозаписиПродолжительность: 1438:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247D5224C6083F8E4DAFFF6B3DBF07C5FADC868B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527773   (736405) от 29.01.2022
-
-Российский аудиофонд | Коллекция "Старое Радио" [Ф] (2022) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции сайта  "Старое Радио" по состоянию на январь 2022 года.Жанр: РадиозаписиПродолжительность: 379:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A938315B92EBC1418A70F62368209F9E03A0A51
 ```
 
 https://mybot314.ru/tekegram_catalog/

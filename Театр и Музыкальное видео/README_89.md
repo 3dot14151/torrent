@@ -6,7 +6,7 @@ Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405599.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dancer Tryout - Mz Berry (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405472.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Die Antwoord - Fatty Boom Boom (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405470.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stockholm Syndrome - Pretty Girl (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405428.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404307.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tristeria - Epoka (clip) [H.264 720p](2013) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404232.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ace Of Base - Greatest Hits (2008) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401864.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401473.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401138.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400982.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400950.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Aerosmith - What Could Have Been Love (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400031.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Robert Plant and the Strange Sensation - EXIT Festival July 12, 2007 (2007) DVDR
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399943.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ The Doors: Live at the Bowl '68 (2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399824.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399225.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399016.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398388.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398290.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398186.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ The Doors - Live At The Bowl '68 (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397969.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Gregorian: Epic Chants - Live in Zagreb [Limited Edition] (2012) [H.264] DVDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397927.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397815.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397665.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Joe Cocker – Fire it Up Live (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397403.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396982.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Twisted Sister - Live At The Astoria (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396921.jpg" />
 </div>
 
 

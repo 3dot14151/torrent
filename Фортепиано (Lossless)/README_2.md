@@ -6,7 +6,7 @@ Annelie - After Midnight (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437337.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Schubert - Piano transcriptions (Antti Siirala ) (2003) [FLAC|image +.cue]<Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435846.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Best 50 of Classical Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425404.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dirk Maassen - An Evening at Wilhelmsburg (2020) EP [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413617.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mozart, Schubert, Debussy - Piano Duets (Sviatoslav Richter & Benjamin Britten) 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411263.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bach - Goldberg Variations (Andras Schiff) (2005) [FLAC|image +.cue]<Classical, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377331.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Schubert - Piano Works for Four Hands (Jeno Jando & Ilona Prunyi) (1994) [FLAC|i
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367556.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Beethoven - Complete Piano Sonatas, Kurfursten Sonatas, Sonatinas: Peter Takacs 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365595.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Arturo Benedetti Michelangeli - Beethoven: Piano Sonata No.32, Op.111  (1965) 19
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361533.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Haydn - Complete Music for Solo Keyboard (Ronald Brautigam)  (15CDs) (2008) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348555.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Cord Garben / Arturo Benedetti Michelangeli - Mozart: Klavierkonzerte Nos. 13 & 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347392.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Chiharu Naruse - Kenneth A. Kuhn: Piano Works (2018) [FLAC|Lossless|WEB-DL|track
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345358.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Mozart - The Authorised Recordings: Sviatoslav Richter (1994) 2CD [FLAC|Lossless
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345002.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und O
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340226.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Schubert - Piano Works for Four Hands, Vol. 5 (John Humphreys & Allan Schiller) 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339705.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Scriabin, Prokofiev, Shostakovich - The Authorised Recordings: Sviatoslav Richte
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337715.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ J.S.Bach - The Authorised Recordings: Sviatoslav Richter (1994) 3CD [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337434.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Bach - Concertos, Toccata, Partita (Elena Kuschnerova) (2001) [FLAC|image +.cue]
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329361.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Ravel - Complete Piano Works - (Begona Uriarte, Karl-Hermann Mrongovius) (Vol.1)
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329360.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Sviatoslav Richter - Tchaikovsky, Mussorgsky - Piano Works (1994) [FLAC|image +.
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329323.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Schubert - Impromptus, Moments musicaux, Sonatas D960 & D664 (Wilhelm Kempff) (2
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326600.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Chopin - Horowitz Plays Chopin (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Cla
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326592.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Arturo Benedetti Michelangeli - Arturo Benedetti Michelangeli Plays Debussy (197
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318240.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Falla - Complete Works for Piano Solo (Ricardo Requejo) (1999) [FLAC|image +.cue
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317071.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deu
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315773.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und O
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315678.jpg" />
 </div>
 
 

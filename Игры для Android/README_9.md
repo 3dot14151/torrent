@@ -6,7 +6,7 @@ NeuroNation - тренировка мозга v2.1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589006.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Defense Zone 2 HD  МОДх4  1.5.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583617.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581766.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581649.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Plants vs. Zombies 2 v.3.7.1 Мод [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578564.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Atlantic Fleet версия: 1.08 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575142.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575039.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Asphalt 8: Airborne v2.0.0j МегаМод [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573100.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546845.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546837.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Billiards City / Pooking - Бильярдный город v2.10 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544101.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539481.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Mighty Final Fight 1.1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522121.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Night Slashers X Remake 1.2.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511728.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511552.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ This War of Mine v1.1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509818.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Lara Croft GO 1.0.48285 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507813.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Streets Of Rage 2x Remake 1.4 Beta [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507680.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Real Racing 3 v3.6.0+Mod Money [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501931.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Warplanes: WW2 Dogfight v1.6 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497458.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Gangstar Vegas v2.0.1b [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493447.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479719.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479716.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479704.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Clash of Clans 7.200.12 + Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472611.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Word Life v6.2.1 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467690.jpg" />
 </div>
 
 

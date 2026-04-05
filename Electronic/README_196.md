@@ -1,3 +1,61 @@
+###  Публикация: 1026951   (700406) от 17.06.2016
+
+VA - Goa Trance Vol.32 (2016) [MP3|320 кб/с] <Trance, Psy-Trance, Psychedelic>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waio - Searching for Signals (Symbolic Remix) 8:28
+02. Ace Ventura & Symbolic - Prime Time (Avalon Remix) 8:23
+03. Relativ - Tomorrow Last Forever 8:51
+04. Freak Control - Dmt Trip 6:51(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 02:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F49B0CD4DA2C959CEC623BBDD39981591C9FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794044   (700377) от 07.06.2014
+
+Of Norway - Accretion (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yours Is A History Of Violence
+02. Spirit Lights (feat Linnea Dale)
+03. Accretion
+04. Love Is Over(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F586B2B14538B75ED5D8B94E95B24D0E91559DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288082   (699758) от 09.03.2019
 
 VA - Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) [MP3|320 Kbps] <Progressive House>
@@ -6,7 +64,7 @@ VA - Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699758.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Subskan - Discography 10 Releases  (2002-2018) Ambivalence, Hymen Records [FLAC|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699637.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Covert Operations Record Pres: Global Connections vol. 1-6 (2007-2009) [MP3
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_699607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699607.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Art of Skullduggery (Mixed by Greg Downey & Stoneface & Terminal) (2019
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699506.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Aly & Fila - Future Sound Of Egypt 495 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698968.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698807.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698801.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Hazem Beltagui - VIVID (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698800.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Bicep - Rain (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698799.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Summer Mix 2017: Marbella Dance Music Vol.01 (Mixed By Deep Dreamer) (2017)
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698798.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Space Trance Music (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698718.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Instrumental Club Hits (2018) [MP3|320 Kbps] <Dance, Club-House, Electro-Ho
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698512.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Alex Cortiz - Oddities (2016) [MP3|320 кб/с] <Downtempo, Electronic, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698464.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Igor Dyachenko - Erased Stills (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697865.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2019) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697863.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Moss Covered Technology - Southern Points (2019) [FLAC|Lossless|tracks + .cue] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697779.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Aerobic Dance Latino 2019 [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697777.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - ASOT 900 Pre Party @ Poema RAW, Utrecht (2019-02-23) [MP3|256-320 Kbps] <Tr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697769.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ U96 - Out Of Wilhelmsburg (2007) Centaurus [FLAC|Lossless|tracks + .cue] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697764.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697762.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ StereOMantra - Present (2020) OM Mantra Records [FLAC 2.0|44.1/24|tracks|WEB-DL]
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697703.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Best Of Uplifting Trance (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697651.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Michael Oakley - Introspect (2019) NRW Records [FLAC|Lossless|WEB-DL|tracks] <El
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697641.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Aivo - Infinite Path (2022) [MP3|320 Kbps] <Synthwave, Sovietwave, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697525.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Aivo - Infinite Path (2022) [MP3|320 Kbps] <Synthwave, Sovietwave, Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:008853D0B09D074D16778B1783D3ADAC29186FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534146   (697524) от 28.02.2022
-
-Lo-Fi Electronic - The Best Of (2020) [MP3|320 Kbps] <Synthpop, Ambient>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunar Module ('78 Mix) (4:43)
-02. Void Vision (6:05)
-03. Into Oblivion (6:09)
-04. Rocket Man (6:17)(   Читать дальше...   )Жанр: Synthpop, AmbientПродолжительность: 01:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011F37A2132A195349D02F7013338AA85F45031A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186895   (697331) от 16.08.2020
-
-Zodiac - Лучшее (Золотая Коллекция) (2008) 2CD [FLAC|Lossless|image + .cue] <Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697331.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Зодиак
-02. Пасифик
-03. Провинциальное диско(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF51EB3B55A75EAD7912B3040EAD4E3912400F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 1255230   (363267) от 18.10.2018
-
-Майкл Мосли | Твой кишечник не дурак. Революция тела изнутри (2018) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363267.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора бестселлеров New York Times «Быстрая диета 5:2» и «Мой ответ: нет, диабет», доктора Майкла Мосли. Шокирующе-откровенный взгляд на функционирование кишечника – дом нашего «второго мозга». Доктор Мосли предлагает читателю ознакомиться с простой лечебной программой, эффективным способом настроить наш кишечник, а также узнать о нем всю необходимую информацию. (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB492962E1FFDA492DABA72B58C1E0E79385DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255488   (363266) от 18.10.2018
-
-Р.Ю. Царев | Алгоритмы и структуры данных (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены структуры и алгоритмы, которые являются основой современной методологии разработки программ. Изложено детальное описание и анализ основных алгоритмов обработки данных: сортировка данных, поиск образа в строке, алгоритмы обработки графов.
-Предназначено для бакалавров направления 231000.62 «Программная инженерия» и преподавателей дисциплины «Алгоритмы и (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF75D21726EBCDBA0A9C35F1449367E1D7CF29CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177602   (363172) от 25.10.2017
-
-В.А. Кудрявцев (ред.) | Основы эксплуатационной работы железных дорог (2005) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы управления перевозками на железнодорожном транспорте. Даны понятия устройства и технологии работы станций и узлов, принципов организации вагонопотоков, графика движения, плана формирования поездов, пропускной способности участков, технического нормирования и других форм управления движениемЖанр: ТранспортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7E408E766C725B8B72B9C58D50877507A2FEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177589   (363156) от 25.10.2017
-
-А.И. Михайличенко (ред.) | Основы проектирования химических производств (2005) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные принципы и этапы архитектурно-строительного и технологического проектирования химических производств с разработкой технологической схемы, материальными и тепловыми расчетами, механическим расчетом и подбором стандартного оборудования. Учебник подготовлен на химико-технологическом факультете Томского политехнического университета и в Российском (   Читать дальше...   )Жанр: Производство, химияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DD0BEA1F085EFCA2B63474D63B2E05F3BC08CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328446   (363144) от 30.09.2019
-
-В.А. Фалалеева | Компьютерная анимация Macromedia Flash (2007) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие посвящено популярной программе для создания компьютерной анимации Macromedia Flash. С помощью этого пособия вы пройдете путь от простой анимации до разработки Flash игры. Учебное пособие по курсу компьютерной анимации включает в себя полезный теоретический материал, изложенный в увлекательной форме, и интересные практические задания, которые сопровождаются (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89A296D3CA9C26CFDBB685C145E9DE9DFD3723C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951270   (363085) от 29.10.2015
 
 П. Л. Лавров | Философия и социология. Избранные произведения [2 тома] (1965) [DJVU, PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363085.jpg" />
 </div>
 
 
@@ -165,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363017.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363005.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362995.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362993.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362981.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362963.jpg" />
 </div>
 
 
@@ -323,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362954.jpg" />
 </div>
 
 
@@ -349,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362947.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362829.jpg" />
 </div>
 
 
@@ -402,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362810.jpg" />
 </div>
 
 
@@ -428,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362715.jpg" />
 </div>
 
 
@@ -454,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362696.jpg" />
 </div>
 
 
@@ -481,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362688.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ LG Electronics | Мониторы LG. Схемы и сервис-мануалы 
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362567.jpg" />
 </div>
 
 
@@ -536,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362426.jpg" />
 </div>
 
 
@@ -563,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362192.jpg" />
 </div>
 
 
@@ -589,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361952.jpg" />
 </div>
 
 
@@ -615,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361943.jpg" />
 </div>
 
 
@@ -641,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361940.jpg" />
 </div>
 
 
@@ -667,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361877.jpg" />
 </div>
 
 
@@ -680,6 +549,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C1C306D5ACAC68CF900384DE0A2B2D70C3542A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071120   (361874) от 09.11.2016
+
+Владимир Комин | Нестор Махно: мифы и реальность (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361874.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: В книге делается попытка заполнить один из пробелов в освещении гражданской войны, а именно - движения, получившего название махновщины. Центральная фигура авторского повествования - Нестор Махно, чье гипнотическое воздействие на сознание и поведение громадной массы украинского крестьянства оставалось загадкой.Жанр: история, биографии и мемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167FB903CA16CCD35139EDC1D787A00555BBAAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070787   (361873) от 09.11.2016
+
+И. Фишер | Покупательная сила денег: ее определение и отношение к кредиту, проценту и кризисам (1926) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целью этой книги является установление принципов, определяющих покупательную силу денег, и приложение этих принципов к изучению ее исторических изменений, в частности недавнего изменения «стоимости жизни», вызвавшего широкие споры во всем мире.
+
+Если защищаемые здесь принципы правильны, то покупательная сила денег — или соответствующая ей обратная величина — уровень (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6520802D8BD9A700B97C8DB859115B0150F359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071005   (361820) от 09.11.2016
+
+Э. Л. Торндайк и др. | Психология обучения взрослых (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга американского психолога Э. Торндайка и его сотрудников безусловно не ответит на всю совокупность тех вопросов, которые поставлены нашей педагогической практикой. Но то обстоятельство, что мы имеем в настоящей работе с тщательно проведенным экспериментальным исследованием, должно привлечь к ней внимание каждого, работающего в области обучения взрослых. Э. Торндайк (   Читать дальше...   )Жанр: История, психология, педагогика, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75C491FB4778618C483321EED8C94108E212175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071124   (361809) от 09.11.2016
+
+Н. Храмцовский | История и описание Нижнего Новгорода (2005) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361809.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Краткий очерк истории и описание Нижнего Новгорода» Нико­лая Храмцовского впервые был издан в 1857 (I часть) и 1859 (II часть) годах. Это уникальный памятник нижегородского краеведения. Знаток прошлого Нижегородской земли, краевед и историк Н. И. Храмцов­ский систематизировал и свел воедино богатейшую информацию, по крупицам добытую им из огромного количества архивных (   Читать дальше...   )Жанр: Исторический очеркФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300C0D7D7AC2914AE390E8C8ABE3667B070D2832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070433   (361802) от 09.11.2016
+
+Rob Mannion / Роб Манион | Out of thin air / Из ниоткуда (2007) [PDF] [En]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка статей по антеннах – практика постройки антенн высокой частоты (HF) и очень высоких частот (VHF/UHF) антенн и теории антенн.Жанр: КВ и УКВ радиосвязьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B5FB27BB0782CE2AC75280BC5AF09C794034BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

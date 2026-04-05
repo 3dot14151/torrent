@@ -1,3 +1,55 @@
+###  Публикация: 1016948   (769425) от 15.05.2016
+
+Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переиздание «метроидвании» Shadow Complex, оригинальная версия которой появилась на Xbox 360 в 2009 году. События одной из самых зрелищных игр своего жанра разворачиваются во вселенной «имперской» дилогии романов Орсона Скотта Карда, где США скатывается в новую гражданскую войну.Тип издания: RepackРазработчик: ChAIR EntertainmentЖанр: Arcade (Platform), 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D930F7EC0631B59F1D607285BF4734C61178F0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201095   (768562) от 18.05.2010
+
+UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Strategy (Real-time / Tactical) / 3D
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123934   (768226) от 26.01.2019
 
 Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26ND) License GOG
@@ -6,7 +58,7 @@ Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768226.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767716.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766730.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's Americ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765991.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765987.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764148.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763123.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762462.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761032.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ The Mims Beginning (2016) [En] (1.0.0.280) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757076.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756434.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_754058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754058.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Praetorians (2003) [En] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747477.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747473.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747391.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ UAZ Racing 4x4 / Полный привод: УАЗ 4x4 [Ru] (L) 2006
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_747160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747160.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742018.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Star Trek: Armada (2000) [En] (1.2_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742007.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Star Trek: Armada II (2001) [En] (1.1_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742006.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739937.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738622.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Apocalypse: Party's Over (2016) [En/Pt] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730279.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726132.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721942.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8CF760C915B4937F3A5081E7C620A81C5AB29C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129618   (719992) от 29.04.2017
-
-Serious Sam: The Second Encounter / Serious Sam. Второе пришествие (2002) [En] (1.07) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэм возвращается, чтобы снова сразиться с заклятым врагом Менталом. Отыскав космический корабль сирианцев в Древнем Египте, Сэм Стоун угнал его и начал преследовать Ментала. Но, к сожалению, звездолет потерпел крушение в горах Южной Америки. Теперь, окруженный еще более могущественной армией Ментала, Сэм пытается проложить себе дорогу к его крепости, чтобы раз и (   Читать дальше...   )Тип издания: LicenseРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5E6916CF119FAD13C2777B21A67880CB80A7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130504   (714037) от 02.05.2017
-
-HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Repack West4it
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Вэйд, один из главных "Охотников за Головами" организации ACN, попал в серьезный переплет. После побега из таинственной лаборатории он очнулся в больнице... с амнезией. Старая приятельница Джека, Анжела Стерн, дочь недавно убитого основателя ACN Кристофера Стерна, обращается к нему за помощью. Она хочет выследить убийц своего отца.Тип издания: RepackРазработчик: AmuzeЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6AF9182E2767ECB9F1D7258F20BEEFAD2A3AF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

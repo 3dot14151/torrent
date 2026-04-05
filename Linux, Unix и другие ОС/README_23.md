@@ -1,29 +1,3 @@
-###  Публикация: 959180   (316608) от 24.11.2015
-
-KNOPPIX 7.6 [x32, x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316608.jpg" />
-</div>
-
-
-###  Подробнее
-
-После более чем годичного перерыва Клаус Кноппер (Klaus Knopper) представил выпуск KNOPPIX 7.6, исторически одного из первых дистрибутивов, поддерживающих работу в Live-режиме. Дистрибутив построен на основе оригинального набора загрузочных скриптов и включает в себя пакеты, импортированные из Debian Jessie, со вставками из веток Debian "testing" и "unstable". (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8C34360A7FEC226E279411B07B9DF9093CCB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959756   (314120) от 25.11.2015
 
 Cinelerra 5.0 [i686, x86_64] (txz)
@@ -32,7 +6,7 @@ Cinelerra 5.0 [i686, x86_64] (txz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314120.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ LMDE 3 "Cindy" MATE Edition by Lazarus [32-bit, 64-bit] (2xDVD) [Авторск�
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311007.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Mattermost Server 5.16.0 [x64] (Бинарные файлы)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311006.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Adobe Dreamweaver CC 13.1 build 6443 [MULTi / Русский] [x86, amd64] (wine
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310824.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ CentOS 7.7 (1908) [i386] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309111.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ CentOS 7.7 (1908) [x86-64] 5xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308935.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ Fedora 25 [i386] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306321.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305904.jpg" />
 </div>
 
 
@@ -249,7 +223,7 @@ Red Hat Enterprise Linux 7.9
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305888.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ Red Hat Enterprise Linux 8.3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305727.jpg" />
 </div>
 
 
@@ -301,7 +275,7 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [i686] 9
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304851.jpg" />
 </div>
 
 
@@ -331,7 +305,7 @@ Fedora 27 Live spins [x86-64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304773.jpg" />
 </div>
 
 
@@ -357,7 +331,7 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304324.jpg" />
 </div>
 
 
@@ -387,7 +361,7 @@ Dr.Web Workstations 6.0.2.0 [x86, x86-64] (*.run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299544.jpg" />
 </div>
 
 
@@ -416,7 +390,7 @@ Skype 4.3.0.37 [i386, amd64] (deb,rpm,tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298525.jpg" />
 </div>
 
 
@@ -444,7 +418,7 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298514.jpg" />
 </div>
 
 
@@ -472,7 +446,7 @@ Q4OS 1.4.4 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298460.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298413.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ CentOS 7.9 (209) [x86-64, i386] 5xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297189.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Ubuntu BusinessPack 16.04 (август 2019) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296485.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Ubuntu BusinessPack 18.04 (август 2019) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296468.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Mageia 5.1 Cauldron [i586] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295699.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Mageia 5.1 Cauldron [x86-64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295586.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295400.jpg" />
 </div>
 
 
@@ -690,7 +664,7 @@ Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293797.jpg" />
 </div>
 
 
@@ -703,6 +677,32 @@ Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFED349D8C3B76C4FD335F47DE3062C1B4DF64A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262785   (290931) от 17.11.2018
+
+Arco Linux 18.11.2 [x86_x64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arco Linux - это дистрибутив, сочетающий в себе мощь Arch Linux, пользовательского репозитория AUR и собственных наработок авторов Arcolinux. Данная версия включает в себя окружения рабочего стола Xfce, Openbox and i3, установщик Calamares и различный софт, темы и иконки, устанавливаемые "из коробки". Остальное можно доустановить из терминала или используя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23B590375CE92F3350D40CBAD8C4E26FC620170
 ```
 
 https://mybot314.ru/tekegram_catalog/

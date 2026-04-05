@@ -1,3 +1,107 @@
+###  Публикация: 1852425   (1056033) от 07.02.2026
+
+Mary’s recipes: рецепты, меню v7.2.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 900 полезных и вкусных рецептов, план питания и список покупок в одном приложении. Быстрые и простые рецепты на каждый день. Готовое блюдо на завтрак, обед или ужин всего за 25 минут! Приложение Mary’s Recipes разработано нутрициологом и экспертом по детскому питанию Марией Кардаковой. Все рецепты тщательно подбираются и корректируются, чтобы ваша семья питалась (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 06.02.2026Разработчик: Mary's RecipesПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7FD8D9AF9CE8061BE84D1F4B92088B807DAFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852424   (1056032) от 07.02.2026
+
+MiX Camera 9.2 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056032.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiX Camera вдохновлена ​​камерой Mi, но добавляет множество полезных функций🔥, таких как улучшение внешности, коллажи, фильтры, размытие, спираль, удаление фона, фото для удостоверения личности и т.д. С MiX Camera вы получите множество фантастических функций камеры, которые есть в камере Mi, а также множество новых и крутых функций💖.Тип издания: ProРелиз состоялся: 05.02.2026Разработчик: Beauty Apps StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Руский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B883E2237DA23CE435E5A3D5215DC9319E0664D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852432   (1056025) от 07.02.2026
+
+Eatr・Здоровые рецепты v2.49.0 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Eatr – идеальный помощник для всех, от новичков на кухне до опытных шеф-поваров! Наше приложение с искусственным интеллектом создано, чтобы провести вас через кулинарное приключение, подобранное специально для вас. Неважно, ограничены ли вы во времени или хотите неспешно насладиться готовкой, Eatr поможет вам.Тип издания: ModРелиз состоялся: 07.02.2026Разработчик: Eatr - MealPlansПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FFB991B536225AF7569C528CF09C395BD9197A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852442   (1056013) от 07.02.2026
+
+Audio Editor Pro / Аудио редактор: обрезка музыки v2.01.44.0201 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди множества голосовых редакторов и музыкальных монтажеров 🔥 Audio Editor Pro - Free Music Editor, Sound Editor 🔥 - это редактор песен и приложение для монтажа музыки! Это звуковой редактор, который может помочь вам редактировать музыку или создавать песни. Вы можете использовать его как приложение для создания песен и голосового редактора, а так (   Читать дальше...   )Тип издания: ModРелиз состоялся: 06.02.2026Разработчик: Dairy App & Notes & Audio Editor & Voice RecorderПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DB068F0E25C37F5C62380F5DC766231267E890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852428   (1056010) от 07.02.2026
 
 AI Photo Editor Pro - Polish v1.721.248 Mod by Mixroot [Ru/Multi]
@@ -6,7 +110,7 @@ AI Photo Editor Pro - Polish v1.721.248 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056010.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056009.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055998.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ Remini / Улучшение Фото v3.7.1263.202519097 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055997.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055994.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055993.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055992.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055984.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Grok - ИИ ассистент v1.1.18-release.18 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055983.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Smart AudioBook Player Pro v11.6.6 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055947.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Smart AudioBook Player Pro v11.6.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055946.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ NokoPrint v5.26.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055929.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Magic Eraser / Магический ластик v2.25.14 Mod by Maximoff⁠ [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055926.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ KineMaster - Video Editor & Maker v8.0.14.36002.GP Mod by youarefinished [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055925.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ NewPipe v0.28.3 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055746.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055558.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Exo Player - Видеоплеер и IPTV v2.1.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055557.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ SD Card Test Pro v3.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055556.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055555.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ Win 11 Launcher Pro v5.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055553.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ Vanced Tube v5.5.80.378 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055547.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055546.jpg" />
 </div>
 
 
@@ -569,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E016467AFCBF038A349271ED40BD48EE93B14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851413   (1055474) от 03.02.2026
-
-Plus Messenger (Telegram+)  v12.3.1.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 29.01.2026Разработчик: rafalenseПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260B9FA7507967E40D3876E2AA8FC89AC28C40D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851396   (1055210) от 01.02.2026
-
-Vanced Tube v5.5.80.363 Mod by TRUMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 30.01.2026Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E776200E4492ADDEB47494F37A7DD0E4FBA54E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851409   (1055209) от 01.02.2026
-
-Remini / Улучшение Фото v3.7.1260.202519018 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите ваши старые, смазанные, размытые или поврежденные фото в фотографии высокой четкости одним касанием! Remini использует современный искусственный интеллект для восстановления четкости и улучшения любого фото. Подарите новую жизнь старым воспоминания в потрясающем, кристально чистом HD качестве. На сегодня мы обновили более 100 миллионов фотографий. Фоторедактор (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 31.01.2026Разработчик: Splice Video EditorПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39AB57BFDB5C31CE2FB212C11C723F710E90BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851336   (1054986) от 01.02.2026
-
-PixelLab Pro - Text on pictures 2.1.9 Mod by Alex.Strannik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный фоторедактор, основной целью использования которого является создание логотипов и рекламных слоганов. Наложения, фильтры, работа со слоями. Обширная база готовых элементов и шаблонов.
-PixelLab - отличный фоторедактор, в котором все функции и возможности крутятся преимущественно вокруг наложения 3D текста на исходные файлы. В распоряжении пользователей большое (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 30.01.2026Разработчик: App HoldingsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13D64CF2BE61DD20F1D3F55FF170603B5FA3F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

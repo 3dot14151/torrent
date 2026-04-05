@@ -1,181 +1,3 @@
-###  Публикация: 934176   (503272) от 04.09.2015
-
-a-ha - Cast In Steel (Deluxe Edition) (2015) 2CD [FLAC|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503272.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 00:47:11
-CD2 - 00:26:47Треклист CD1:
-01. Cast In Steel
-02. Under The Makeup
-03. The Wake(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC93295853AE16815FAD714C4C44BF5031C5A6A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379291   (503111) от 24.08.2011
-
-Jessie J - Who You Are (2011) Deluxe Edition [MP3|320 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FC0EC728BF2F654620961BC3EF12B656EEEF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564017   (502599) от 16.07.2022
-
-Fun Fun - The 12'' Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Happy Station (Scratch Extended Version)
-02 Color My Love (Extended Mix)
-03 Give Me Your Love (Extended Version)
-04 Living In Japan (David Phillips Remix)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29717F25B51E9F55039A39EECF0626F06A867FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934472   (502316) от 05.09.2015
-
-VA - The Greatest Hits / Singer-Songwriter (2015) 2CD[FLAC|image + .cue]<Pop, Rock, Singer-Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dotan - Hungry [3:29]
-02. Gavin James - The Book Of Love [3:09]
-03. James Bay - Hold Back The River [3:59]
-04. Ben Howard - The Fear [4:18](   Читать дальше...   )Жанр: Pop, Rock, Singer-SongwriterПродолжительность: 02:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4406A3538D05EA2963E87DB91C6E9E98764DA51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541194   (502192) от 30.08.2012
-
-V.A. - Королева красоты (Золотой Фонд) (2000) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В.Макаров - Последняя электричка
-02. Вок. Квартет "Советская песня" - Синий лен
-03. Ирма Сохадзе - Оранжевая песня
-04. Мария Пахоменко - Качает, качает
-05. Эдита Пьеха - Наш сосед
-06. Тамара Миансарова - Черный кот
-07. Муслим Магомаев - Королева красоты
-08. Вок. Квартет "Аккорд" - Назло
-09. Ирма Сохадзе - Топ-топ
-10. Аида Ведищева - Песенка о медведях(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934352   (502056) от 05.09.2015
-
-A-Ha - Cast In Steel (2015) 2CD [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of The Affair
-02. Mother Nature Goes To Heaven
-03. Nothing Is Keeping You Here
-04. Shadowside (Demo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEA118B4006F4F6F0127D95C1196DD6F1F305BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564175   (501667) от 17.07.2022
 
 Martina - Disco 'Round The World (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -184,7 +6,7 @@ Martina - Disco 'Round The World (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501667.jpg" />
 </div>
 
 
@@ -213,7 +35,7 @@ VA - Best Of Comeback United (2004) 2CD [FLAC|Lossless]<Europop, Pop Rock, Euro 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501238.jpg" />
 </div>
 
 
@@ -248,7 +70,7 @@ Umberto Tozzi - Yesterday Today  1976-2012  (2012) 2CD [FLAC|Lossless]<Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500977.jpg" />
 </div>
 
 
@@ -283,7 +105,7 @@ George Michael - White Light (CD Single) (2012) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500966.jpg" />
 </div>
 
 
@@ -312,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500825.jpg" />
 </div>
 
 
@@ -347,7 +169,7 @@ VA - Pop Icons [The Mail On Sunday] (2003) [FLAC|Lossless]<Pop, Europop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500331.jpg" />
 </div>
 
 
@@ -382,7 +204,7 @@ ABBA - Singles Collection 1972 - 1982 (1999) Box Set 27CD [MP3|320 Kbps] <Pop, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500280.jpg" />
 </div>
 
 
@@ -414,7 +236,7 @@ VA - Disco Discharge - Cruising The Beats (2011) 2CD [FLAC|Lossless]<Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500221.jpg" />
 </div>
 
 
@@ -449,7 +271,7 @@ VA - Compact Disc Club - Dreams (1997) 4CD BoxSet[FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500084.jpg" />
 </div>
 
 
@@ -484,7 +306,7 @@ Patchwork - Hair Of The Dog (1978) LP [MP3|320 Kbps] <Space Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499671.jpg" />
 </div>
 
 
@@ -513,7 +335,7 @@ Phildel - The Disappearance Of The Girl (2013) [OGG| 397-475 кб/с]<Alternativ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499461.jpg" />
 </div>
 
 
@@ -542,7 +364,7 @@ VA - Driving In My Car: Ultimate Car Anthems (2019) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499435.jpg" />
 </div>
 
 
@@ -571,7 +393,7 @@ Prince - HITnRUN Phase One (2015) [MP3|320 кб/с]<Pop, Soul, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499408.jpg" />
 </div>
 
 
@@ -600,7 +422,7 @@ Silvetti - Spring Rain  (2006) [FLAC|Lossless]<Disco,Funk,Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499169.jpg" />
 </div>
 
 
@@ -634,7 +456,7 @@ VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499115.jpg" />
 </div>
 
 
@@ -669,7 +491,7 @@ VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499108.jpg" />
 </div>
 
 
@@ -704,7 +526,7 @@ VA - Pop & Rock Klub80 (2007) 2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499053.jpg" />
 </div>
 
 
@@ -739,7 +561,7 @@ Lenka - Lenka (2008) [MP3|320 kbps]<Pop, Easy-listening>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498602.jpg" />
 </div>
 
 
@@ -774,7 +596,7 @@ King Sporty - Mr. Rhythm (1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498577.jpg" />
 </div>
 
 
@@ -803,7 +625,7 @@ Adriano Celentano - World Name (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498501.jpg" />
 </div>
 
 
@@ -817,6 +639,204 @@ Adriano Celentano - World Name (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB71890D3499C2C7EC48DF60D4B684B686E6984A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935727   (498192) от 09.09.2015
+
+Adele - Greatest Hits (2012) [FLAC|image + .cue]<Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyfall  [4:45]
+ 02. Rolling In The Deep  [3:49]
+ 03. Ill Be Waiting  [4:02]
+ 04. Chasing Pavements  [3:31](   Читать дальше...   )Жанр: Soul, PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE45EF1EC71AF22C9D91BC68D6B46B6104D420A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540999   (498151) от 03.09.2012
+
+Bandolero - Reference 80 (2011) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498151.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paris Latino (Version 45T) (4:01)
+2. Cocoloco (Version 45T) (3:45)
+3. Bagatelle (Version 45T) (3:56)
+4. Reves noirs (Version 45T) (4:05)
+5. Conquistador (Version 45T) (4:44)
+6. El Bandido Caballero (4:12)
+7. Senorita Vargas (3:17)
+8. The Matador (English Cocoloco 45T)
+9. Paris Latino (Hot US-Mix)
+10. The Matador (English Cocoloco Maxi)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:75:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903E89B327ED6754470593BA12B283C90763CF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381505   (498069) от 29.08.2011
+
+Joy - Enjoy (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch By Touch
+02. Love Is All Around
+03. Valerie
+04. Far Away
+05. Sunshine Boogie
+06. 10.000 Angels
+07. Obsession
+08. Shine
+09. Back To The 80's
+10. Heaven Must Be Missing An Angel Tonight(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381565   (498065) от 29.08.2011
+
+F.R. David - Reference 80 (2011) [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Words (Original Unreleased Full Mix)
+02. Sahara Night
+03. Pick Up The Phone (Original)
+04. Don't Go
+05. I Need You (Original 7")
+06. Music
+07. Dream Away
+08. This Time I Have To Win
+09. Take Me Back
+10. Sahara Night (Club)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235675   (497828) от 12.09.2010
+
+Лев Барашков - Золотая коллекция ретро (2005) [MP3|320 kbps]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Нейлоновое сердце
+02 - Ребята 70-й широты
+03 - Не потеряй
+04 - Счастливый день
+05 - Берёзовый сок
+06 - Главное, ребята
+07 - Трус не играет в хоккей
+08 - Раздумье
+09 - Мгновения
+10 - Острова разлуки(   Читать дальше...)Жанр: Ретро
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318044   (497750) от 04.08.2019
+
+Евгения Власова - 2 Альбома (2003-2008) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На краю небес
+02. На двоих сердце одно
+03. Лавина любви
+04. Нет, я не боюсь!(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6833167D7F56F80B9C4BC64B915428B9201FC004
 ```
 
 https://mybot314.ru/tekegram_catalog/

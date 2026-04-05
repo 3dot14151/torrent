@@ -1,3 +1,109 @@
+###  Публикация: 1561388   (512408) от 07.07.2022
+
+Shuttle+ Music Player 2.0.17 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shuttle+ Music Player – это простое, удобное и минималистично, но в то же время достаточно приложение для проигрывания музыки на устройстве Android. Настоящий меломан должен наслаждаться музыкой, а не пестрыми плеерами. В этом приложении прекрасно все: и лаконичный дизайн, и удобная сортировка музыки, и красивые темы. Создать плейлист своей мечты стало проще простого. (   Читать дальше...   )Тип издания: Plus (Paid)Релиз состоялся: 13.07.2020Разработчик: SimpleCityПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0617E20086FBF9C29296ACA1FCE1CA634A4FF994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562169   (512406) от 07.07.2022
+
+MarineTraffic v4.0.31 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marine Traffic отображает в реальном времени позиции судов и яхт по всему миру.
+Подключаясь к крупнейшей сети приемников АИС, приложение охватывает большинство крупных портов и судоходных маршрутов.Тип издания: Пиратка (STARTER PLAN)Релиз состоялся: 28 июн. 2022 гРазработчик: MarineTrafficПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09518A1FB92875054FC1962C6A386F6DDB0D9EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561902   (512368) от 07.07.2022
+
+KReader PRO v3.4.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512368.jpg" />
+</div>
+
+
+###  Подробнее
+
+KReader - это простое в использовании и легко настраиваемое приложение для чтения, которое поддерживает большинство популярных форматов документов, в том числе: PDF, EPUB, EPUB3, MOBI, DjVu, FB2, FB2.zip, TXT, RTF, AZW, AZW3, CBR, CBZ, HTML, XPS, MHT и многое другое. ‎
+‎Благодаря простому, но мощному интерфейсу, Kindle Book делает чтение документов настоящим (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 9 февр. 2022 г.Разработчик: HK-DeveloperПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4289E4D42BBFB7A5C9B9C995ECD281B00C7FBD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562040   (512357) от 07.07.2022
+
+BlackPlayer Music Player / BlackPlayer EX 20.61 Mod by Balatan, CMAPTOC [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, что бросается в глаза при запуске этого проигрывателя его минималистическое оформление в черно-серых тонах. Кому-то оно может не понравится, а кто-то (например, владельцы смартфонов с AMOLED'ами) будут только в восторге. Так или иначе, судить о плеере только по его внешнему виду нельзя, а с функциональностью у нашего героя все отлично. Он поддерживает все (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 30.09.2021Разработчик: FifthSourceПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8E71034E56C1B47036BE4B569F6E43169430FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562120   (512352) от 07.07.2022
 
 Виджет Bluetooth подключения 3.5.8 Mod by Dymonyxx [Ru/Multi]
@@ -6,7 +112,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512352.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Aman VPN—Secure&Fast VPN Proxy v2.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512238.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Flat Equalizer - Bass Booster 4.2.8 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511480.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Weather Radar Live Tracker PRO v1.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511454.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ Pulsar Music Player Pro 1.11.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511446.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511441.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ CCSWE App Manager (SAMSUNG) 6.2.0 Mod by Giacomino [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508953.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508943.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Multi Parallel - Multiple Accounts & App Clone 1.6.30.1025 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508936.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508881.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ Zoetropic - движущееся фото 2.1.20 Mod by LunaDev [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508880.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ Litchi for DJI Drones 4.22.1-g Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508874.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508871.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ LockMyPix - Шифратор для фото 5.2.3.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508057.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ Edge Gestures 1.10.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507988.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ Volume Panel Pro 21.19 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507976.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ Deliveries - Трекинг Посылок 5.7.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507908.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ PixaMotion - аниматор фото и редактор-синемаграф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507898.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ Termux 0.118 Mod by Идите Лесом + Plugins [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507047.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ Parallel Space - Multi Accounts 4.0.9177 Mod by derrin, KirIif', GuanYinLite [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507043.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ NetShare Pro 1.99 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507037.jpg" />
 </div>
 
 
@@ -556,7 +662,7 @@ Lite RSS Pro 2.5.2 Mod by solokot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506212.jpg" />
 </div>
 
 
@@ -567,110 +673,6 @@ Lite RSS - это простая, быстрая и легкая програм�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80198979ECAE2A8FBEE17BDE22E0ED14E50610AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563144   (506211) от 12.07.2022
-
-AppSales: Скидки и распродажи приложений 12.0 Mod by KirIif' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506211.jpg" />
-</div>
-
-
-###  Подробнее
-
-AppSales: Скидки и распродажи приложений - ещё одно отличное приложение предназначенное помогать пользователям совершать самые выгодные и удачные покупки программ с различных площадок. AppSales важен регион пребывания человека, ведь она так же отслеживает снижения цен и прочие предложения для определённых территорий. Так что лучше не полениться и заполнить всю необходимую (   Читать дальше...   )Тип издания: Premium (Mod)Релиз состоялся: 02.05.2022Разработчик: ts-appsЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FB8E5F2E567C3DB5B403929ED288757A82A63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563505   (504462) от 14.07.2022
-
-Opera GX: Браузер для геймеров 1.5.9 Mod by The_Sem100Dan4ik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная геймерская версия браузера Opera. В ней реализованы уникальные функции, такие как ограничение использования ресурсов ЦП, оперативной памяти и сетевого трафика, помогающие играть и просматривать веб-страницы с максимальным удобством. Уникальный дизайн Opera GX вдохновлен играми и игровым железом. Браузер выполнен в том же стиле, что и браузер (   Читать дальше...   )Тип издания: Lite-ModРелиз состоялся: 21.05.2022Разработчик: OperaЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BC8CF0BFE28B1CA1543BAEBCB9A80E02E3D82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563600   (504364) от 14.07.2022
-
-CastItAll Premium 3.2.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504364.jpg" />
-</div>
-
-
-###  Подробнее
-
-CastItAll Premium - развлекательного свойства приложение, что предлагает пользователям функцию трансляции видеофайлов на различные «умные» устройства, Проект так же поддерживает и качественную потоковую передачу, являясь при этом лишь связующим звеном, для более простого и быстрого подключения и создания сети в случае необходимости. Apple TV, Xbox One, Samsung Smart (   Читать дальше...   )Тип издания: Paid (Куплено в Google Play)Релиз состоялся: 24.01.2022Разработчик: Kaan TasЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630C81B22315888A608811E22C8608B07507DF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933969   (504001) от 03.09.2015
-
-GO SMS Pro v6.32 [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504001.jpg" />
-</div>
-
-
-###  Подробнее
-
-GO SMS Pro — выбор почти 100 миллионов пользователей, лучший вариант для замены стандартного SMS приложения. Принципиально новое приложения для обмена сообщениями — простое, интуитивно понятное, с широкими возможностями персонализации и разными приколами! В GO SMS Pro есть красивые темы, милые наклейки, личный ящик для сообщений, всплывающие окошки, GO chat (для (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 1 сентября 2015 гРазработчик: GO Dev TeamПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F981071F45C7C54CA2C3E92AB58E759FADC9FA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

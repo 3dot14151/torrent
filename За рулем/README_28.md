@@ -1,3 +1,31 @@
+###  Публикация: 1833827   (247795) от 02.11.2025
+
+Первая передача на НТВ. Автомобильная передача (02.11.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покупка с нюансами: как перестраховаться и разглядеть изменения в конструкцию автомобиля б/у до того, как деньги окажутся у продавца?
+ Миг между «желтым» и «красным»: спорное ДТП во время маневра на перекрестке. Почему виновным оказался водитель, поворачивавший налево?
+ В «шишиге» как в квартире: как живется в машине с печкой, санузлом и полным приводом.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF74CE74280F117EC2E47BA491FC98EB63F118F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140756   (247744) от 07.06.2023
 
 Авто S.O.S. / Car S.O.S. (2015) HDTVRip [H.264/1080i-LQ] (сезон 3, серии 1-10 из 10) [AD]
@@ -6,7 +34,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247744.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246216.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246215.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246049.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245919.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245886.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245866.jpg" />
 </div>
 
 
@@ -200,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244890.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244794.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244765.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244680.jpg" />
 </div>
 
 
@@ -305,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243826.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243627.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243582.jpg" />
 </div>
 
 
@@ -390,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243412.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243124.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242832.jpg" />
 </div>
 
 
@@ -469,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242742.jpg" />
 </div>
 
 
@@ -496,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242670.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242495.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242173.jpg" />
 </div>
 
 
@@ -580,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241996.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241600.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241553.jpg" />
 </div>
 
 
@@ -662,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241256.jpg" />
 </div>
 
 
@@ -674,32 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94B9FB51AC5AD081ADBDD5D5FA1A5F5E027DF57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635802   (240998) от 29.05.2023
-
-В погоне за классикой / Chasing Classic Cars (2008-2021) WEB-DLRip [H.264/1080p-LQ] (сезон 1-12) [обновляемая]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_240998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время просмотра программы зрители будут наблюдать за знатоком в области ретро автомобилей, а также за появлением новой жизни старых автомобилей. Их поиском реставрации и продаже на аукционах. Ведущим проекта стал легенда Уэйн Карини.Производство: Essex Television Group IncЖанр: документальный, телепередачаПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:44:00 - 00:22:00 каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BFE46AD11233555356ADB6CB0979E972B08082
 ```
 
 https://mybot314.ru/tekegram_catalog/

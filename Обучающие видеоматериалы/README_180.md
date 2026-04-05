@@ -1,3 +1,30 @@
+###  Публикация: 500123   (258108) от 24.05.2012
+
+Работы по подготовке теплицы к эксплуатации (2011) SATRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовь телегу зимой, а сани летом – так гласит известная пословица. Фильм "Работы по подготовке теплицы к эксплуатации" как раз о подготовке той самой "телеги".
+Теплица на солнечном обогреве в средней полосе России особенно актуальна ранней весной. Осенью полно овощей и фруктов с открытого грунта, а вот весной они в явном дефиците. И ослабленному долгой зимой организму жизненно необходимы свежие витамины. Получить их и поможет теплица.Жанр: Документальный, Обучающая литератураПродолжительность: 00:25:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837797   (257658) от 19.11.2025
 
 Udemy, Richard Wells | Unit Testing and Test Driven Development in Python (2019) PCRec [EN / EN Sub]
@@ -6,7 +33,7 @@ Udemy, Richard Wells | Unit Testing and Test Driven Development in Python (2019)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257658.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257078.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Udemy, Vlad Sateev | Master Viral 3D Short Form Content in Blender (2025) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256836.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256800.jpg" />
 </div>
 
 
@@ -117,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256798.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Eduson Academy, Сергей Журихин, Мария Баженова, Мар
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256724.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ FluidCourse, Владислав Хафизов | Печать на 3D принт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256703.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ OTUS, Алексей Александров | Применение электр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256686.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ ITVDN, Дмитрий Афанасьев | Разработка графичес
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256671.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ Orion Soft | Обучающий курс по ZVirt (2024) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256664.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ excelforum, Олеся Маркович | Мегаформулы (2025) PCRec [R
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256660.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256585.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256396.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ Stepik, Андрей Ловыгин | Планета ЧПУ (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256351.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ ProFinansy, Юлия Ченцова, Ольга Гогаладзе | Тренд�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256349.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ ProFinansy, Юлия Ченцова, Александр Горшенин | Др�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256309.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ ProFinansy, Павел Гогаладзе | Опционы: увеличивае
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256308.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ ProFinansy, Наталья Котовская, Вероника Войнова |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255888.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ Vlad Ten | System Design (2025) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255883.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ Norman Pirollo | Kumiko Course (2019) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255607.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ Udemy, Rick Davidson, Grant Abbitt | Blender Environment Artist: Create 3D World
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255568.jpg" />
 </div>
 
 
@@ -575,7 +602,7 @@ Udemy, Stephen Pearson | Soft Body Physics Simulation Guide in Blender 2.9 (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255536.jpg" />
 </div>
 
 
@@ -601,7 +628,7 @@ DaSchool, Анна Данилова | English start. Интенсив англи
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255499.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ Stepik, Руслан Шишмарев | C# WPF. Создание оконног�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255492.jpg" />
 </div>
 
 
@@ -658,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255464.jpg" />
 </div>
 
 
@@ -672,33 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EDE9D955C112F3707DEE1CD2615FFCAC1D603E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625024   (255391) от 08.04.2023
-
-Виктория Шубина | Авторский курс по нейросети Midjourney (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на обучающую программу по нейросети Midjourney. Если вы тут, значит вы хотите идти в ногу со временем и не хотите упускать новые возможности. Время стремительно меняется и профессия иллюстратора тоже. Не стоит бояться, что искусственный интеллект отнимет вашу работу, стоит с ним подружиться и идти вместе только вперед.
-Пусть искусственный интеллект (   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 03:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99839EAE52A160E09FECBFC12A04CCF2600DC95B
 ```
 
 https://mybot314.ru/tekegram_catalog/

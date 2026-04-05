@@ -1,3 +1,219 @@
+###  Публикация: 1585704   (176352) от 03.12.2022
+
+Периферийные устройства / The Peripheral (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) RuDub
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалёкое будущее. Флинн Фишер живёт в страдающем от безработицы американском захолустье. Её брат Бёртон — бывший морпех — получает пенсию по инвалидности и подрабатывает бета-тестером новой компьютерной игры. Однажды он просит сестру подменить его на сеансе. Так Флинн попадает в новую реальность и знакомится с технологией, неуловимо меняющей человеческое общество.Производство: США / Amazon Studios, Big Indie Pictures, Warner Bros. TelevisionЖанр: фантастикаРежиссер: Винченцо Натали, Олрик РайлиАктеры: Хлоя Грейс Морец, Гари Карр, Джек Рейнор, Луис Хертэм, Крис Кой, Остин Райзинг, Элай Гори, Майлз Барроу, Мелинда Пейдж ХэмилтонПеревод: многоголосый профессиональный (RuDub)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~01:12:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6FC33DCA61F73351C6982B9BAD76C3FF9EEA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666534   (176341) от 08.10.2023
+
+VPN подал в суд на Роскомнадзор за незаконную блокировку в России
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из крупнейших VPN-сервисов HideMy.name подал иск к Роскомнадзору просьбой признать его блокировку незаконной. Пока дело будет на рассмотрении, все VPN-сервисы могут прекратить работу на территории России.Непрозрачные условия
+VPN-сервис HideMy.name (юрлицо — hidemy.network Ltd. из Белиза) подал исковое заявление в Таганский суд Москвы. Истец просит признать незаконной (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666714   (176253) от 08.10.2023
+
+Британский блогер был задержан по обвинению в умышленном распространении… правды
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176253.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вот скажи мне, американец, в чём сила…
+я вот думаю, что сила в правде»Британский блогер был задержан на днях полицией Бристоля по обвинению в умышленном распространении… правды! Редактор подкаста The Real Truth Уоррен Торнтон рассказал, что к нему в дом заявились полицейские и препроводили в участок, где он провёл ночь. Там ему заявили, что он обвиняется в «малинформации» (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179327   (176215) от 08.10.2023
+
+Pink Floyd Solo Projects: Roger Waters, David Gilmour, Richard Wright, Nick Mason, Syd Barrett - 37 albums, 2 Box set, 69CD (1970-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Prog Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176215.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данную раздачу вошли сольные проекты всех участников грандиозной британской прогрессивной рок-группы Pink Floyd - бас-гитариста, композитора, поэта и основного идеолога группы Роджера Уотерса, гитариста, певца и автора песен Сида Барретта, вокалиста, гитариста и концептуального лидера Pink Floyd Дэвида Гилмора, а так-же клавишника Ричарда Райта и бессменного барабанщика (   Читать дальше...   )--------------------------
+
+01. In The Flesh (4:42)
+02. The Happiest Days Of Our Lives (1:37)(   Читать дальше...   )--------------------------
+
+01. In the Flesh? (4:07)
+02. The Thin Ice (3:09)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock, Art Rock, Rock Opera|Продолжительность: 2d 15:46:17 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8749A3356DA3EB8E5A3722C919D9D53FD521CE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154540   (176204) от 08.10.2023
+
+Неизвестные японские саксофоны. - ??? (70-е - 80-е) [image+.cue]<инструментал>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: инструменталПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB50523FB4417F2B84B1DA55B22C19CD3B709F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 119956   (176196) от 08.10.2023
+
+Компьютерщики / The IT Crowd (2006-2008) DVDRip [H.264] (cезоны 1-3, серии 1-18 из 18) Кравец
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала происходит в офисах «Reynholm Industries» — вымышленной британской корпорации, расположенной в центре Лондона. Сюжет строится вокруг проделок команды поддержки информационных технологий, состоящей из трёх человек и находящейся в грязном, запущенном подвале, сильно контрастирующим с блеском современной архитектуры и великолепными видами Лондона, доступных (   Читать дальше...   )Производство: Великобритания, Talkback Thames, Channel 4 Television CorporationЖанр: КомедияРежиссер: Грэм ЛинехэнАктеры: Крис О’Дауд, Ричард Айоади, Кэтрин Паркинсон, Мэтт Берри, Кристофер Моррис, Ноэль Филдинг, Грэм Линехэн, Том Биннс, Льюис Маклауд, Белинда Стюарт-УилсонПеревод: Одноголосый профессиональный - KravecЯзык озвучки: Русский, английскийПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D4E282653B3281867FA329F3D3A0066494024F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429481   (176111) от 06.12.2020
+
+Глубже! (2020) WEBRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой режиссер, мастер психологической глубины, попадает в порно-индустрию и заставляет всех играть по своим правилам. Никогда еще порно не было таким глубоким!Производство: Россия / BUBBLEGUM PRODUCTIONЖанр: КомедияРежиссер: Михаил СегалАктеры: Александр Паль, Любовь Аксёнова, Олег Гаас, Игорь Угольников, Игорь Верник, Семён Трескунов, Екатерина Соколова, Денис Васильев, Сергей Бурунов, Антон ЛапенкоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7486C0FE69FFC3BB847917C465F206E9C87A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428692   (176094) от 06.12.2020
+
+Глубже! (2020) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой режиссер, мастер психологической глубины, попадает в порно-индустрию и заставляет всех играть по своим правилам. Никогда еще порно не было таким глубоким!Производство: Россия / BUBBLEGUM PRODUCTIONЖанр: КомедияРежиссер: Михаил СегалАктеры: Александр Паль, Любовь Аксёнова, Олег Гаас, Игорь Угольников, Игорь Верник, Семён Трескунов, Екатерина Соколова, Денис Васильев, Сергей Бурунов, Антон ЛапенкоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D31676F037C4EB0D6A8A300B17A884B516B15A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594798   (175946) от 04.12.2022
 
 Очередное достижение: 4000 релизов от Georgiiy!!!
@@ -6,7 +222,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175946.jpg" />
 </div>
 
 
@@ -33,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175736.jpg" />
 </div>
 
 
@@ -59,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175587.jpg" />
 </div>
 
 
@@ -87,7 +303,7 @@ Cloudflare и ECH: интернет без ограничений и блоки�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175518.jpg" />
 </div>
 
 
@@ -113,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175514.jpg" />
 </div>
 
 
@@ -139,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175510.jpg" />
 </div>
 
 
@@ -165,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175419.jpg" />
 </div>
 
 
@@ -191,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175392.jpg" />
 </div>
 
 
@@ -217,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175357.jpg" />
 </div>
 
 
@@ -243,7 +459,7 @@ ESET NOD32 Antivirus / Smart Security 8.0.319.1 RePack by KpoJIuK (23.10.2020) [
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175335.jpg" />
 </div>
 
 
@@ -270,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175202.jpg" />
 </div>
 
 
@@ -296,7 +512,7 @@ Snappy Driver Installer Origin R749 / Драйверпаки 22.12.1 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175198.jpg" />
 </div>
 
 
@@ -322,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174883.jpg" />
 </div>
 
 
@@ -349,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174708.jpg" />
 </div>
 
 
@@ -375,7 +591,7 @@ Steganos VPN Online Shield 2.0.11 Revision 13052 (Акция COMSS от 2022.12.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174673.jpg" />
 </div>
 
 
@@ -401,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174661.jpg" />
 </div>
 
 
@@ -427,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174650.jpg" />
 </div>
 
 
@@ -453,7 +669,7 @@ Adobe Premiere Pro 2020 14.7.0.23 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174627.jpg" />
 </div>
 
 
@@ -464,219 +680,6 @@ Adobe Premiere Pro CC 2020 - профессиональная программа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:115EA5CC3CB5AF67BAAEDC0EB96D8F6C6B867956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428835   (174623) от 08.12.2020
-
-Windows 10 Pro 20H2 b19042.631 x64 ru by SanLex (edition 2020-12-05) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинал образе Windows_10_Pro_business_editions_20h2_Russian_x64 для более приватного / комфортного пользования. Отключены нежелательные службы, телеметрия, рекламные модули и всё что влияет на приватность (в пределах возможного). В остальном ничего лишнего не добавлялось как только убавлялось / отключалось / изолировалось.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE349214C70B939524567ADD33CFB96967767A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430131   (174615) от 08.12.2020
-
-Adobe Photoshop 2021 22.1.0.94 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2021 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEDD9ED6A804843787F42EF0DB3B96081DF16ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595769   (174361) от 07.12.2022
-
-Очередное достижение: 2000 релизов от vitolinform!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_174361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 2000 релизов от vitolinform!!!Уважаемые одноклубники, рада сообщить Вам о возможности поздравить нашего товарища с преодолением рубежа в 2000 релизов! Так держать!
-От всей души поздравляем
-vitolinform(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667701   (174297) от 11.10.2023
-
-Владелец компании заменил всех работников ИИ-ботом: «Он в 100 раз умнее и в 100 раз дешевле»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индийский стартап Duukan летом 2023 г. уволил 90% персонала, заменив людей на ИИ, а теперь лишил работы оставшихся сотрудников. Это колл-центр, и отныне на все вопросы его клиентов отвечает робот. Владелец компании заявил, что ИИ в 100 раз умнее и во столько же раз дешевле живых сотрудников, к тому же работает он намного быстрее и эффективнее.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595600   (174245) от 07.12.2022
-
-История новогодних блюд: как оливье стал первым среди равных и почему селёдка носит шубу?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_174245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как ни крути, новогодний стол в России — традиция особая, и у каждой семьи есть свои любимые рецепты. Но есть и такие блюда, чья история насчитывает не одну сотню лет, и их готовят в каждом доме в конце декабря. Откуда же пришли наши любимые оливье, селёдка под шубой и ещё несколько новогодних блюд рассказываем в статье.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657104   (174222) от 11.10.2023
-
-Starfield (2023) [Multi] (1.7.36.0/dlc) Scene Rune [Premium Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starfield - первая более чем за 25 лет новая игровая вселенная от Bethesda Game Studios, авторов The Elder Scrolls V: Skyrim и Fallout 4. В этой космической ролевой игре вы сможете создать любого персонажа и исследовать вселенную так, как вам этого хочется. Раскройте величайшую тайну человечества. В 2330 году люди осваивают планеты за пределами Солнечной системы. (   Читать дальше...   )Тип издания: SceneРазработчик: Bethesda Game StudiosЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04478B65FE9F4CFBCF35F5BB71A355EDABFC8B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585477   (174189) от 07.12.2022
-
-Периферийные устройства / The Peripheral (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) LostFilm, AlexFilm, HDRezka Studio, TVShows
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалёкое будущее. Флинн Фишер живёт в страдающем от безработицы американском захолустье. Её брат Бёртон — бывший морпех — получает пенсию по инвалидности и подрабатывает бета-тестером новой компьютерной игры. Однажды он просит сестру подменить его на сеансе. Так Флинн попадает в новую реальность и знакомится с технологией, неуловимо меняющей человеческое общество.Производство: США / Amazon Studios, Big Indie Pictures, Kilter Films, Warner Bros. TelevisionЖанр: фантастикаРежиссер: Винченцо Натали, Олрик РайлиАктеры: Хлоя Грейс Морец, Гари Карр, Джек Рейнор, Луис Хертэм, Крис Кой, Остин Райзинг, Элай Гори, Майлз Барроу, Мелинда Пейдж ХэмилтонПеревод: Многоголосый профессиональный (LostFilm, AlexFilm, HDRezka Studio, TVShows)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (full, SDH)Продолжительность: ~01:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563E9FEC95913B3E2185EA0290E89C698198389B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363945   (174186) от 07.12.2022
-
-Фильмография Луи де Фюнес / Louis de Funes Filmography (1964-1981) SATRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмография Луи де Фюнеса (1964-1981)
-Louis de Funes Filmography (1964-1981)Дата рождения: 31 июля 1914 года
-Дата смерти: 27 января 1983 года(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759319A0143024D21EB013854F113415580AC881
 ```
 
 https://mybot314.ru/tekegram_catalog/

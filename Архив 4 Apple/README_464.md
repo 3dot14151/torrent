@@ -6,7 +6,7 @@ Letter Templates for Pages 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290415.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Shredo 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290393.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Watts 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290324.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ PDF Expert 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290321.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Ink2Go 1.7.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290037.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Adobe Audition CC 2017 (10.0.1) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289955.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Cisdem Data Recovery 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289915.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ iStatistica Pro 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289890.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Affinity Publisher Beta 1.8.0.499 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289888.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ QLab Pro 4 v4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289887.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Cisdem Document Reader 4 v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289886.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ FastScripts 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289885.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ iFinance 4 v 4.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289884.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Cisdem PDFPasswordRemover 3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289883.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cisdem PDFCompressor 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289880.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tagr 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289879.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ TextSoap 8.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289823.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Serial Box 11.2019 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289750.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ iStatistica Pro 1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289748.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Alfred 4 Powerpack 4.0.6 (1123) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289747.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ iSkysoft Video Converter Ultimate 11.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289739.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ KeyKey 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289669.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NeoOffice 2017.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289658.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe After Effects CC 2017 (14.0.1) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289645.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Red Giant Magic Bullet Suite 13.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289636.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Capture One Pro 12.0.0b4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289606.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Overdrive - Electric Overdrive (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695110.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Who's Who - Who's Who (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695102.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jeanne Napoli - Jeanne (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694266.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kleeer - Tonight: Greatest Hits (2019) [MP3|320 Kbps] <Disco, Funk, Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694190.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Fred Ventura - Greatest Hits & Remixes (2019) 2CD, Compilation [MP3|320 Kbps] <I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694182.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Camouflage - A Disco Symphony (1977) LP [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694079.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - All The Hits In Discotheque (1977) 2LP [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694077.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Charisma - Out Of Time (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693085.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Giorgio Moroder - 3 Albums Original Soundtrack (1978-1982) [MP3|320 кб/с] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692565.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ French Kiss - Panic! (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691452.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ IL - 2 Albums (2014, 2015) [MP3|320 кб/с] <nu-disco, disco house, french disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690661.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Denise McCann - Single & Album (1978, 1979) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690229.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Various - Mixage (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689221.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Dschinghis Khan - Moskau: Das Neue Best Of Album (2018) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689180.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Patrick Norman - Sweet Sweet Lady (1978) LP [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688367.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ T.J.M. - TJM (1979) Reissue CD, Big Break Records, 2011 [MP3|320 Kbps] <Funk-Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687488.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - It's So Disco Vol 2 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687349.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The Boston Soul Sound Orchestra - Do It Now (1977) [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686638.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Deep Nu Disco House Sounds (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684863.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Kristy & Jimmy McNichol - Kristy & Jimmy McNichol (1978) LP [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684323.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Abbe - Rainbows (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684136.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Crystal Grass With Kristi B. - Love Train (1978) LP [MP3|320 Kbps] <Electronic, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683032.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682082.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Boogymann - Delight (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681188.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Persia - Persia (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681103.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Leroy Gomez & Santa Esmeralda - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680920.jpg" />
 </div>
 
 

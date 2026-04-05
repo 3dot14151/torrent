@@ -1,3 +1,29 @@
+###  Публикация: 1222415   (684433) от 29.04.2018
+
+Красный воробей / Red Sparrow (2018) WEBRip [H.264/1080p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684433.jpg" />
+</div>
+
+
+###  Подробнее
+
+После вынужденного окончания карьеры из-за профессиональной травмы Доминика Егорова и ее мать сталкиваются с мрачным и неопределенным будущим. Героиня соглашается стать рекрутом в Школе Воробьев, секретной службе, которая обучает уникальных молодых людей использовать свое тело и ум в качестве опаснейшего оружия. После долгого садистского обучения девушка превращается (   Читать дальше...   )Производство: США / Chernin Entertainment, Film Rites, Soundtrack New YorkЖанр: Триллер, драма, детективРежиссер: Фрэнсис ЛоуренсАктеры: Дженнифер Лоуренс, Джоэл Эдгертон, Маттиас Шонартс, Шарлотта Рэмплинг, Мэри-Луиз Паркер, Киаран Хайндс, Джоэли Ричардсон, Билл Кэмп, Джереми Айронс, Текла РютенПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: Корейские (хардсаб)Продолжительность: 02:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3444ECCD1B8405D7BFBD2DD6EADE104FB49ABDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135089   (684350) от 17.05.2017
 
 Linkin Park - One More Light (2017) [MP3|320 Kbps] <Alternative>
@@ -6,7 +32,7 @@ Linkin Park - One More Light (2017) [MP3|320 Kbps] <Alternative>
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684350.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_683968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_683968.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ iMazing 2.14.6 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683805.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ AVG Internet Security 2013.0.3345 [x86+x64] [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_683746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_683746.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ DxO Optics Pro 11.0.0 Build 11397 Elite RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683679.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ Adobe Muse CC 2015.2.0.877 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683678.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ This War of Mine (2014) [Ru/Multi] (2.2.2/dlc) License GOG [Soundtrack Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683667.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободи�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683637.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ BATTLETECH (2018) [Ru/En] (1.5.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683494.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683491.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682282.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ Adobe Premiere Pro CC 2017 (v11.1.1) Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682260.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Adobe InDesign CC 2017 (v12.1.0) x86-x64 RUS/ENG Update 1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682257.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ The Final Station (2016) [Ru/Multi] (1.4.3/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682255.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682254.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682252.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ AliExpress 5.2.9 [Rus/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682250.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ The Flame in the Flood (2016) [Ru/Multi] (1.3.002) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682249.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Hunt Down The Freeman (2018) [En] (1.0/upd2) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681671.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ Adobe Photoshop CC 2015.5.0 (20160603.r.88) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681638.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 06.2016 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681625.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681050.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681048.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680776.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680767.jpg" />
 </div>
 
 
@@ -662,35 +688,6 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FDD7BA50D72BAC22CA9DC2C6A6E28CE131E9D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888260   (680765) от 15.05.2015
-
-Apple Final Cut Pro X 10.2.1,  Motion 5.2.1 & Compressor 4.2 [Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-
-Motion. Анимация для Final Cut
-Создавайте великолепные титры, переходы, эффекты и многое другое в приложении Motion. Это отличное дополнение к Final Cut Pro. Новые смарт-шаблоны Motion позволяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 мая 2015Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.10.2 +Язык интерфейса: Английский, Китайский,  Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9B9F451105298979CE0971570E31D3E58A177C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,30 +1,3 @@
-###  Публикация: 1373276   (880432) от 06.04.2020
-
-Ханс Кристиан Андерсен | Камень мудрости (1899) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки зарубежных писателей.
-Для младшего и среднего школьного возраста.Жанр: Детская проза, СказкаПеревод: С. МайковаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2765AA8536086F372132E70756F2615E50CD100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104576   (880181) от 15.02.2017
 
 Симон Соловейчик | Про пионеров (1981) [PDF, DJVU]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880181.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880092.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879802.jpg" />
 </div>
 
 
@@ -113,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879798.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879796.jpg" />
 </div>
 
 
@@ -166,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879786.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879663.jpg" />
 </div>
 
 
@@ -219,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879542.jpg" />
 </div>
 
 
@@ -246,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879521.jpg" />
 </div>
 
 
@@ -275,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878834.jpg" />
 </div>
 
 
@@ -304,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878717.jpg" />
 </div>
 
 
@@ -330,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878551.jpg" />
 </div>
 
 
@@ -357,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878549.jpg" />
 </div>
 
 
@@ -384,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878546.jpg" />
 </div>
 
 
@@ -411,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878120.jpg" />
 </div>
 
 
@@ -437,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877245.jpg" />
 </div>
 
 
@@ -463,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876550.jpg" />
 </div>
 
 
@@ -489,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876384.jpg" />
 </div>
 
 
@@ -516,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875470.jpg" />
 </div>
 
 
@@ -542,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875102.jpg" />
 </div>
 
 
@@ -569,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875094.jpg" />
 </div>
 
 
@@ -596,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875059.jpg" />
 </div>
 
 
@@ -623,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875058.jpg" />
 </div>
 
 
@@ -650,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874719.jpg" />
 </div>
 
 
@@ -677,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874718.jpg" />
 </div>
 
 
@@ -689,6 +662,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00D5CDBF12291464B35D32EE610BCBAA0628189B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374251   (874582) от 09.04.2020
+
+Бернд Перплис, Кристиан Хумберг | Люциус Адлер. Тайна золотого кристалла (2020) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть сыном известной иллюзионистки непросто, но в то же время ужасно весело. Путешествовать по миру, выступать на сцене и срывать восторженные аплодисменты – такой была жизнь Люциуса до тех пор, пока его матери Ирэн Адлер не стала угрожать смертельная опасность. Люцуис не мог и представить, что в конце концов он окажется на попечении известнейшего сыщика Лондона (   Читать дальше...   )Жанр: Зарубежная литература для детей, Приключения для детей и подростковПеревод: О. ТеремковаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726286E248363FEA5EC872C979F1124C97C3E1BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

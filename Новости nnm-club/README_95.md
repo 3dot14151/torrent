@@ -1,3 +1,29 @@
+###  Публикация: 527450   (742765) от 21.04.2015
+
+Crysis 2 (2010) [Ru/En] (v.1.9) Repack R.G. Games [Maximum Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир потрясла серия экологических катастроф, и человечество находится на грани вымирания. Инопланетяне вернулись с твердым намерением стереть людей с лица земли и начали при этом с одного из самых культовых земных городов. Улицы Нью-Йорка наводнили инопланетные захватчики, и волна оживших кошмаров постепенно захлестывает город и его жителей. Городские коммуникационные (   Читать дальше...   )Тип издания: Переупакованная лицензияРазработчик: CrytekЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Английский, РусскийЯзык субтитров: Английский, РусскийЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A0264699DD6BCE834C78014C31971C6FE83940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665804   (742676) от 07.06.2013
 
 Самогонщики (1961) BDRip [1080p] [hand made 60fps]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742676.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742353.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Resident Evil 3 (2020) [Ru/Multi] (build 7599632/dlc) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741875.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741872.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Pink Floyd - Discovery Box, 16 Studio Album (1967-1994) 2011, EMI Music Group, R
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741853.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741852.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741850.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741845.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_741783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741783.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ KMS Tools 01.04.2018 Portable by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741606.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_741559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741559.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Adobe Illustrator CC 2015.2.1 19.2.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741487.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Alcohol 120% 2.0.3.7612 Final RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741402.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 07.2020
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741091.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740654.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740623.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740619.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Facebook: если вы наш пользователь, ваши данные �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_740579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740579.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ ESET Internet Security 11.1.42.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740537.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740485.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ KMS Tools Portable 08.04.2017 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740478.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ KMS Tools Portable 15.02.2019 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740005.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/Multi] (1.3.59.0) Repack Other s [VR]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739920.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739432.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739429.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E2386632601706076B6C10A4E9ADBB1767271A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785537   (738855) от 11.05.2014
-
-Горько! (2013) BDRemux [1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прогрессивные и талантливые Наташа и Рома мечтают о европейской свадьбе на берегу моря… но у Наташиного отчима заготовлен другой сценарий. Грубый чиновник городской администрации рассматривает торжество как трамплин для собственной карьеры и стремится устроить все «как надо». Молодых ждет незабываемый вечер в ресторане «Золотой» с полным набором занудных обрядов. (   Читать дальше...   )Производство: Россия, Базелевс Продакшн, LunaparkЖанр: КомедияРежиссер: Жора КрыжовниковАктеры: Сергей Светлаков, Ян Цапник, Юлия Александрова, Егор Корешков, Сергей Лавыгин, Данила Якушев, Валентина Мазунина, Александр Паль, Юлия Стадник, Елена ВалюшкинаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53ED92EEAAAB180A3184AE71F6C434C64AD3861
 ```
 
 https://mybot314.ru/tekegram_catalog/

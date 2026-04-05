@@ -1,3 +1,160 @@
+###  Публикация: 612085   (986548) от 01.02.2013
+
+uTorrent 3.3 build 29038 Stable [MULTi / Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986548.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу пропускания, быстрое восстановление прерванной загрузки и многое другое.Название программы: µTorrentЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 835012   (986505) от 02.01.2016
+
+Приключения Шерлока Холмса и доктора Ватсона: Собака Баскервилей (1981) BDRip [1080p] [hand made 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Труп Чарльза Баскервиля обнаруживают неподалеку от его родового поместья. Выражение нечеловеческого ужаса на лице покойника и следы крупной собаки поблизости заставляют вспомнить старинную легенду о проклятии, тяготеющем над родом Баскервилей. Шерлоку Холмсу предстоит докопаться до истины…Жанр: Криминал, ДетективРежиссер: Игорь МасленниковАктеры: Василий Ливанов, Виталий Соломин, Рина Зеленая, Ирина Купченко, Никита Михалков, Алла Демидова, Светлана Крючкова, Александр Адабашьян, Борислав Брондуков, Евгений Стеблов...Продолжительность: 02:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2678780323F16CD1FEF92BF1DFD3FE59A1127E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970980   (986503) от 02.01.2016
+
+Total Commander 8.52a VIM 10 Matros portable [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander VIM (TC VIM). В основе сборки TC VIM — файловый менеджер для Windows™, Total Commander, версия 8.52a 32 bit (September 17, 2015) Copyright © 1993-2015 by Christian Ghisler. Для расширения функционала и удобства пользователей добавлены нужные плагины ,множество портативных программ и утилит. Благодаря утилите «TCIMG» (автор Андрей Аверин) в сборке (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF407882FE8E75157F80F4AC79483B44E2545F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971303   (986499) от 02.01.2016
+
+Марсианин / The Martian (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного...Производство: США, Великобритания, 20th Century Fox Film Corporation, Genre FilmsЖанр: Фантастика, ПриключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (iTunes)Язык субтитров: Русский (Full, Forced), Украинский (Full, Forced), АнглийскийПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5E56FE63223FF6AA95A34F1E3927992611C56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970654   (986493) от 02.01.2016
+
+The Witcher / Ведьмак (2008) [Ru/Multi] (1.5.0.1304/dlc) Repack =nemos= [Enhanced Edition Director's Cut]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшенная и дополненная версия знаменитой виртуальной саги о ведьмаке Геральте.
+Мир, в который вы попадете, приятным местом не назовешь. Путешествуя по нему вместе с охотником за нечистью, ведьмаком Геральтом, вы не раз столкнетесь с самыми темными сторонами человеческой натуры.Тип издания: RepackРазработчик: CD Projekt REDЖанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE843BC38D3CA1B5AFB576A79EA929A88E4CE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954256   (986492) от 02.01.2016
+
+Darksiders 2 (2015) [Ru] (1.0/upd2) Repack =nemos= [Deathinitive Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда наступил конец света, пробудился Смерть - один самых страшных Всадников Апокалипсиса. Он должен спасти все человечество, а заодно и восстановить доброе имя своего брата. На пути к цели он понимает, что в мире есть вещи куда страшнее земного апокалипсиса, а старые обиды могут стать угрозой всему живому...Тип издания: RepackРазработчик: Gunfire Games, Vigil Games, Nordic GamesЖанр: Action, Slasher, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0834BCBA05D5408BD21BBB5019F99A9898EF7FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971398   (986490) от 02.01.2016
 
 Microsoft Office Professional 2003 SP3 (обновления 02.01.2016) RePack by Serg16 [Ru]
@@ -6,7 +163,7 @@ Microsoft Office Professional 2003 SP3 (обновления 02.01.2016) RePack 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986490.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986489.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986487.jpg" />
 </div>
 
 
@@ -88,7 +245,7 @@ Superнянь 2 / Babysitting 2 (2015) WEB-DL [H.264/1080p-LQ]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986486.jpg" />
 </div>
 
 
@@ -114,7 +271,7 @@ Windows 7 Максимальная Ru x86-x64 Orig w. BootMenu by OVGorskiy® 12
 >>21
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986485.jpg" />
 </div>
 
 
@@ -140,7 +297,7 @@ MultiBoot USB X8 afin 8 [Русский / Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986389.jpg" />
 </div>
 
 
@@ -170,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986387.jpg" />
 </div>
 
 
@@ -196,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986384.jpg" />
 </div>
 
 
@@ -222,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986381.jpg" />
 </div>
 
 
@@ -248,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985873.jpg" />
 </div>
 
 
@@ -274,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985771.jpg" />
 </div>
 
 
@@ -300,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985655.jpg" />
 </div>
 
 
@@ -326,7 +483,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 01.2020 2 DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985651.jpg" />
 </div>
 
 
@@ -352,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985647.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ Alien Shooter 2 - The Legend (2020) [En] (1.0.0.1) License DARKSiDERS
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985643.jpg" />
 </div>
 
 
@@ -404,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985642.jpg" />
 </div>
 
 
@@ -430,7 +587,7 @@ Adobe Photoshop 2020 21.0.3 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985639.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985604.jpg" />
 </div>
 
 
@@ -482,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985602.jpg" />
 </div>
 
 
@@ -508,7 +665,7 @@ Kaspersky Free Antivirus 16.0.1.445 Final (Веб-установщик) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985316.jpg" />
 </div>
 
 
@@ -519,163 +676,6 @@ Kaspersky Free Anti-Virus (ранее Kaspersky 365) - бесплатный ан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A01C418739F1B5C9E202C31B8D8EBB347147AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971673   (985315) от 03.01.2016
-
-Kaspersky Total Security 2016 16.0.0.614 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Total Security (бывший Kaspersky CRYSTAL) обеспечивает защиту "все-в-одном" для вашего компьютера и важной информации с помощью всех необходимых компонентов. Среди основных возможностей решения: комплексный антивирус, веб-защита, персональный фаервол, резервное копирование данных, родительский контроль. Дополнительные инструменты безопасности (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E73B90632B02C32E84CF833EDDC5C1EA27A81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971612   (985246) от 03.01.2016
-
-OMSI2: Steam Edition (2013) [En/Ge/Fr] (2.2.032/dlc) SteamRip MOGLi
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985246.jpg" />
-</div>
-
-
-###  Подробнее
-
-OMSI 2 является очень реалистичным симулятором автобусов для домашних ПК. Он переносит игрока в Западный Берлин, чтобы прокатиться по району Шпандау. Возьмите на себя роль водителя автобуса по улицам Берлина. В игре присутствует автобус MAN двухэтажный SD200 и SD202 разных годов выпуска и впервые сочлененный MAN NG272.Тип издания: SteamRipРазработчик: MR-Software GbRЖанр: Simulator, 3DЯзык озвучки: НемецкийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63580D2FBB7DA33E5E7E227CCBE5BF5BE9D957E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737888   (985241) от 03.01.2016
-
-Bleach / Блич [2004, TV, 342 из 366] DVDRip Raw
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой аниме Блич пятнадцатилетний парень Куросаки Ичиго, который с самого детства может видеть и общаться с духами и призраками. Вот живет он себе не тужит, с призраками дружит, и сваливается ему на голову симпатичная девочка, которая на поверку оказывается богиней смерти Кучики Рукия, охотящаяся за злым духом,пожирающим души людей. Такие злые духи называются (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Абэ НориюкиПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B76D9C27954B88496585FA786B8DE15DADE3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971691   (985236) от 03.01.2016
-
-Spectrasonics Omnisphere 2 2.0.3d [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синтезатор Omnisphere - плод нескольких лет разработок компании Spectrasonics является совершенно новым брендом виртуальных инструментов. Этот эпический синтезатор основан на абсолютно новых звуковых технологиях, комбинируя большое разнообразие гибридных методов синтеза в реальном времени, эпическую библиотеку психоакустических звуков, и множество инновационных функций, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1997BAEB034802307F3BBBBE7F50F78787AE6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971652   (985235) от 03.01.2016
-
-Рэкетир 2 (2015) WEBRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба дарит главному герою второй шанс. Все считали его погибшим. С момента гибели Руслана прошло уже десять лет. Саян — преданный помощник Руслана — принял решение отойти от дел и начать жизнь с чистого листа. Когда к нему в дом пришел младший брат погибшего начальника Була, Саян насторожился. И не зря. Була хотел мести, но Саян не готов возвращаться к прошлому. (   Читать дальше...   )Производство: Казахстан, SataifilmЖанр: Боевик, Драма, КриминалРежиссер: Акан СатаевАктеры: Аружан Джазильбекова, Асель Сагатова, Аян Утепберген, Фархад Абдраимов, Саят Исембаев, Жан Байжанбаев, Азамат Сатыбалды, Дастен ШакировПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B10A403EEE4D66B84A32839BE063706DFD481BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970668   (985234) от 03.01.2016
-
-C Новым Годом, Клуб! 2016!
-
->>3
->>28
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья!
-Ну вот мы и провели старый, 2015-й год, что было хорошего в нем? Хорошее - это уже то, что мы вместе, хорошее - это то, что мы уже десятый год делимся интересной информацией друг с другом, хорошее - это то, что скорости и объемы растут, мы становимся умнее и грамотнее и никто в мире не в силах этого побороть!Что принесет нам 2016 год? Можно с уверенностью (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

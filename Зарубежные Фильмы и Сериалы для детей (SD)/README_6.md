@@ -1,3 +1,55 @@
+###  Публикация: 1524098   (746277) от 14.01.2022
+
+Приключения Паддингтона 2 / Paddington 2 (2017) DVD9
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746277.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антикварном магазине Лондона обаятельный и хорошо воспитанный медведь Паддингтон находит уникальную старинную книгу. Пока он изо всех своих медвежьих сил старается накопить на нее деньги, редчайшее издание внезапно похищают. Паддингтон оказывается вовлечен в аферу века, затеянную знаменитым, но вышедшим в тираж актером, который ныне рекламирует собачьи консервы, (   Читать дальше...   )Производство: Великобритания, Франция, США, Китай, Канада / Studio Canal, Heyday FilmsЖанр: Фэнтези, комедия, семейныйРежиссер: Пол КингАктеры: Бен Уишоу, Хью Бонневилль, Салли Хокинс, Хью Грант, Мадлен Харрис, Сэмюэл Джослин, Джули Уолтерс, Брендан Глисон, Джим Бродбент, Питер КапальдиПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E0C12E9433CA137E8E169808C20756005D8593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525594   (738983) от 22.01.2022
+
+Большой красный пес Клиффорд / Clifford the Big Red Dog (2021) WEB-DLRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда школьница Эмили получает в подарок от спасателя животных очаровательного щенка с красной шерстью, она и представить не может, что на утро обнаружит в своей маленькой нью-йоркской квартирке огромного трёхметрового пса! Мама в командировке, поэтому самые захватывающие и необыкновенные приключения ждут Эмили и ее веселого и порывистого дядю Кейси. Клиффорд научит (   Читать дальше...   )Производство: Канада, США / Aurum Producciones S.A., Kerner Entertainment CompanyЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Уолт БекерАктеры: Джек Уайтхолл, Дэрби Кэмп, Сиенна Гиллори, Дэвид Алан Грир, Джон Клиз, Расселл Вонг, Айзек Ванг, Тони Хейл, Оратио Санс, Пол РодригесПеревод: Дублированный (SDI Media) | IVIСубтитры: Русские (форсированные, полные), украинские (полные) отдельноПродолжительность: 01:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51AE103A5A8FA0479A7E93F34FB1ADA2FD68CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 785937   (738256) от 13.05.2014
 
 Клара и тайна медведей / Clara und das Geheimnis der Baren (2013) BDRip
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738256.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730856.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726239.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725895.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722865.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715992.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714361.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713806.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713648.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709861.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709411.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706997.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706912.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705043.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699357.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696749.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689474.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688834.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688412.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688022.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687338.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683897.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682190.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680561.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20A0B4463E5E48DC58EB8C8D6A1EB3F1AF5C431D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290207   (677894) от 20.03.2019
-
-Мой друг дельфин Эхо / Dolphin Kick (2019) WEBRip [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отдыхая со своей семьей на тропическом острове на Багамах, 10-ти летний Люк знакомится с дружелюбным и игривым дельфином Эхо. Дельфин становится верным другом Люка, с которым он проводит всё своё свободное время, ныряя в волнах и играя целыми днями напролёт. Однажды дельфин Эхо оказывается в опасности. Люк со своей сестрой разрабатывают план, чтобы спасти их нового (   Читать дальше...   )Производство: США / Aristar EntertainmentЖанр: ПриключенияРежиссер: Филип МарлаттАктеры: Тайлер Джейд Никсон, Аксель Маккой, Трэвис Маккой, Алексис Лодер, Девон Гоу, Тим Оглтри, ЛаВон Хэмилтон, Майя Симмонс, Куддус Ньютон, Томи КалмерПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B72F52D0CAF0734543B9CE5942F5A6D68B4C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214813   (674965) от 30.06.2010
-
-Зевс и Роксана / Zeus and Roxanne (1997) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Терри Барнетт пишет музыку на берегу океана, где живет в маленьком городке с сыном и милым смешным пёсиком по кличке Зевс. Зевс — жуткий проказник, и его за это не любит соседка Мэри Бет, называя блохастым и перенося свою неприязнь на владельцев. Она живет с двумя дочерьми и занимается изучением поведения дельфинов. Зевс проникает на борт ее судна и падает в воду, (   Читать дальше...   )Жанр: Комедия, Приключения, СемейныйРежиссер: Джордж МиллерАктеры: Стив Гуттенберг, Кэтлин Куинлен, Арнольд Вослоу, Доун МакМиллан, Мико Хьюз, Махандра Делфино, Джессика Хауэлл, Шеннон К. Фоли, Джим Р. Коулмэн, Элвин Фармер, Харий Джеймс, Джастин ХамфриПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:38:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

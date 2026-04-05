@@ -1,3 +1,59 @@
+###  Публикация: 1265605   (273857) от 28.11.2018
+
+TinkerTool System 5 v5.98 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273857.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X.
+
+Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2018Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31715C91A9D9124B46048790F598866A4F726823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337633   (273711) от 11.11.2019
+
+Adobe InCopy 2020 v15.0.0.155 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe InCopy CC 2020 - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign CC 2020 для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy CC 2020 идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
+
+Adobe InCopy CC 2020 входит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1851C10DB434CB29FF97E72C496C2EF55AD065E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337586   (273693) от 11.11.2019
 
 MetaMovie 2.4.3 [En]
@@ -6,7 +62,7 @@ MetaMovie 2.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273693.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Image2Icon Pro 2.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273692.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ Debit & Credit - Учет финансов 2.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273510.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ Adobe InDesign 2020 v15.0.0.155 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273358.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ Templates for Excel by GN 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273159.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ Complete Anatomy 2018 + Courses 3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273155.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ SILKYPIX Developer Studio 8E v8.1.27.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273038.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ AMS Ringtone Maker 2.0.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272973.jpg" />
 </div>
 
 
@@ -216,7 +272,7 @@ Boardfish 1.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272486.jpg" />
 </div>
 
 
@@ -242,7 +298,7 @@ NightTone (Night light filter) 2.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272224.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ Weather Guru 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272217.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ Dropzone 3 v3.6.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272213.jpg" />
 </div>
 
 
@@ -323,7 +379,7 @@ Vectoraster 7 v7.4.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271648.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ SketchUp Pro 2019 v19.3.252 [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271178.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271024.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ Tower 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271022.jpg" />
 </div>
 
 
@@ -430,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_270118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_270118.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ DriveDx 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269184.jpg" />
 </div>
 
 
@@ -482,7 +538,7 @@ AnyTrans for iOS 7.0.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269152.jpg" />
 </div>
 
 
@@ -510,7 +566,7 @@ HD Video Converter Movavi 6.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269096.jpg" />
 </div>
 
 
@@ -536,7 +592,7 @@ Mirror for Samsung TV 2.1.7 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268645.jpg" />
 </div>
 
 
@@ -565,7 +621,7 @@ Principle 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268256.jpg" />
 </div>
 
 
@@ -592,7 +648,7 @@ SoftRAID 5.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268135.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ PhotoStyler 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267835.jpg" />
 </div>
 
 
@@ -632,61 +688,6 @@ PhotoStyler – это небольшое приложение для быстр
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267226   (267276) от 05.12.2018
-
-Micro Snitch 1.3.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задумывались если приложение записывает аудио через встроенный микрофон вашего Mac без вашего ведома? Или если камера захватывает видео без веских оснований?
-
-С Micro Snitch больше нет сомнений. Это ультра-легкое приложение в строке меню работает незаметно в фоновом режиме. Он отслеживает и сообщает о любой активности микрофона и камеры, чтобы помочь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: Objective DevelopmentПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7C2C0C00C85DA547387437BECBDC71E8B395C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339151   (267127) от 18.11.2019
-
-Antivirus Cyber Byte Pro 3.7.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mac, как правило, считается безопасным и надежным, и существует ряд причин, по которым Mac считаются более безопасными, чем ПК, но существует множество рисков, которых Mac не удалось полностью избежать.
-Мы, в CyberByte ™, помимо нашего консалтингового опыта в области безопасности, изучаем эволюцию вредоносного ПО, и мы наблюдали, что вредоносное ПО Mac увеличилось (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CyberByte™ AntivirusПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78ADDF539BAE1538F1D5FBAEF93A920AE243089
 ```
 
 https://mybot314.ru/tekegram_catalog/

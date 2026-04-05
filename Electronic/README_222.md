@@ -1,3 +1,124 @@
+###  Публикация: 905710   (647678) от 07.06.2015
+
+VA - Ambient Lounge Ibiza (2015) [MP3|320 кб/с]<Lounge, Ambient, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bansan - Bird Beyond Fear (03:08)
+02. Lenny Ibizarre - Smooth Temptation (04:12)
+03. Greg Knight - Circle of Clowns (05:22)
+04. The K2 Project - Medicine Man (04:23)(   Читать дальше...   )Производство: Cherry Lounge RecordingsЖанр: Lounge, Ambient, Chill OutПродолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86A1561D7AED689E463A42B2C26D4D68515C67A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517657   (647154) от 01.07.2012
+
+Markus Schulz Presents Dakota - Thoughts Become Things II (The Remixes) (2012) [FLAC|Lossless]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz Presents Dakota - Thoughts Become Things II (The Remixes) (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность: 00:56:44
+Лейбл: TME/Open Gate Records
+Каталог №: ПРЗ CD04489
+Кодек: FLAC
+Битрейт: LosslessТрек лист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541348   (646942) от 02.04.2022
+
+Lane 8 - Spring 2022 Mixtape (2022-03-30) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Youth & OCULA ft. Nathan Nicholson - If Only (You Could Be Here)
+02. Lexer - Paris Rain
+03. Fred again.. & Romy & HAAi - Lights Out
+04. Spada - Take Me There(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07C9433AB3B38B9339CE5349A233F0A322CED96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292363   (646907) от 29.03.2019
+
+VA - Trancespotting Vol.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut) 3:19
+02. Con Phillips - Varanasi (Radio Cut) 3:51
+03. Unit Of Trance - Reserve (Radio Edit) 3:28
+04. Brent Rix - Desert Sun (Original Mix) 3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2A5583C0393F55B6DDE969147656B615E5A66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541159   (646859) от 02.04.2022
 
 Наукоград - Дискография (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, New Wave, Lo-Fi>
@@ -6,7 +127,7 @@
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646859.jpg" />
 </div>
 
 
@@ -33,7 +154,7 @@ Nickolay Fedorenko - Коллекция (2013-2022) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646853.jpg" />
 </div>
 
 
@@ -62,7 +183,7 @@ VA - Chillout Summer Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646843.jpg" />
 </div>
 
 
@@ -91,7 +212,7 @@ VA - Beats For Life Vol.1 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646841.jpg" />
 </div>
 
 
@@ -120,7 +241,7 @@ VA - Chill Out Selectionc Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646840.jpg" />
 </div>
 
 
@@ -149,7 +270,7 @@ VA - Suanda Miami 2019 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646817.jpg" />
 </div>
 
 
@@ -178,7 +299,7 @@ VA - Finest Luxury Spa Music (2019) [MP3|320 Kbps] <Chillout, Relax, Smooth Jazz
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646808.jpg" />
 </div>
 
 
@@ -207,7 +328,7 @@ VA - Yogamatte Vol.1 Yoga Meditation Chill Out Tunes (2017) [MP3|320 Kbps] <Bale
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646734.jpg" />
 </div>
 
 
@@ -236,7 +357,7 @@ VA - Discotech - The Sound of Nu Disco Vol 1 (2017) [MP3|320 Kbps] <Minimal, Tec
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646732.jpg" />
 </div>
 
 
@@ -265,7 +386,7 @@ VA - Zappi Rocks Ibiza (Compiled by DJ Zappi) Vol. 1,2 (2016-2017) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646730.jpg" />
 </div>
 
 
@@ -294,7 +415,7 @@ VA - Beats For Life Vol.2: 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646729.jpg" />
 </div>
 
 
@@ -323,7 +444,7 @@ VA - Acoustic Unplugged. Bar Lounge Compilation Playlist 2017.2 [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646724.jpg" />
 </div>
 
 
@@ -352,7 +473,7 @@ VA - Balearic 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646723.jpg" />
 </div>
 
 
@@ -381,7 +502,7 @@ Klaus Schulze - Silhouettes (2018) SPV, Oblivion [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646699.jpg" />
 </div>
 
 
@@ -410,7 +531,7 @@ VA - Secret Lounge - Erotic Pleasure (2009) 3CD [FLAC|Lossless|image + .cue] <Ea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646683.jpg" />
 </div>
 
 
@@ -439,7 +560,7 @@ Secret Service - MusicBox (2003) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646649.jpg" />
 </div>
 
 
@@ -468,7 +589,7 @@ Aesthetic Perfection - Discography 23 Releases (2005-2019) [MP3|320 Kbps] <EBM, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646556.jpg" />
 </div>
 
 
@@ -497,7 +618,7 @@ Actress x London Contemporary Orchestra - LAGEOS (2018) Ninja Tune [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646498.jpg" />
 </div>
 
 
@@ -526,7 +647,7 @@ VA - Mykonos Summer Guide (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646173.jpg" />
 </div>
 
 
@@ -555,7 +676,7 @@ VA - Baila Verano (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646169.jpg" />
 </div>
 
 
@@ -584,7 +705,7 @@ VA - Slow Down Ambient Relaxation Vol. 1 (2016) [MP3|320 Kbps] <Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646167.jpg" />
 </div>
 
 
@@ -613,7 +734,7 @@ VA - Masters of Chillhouse (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646166.jpg" />
 </div>
 
 
@@ -627,122 +748,6 @@ VA - Masters of Chillhouse (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EABF4C01B803BD429EB2C2467F66A8A015B36C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032227   (646164) от 07.07.2016
-
-VA - Ibiza 2016 - Hot Tunes Vol.1 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daviddance - Just You (Remastered version)
-02. Mauro Cannone & Daviddance - No More (original mix)
-03. Mauro Cannone & Daviddance - Trumpet Tromba (original mix)
-04. Hakan Dundar - All We All(   Читать дальше...   )Жанр: HouseПродолжительность: 02:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E220743FC54FAFC7C9DC979255E784C3C5BDA2AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032473   (646062) от 07.07.2016
-
-VA - Levitated Vol. 1 (Mixed by Manuel Rocca) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Belg - Hammamet (Original Mix) (6:31)
-02. Alex Wright - Galactica (Original Mix) (7:06)
-03. Cyre & DJ T.H. - Ibiza Calling (Mhammed El Alami & Manuel Rocca Remix) (6:17)
-04. Blue5even - Island Paradise (Original Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BCF50F2C22967F266027ECE728EBF29F4577FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032132   (645955) от 07.07.2016
-
-VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocketpunk - The Warning Wheel
-02. Dr. Ruth - Piano Sonata (Benny Knox Remix)
-03. Circuito Zeta - En Directo
-04. Mario Sacco DJ - Frenesia(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032091   (645950) от 07.07.2016
-
-VA - Progressive Goa Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Psy Trance, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monolock -  Proggy Froggy 9:02
-02. Flucturion 2.0 -  Paper-layered Panorama 6:46
-03. Inkel -  Pulsating Vibe 7:06
-04. Nature & Norma Project -  Digital Age 7:29(   Читать дальше...   )Жанр: Trance, Psy Trance, Goa TranceПродолжительность: 02:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE7CB681515AE10F3AFB90A9F0929A3462A7CD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

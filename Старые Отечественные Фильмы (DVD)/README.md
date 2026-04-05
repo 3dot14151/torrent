@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862842   (1063441) от 
+
+Оленья охота (1981) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна 1942 года. Эшелон с эвакуировавшимися детьми из Двинского детского дома попадает под авиабомбардировку гитлеровцев. После налета дети оказываются на оккупированной территории в районе действий белорусского партизанского отряда. Для обнаружения народных мстителей фашисты решают использовать детей.Производство: СССР / Киностудия им. М. ГорькогоЖанр: военный, драма, ВОВРежиссер: Юрий БорецкийАктеры: Александр Яковлев, Николай Гринько, Михай Волонтир, Всеволод Сафонов, Михаил Жигалов, Евгения Сабельникова, Федор Сухов, Игорь Пушкарев, Георгий Назаренко, Александр Голобородько и др.Субтитры: отсутствуютПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269445A43795C0B0E043DEE6310C3AC6852DBD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861534   (1062427) от 
 
 Страховой агент (1985) DVD5
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062427.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058211.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056786.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050361.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049568.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049332.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047071.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027276.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020558.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019067.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000146.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973597.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968424.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953510.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942834.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931261.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_926370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_926370.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911644.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904812.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897293.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893198.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892460.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881859.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858271.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858248.jpg" />
 </div>
 
 
@@ -649,36 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010ABAA2496A49397C01135A648E11C94113D233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552750   (852070) от 09.03.2015
-
-Петля Ориона (1980) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852070.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глубинах космоса обнаружен загадочный сгусток энергии, приближающийся к Земле. Навстречу "Петле
-Ориона" (так назвали это явление) отправляется экспедиция со смешанным экипажем из людей и киборгов. Достигнув
-места назначения, они встречают неизвестную инопланетную цивилизацию, от которой узнают, что Земле грозит
-серьёзная опасность – так называемая "стеклянная болезнь". Инопланетяне пытаются спасти человечество, создав вокруг
-планеты энергетический барьер (а именно "Петлю Ориона"). (   Читать дальше...   )Жанр: ФантастикаРежиссер: Василий ЛевинАктеры: Гиви Тохадзе, Геннадий Шкуратов, Анатолий Азо, Виталий Дорошенко, Анатолий Матешко, Леонид Бакштаев,  Людмила Смородина, Лиа Элиава, Елена КокалевскаяПродолжительность: 01:20:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1435012   (147117) от 26.12.2020
-
-Udemy, Alexander Batashov | Laravel - Создание Админ Панели. Полный курс (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите получить настоящий, коммерческий опыт на разработке Laravel  и с уверенностью об этом говорить - то этот курс для вас. Мы с нуля разработаем Админ Панель для управления Интернет магазином. Самое сердце разработки любого, сложного проекта. По окончанию курса, вы самостоятельно сможете создавать веб приложения на базе Laravel. Вы полностью поймете, как (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 20:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E0869FD2EB6C25D391017F585498C8B3B9BA66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434937   (147085) от 26.12.2020
 
 Udemy, Bogdan Stashchuk | Полное руководство по Git: поймите и освойте Git и GitHub / Complete Git Guide: Understand and master Git and GitHub (2020) PCRec [En / En Sub]
@@ -32,7 +6,7 @@ Udemy, Bogdan Stashchuk | Полное руководство по Git: пойм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147085.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Udemy, Сергей Семёнов | Selenium и Selenide для начинаю�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147054.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ Geekbrains | Frontend-разработчик. Часть 4 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147003.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146381.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ YO DO, Кирилл Семаев | Курс Linux v 2.0. От 0 до Linux Ад�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146076.jpg" />
 </div>
 
 
@@ -174,7 +148,7 @@ Udemy, Clyde Matthew | *NEW* JavaScript Complete Grandmaster 2020. Ongoing Updat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145824.jpg" />
 </div>
 
 
@@ -201,7 +175,7 @@ Udemy, Clyde Matthew | *NEW* DOM 2020 Build Dynamic Websites with JavaScript Par
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145566.jpg" />
 </div>
 
 
@@ -230,7 +204,7 @@ Udemy, Holczer Balazs | Параллелизм, многопоточность �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145400.jpg" />
 </div>
 
 
@@ -256,7 +230,7 @@ SmartData | Конференция по инженерии данных (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145094.jpg" />
 </div>
 
 
@@ -284,7 +258,7 @@ Udemy, Kazi Ariyan и др. | Laravel 8. PHP Фреймворк от А до Я 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144890.jpg" />
 </div>
 
 
@@ -312,7 +286,7 @@ Geekbrains | Frontend-разработчик. Часть 2 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144877.jpg" />
 </div>
 
 
@@ -340,7 +314,7 @@ Udemy, Hussein Nasser | Fundamentals of Database Engineering (2021) WEB-DL [En /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144786.jpg" />
 </div>
 
 
@@ -366,7 +340,7 @@ Udemy, Roman Trukhtanov | CSS – Как анимировать интерфей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144664.jpg" />
 </div>
 
 
@@ -394,7 +368,7 @@ Udemy, Илья Фофанов | Архитектура ПО: Meta и SOLID пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144412.jpg" />
 </div>
 
 
@@ -421,7 +395,7 @@ Udemy, Sergei Semenov | Cypress на Реальном Проекте для На
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144391.jpg" />
 </div>
 
 
@@ -447,7 +421,7 @@ Udemy, Oleksiy Atroshchenko | Сети с нуля. Просто - о сложн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144205.jpg" />
 </div>
 
 
@@ -473,7 +447,7 @@ Udemy, Dzianis Matveyenka | Java для начинающих. Level 1 (2021) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144192.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144032.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143780.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ Udemy, Lazy Programmer Team | Financial Engineering and Artificial Intelligence 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143647.jpg" />
 </div>
 
 
@@ -594,7 +568,7 @@ Dean Davis | UnixCBT Sol11x Edition (2015) WEB-DL [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143166.jpg" />
 </div>
 
 
@@ -620,7 +594,7 @@ SuperHi, Lawrence Gosset, Rik Lomas | WordPress (2021) WEB-DL [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143041.jpg" />
 </div>
 
 
@@ -647,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142396.jpg" />
 </div>
 
 
@@ -675,7 +649,7 @@ hamedbahram.io, Hamed Bahram | The Ultimate NextJs Course (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141649.jpg" />
 </div>
 
 
@@ -703,7 +677,7 @@ Lynda.com | CSS: Gradients (2013) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141633.jpg" />
 </div>
 
 
@@ -717,6 +691,34 @@ Lynda.com | CSS: Gradients (2013) PCRec [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:771BA7C56FE094ED19ECE31FF7B9955CCC1C1E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086587   (141505) от 29.12.2016
+
+Специалист | Язык программирования C# 6.0 (2016) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования C# - один из самых востребованных и динамично развивающихся языков программирования в отрасли IT, который используется для разработки приложений на платформе Microsoft .Net.
+
+Окончив авторский курс «Язык программирования C# 6.0», Вы освоите объектно-ориентированный язык программирования C# 6.0, научитесь использовать интегрированную среду разработки (   Читать дальше...   )Жанр: Программирование, C#Продолжительность: 17:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9077F5BD9E251CF924C6B22829E342BFE6D83D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1010798   (3975) от 07.09.2025
-
-Михаил Лермонтов | Бородино (1985) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3975.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бородино́» — стихотворение Михаила Юрьевича Лермонтова. Было написано в начале 1837 года. Опубликовано в журнале «Современник» в 1837 году. Посвящено Бородинскому сражению 7 сентября 1812 года, в котором русская армия сражалась против наполеоновского войска.Жанр: ПоэзияИздательство: Детская литератураФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994AAD1AB1D63FDCF7AD6B56332B79B324A4C2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817614   (3179) от 12.09.2025
 
 Андрей Курпатов | Игровой блокнот для детей. Батлгаджет (2025) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3179.jpg" />
 </div>
 
 
@@ -50,32 +24,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817611   (3174) от 12.09.2025
-
-Андрей Курпатов | Супергаджет. Блокнот для детей (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3174.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Супергаджет" - уникальный блокнот, разработанный "Академией смысла для детей" в помощь родителям, которые думают о будущем своих детей. Идеально вписывается в современный тренд сокращения экранного времени. Ребёнку легко будет остановить себя и заменить гаджет на "Супергаджет", в котором можно поиграть, пообщаться с друзьями и даже (   Читать дальше...   )Жанр: Развитие логического мышленияИздательство: ИД «Нева»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5C285C6CD4DC85E429C8D5FCA7D5D57573E178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817615   (3169) от 12.09.2025
 
 Андрей Курпатов | Игровой блокнот для детей. Батлгаджет 2.0 (2025) [PDF]
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3169.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_552.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_525.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_516.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_512.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_510.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_506.jpg" />
 </div>
 
 
@@ -274,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_503.jpg" />
 </div>
 
 
@@ -300,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_482.jpg" />
 </div>
 
 
@@ -314,35 +262,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30AA5986B9ABBD924B0C63F66AD08B9386F39D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820810   (19) от 29.09.2025
-
-Максим Горький | 9 января, Макар Чудра (1941) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге предоставлены два рассказа.
-1. 9-я января, посвящено событиям 1905-го года, больше известное как "Кровавое воскресенье".
-2. Макар Чудра, посвящено влюблённой цыганской паре и тому, к чему приводит гордость.
-(   Читать дальше...   )Жанр: РассказИздательство: ДетгизФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40129DE243AE7D795C284E75A504F6622A2F5C87
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 1083815   (273480) от 16.12.2016
-
-Крис Тейлор | Как «Звездные войны» покорили Вселенную. История создания легендарной киносаги (2017) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273480.jpg" />
-</div>
-
-
-###  Подробнее
-
-История культурного феномена «Звездных войн» очень разнообразна. Почему Джордж Лукас вообще стал снимать эти фильмы? Как они достигли такого успеха? Почему у них столько фанатов по всему миру? Что побудило Лукаса продать свой уникальный бренд компании «Disney» и как это повлияет на будущее «Звездных войн»? Об этом вы узнаете в книге, посвященной феноменальному успеху (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Зарубежная прикладная и научно-популярная литература, Кинематограф, театр, КультурологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B343229F9B1C7A2D3498BCF394F8599D470799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083350   (273389) от 16.12.2016
-
-Лев Мильяненков | По ту сторону закона (1992) [DJVU]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная версия книги Льва Мильяненкова "По ту сторону закона. Энциклопедия преступного мира". Название говорит само за себя. Объяснение перстней, художественных татуировок, способы связи и шифры братвы, словарь фени и кое-что еще по мелочи. Данное справочное издание даёт полную картину жизни преступного мира. Оно расскажет вам об истории татуировок и об (   Читать дальше...   )Жанр: Криминалистика, энциклопедииФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C8F3B2F4169148EAFCFD0071530E4F94B44D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083811   (273386) от 16.12.2016
-
-Виктор Попенко | Секретные инструкции спецназа ГРУ (2017) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273386.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказывается о причинах создания в 50-х годах XX-го века первых подразделений специального назначения – спецназа ГРУ, отборе в его ряды, подготовке бойцов (начиная с советского периода) и действиях спецназовцев ГРУ в реальных боевых операциях с момента его создания до наших дней. Рассмотрены основные дисциплины, которые входят в обязательный курс обучения (   Читать дальше...   )Жанр: Военное дело, спецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB80E9B5DDE06B25A0F5F8497AF8866CB7E13ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083144   (273292) от 16.12.2016
-
-Ruth Gairns, Stuard Redman / Рут Гарнс, Стюард Рэдман | Oxford Word Skills Intermediate + [CD-ROM] (2008) [PDF, MDF/MDS] [En]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие Intermediate — для уровней Intermediate и Upper-Intermediate.
-Каждая книга содержит 80 юнитов. Урок занимает от одной до трех страниц в зависимости от темы. К блокам теоретического материала сразу прилагаются и практические упражнения для закрепления знаний. Все юниты разбиты по темам на группы-модули из 5 или 10 уроков. После каждого модуля в учебнике вам (   Читать дальше...   )Жанр: Учебное пособие по изучению английского языкаФормат: PDF, MDF/MDS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D77104AC9CF9C6E9C11EB34E65368D930CF4026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188750   (273096) от 03.12.2017
-
-И.Г. Семакин, А.П. Шестаков | Основы алгоритмизации и программирования (2012) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основы структурной методики построения алгоритмов и программирования на базе языка Паскаль (версия ТурбоПаскаль (7.0), а также основные понятия объектно-ориентированного программирования и его реализация на языке ТурбоПаскаль. Описана интегрированная среда программирования Delphi и рассмотрены визуальная технология создания графического интерфейса программ (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6933C55C20EF67396BB29B3F07F83D944CF83E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265417   (272971) от 29.11.2018
 
 Дэниел Эверетт | Не спи - кругом змеи! (2016) [EPUB]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272971.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272954.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272831.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272802.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272561.jpg" />
 </div>
 
 
@@ -271,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272473.jpg" />
 </div>
 
 
@@ -297,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272445.jpg" />
 </div>
 
 
@@ -324,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272406.jpg" />
 </div>
 
 
@@ -350,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272379.jpg" />
 </div>
 
 
@@ -378,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272370.jpg" />
 </div>
 
 
@@ -406,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272287.jpg" />
 </div>
 
 
@@ -434,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272214.jpg" />
 </div>
 
 
@@ -460,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272208.jpg" />
 </div>
 
 
@@ -488,7 +357,7 @@ Lindsay Jones / Линдси Джонс | Encyclopedia of Religion / Энцик�
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272078.jpg" />
 </div>
 
 
@@ -514,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271964.jpg" />
 </div>
 
 
@@ -540,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271958.jpg" />
 </div>
 
 
@@ -566,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271808.jpg" />
 </div>
 
 
@@ -593,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271802.jpg" />
 </div>
 
 
@@ -620,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271755.jpg" />
 </div>
 
 
@@ -648,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271754.jpg" />
 </div>
 
 
@@ -675,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271728.jpg" />
 </div>
 
 
@@ -686,6 +555,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F41EED5B99FC6B70466E822D6AFF3014D71696A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338019   (271653) от 13.11.2019
+
+Э.В. Кононович | Солнце - дневная звезда (1982) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271653.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о физической природе звезд на примере свойств ближайшей звезды - Солнца.
+Особое внимание уделяется самым различным взаимосвязям, проблеме происхождения вещества и эволюции материи.Жанр: научно-популярнаяФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B70DA33AF176811DBFCA979BA7356576CD1208A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 156696   (271644) от 30.11.2018
+
+Т. Фицпатрик и др. | Дерматология. Атлас-справочник (1999) [doc]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правильный диагноз — ключ к успеху лечения. Мы стремились создать руководство, ко-торое сделало бы диагностику кожных болезней посильной для врача любой специальности. Овладеть ей непросто; самое главное — научиться видеть. Именно поэтому наша книга написана в форме атласа. Краткие описания болезней, принципов диагностики и методов лечения расположены рядом с большими (   Читать дальше...   )Жанр: ДерматологияПеревод: Е.Р.  Тимофеева ред.)Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F159C3A765BA4649276816CC60137BD672902A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337811   (271430) от 13.11.2019
+
+С.В. Лукинских и др. | Инженерная графика. Выполнение рабочих чертежей деталей (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит сведения по производству конструкторских чертежей, правила и примеры выполнения чертежей различных деталей. Представлены варианты заданий к домашним и расчетно-графической работам, а также примеры выполнения работЖанр: ГрафикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BED5DB524EC0EDE713775B78F5FA8106B67F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444777   (270750) от 01.12.2018
+
+Стенография [1952] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже давно люди думали о письме, которое давало бы возможность записывать речь с такой же быстротой, с какой она произносится. Они обратили внимание на большую разницу в скорости произнесения слова и его записи. Различными способами люди сокращали слова и буквы. В результате появилась стенография... Настоящий учебник стенографии является первым пособием, написанным (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29618D36DBF2DE5EF42B6E8F20761564DE8172FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 150214   (270614) от 01.12.2018
+
+Аристотель | Собрание сочинений [10 книг] (384–322 до н.э.) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мышление Аристотеля направлялось острым ощущением реальности, существующей независимо от людских мнений и желаний, и глубокой верой в способность человеческого ума, должным образом примененного, познать эту реальность такой, какая она есть. Вместе эти два убеждения породили в нем беспримерную готовность следовать эмпирическим фактам, куда бы они ни вели, и незаурядное (   Читать дальше...   )Жанр: ФилософияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B07C1332FC0094D81AF8359E25358C7D2A7A7E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

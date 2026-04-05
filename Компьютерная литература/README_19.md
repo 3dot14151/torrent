@@ -1,162 +1,3 @@
-###  Публикация: 1466552   (1018369) от 30.04.2021
-
-Герб Саттер | Решение сложных задач на С++ (2008) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018369.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном издании объединены две широко известные профессионалам в области программирования на языке C++ книги Герба Саттера Exceptional C++ и More Exceptional C++, входящие в серию книг C++ In-Depth, редактором которой является Бьерн Страуструп, создатель языка C++.
-Материал этой книги составляют переработанные задачи серии Guru of the Week, рассчитанные на читателя (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8C00C098C447BB31439662FBF4A9A6DC391F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466740   (1018201) от 01.05.2021
-
-А.С. Уваров | P-CAD 2000, ACCEL EDA. Конструирование печатных плат (2-е изд.) (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018201.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании приведены рекомендации и советы по созданию библиотек элементов, вычерчиванию электрических схем и проектированию печатных плат средствами программ P-CAD 2000 и ACCEL EDA. Особое внимание уделено системам обозначений металлизированных отверстий, контактных площадок и посадочных мест различных элементов, типовых компонентных модулей и стандартных (   Читать дальше...   )Жанр: Компьютерная литература, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889196C526D91D2F0B28784FB4B2FFA77DB6D076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467093   (1018013) от 02.05.2021
-
-Влад Ришкуция | Программируй & типизируй (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Причиной многих программных ошибок становится несоответствие типов данных. Сильная система типов позволяет избежать целого класса ошибок и обеспечить целостность данных в рамках всего приложения. Разработчик, научившись мастерски использовать типы в повседневной практике, будет создавать более качественный код, а также сэкономит время, которое потребовалось бы для (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633411ADB11168E25859E3968B959F721CBA18E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467106   (1017986) от 02.05.2021
-
-Марк Дж. Прайс | C# 8 и .NET Core. Разработка и оптимизация [4-е издание] (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017986.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании рассмотрены все темы, связанные с разработкой на C#. В начале книги вы ознакомитесь с основами C#, в том числе с объектно-ориентированным программированием, а также с новыми возможностями C# 8.0. Несколько глав посвящено .NET Standard API, применяемым для запроса данных и управления ими, отслеживания производительности и ее повышения, работы с файловой (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB7D16D7E8B3F8FEEA8134FC8CCC8D838B69493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468335   (1017183) от 07.05.2021
-
-Артём Слаква | Руководство по EEVEE (версия 1.3 по Blender 2.90) (2020) [PDF, EPUB]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017183.jpg" />
-</div>
-
-
-###  Подробнее
-
-EEVEE - это PBR-рендер (Physically Based Rendering) в реальном времени, настройка материалов в котором происходит так же, как в Cycles, с некоторыми оговорками (о которых в книге). Однажды поработав с ним, вы долго будете задаваться вопросом: «А как мы вообще раньше работали без него?».
-
-Другие версии этой книги: Руководство по EEVEEЖанр: 3D моделирование, Материалы, ШейдерыФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B95CC5BD2F2A796A5752BF8AED2B23618F3A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468333   (1017180) от 07.05.2021
-
-Артём Слаква | Руководство по Cycles (версия 1.8 по Blender 2.90) [+ материалы] (2020) [PDF, EPUB]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cycles — это движок рендеринга, который впервые появился в Blender версии 2.61 (декабрь 2011). Он доступен в качестве дополнения для программы наряду с новым встроенным рендером EEVEE. Cycles создает изображение методом трассировки лучей с упором на интерактивность и простоту использования. Для материалов используется система нодов, с помощью которой можно создавать (   Читать дальше...   )Жанр: 3D моделирование, Материалы, ШейдерыФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FAB2952696E70A35A6ADFC8ACDDD0B7F5FD197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468650   (1016954) от 08.05.2021
 
 Иван Портянкин | Программирование Cloud Native. Микросервисы, Docker и Kubernetes (2020) [PDF]
@@ -165,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016954.jpg" />
 </div>
 
 
@@ -191,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016848.jpg" />
 </div>
 
 
@@ -218,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016343.jpg" />
 </div>
 
 
@@ -247,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014612.jpg" />
 </div>
 
 
@@ -274,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014603.jpg" />
 </div>
 
 
@@ -301,7 +142,7 @@ Michał Malewicz, Diana Malewicz | Разработка пользователь
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014416.jpg" />
 </div>
 
 
@@ -329,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014265.jpg" />
 </div>
 
 
@@ -355,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014115.jpg" />
 </div>
 
 
@@ -383,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012840.jpg" />
 </div>
 
 
@@ -410,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012518.jpg" />
 </div>
 
 
@@ -436,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012199.jpg" />
 </div>
 
 
@@ -462,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012080.jpg" />
 </div>
 
 
@@ -488,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011764.jpg" />
 </div>
 
 
@@ -514,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011107.jpg" />
 </div>
 
 
@@ -540,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011036.jpg" />
 </div>
 
 
@@ -568,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010762.jpg" />
 </div>
 
 
@@ -594,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010101.jpg" />
 </div>
 
 
@@ -620,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009789.jpg" />
 </div>
 
 
@@ -646,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009208.jpg" />
 </div>
 
 
@@ -672,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009205.jpg" />
 </div>
 
 
@@ -683,6 +524,165 @@ PowerShell® — это одновременно язык сценариев и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE5CD3F45521A5728ACCC6E919A4313C372710DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480868   (1008685) от 30.06.2021
+
+Денис Шевченко | О Haskell по-человечески (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами - книга о Haskell, удивительном и прекрасном языке программирования. Функциональное программирование - своеобразное гетто посреди мегаполиса нашей индустрии. Доля функциональных языков пока ещё очень мала, и многие разработчики побаиваются знакомства с этими языками, и с Haskell в особенности. Моя цель - разрушить этот страх. Вероятно, вы слышали, что (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB1DE9B2A363F2120461F57B3D50D8848A4E31A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480967   (1008548) от 01.07.2021
+
+Joe Mayo | C# Cookbook (Early Release) (2021) [EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Even if you're familiar with C# syntax, knowing how to combine various language features is a critical skill when building applications. This handy cookbook is packed full of recipes to help you solve issues for C# programming tasks you're likely to encounter. You'll learn tried-and-true techniques to help you achieve greater productivity and improve the quality (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E75A50122025AAEDFA7527346F719539248006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480476   (1008369) от 02.07.2021
+
+Алексей Васильев | Программирование на Python в примерах и задачах (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня существует много разных языков программирования. Некоторые из них популярны, а некоторые — не очень. Обычно популярность языка определяют по количеству программистов, которые используют его в своей работе на постоянной основе, или по запросам работодателей, которые ищут сотрудников-программистов. Долгие годы традиционно популярными являются языки программирования (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D1607D14901141E6E3FEFB13CC1AF98EBDAB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481873   (1007947) от 05.07.2021
+
+Ройс Дэвис | Искусство тестирования на проникновение в сеть (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пентестеры выявляют бреши в безопасности, атакуя сети точно так же, как это делают злоумышленники. Чтобы стать пентестером мирового уровня, вам необходимо освоить наступательные концепции безопасности, использовать проверенную методологию и постоянно тренироваться. В этой книге представлены уроки эксперта по безопасности Ройса Дэвиса, а также учебная виртуальная (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C69BBA88DAF8B4A864CFBD1F0CF6D831D4A6FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482238   (1007697) от 07.07.2021
+
+Даниэль Куссвюрм | Профессиональное программирование на ассемблере x64 с расширениями AVX, AVX2 и AVX-512 (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007697.jpg" />
+</div>
+
+
+###  Подробнее
+
+зучите язык ассемблера x64, сосредоточившись на обновлениях набора команд x86, наиболее актуальных для разработки прикладных программ.
+
+Рассматриваемые темы:
+64-разрядная платформа x86: архитектура, типы данных, регистры, режимы адресации памяти и базовый набор команд;(   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2944EE53B95FAB238C61419D611A2D256F3B0B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482168   (1007679) от 07.07.2021
+
+П.А  Дмитриев и др. | BIOS. Настройки. Описание, рекомендации по выбору значений, разгон ПК, решение проблем, 5-е издание (2013) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007679.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге приведено подробное описание BIOS и его параметров. При этом представлены различные версии BIOS от всех известных производителей, включая самые современные. При рассмотрении настроек BIOS даются рекомендации по выбору нужных значений. Из этой книги вы узнаете, как повысить производительность компьютера, оптимизировать работу его отдельных систем (процессора, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF (оригинал-макет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1006DBD42E54D3E4BDFCD3D1038C6B0E6470EE59
 ```
 
 https://mybot314.ru/tekegram_catalog/

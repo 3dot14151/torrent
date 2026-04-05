@@ -1,3 +1,134 @@
+###  Публикация: 1505355   (805870) от 26.10.2021
+
+Tattoon Master | Мастер Таттун [1996, OVA, 2 из 2] DVDRip 480p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никак не ожидал старшеклассник Хибио Хибино такой подлости от собственной матери: без него его женили. И всё ради чего? Его мать, Масаэ Хибино, та ещё авантюристка, отдала сына в мужья верховной жрице Ниме за возможность беспрепятственно изучать её таинственное племя Таттун. Жрица же — прекрасная юная девушка с магическими способностями, которая, случайно завидев (   Читать дальше...   )Производство: AICЖанр: приключения, комедия, повседневностьРежиссер: Хирокава СюитиПеревод: Егор ЗайцевЯзык озвучки: японский, русскийСубтитры: русские, английскиеПродолжительность: 2 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08D34A77C9C563B7FAB8D78D20F572E4C48C66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505143   (805713) от 26.10.2021
+
+Honoo no Labyrinth | Labyrinth of Flames | Пламенный лабиринт [2000, OVA, 2 из 2] DVDRip 576p 10-bit raw+rus+ukr
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная Россия, Дальний Восток, параллельный мир.
+В середине XIX века после поражения в Японии сторонников сёгуната Токугава его наиболее ярые приверженцы отплыли в Россию. Выкупив у царя большой участок земли, они построили город, спроектированный в полном соответствии с японской традицией - храмами, замками и так далее. Так на Дальнем Востоке появился японский (   Читать дальше...   )Производство: Studio Fantasia / スタジオ・ファンタジアЖанр: комедия, приключения, эттиРежиссер: Нисидзима КацухикоПеревод: Blast Off, PradedЯзык озвучки: японский, русский, украинскийСубтитры: русские, английскиеПродолжительность: 2 эп. по 35 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E5BAD9E27BCBBDB9DD935A02F1538EEB42622E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505568   (803997) от 27.10.2021
+
+Jungle de Ikou! | В джунгли! [1997, OVA, 3 из 3] DVDRip 480p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятилетняя Нацуми – обычная жизнерадостная школьница: беспечная, энергичная, не прочь подраться и/или слинять с доп.занятий... Вернее, Нацуми была обычной школьницей – до того, как ее легкомысленный папаша подарил дочке странный артефакт, вывезенный из гвинейских раскопок: загадочную статую с изумрудными инкрустациями, которые девочка приспособила в качестве серег. (   Читать дальше...   )Производство: Chaos Project / カオスプロジェクトЖанр: комедия, приключения, этти, мистикаРежиссер: Морияма ЮдзиПеревод: Игорь Батуев (Watson), Павел Батуев (Shalcker)Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 3 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCE124CA32692F5DFAF5DF68EDD70BA044A9D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505482   (803994) от 27.10.2021
+
+Gokushufudou | Путь домохозяина [2021, Web, 10 из 10] WEB-DLRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертный Тацу — живая легенда в сфере криминала. Когда-то его имя вселяло ужас, как полицейским, так и преступникам. Однако по каким-то причинам он бросает бандитскую жизнь, и теперь Тацу — обычный домохозяин, приспособившийся к повседневным домашним делам. Удастся ли бывшему якудза остаться преданным мужем и вести спокойную жизнь, не ввязываясь при этом в различные (   Читать дальше...   )Производство: ЯпонияЖанр: Комедия, повседневность, романтикаРежиссер: Кон ТиакиПеревод: Вероника Яковлева (Netflix)Язык озвучки: Японский и русский (J&N union, Anilibria.TV)Субтитры: РусскиеПродолжительность: 10 серий по 17 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E92ABDED66150A82EBF45E704E8918A4B0ADF33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100946   (802836) от 30.03.2017
+
+Idol Jihen / Idol Incidents / Проблемы идола [2017, TV, 12] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увеличение разрыва в доходах, постепенное загрязнение окружающей среды, неразрешимые проблемы отходов, списки по уходу за ребенком в ожидании обсуждается без тех, кого это касается, коррупция... власти, размазанны из-за корыстных интересов, ничего не могу сделать против многих проблем и источников недовольства. Это в данной ситуации, с Японией, загнанной в угол, (   Читать дальше...   )Производство: Студия MAPPAЖанр: повседневность, музыкальныйРежиссер: Ёсида ДайсукэЯзык озвучки: Русский (Brigella)Субтитры: ОтсутствуютПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DD69EAA773E26590EFD061538BF822059805D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506177   (800760) от 30.10.2021
 
 Mahoromatic: Motto Utsukushii Mono | Mahoromatic: Something More Beautiful | Махороматик: Еще больше прекрасного! [2002, TV, 14 из 14] BDRip 1070p 10-bit raw+rus+eng
@@ -6,7 +137,7 @@ Mahoromatic: Motto Utsukushii Mono | Mahoromatic: Something More Beautiful | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800760.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ Mahoromatic: Tadaima Okaeri | Mahoromatic: I'm Home | Махороматик: С
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800759.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ Mahoromatic Natsu no TV Special: Ecchi na no wa Ikenai to Omoimasu | Mahoromatic
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800758.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ Mahoromatic: Automatic Maiden | Махороматик: Автоматическ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800757.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ Rewrite: Moon and Terra / Перезапись: Луна и Земля [2017, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799954.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ Trickster / Обманщик [2016, TV, 24] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799953.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ Kyou Kara Maou! R | Kyo Kara Maoh! R | God? Save Our King R | King From Now On! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799831.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799827.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | От
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799826.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ Mujaki no Rakuen | Paradise of Innocence | Невинный рай [2014-2016, O
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798203.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ Human Lost: Ningen Shikkaku | No Longer Human | Human Lost: Исповедь н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797677.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797262.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797167.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797166.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ Goblin Slayer | Убийца Гоблинов [2018, TV, 12 ep] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797061.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ Sword Art Online II | Мастера Меча Онлайн II [ТВ-2] [2014, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796472.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ Kureopatora | Cleopatra | Клеопатра, королева секса [1970]
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795996.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ Goblin Slayer / Убийца гоблинов [2018, TV, 12 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794689.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ Just Because! / А просто так! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794505.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ Fate/Apocrypha / Судьба/Апокриф [2017, TV, 25 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794504.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note - Hakamori to Neko to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792708.jpg" />
 </div>
 
 
@@ -542,138 +673,6 @@ Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note - Hakamori to Neko to
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:760C37B6EC871383BC41FD448F31063AB498AD4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357625   (792280) от 31.05.2020
-
-Kimi no Na wa | Твоё Имя [2016, Movie] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мицуха Миямидзу — обычная девушка, уставшая от жизни в провинции. Её отец, мэр города, ведёт избирательную кампанию, а в семейном синтоистском храме ей приходится прилюдно исполнять древние ритуалы. И она мечтает перебраться из тесного провинциального мирка в большой город.
-Таки Татибана — увлекающийся архитектурой старшеклассник, вынужденный работать на полставки, (   Читать дальше...   )Производство: CoMix Wave, ЯпонияЖанр: Романтика, ДрамаРежиссер: Синкай МакотоОзвучка: Двухголосая, Многоголосая закадровая, ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 1:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECB80B239F089D4E99A39B035A7DD2AE644CA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274664   (791994) от 08.01.2019
-
-Jashin-chan Dropkick [TV-1] | Dropkick on My Devil! | Пинок с наскока Дзясин-тян [ТВ-1] [2018, TV, 11 + SP] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрине Ханазоно — студентка, готическая лолита и опытный оккультный практик (хотя последнее не совсем правдиво). Тем не менее, неведомым образом ей удаётся призвать из глубин ада демона по имени Джащин-чан — девушку с нижней половиной тела кобры, которая поселяется в комнате Юрине. Вот только Джащин-чан хочет поскорее вернуться в ад, а самый быстрый и верный способ (   Читать дальше...   )Производство: студия NomadЖанр: комедияРежиссер: Сато ХикаруПеревод: Язык озвучки: Русский
-TV-1 (AniDub), (Anilibria), - внешними файламиЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB74F6E025D7EB37D367EB5E82D275436C437362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943520   (791871) от 15.11.2021
-
-The Rolling Girls | Девчонки-путешественницы | Девчата на колёсах [2015, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x2(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791871.jpg" />
-</div>
-
-
-###  Подробнее
-
-После Великой Токийской войны прошло десять лет. Японские префектуры стали независимыми государствами, каждым из которых правит «Ветеран», поддерживаемый армией «Пешек» в борьбе с другими государствами-кланами. Предводитель саитамского клана приказывает четырём пешкам — Нодзоми, Юкине, Аи и Тиае — отправиться в мотопробег по Японии, чтобы договариваться о битвах (   Читать дальше...   )Жанр: приключенияРежиссер: Дэай КотомиПеревод: Русские субтитры от Hariton Harko & Veles & YujinСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C964F46F52135F9FCF7BF39C0CA9D955E31D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382721   (791729) от 01.06.2020
-
-Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение одноименной адаптации серии ранобэ "Удар крови", которое будет охватывать сюжет вплоть до 17 тома «Сломанное святое копьё» и является окончанием арки об истории Святой войны. Чем же закончится данное противостояние и как изменится жизнь главного героя Кодзё Акацуки и его взаимоотношения с Юкиной Химэраги вы узнаете, посмотрев данное аниме.Производство: Connect, ЯпонияЖанр: Приключения, ФантастикаРежиссер: Ямамото ХидэёОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 10 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A58FC30B03EBAE1CEEC96F595760187676B271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383057   (790571) от 03.06.2020
-
-Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая свинья не понимает мечту девочки-зайки! (фильм) [2019, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фудзисава, яркое небо, блестящее на солнце море... Чего ещё может желать второкурсник старшей школы Сакута Адзусагава, проводящий блаженные дни в компании своей подруги Маи Сакурадзимы? Наверное, всё что угодно, но точно не встречи с Сёко Макинохарой, своей первой любовью. Кроме того, странные обстоятельства сталкивают парня с двумя Сёко: школьницей и взрослой женщиной. (   Читать дальше...   )Производство: CloverWorks, ЯпонияЖанр: РомантикаРежиссер: Масуй СойтиОзвучка: Двухголосая, Многоголосая закадровая; ДублированнаяСубтитры: Надписи, ПолныеЯзык: Продолжительность: 01:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04BB6CBD33E12EA5CFC06D98E03C3B951BEB51D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

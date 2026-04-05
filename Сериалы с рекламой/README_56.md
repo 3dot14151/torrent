@@ -1,3 +1,56 @@
+###  Публикация: 1781503   (26738) от 23.02.2025
+
+Нулевой день / Zero Day (2025) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимый и уважаемый народом бывший президент США Джордж Маллен возглавляет специальную комиссию, расследующую беспрецедентную кибератаку, которая привела к гибели более 3000 человек. Пытаясь докопаться до правды, Маллену и его команде придется всерьез рассматривать теории заговоров, которые раньше казались полным бредом.
+Сериал «Нулевой день» — политический триллер (   Читать дальше...   )Производство: США / Grand Electric, Netflix, Panoramic Media CoЖанр: триллер, драмаРежиссер: Лесли Линка ГлаттерАктеры: Роберт Де Ниро, Джесси Племонс, Лиззи Каплан, Конни Бриттон, Джоан Аллен, Дэн Стивенс, Мэттью Модайн, Анджела Бассетт, Билл Кэмп, МакКинли Белчер III и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3CD190B428216CCA33E6681159C98E00B526FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782081   (26366) от 26.02.2025
+
+Камера 211 / Celda 211 / Prison Cell 211 (2025) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хуан Оливера, адвокат по правам человека, прибывает в переполненную тюрьму для встречи с клиентом, но внезапно оказывается в эпицентре кровавого бунта, спланированного заключёнными как прикрытие для массового побега. Оказавшись в ловушке среди обезумевших узников, он вынужден скрывать свою личность, притворяясь одним из них.Производство: Мексика / Woo FilmsЖанр: триллер, драма, криминалРежиссер: Херардо Наранхо, Хайме РейносоАктеры: Карен Сандовал Энглер, Ana Sofia Gatica, Ernesto Meléndez, Диего Кальва, Херардо Тарасена, Эктор Хименес, Ноэ Эрнандес, Алехандро Пуэнте, Антонио Фортье, Джованна Сакариас и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE0B52EC2733FB3130562CA8B6C6DC5B2A55FA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782080   (26355) от 26.02.2025
 
 Камера 211 / Celda 211 / Prison Cell 211 (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26355.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26174.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26137.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25957.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25832.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25684.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25680.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25653.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25034.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24682.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24286.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24276.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22527.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22515.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22469.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22468.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22343.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21994.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21697.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21694.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21559.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21528.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21488.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21450.jpg" />
 </div>
 
 
@@ -629,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E496AB4FBE4948AE0AA76E7C6E040A57D98A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791650   (21446) от 14.04.2025
-
-Лишь один взгляд / Tylko jedno spojrzenie / Just One Look (2025) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще во вполне юном возрасте Грета отправилась на концерт, где случился пожар. ЧП привело к тому, что девушка потеряла память – толком выступление она не помнит. Сейчас Грета счастлива в браке, у нее трое детей и любящий муж. Все изменилось после проявки фото с отдыха, среди которых оказался явно «чужой» снимок. Увидев его, супруг тут же сбежал из дома. Что произошло (   Читать дальше...   )Производство: Польша / ATM Grupa S.A.Жанр: триллер, драма, криминал, детективРежиссер: Марек Лехкий, Monika FilipowiczАктеры: Мария Дембска, Цезары Лукашевич, Marta Malikowska, Мирослав Зброевич, Миросляв Ханишевский, Kalina Górzynska, Maksymilian Stuchlik, Моника Кживковская, Пётр Страмовский, Анджей Зелиньски и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1C3A310FE582CBC3E812AD1A38392919F681FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791665   (21428) от 14.04.2025
-
-Бунтари / Les Revoltes (2023) WEBRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элеонора и Джейкоб - молодые адвокат с принципами и журналист-расследователь - объединяют усилия для обличения недостатков государственных институтов. Борясь с бюрократическим абсурдом, Элеонора и Джейкоб расследуют дела и помогают отчаявшимся людям обрести справедливость.Производство: Канада / Aetios ProductionЖанр: драмаРежиссер: Луи ШокеттАктеры: Сара-Джинн Лабросс, Пьер-Люк Фанк, Родни Александр, Джозеф Антаки, Nelson Coronado, Милен Маккэй, Луи Филипп Дандено, Мари-Ив Борежар, Тетчена Белланж, Randy Simons и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A2220F0FEA14C7C944CD12EFA09F642A9AE91E
 ```
 
 https://mybot314.ru/tekegram_catalog/

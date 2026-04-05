@@ -1,3 +1,32 @@
+###  Публикация: 1662856   (187530) от 19.09.2023
+
+Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-Rip]<Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187530.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Song For Eden
+A2 Jerusalem Is Falling
+A3 Design The Century
+A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662814   (187452) от 19.09.2023
 
 VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Bizet (1976) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Opera, Romantic>
@@ -6,7 +35,7 @@ VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Pucc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187452.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187201.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187193.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187128.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187108.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Myrath - Дискография (8 albums) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187065.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186830.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186451.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186440.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186428.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186425.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186223.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186102.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185442.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184834.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184797.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183997.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183669.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183346.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183203.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182296.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181613.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181262.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180956.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180860.jpg" />
 </div>
 
 
@@ -708,35 +737,6 @@ Diablo — финская мелодик-дэт/грув-метал группа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:100F36BE192373B50EC264E0DA07BE6F3FF8BBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427597   (180664) от 01.12.2020
-
-Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180664.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mysterons
-A2 Sour Times
-A3 Strangers
-A4 It Could Be Sweet(   Читать дальше...   )Жанр: Trip HopПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

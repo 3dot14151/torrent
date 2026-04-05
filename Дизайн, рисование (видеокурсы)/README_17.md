@@ -1,3 +1,55 @@
+###  Публикация: 1353555   (991623) от 18.01.2020
+
+Udemy | Создание Sci-Fi ассетов в Blender 2.81 и Substance Painter / Blender 2.81 - Substance Painter - Sci Fi Asset Creation (2019) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991623.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом тренинге мы познакомимся с процессом создания научно-фантастических ассетов. Возьмем в качестве примера создание винтовки для видеоигр.Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 10:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF852F8A565C155D857F92530E97684AF64B6BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 677014   (984137) от 04.01.2016
+
+Установка розеток на кафель [2013] DVDRip
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрущёвка. Плитка положена... И тут встаёт вопрос: Как установить электророзетку на кафельную плитку? Об этом вы и узнаете,посмотрев это видео.Жанр: ОбучающийПродолжительность: 00:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63641A8512E0235B806FABDF2EDFC3CC56D44A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355324   (983232) от 26.01.2020
 
 МультПросвет | 3D-скульптинг в Blender 2.8 (2019) PCRec [H.264/1080p-LQ]
@@ -6,7 +58,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983232.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ CG Cookie | Мультипликационный рендеринг в Blender F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980897.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Blender NPR | Нефотореалистичный рендеринг в Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980360.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978532.jpg" />
 </div>
 
 
@@ -118,7 +170,7 @@ Digital-Tutors | Inking Comic Art in Illustrator [2013] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976023.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ Digital-Tutors | Shape Based Character Design in Photoshop [2013] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976015.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ Digital-Tutors | Drawing Female Proportions and Surface Anatomy [2013] [EN] PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975917.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ Paris Christou | Как рисовать Черри 2.0 / How to draw Cherry 2.0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975394.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ Lynda.com | Python Scripting for Blender (2016) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974005.jpg" />
 </div>
 
 
@@ -255,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969550.jpg" />
 </div>
 
 
@@ -282,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969150.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ Udemy, Darrin Lile | Blender 2.8 Создание игрового автомо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968504.jpg" />
 </div>
 
 
@@ -334,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968266.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967080.jpg" />
 </div>
 
 
@@ -389,7 +441,7 @@ Magisters | Photoshop для веб-дизайнера (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963113.jpg" />
 </div>
 
 
@@ -415,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961941.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956843.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956807.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950651.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ Pluralsight.com | Основы Cinema 4D Mograph / Cinema 4D Mograph Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943495.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ Udemy.com | InDesign CC 2019 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940516.jpg" />
 </div>
 
 
@@ -576,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939448.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ Lendwings | User Experience: детальное руководство по Юз
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928182.jpg" />
 </div>
 
 
@@ -630,7 +682,7 @@ Side FX, John Lynch | Houdini 16 Ocean Tools (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927066.jpg" />
 </div>
 
 
@@ -641,58 +693,6 @@ Side FX, John Lynch | Houdini 16 Ocean Tools (2017) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1131E031BCA467FAB1B1EBA92B66E310CF8E4868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489281   (927046) от 15.08.2021
-
-Side FX, Omar Zarifi | Houdini 17 Masterclass: Whitewater System (2019) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мастер-класс посвящен обзору системы Whitewater в Houdini 17, которая претерпела некоторые изменения в новой версии. Сначала мы разберем, чем она отличается от предыдущих версий, а затем вы увидите различные сценарии с добавлением белой воды, включая пляж и всплески воды, ударяющейся о камни.Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C9E20E5AE0F1C0D12CB4EEB9A3707D0F2692CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489291   (927040) от 15.08.2021
-
-Side FX, Andreas Glad | Splashmesh Houdini for games (2017) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927040.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе я покажу как создать красивый всплеск грязи для Unreal Engine 4 с помощью FLIP контейнера в Houdini. Мы начнем с пустой сцены, настроим контейнер, сбросим вниз камень (на самом деле это будет просто деформированная сфера), затем возьмем только нужную нам форму всплеска и экспортируем один кадр с геометрией в Unreal Engine 4. Затем мы настроим материал (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9152219B53C6B4636D065EAA55795830D48F1BD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

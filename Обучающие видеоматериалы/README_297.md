@@ -1,3 +1,31 @@
+###  Публикация: 1730679   (53045) от 17.06.2024
+
+Krav-maga, Антон Фарб  | Sucker Punch: Искусство подлого удара (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53045.jpg" />
+</div>
+
+
+###  Подробнее
+
+На улице правил нет. Можно все: бить в пах, выдавливать глаза, кусаться и даже ругаться матом. Решит ли это проблему само по себе? Нет. Подлянки – они как специи: добавляют вкуса, но из соли и перца обед не приготовишь.
+Сила, выносливость, чувство дистанции, опыт спаррингов не заменить пинком по яйцам. Но с подлянками дело пойдет веселее.
+Вот только почему-то люди (   Читать дальше...   )Производство: Krav-magaЖанр: СеминарЯзык озвучки: РусскийПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58359D3137AA3B9F6D35AD4EB841FDC617B8B34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731844   (52438) от 23.06.2024
 
 Udemy, Vassilyi Gudomarov | Современный JavaScript: От новичка до профессионала 2024 (2024) WEB-DL [RU]
@@ -6,7 +34,7 @@ Udemy, Vassilyi Gudomarov | Современный JavaScript: От новичк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52438.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Udemy, Vassilyi Gudomarov | HTML5 и CSS: Полный курс верстки �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52436.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52055.jpg" />
 </div>
 
 
@@ -92,7 +120,7 @@ Austin School of Furniture & Design, Alex Lohn | Конический журна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52039.jpg" />
 </div>
 
 
@@ -120,7 +148,7 @@ Pluralsight | Разработка печатных плат с Eagle (2015) PCR
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51893.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51744.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51537.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51531.jpg" />
 </div>
 
 
@@ -225,7 +253,7 @@ Klaus | Авторский курс "Зеркало Интернета 3. Моб
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51523.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51516.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ Udemy, 3D Tudor | Blender Geometry Node Fire Animation (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51450.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ Udemy, FastTrack Tutorials, Emiel Sleegers | Creating Advanced Trim Sheet Textur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51426.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51371.jpg" />
 </div>
 
 
@@ -360,7 +388,7 @@ Houdini-course.com, Christian Bohm | Houdini FX Course (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51367.jpg" />
 </div>
 
 
@@ -389,7 +417,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51362.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51336.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ LiveClasses, Константин Тимофеев | Основы моделир
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51255.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51231.jpg" />
 </div>
 
 
@@ -498,7 +526,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51230.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ Gary Rogowski | Столярные работы с ручным фрезером
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51082.jpg" />
 </div>
 
 
@@ -551,7 +579,7 @@ The Gnomon Workshop, Thomas Butters | Creating a Hero Weapon for Games (2024) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51023.jpg" />
 </div>
 
 
@@ -577,7 +605,7 @@ Luke Goodhue | Обработка пиломатериалов от чернов
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50671.jpg" />
 </div>
 
 
@@ -603,7 +631,7 @@ elena-udalova.ru, Елена Удалова | Курс немецкого язы
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50473.jpg" />
 </div>
 
 
@@ -632,7 +660,7 @@ Mensh | Роутер FreeBSD 8 с билингом Nodeny [2010] VM Ware Rec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50205.jpg" />
 </div>
 
 
@@ -659,7 +687,7 @@ plants.coach, Яна Строинская | Мини-курс по переса�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50146.jpg" />
 </div>
 
 
@@ -672,33 +700,6 @@ plants.coach, Яна Строинская | Мини-курс по переса�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C15084829CD3B2AD31459539409F76BE6FC63B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736857   (50109) от 14.07.2024
-
-Udemy, Вадим Прокопчук | Верстка сайта c использованием Gulp в модульном(Bento) стиле (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50109.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном курсе, я полностью верстаю и комментирую верстку сайта в модульном стиле, все делаем на сборке Gulp.
-Каждый верстальщик много раз столкнется с версткой в которой будет модульная секция, masonry расположение элементов, ну или же как в данном проекте все будет построено в модульном стиле. В такой верстке часто есть разные моменты, которые вызывают сложности (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455CFD0077B649AE38ACEA16685980BC38383793
 ```
 
 https://mybot314.ru/tekegram_catalog/

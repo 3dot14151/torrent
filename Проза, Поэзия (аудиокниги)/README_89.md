@@ -1,57 +1,3 @@
-###  Публикация: 1525107   (129991) от 19.01.2022
-
-Анна Джейн | Его фанатка (2021) [MP3, Евгения Осинцева]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелли фанатеет от Фила с четырнадцати лет. Ещё бы – он гитарист популярной рок группы, красивый, талантливый и безумно милый! Но для него она так и остаётся маленькой девочкой, которой он дарит шоколадки и плюшевых медвежат. Возможно, однажды Нелли вырастет, и Фил поймёт, какая она взрослая и красивая. И как сильно она его любит. По-настоящему. Это желание она загадывает (   Читать дальше...   )Жанр: Современные любовные романыПродолжительность: 10:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35EFFD1E5A520D30184A88C69D1AD19C3F5E0D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525267   (129971) от 19.01.2022
-
-Элиф Шафак | 10 минут 38 секунд в этом странном мире (2020) [MP3, Юлия Тархова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текила Лейла убита. Её сердце уже перестало биться, но в течение 10 минут 38 секунд её мозг всё ещё активен. И за эти краткие минуты Лейла вспоминает свою жизнь и друзей, таких же изгоев, как она...
-
-Её детство прошло в провинции в глубоко религиозной семье с деспотичным отцом, слепо следующим законам Корана. Не выдержав диктата отца, Лейла убегает из дому в Стамбул, (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Ольга И. ЛютоваПродолжительность: 12:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A80904C708A507238187DB416B76C59EE3EAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683063   (129891) от 09.12.2023
 
 Алексей Иванов | Географ глобус пропил (2014) [MP3, Ирина Ерисанова]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129891.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129545.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129152.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127214.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126511.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126509.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126481.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126238.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126229.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126069.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126043.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126042.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125828.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125205.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125174.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124891.jpg" />
 </div>
 
 
@@ -481,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124874.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124163.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123580.jpg" />
 </div>
 
 
@@ -560,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123533.jpg" />
 </div>
 
 
@@ -587,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121142.jpg" />
 </div>
 
 
@@ -615,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121110.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120976.jpg" />
 </div>
 
 
@@ -667,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120822.jpg" />
 </div>
 
 
@@ -678,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AE0BD7014AAB34C4CF85D31D2D35778756AF3F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695233   (120461) от 28.01.2024
+
+Джуно Диас | Короткая фантастическая жизнь Оскара Вау (2022) [MP3, Кирилл Радциг, Анастасия Шумилкина]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Оскара Вау никогда не была лёгкой. А какой ещё она может быть у милого, но толстого ботаника из доминиканского гетто? Оскар живёт в Нью-Джерси вместе со своей старомодной матерью и сестрой-бунтаркой и мечтает стать доминиканским Толкином. А ещё, конечно же, найти свою любовь. Однако шансы обрести счастье ничтожно малы, и всё из-за фуку — проклятья, которое (   Читать дальше...   )Жанр: современная зарубежная литератураПеревод: Елена ПолецкаяЯзык озвучки: русскийИздательство: ВимбоПродолжительность: 11:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1DC5E2208BC79C64DC526CBBE8E90D9015D097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695562   (120282) от 29.01.2024
+
+Владимир Высоцкий | Роман о девочках (2005) [MP3, Сергей Чонишвили и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120282.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Роман о девочках» – так называется незаконченная проза Владимира Семеновича Высоцкого (1938–1980). Действительно роман или просто повесть с таким названием писал поэт, мы уже никогда не узнаем. Налицо лишь литературный факт – повествование обрывается после трех десятков страниц. Обрывается, задав лишь сюжетные векторы главных героев – экс-студентки театрального (   Читать дальше...   )Жанр: Русская литература, романИздательство: Империя звука. AuravoxПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4461B1C4372C2A91419289A444768C047EB02C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Chill-Out Music Market (Take-It-Easy Tunes) (2017) [AAC|~313 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666823.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - This Is Chillout Jazz, Vol. 2 (Cool Jazzy Sounds in a Lounge Mood) (2014) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666821.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ High Step Society - High Step Society (2017) [AAC|~324 Kbps] <Electro Swing>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666820.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - This Is Chillout Jazz, Vol. 1 (Cool Jazzy Sounds in a Lounge Mood) (2014) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666816.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Hangover Lounge Grooves, Vol. 3 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666814.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666813.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666812.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666811.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Deep-House Atmosphere, Vol. 1 (2022) [AAC|~316 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666809.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lyre le temps - Outside the Box (Extended Version) (2014) [AAC|~310 Kbps] <Elect
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666768.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Eargasm Chill Out, Vol. 2 (An Obsession of Erotic Lounge) (2014) [AAC|~332 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666766.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - This Is Chillout Jazz, Vol. 4 (Cool Jazzy Sounds in a Lounge Mood) (2015) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666764.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Sunrise Avenue, Vol. 3 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~328 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666759.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Chillhop Guitar - Soothing Vacation (2022) [AAC|~344 Kbps] <Chill Out, Smooth Ja
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666757.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Eargasm Chill Out, Vol. 4 (An Obsession of Erotic Lounge) (2015) [AAC|~327 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666755.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Eargasm Chill Out, Vol. 3 (An Obsession of Erotic Lounge) (2015) [AAC|~336 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666754.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Eargasm Chill Out, Vol. 1 (An Obsession of Erotic Lounge) (2014) [AAC|~337 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666704.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666701.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666693.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Дискотека русского шансона (2020) [AAC|~335 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666645.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666642.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666569.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666556.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666489.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666437.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666436.jpg" />
 </div>
 
 

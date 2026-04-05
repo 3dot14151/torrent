@@ -6,7 +6,7 @@ Anti-Flag - American Fall (2017) [FLAC|Lossless|tracks] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788058.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tropical Fuck Storm - A Laughing Death In Meatspace (2018) [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787630.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cloves - One Big Nothing (2018) [FLAC|Lossless|tracks + .cue] <Indie, Pop Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787627.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Maggie Rogers - Heard It In A Past Life (2019) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787237.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787230.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sharon Van Etten - Remind Me Tomorrow (2019) [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787224.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Cure - Mixed Up (2018) 3CD, Deluxe Edition, RM. RE. [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787210.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Joseph Arthur & The Lonely Astronauts - Let's Just Be (2007) [FLAC|Lossless|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787028.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Wire - Silver/Lead (2017) [FLAC|Lossless|tracks + .cue] <Post-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785955.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Michelle Branch - Hopeless Romantic (2017) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785936.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AWOLNATION - Here Come the Runts (2018) [FLAC|Lossless|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785307.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Flasher - Constant Image (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785062.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Powerman 5000 - New Wave (2017) [FLAC|Lossless|tracks + .cue] <Industrial Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785031.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Guster - Look Alive (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785027.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mother Mother - Dance And Cry (2018) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785018.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ MØ - Forever Neverland (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784959.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Dears - Lovers Rock (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784581.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Radiohead - Amnesiac (2001) Limited Edition, Book [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784345.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Wilco - 14 Альбомов (1995-2019) 16-CD [FLAC|Lossless|tracks + .cue] <Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784246.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Franz Ferdinand - Always Ascending (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784059.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MGMT - Little Dark Age (2018) [FLAC|Lossless|tracks + .cue] <Alternative, Indie,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784051.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Wombats - Beautiful People Will Ruin Your Life (2018) [FLAC|Lossless|tracks 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783496.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Tonight Alive - Underworld (2018) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781308.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ U2 - The Unforgettable Fire (1984) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781287.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ The Monochrome Set - Maisieworld (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779395.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779141.jpg" />
 </div>
 
 

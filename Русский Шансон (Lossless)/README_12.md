@@ -6,7 +6,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631695.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630507.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Дальний Свет - Выпуск Седьмой (2006) [APE|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630425.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630045.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628631.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628061.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626643.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625674.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625673.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625555.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624663.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623537.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623094.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622366.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621085.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621009.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Va - Серия «Таксист» 6. Шансон рулит (2006) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619081.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619079.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617447.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616839.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616054.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615847.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614234.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612946.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - В нашу гавань заходили корабли 1 (2001) [FLAC|Los
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607403.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604418.jpg" />
 </div>
 
 

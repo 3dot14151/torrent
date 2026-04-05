@@ -1,3 +1,32 @@
+###  Публикация: 1217349   (743130) от 04.04.2018
+
+Jaded Heart - Devil's Gift (2018) [MP3|320 Kbps] <Hard Rock, Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743130.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wasteland (4:24)
+ 2. The Enemy (4:01)
+ 3. Set Free (5:33)
+ 4. Scream of Anger (5:27)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' HeavyПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D055583BC457112237DB02BBFF7ECD3FC70F5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021146   (742494) от 28.05.2016
 
 The Alex Parche Project - Prohibido El Paso (1994) [MP3|320 кб/с] <Hard Rock>
@@ -6,7 +35,7 @@ The Alex Parche Project - Prohibido El Paso (1994) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742494.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Racing The Sun - Killing Time (2017) [MP3|320 Kbps] <Hard Rock, Grunge, Punk Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741004.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Rhino Bucket - The Last Real Rock n’ Roll (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740901.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Crazy Lixx - Ruff Justice (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Gla
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740898.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Poor As Flies - Poor As Flies (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740460.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Hard & Heavy 100 (2020) [MP3|320 Kbps] <Hard Rock & Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739774.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Saltmesh - Check This Out Loud! (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739355.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Tallan Noble Latz Band - Tallan (2022) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737768.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Crystal Ball - Crysteria (2022) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737377.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Lionheart - The Reality Of Miracles (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732952.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Alcatrazz - Born Innocent (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732911.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Hard Rock Arena (2019) [MP3|320 Kbps] <Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729948.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Stranded By Choice - Hellroaring (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727778.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ First Signal - One Step Over The Line (2016) [MP3|320 кб/с] <Melodic Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727769.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Slash - Conspiracy Series Volume 1 (2019) Compilation [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727541.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Rohand - Everything Is Gone (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726718.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Emerald Sabbath - Ninth Star (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724772.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Demian - Demian (1970) [MP3|320 кб/с] <Hard Rock, Psychedelic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722011.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Thundermother - Heat Wave (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719152.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Limelight - Limelight (1980) Reissue, 2012, Flawed Gems [MP3|320 Kbps] <Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718833.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Bai Bang - Rock of Life (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718621.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Bonfire - Temple of Lies (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717295.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Statement - Force of Life (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716813.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Stretch - You Can't Beat Your Brain For Entertainment (1976) [MP3|320 кб/с] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716129.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Days Of Jupiter - New Awakening (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714236.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Days Of Jupiter - New Awakening (2017) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E40712D0A532CAC0AAA290240A00E2AA66A9FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400575   (712601) от 08.08.2020
-
-Deep Purple - Whoosh! (2020) [MP3|320 Kbps] <Hard Rock>
-
->>След.
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Throw My Bones [03:38]
-02. Drop the Weapon [04:23]
-03. We're All the Same in the Dark [03:44]
-04. Nothing at All [04:42](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238F11495D85781DEE2D14166DBD949D67D973EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

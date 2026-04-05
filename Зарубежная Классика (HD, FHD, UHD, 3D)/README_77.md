@@ -1,3 +1,108 @@
+###  Публикация: 1611628   (201574) от 07.03.2023
+
+Кто подставил кролика Роджера / Who Framed Roger Rabbit (1988) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный дeтектив расследует загадочное преступление, в котором подозревается… мультипликационный персонаж кролик Роджер! Сыщик попадает в непредсказуемый мир, где его ожидают нарисованные злодеи с настоящими револьверами, говорящий автомобиль и соблазнительная мультяшная красотка. Наконец, на горизонте появляется мрачная фигура того, кто подставил кролика Роджера.Производство: США, Великобритания / Touchstone Pictures, Amblin EntertainmentЖанр: мультфильм, фэнтези, комедия, криминал, детективРежиссер: Роберт ЗемекисАктеры: Боб Хоскинс, Кристофер Ллойд, Джоанна Кэссиди, Чарльз Флейшер, Стабби Кэй, Элан Тилверн, Ричард ЛеПарментье, Лу Хирш, Бетси Брантли, Джоэль СильверПеревод: Дублированный (R5)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46AA5824A85B24A2D5CD80B069287FBDAD5B90C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612307   (201572) от 09.03.2023
+
+Белый Клык / Zanna Bianca (1973) WEB-DL [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северная Америка, девятнадцатый век, эпоха «золотой лихорадки». Храбрый пес Белый Клык, которого вырастили индейцы, считал, что все люди – добрые. Но когда вокруг все бьются за золото, нужно уметь выбирать себе друзей. И уметь отомстить за них…Производство: Италия, Испания, Франция / In-Cine Compañía Industrial Cinematográfica S.A., Les Productions Fox Europa, Oceania Produzioni IntЖанр: приключения, семейный, вестернРежиссер: Лучио ФульчиАктеры: Франко Неро, Вирна Лизи, Фернандо Рей, Джон Стайнер, Раймонд Хармсторф, Даниэль Мартин, Рик Батталья, Даниэле Дублино, Морис Поли, Джон БартаПеревод: Дублированный (Киностудия имени Горького), профессиональный двухголосый (R5)Язык озвучки: русский, английский, итальянскийСубтитры: русские, английские, итальянскиеПродолжительность: 01:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1586CC046289E7EA52F5A402A9A78A2E20D6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611946   (201549) от 08.03.2023
+
+Лицо со шрамом / Scarface (1983) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем — «Лицо со шрамом»…Производство: США / Universal PicturesЖанр: драма, криминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель Салазар, Арнальдо СантанаПеревод: Многоголосый профессиональный (Киномания)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A408B3B3D60503C97DFB09E58375495687CD6B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613864   (201301) от 15.03.2023
+
+Тропы славы / Paths of Glory (1957) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие киноромана развертывается в 1916 году на Западном фронте. Полковник Дэкс командует пехотным полком французской армии. Уже два года союзники пытаются переломить ход войны с немцами. Начальник корпуса генерал Брулард приказывает дивизионному генералу Миро атаковать неприступную вражескую позицию, прозванную Муравьиным холмом.
+Провал операции был очевиден изначально, (   Читать дальше...   )Производство: США / Bryna ProductionsЖанр: драма, военныйРежиссер: Стэнли КубрикАктеры: Кирк Дуглас, Ральф Микер, Адольф Менжу, Джордж Макреди, Уэйн Моррис, Ричард Андерсон, Джо Тёркел, Кристиана Кубрик, Джерри Хауснер, Питер КэпеллПеревод: Многоголосый профессиональныйЯзык озвучки: русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A73AEA8A2BCE6DAEA05B56C5D4D008791EACAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613773   (201269) от 14.03.2023
 
 Последний император / The Last Emperor (1987) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [Theatrical Cut]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201269.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201261.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201156.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201142.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201025.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200890.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200337.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200290.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200154.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199969.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199884.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199817.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199574.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199494.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199471.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199308.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199265.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199187.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198911.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198638.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198599.jpg" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198562.jpg" />
 </div>
 
 
@@ -568,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3CA842ED244E96E2AF4AB6DE8ED493D246CEEE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627338   (198354) от 17.05.2023
-
-12 разгневанных мужчин / 12 Angry Men (1956) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юношу обвиняют в убийстве собственного отца, ему грозит электрический стул. Двенадцать присяжных собираются, чтобы вынести вердикт: виновен или нет. С начала заседания почти все считают подсудимого виновным, и лишь только один из двенадцати позволил себе усомниться. И он решает убедить остальных в своей правоте.Производство: США / Orion-Nova ProductionsЖанр: драма, детектив, криминалРежиссер: Сидни ЛюметАктеры: Генри Фонда, Мартин Болсам, Ли Дж. Кобб, Джозеф Суини, Эд Бегли, Джордж Восковек, Джон Фидлер, Э. Г. Маршалл, Джек Клагмен, Эд БиннсПеревод: Дублированный ("Мосфильм" со вставками MVO)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B907AC19AD99A3D8DE5954314A372E801B059EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633715   (198348) от 16.05.2023
-
-Прорва / The Money Pit (1986) BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198348.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как Уолтер и Анна были вынуждены съехать из квартиры в центре Нью-Йорка, они решили купить собственный дом! Но где взять такие деньги? А тут, как раз кстати, один знакомый предложил вроде бы чудный дом по чудесной цене - одно из тех предложений, от которых, как правило, не отказываются. И наши ничего не подозревающие герои решились на покупку. Но если (   Читать дальше...   )Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: комедияРежиссер: Ричард БенджаминАктеры: Том Хэнкс, Шелли Лонг, Александр Годунов, Морин Стейплтон, Джо Мантенья, Филип Боско, Джош Мостел, Яков Смирнофф, Кармине Кариди, Брайан БэкерПеревод: Профессиональный многоголосый (Премьер Мультимедиа)Язык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669C4E4A240F13E3ADFBE5F8E192B24783145AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633698   (198338) от 16.05.2023
-
-Охотники за привидениями / Ghostbusters (1984) BDRip [H.265/1080p] [10-bit] [Mastered in 4K]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198338.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце двадцатого века оказывается, что в Нью - Йорке живут не только обычные граждане, но и... привидения. Многомиллионное население не может противостоять натиску сверхъестественного. В конце концов на пути бесчисленных монстров не остаётся никого - кроме троих учёных - парапсихологов, которым известно всё о потустороннем мире, правда только в теории. И теперь (   Читать дальше...   )Производство: США / Black Rhino Productions, Columbia Pictures Corporation, DelphiЖанр: фантастика, фэнтези, боевик, комедияРежиссер: Айвен РайтманАктеры: Билл Мюррей, Дэн Эйкройд, Сигурни Уивер, Харольд Рэмис, Рик Морэнис, Энни Поттс, Уильям Этертон, Эрни Хадсон, Дэвид Маргулис, Стивен ТэшПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5802C7D0C0F874370129EE02BC89B40F0294ADE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627121   (198334) от 16.05.2023
-
-Охотник на оленей / The Deer Hunter (1978) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198334.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о трех американцах русского происхождения — их жизни до, во время и после войны во Вьетнаме.Производство: США, Великобритания / EMI Films, Universal PicturesЖанр: драма, военныйРежиссер: Майкл ЧиминоАктеры: Роберт Де Ниро, Джон Казале, Джон Сэвэдж, Кристофер Уокен, Мэрил Стрип, Джордж Дзундза, Чак Эспегрен, Ширли Столер, Рутаня Олда, Пьер СегаиПеревод: Многоголосый профессиональный (Цікава ідея, Киномания, Нева-1)Язык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 03:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A66215F813B38F88A5F12AB2ABA65758696A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

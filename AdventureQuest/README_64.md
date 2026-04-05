@@ -1,3 +1,81 @@
+###  Публикация: 1550867   (171791) от 21.10.2023
+
+Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171791.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом очаровательном приключении легенды прошлого становятся явью. Crowns and Pawns — современное приключение в духе таких классических игр, как Broken Sword, Still Life и Syberia. Откройте для себя малоизвестные страницы истории Европы. Узнайте легенды Великого княжества Литовского, выведите на чистую воду зловещую ячейку КГБ, решайте головоломки и собирайте улики, (   Читать дальше...   )Тип издания: LicenseРазработчик: Tag of JoyЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A461ED71A179AA2E228575C0C641A585A5F7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670979   (171671) от 22.10.2023
+
+Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lair of Torment - это короткий инди-хоррор с головоломками от первого лица, в жанре симулятора ходьбы. Глубоко под землей находиться убежище, в темных и сырых коридорах которого царит атмосфера страха и ужаса. Там, во мраке и тишине, стены шепчут тайные истории, а непроницаемые шторы между реальностью и кошмарами создают атмосферу напряжения и загадочности. Однако, (   Читать дальше...   )Тип издания: SceneРазработчик: Admia, a1esska, NotexЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E3631DC60BF832C656EF7DE793336ACC48C919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670801   (171640) от 22.10.2023
+
+Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171640.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Vlad Circus: Descend into Madness вы откроете для себя историю, полную тайн и боли, историю, где каждая тень скрывает в себе запутанную тайну или зловещую угрозу, и никто не застрахован от трагедии. Погрузитесь в леденящую от ужаса кровь историю цирка уродов 1920-х годов, который сгорел дотла, и переизобретение нового цирка. Следуйте за измученным Оливером (   Читать дальше...   )Тип издания: LicenseРазработчик: IndiesruptionЖанр: Survival Horror, Adventure, Puzzle, Thriller, Mystery, 2D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B128678B347D6705D094AF55EBC5FD9475459721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671045   (171474) от 23.10.2023
 
 The Gap (2023) [Multi] (1.0.0) License GOG
@@ -6,7 +84,7 @@ The Gap (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171474.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171463.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Under The Waves (2023) [Ru/Multi] (1.0.5) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171290.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170947.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170792.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170688.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (4041) License GOG [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170646.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170581.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169833.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169624.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Unto The End (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169154.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168649.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Titan Station (2022) [Ru/Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167833.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8109/dlc) Repack R.G. М�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167731.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167497.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167008.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.1116.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167007.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165987.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164520.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163764.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Saint Kotar (2021) [Ru/Multi] (1.53/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163566.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163507.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163501.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:278CAD3BDBCC01208957A69CAB5E418C117D24F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517163   (163204) от 14.12.2021
-
-VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в мир VenusBlood Hollow! С более чем 50 часами игрового процесса, в котором элементы SRPG сочетаются с богатым повествованием, вы будете командовать армией, которая захватит Плавучий континент Иггдрасиль! И с несколькими вариантами сложности, он понравится как заядлым игрокам, так и игрокам-любителям! В древности Святая Земля Гельвеция процветала под покровительством (   Читать дальше...   )Тип издания: LicenseРазработчик: Ninetail, DualtailЖанр: Стратегия, Приключение, JRPGЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89606B75B1DD2028446A3989B283EAD498B8C08E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432832   (162644) от 18.12.2020
-
-Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162644.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Saint Kotar: The Yellow Mask шагните навстречу страху вместе с Бенедеком Дохнаны и Николаем Калякиным в этом жутком и леденящем кровь приключении. Принимайте решения и повлияйте на события, приведшие к серии жутких убийств, предположительно связанных с колдовством и поклонением Дьяволу.Тип издания: RepackРазработчик: Red Martyr EntertainmentЖанр: Adventure (Horror), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B986F9F1A8C6E7D939376CAE5823541CD3AB3AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305117   (162240) от 18.10.2025
-
-Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Король Теней проклял славный город Ледовицу. Под действием проклятья вечной мерзлоты его бывшие жители восстали из мёртвых в образе безумных призраков. Выжившие спрятались глубоко под землёй, откуда ведут отчаянную борьбу против этой неземной силы. Силы неравны, поэтому они вынуждены скрываться, пока Король Теней продолжает собирать армию нежити над ними.Тип издания: LicenseРазработчик: Devespresso GamesЖанр: Приключение, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 ```
 
 https://mybot314.ru/tekegram_catalog/

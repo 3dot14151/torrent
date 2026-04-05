@@ -1,3 +1,32 @@
+###  Публикация: 1655086   (204616) от 24.08.2023
+
+Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crusher Destroyer
+02. March Of The Fire Ants
+03. Where Strides The Behemoth
+04. Workhorse(   Читать дальше...   )Жанр: Progressive, Sludge MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655257   (204462) от 25.08.2023
 
 Игорь Романов и группа «Союз» - Красный Свет (1990) [FLAC|24/192|image + .cue|VinylRip] <Hard Rock, Heavy Metal>
@@ -6,7 +35,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204462.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204295.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204266.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204160.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203795.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203748.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Mus
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203631.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203599.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203562.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203527.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203370.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203349.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Р�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203173.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203055.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202566.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202040.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201677.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201512.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Ch
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201399.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200488.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ital
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200378.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200228.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199887.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Overkill - Studio Albums (21 releases) (1985 - 2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199804.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199581.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628375   (199452) от 23.04.2023
-
-Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофильмов (1974) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Говорите тише (Н. Рота)
-02 Пассажир под дождем (Ф. Лэй)
-03 Мужчина и женщина (Ф. Лэй)
-04 Мелодия (М. Жарр)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1327811   (369604) от 27.09.2019
+
+Книжная серия | Для любознательных. Просто о сложном! [7 книг + 2CD] (2017-2019) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия предназначена для широкого круга любознательных читателей, увлеченных электротехникой, электроникой, авиацией, беспилотными полетами, микроконтроллерами, техническим творчеством и занимательными самоделками. С модулем Arduino можно успешно работать и в Windows, и в Linux, чему производители сегодня уделяют большое внимание. Но успех приходит только с опытом. (   Читать дальше...   )Жанр: Компьютерная литература, электротехника,электроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17E3913B79F8AFE4650DA0A25CC6D09917D3D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176743   (367234) от 23.10.2017
+
+П.А. Акимов, М.Л. Мозгалева | Многоуровневые дискретные и дискретно-континуальные методы локального расчета строительных конструкций (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены многоуровневые дискретные и дискретно-континуальные методы локального расчета строительных конструкций. Представленные подходы основаны на использовании современных математических средств, в частности элементов функционального анализа, теории обобщенных функций и численных методов, адекватных текущему уровню развития компьютерной техникиЖанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BA625FE6B47DFEC916E9428D6CA0B084CE4F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068850   (366543) от 07.11.2016
 
 В.Д. Шандабылов | Кораблевождение (Практическое пособие для штурманов) (1972) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366543.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365204.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365056.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363005.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ LG Electronics | Мониторы LG. Схемы и сервис-мануалы 
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362567.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Rob Mannion / Роб Манион | Out of thin air / Из ниоткуда (200
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361802.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360359.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359946.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358892.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358363.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356657.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354111.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351863.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350816.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346003.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344649.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344317.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339504.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335921.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333526.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328795.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327278.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326354.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326190.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A2F121375023746D83F34701A1B3BE221A10096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420813   (323692) от 02.11.2020
-
-В.А. Петин, А.А. Биняковский | Практическая энциклопедия Arduino, 2-е издание (2020) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323692.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге обобщаются данные по основным компонентам конструкций на основе платформы Arduino, которую представляет самая массовая на сегодняшний день версия ArduinoUNO или аналогичные ей многочисленные клоны. Книга представляет собой набор из 33 глав-экспериментов. В каждом эксперименте рассмотрена работа платы Arduino c определенным электронным компонентом или модулем, (   Читать дальше...   )Жанр: Техническая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06A8861D85F24DBA246DF59BE8DFC9ED82D0949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958230   (323036) от 21.11.2015
-
-П. Хоровиц, У. Хилл / Paul Horowitz, Winfield Hill | Искусство схемотехники. 3-е издание / The Art of Electronics. 3rd Edition (2015) [PDF] [En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которая для многих любителей стала поистине проводником в мир электроники и DIY, в последний раз переиздавалась авторами Полом Хоровитцем и Уинфилдом Хиллом в 1989 году. Книга в доступной форме, с юморком и без чрезмерного углубления в физику и матан на страницах трёх томов даёт представление о физических основах электротехники, активных и пассивных элементах, (   Читать дальше...   )Жанр: Радиоэлектроника, электротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D304E77568CF92A065C22DDC3F9A7687EA6392C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

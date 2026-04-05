@@ -1,3 +1,107 @@
+###  Публикация: 1843453   (1049350) от 20.12.2025
+
+Журнал | Смена №10 (октябрь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «СМЕНА» издается с января 1924 года. На протяжении своей почти 100-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза классиков (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A94C548EDA2AC032296CC2EE3AAA0B687606B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843459   (1049349) от 20.12.2025
+
+Журнал | Смена №11 (ноябрь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «СМЕНА» издается с января 1924 года. На протяжении своей почти 100-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза классиков (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76ACB6341B715507165A7F820AA2CE46353179E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843460   (1049348) от 20.12.2025
+
+Журнал | Смена №12 (декабрь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «СМЕНА» издается с января 1924 года. На протяжении своей почти 100-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза классиков (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D90C6D76FC58AC5AE0A79DFFAD36F977CB350F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843245   (1049257) от 19.12.2025
+
+Журнал | Военно-исторический журнал №12 (788) (декабрь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049257.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86537FBEA265966D952F81C07F99A74F15D66CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843244   (1049256) от 19.12.2025
 
 Журнал | Военно-исторический журнал №11 (787) (ноябрь 2025) [PDF]
@@ -6,7 +110,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049256.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049255.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049236.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049006.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048956.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048955.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048954.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048953.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048951.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048931.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048929.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048928.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048910.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048907.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048607.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048606.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048605.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048567.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048542.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048532.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048531.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048530.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ STRKNG - это электронный фотожурнал высокого к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F044931BBECA9EA4EF2E2E5EE0D8F28C303529B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841864   (1048433) от 13.12.2025
-
-Журнал | InfoCity №12 (218) (декабрь 2025) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048433.jpg" />
-</div>
-
-
-###  Подробнее
-
-InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыИздательство: InfoCityФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B6DC86666A834CCDB5AF0BA560EBAACF52EE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842029   (1048355) от 14.12.2025
-
-Журнал | Охота и рыбалка XXI век №12-1 (272-273) (декабрь 2025-январь 2026) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный глянцевый журнал - единственный в России альманах по охотничьей тематике. Верность русским классическим традициям охотничьей прозы, эксклюзивная информация и материалы, творческий подход и отличные иллюстрации. "Охота и рыбалка XXI век" - это не только полезное и познавательное чтение, но и собрание настоящих произведений искусства по охотничьей (   Читать дальше...   )Жанр: ХоббиИздательство: АО "Редакция газеты "Московский Комсомолец"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B25D3B29902B3D926897C64C38A16B89741E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842030   (1048354) от 14.12.2025
-
-Журнал | Lingerie Plus (ноябрь 2025) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingerie Plus – настоящий мужской журнал. В нем вас встретят сексуальные девушки в откровенном белье и ничего больше. Наслаждайтесь горячими красотками, листая страницы Lingerie Plus!Жанр: Мужской журналЯзык: АнглийскийИздательство: Universe 137 Studios Productions CorpФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ED7B3D1677E41805B203D50839569E574D0515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842031   (1048353) от 14.12.2025
-
-Журнал | Lingerie Plus (октябрь 2025) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingerie Plus – настоящий мужской журнал. В нем вас встретят сексуальные девушки в откровенном белье и ничего больше. Наслаждайтесь горячими красотками, листая страницы Lingerie Plus!Жанр: Мужской журналЯзык: АнглийскийИздательство: Universe 137 Studios Productions CorpФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BBA22A4CCA482B360C4922ECCB56A9AB6DAB2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

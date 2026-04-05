@@ -7,7 +7,7 @@ Stepik, Василий Еремин | 1С: Система компоновки �
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047003.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042315.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041578.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Psi-Technology | Огненный флюид (2020) [EXE]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030413.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025533.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ DaddaRuleKonge | The PlayStation 2 Encyclopedia (2019) [unpacked] [En]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024551.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024315.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ DaddaRuleKonge | The PlayStation Encyclopedia (2014) [unpacked] [En]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024179.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ MultiTrade | Секреты и Методы работы Разведслужб 
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019551.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ WebForMySelf, Виктор Гавриленко | Laravel & Angular. Созда�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008880.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005528.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004923.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Merion Academy | Полный курс по сетевым технология�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003965.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ eXeL@B | Программист 2020..2030 (2019) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003086.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ KaliLinux | HTML дополнение к курсу "Git: Полный курс 
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000756.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000633.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000306.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999809.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999530.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999227.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998795.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998750.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Teachvideo.ru | Видеомонтаж в домашних условиях. О�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997387.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ TeachVideo | Всё об операционной системе Mac® OS X® Li
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995730.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ TeachVideo и BookByvoice.ru | Антивирус Касперского 2012 о
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995475.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994373.jpg" />
 </div>
 
 

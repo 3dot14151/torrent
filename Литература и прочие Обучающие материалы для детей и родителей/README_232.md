@@ -1,3 +1,55 @@
+###  Публикация: 1304997   (560072) от 28.05.2019
+
+Вадим Селин | На краю мечты (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ира пела всегда, сколько себя помнила. Пела дома, в гостях у бабушки, на улице. Пение было ее главным увлечением и страстью. Ровно до того момента, пока она не отправилась на прослушивание в музыкальную школу, где ей отказали, сообщив, что у нее нет голоса. Это стало для девушки приговором, лишив не просто любимого дела, а цели в жизни. Но если чего-то очень сильно (   Читать дальше...   )Жанр: Детская литература, для девочекФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0FEB2142A1D038098B281FBC24ECEF52184731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305053   (560068) от 28.05.2019
+
+Вадим Селин и др. | Большая рождественская книга романов о любви для девочек (2013) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Катя - спокойная, примерная девочка, мечтает стать врачом, навещает в больнице одиноких людей, помогает матери по дому. Но в один день ее тихая жизнь меняется и превращается в кошмар из-за звезды школы Стаса Полянского, который оклеветал девушку и посмеялся над ней. Как дальше ходить в школу, если весь класс тебя ненавидит? Как помогать людям, если запрещено появляться (   Читать дальше...   )Жанр: Детская литература, для девочек, для подростковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2A1983726C3F7D16A3C0A33F95F05693D20730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304927   (559950) от 28.05.2019
 
 Корнелия Функе | Бесстрашная Игрэйн (2019) [FB2]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559950.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559690.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559545.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559544.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559431.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559289.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559288.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559287.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559284.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559109.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559069.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558924.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558811.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558681.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558427.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558288.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558057.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557901.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557816.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557714.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557705.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557613.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557528.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557481.jpg" />
 </div>
 
 
@@ -632,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44B60656755A9788E9B3B64802377191E4C35D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924792   (557476) от 04.08.2015
-
-Елена Любимова | Как отучить ребенка врать (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это у него такая бурная фантазия? Или он лжет? Или, может быть, мы просто не можем поверить в правду? Такие вопросы встают перед всеми родителями.
-Что же говорят по этому поводу психологи? Все дети рано или поздно врут. Все дети фантазируют. Дети, порой, рассказывают такую правду, в которую мы – взрослые просто не можем поверить. Самое важное, научиться различать (   Читать дальше...   )Жанр: Детская психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCBE6C9E06B694D7306AAE80BE6B4DF523EC33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924806   (557466) от 04.08.2015
-
-Виктор Казьмин | Первая доврачебная помощь пострадавшим детям (2011) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557466.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в доступной форме описана симптоматика различного рода травматических недугов. Также приводятся методы и способы скорой неотложной доврачебной помощи детям при тех или иных повреждениях их здоровья.
-В первую очередь рассматриваются такие травматические повреждения, как ожоги, различного рода раны, ушибы, отравления, укусы животных и ядовитых змей, а также (   Читать дальше...   )Жанр: Медицина детямФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183EF1345FD13728F795561E68F8D846B68ECA9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

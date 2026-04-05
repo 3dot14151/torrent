@@ -1,3 +1,107 @@
+###  Публикация: 1561941   (508947) от 09.07.2022
+
+Айвенго / Ivanhoe (1952) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по мотивам исторического романа сэра Вальтера Скотта "Айвенго" 1819 года. В 1190 году саксонский рыцарь сэр Уилфред из Айвенго инкогнито возвращается в Англию из Третьего крестового похода, чтобы собрать деньги для выкупа короля Англии Ричарда Львиное Сердце из австрийского плена. В Англии Айвенго узнаёт, что брат Ричарда принц Джон намерен вероломно (   Читать дальше...   )Производство: США, Великобритания, Metro-Goldwyn-Mayer (MGM), Loew'sЖанр: драма, мелодрама, приключенияРежиссер: Ричард ТорпАктеры: Роберт Тейлор, Элизабет Тейлор, Джоан Фонтейн, Джордж Сандерс, Эмлин Уильямс, Роберт Дуглас, Финлэй Карри, Феликс Эйлмер, Френсис Де Вулф, Норман ВулендПеревод: профессиональный многоголосый (New Dream Media; SomeWax), авторский (Алексей Михалёв)Субтитры: русские, английские SDHПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE846C6DDB6AA89D6D9BE5FB9EB0E004397FAAF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929092   (508929) от 29.08.2015
+
+Можешь не стучать / Don't Bother to Knock (1952) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йоркский отель. Родители приглашают молодую особу Нэлл Форбс (Мэрилин Монро) посидеть с их дочерью, пока они будут на банкете. Им невдомек, что у миловидной девушки серьезные проблемы с психикой. Встретив в этом же отеле летчика Джеда Тауэрса, напомнившего ей погибшего жениха, Нелл приглашает его в номер. Ребенок начинает ей мешать…Производство: США, Twentieth Century Fox Film CorporationЖанр: Триллер, ДрамаРежиссер: Рой Уорд БейкерАктеры: Мэрилин Монро, Ричард Уидмарк, Энн Бэнкрофт, Донна Коркоран, Джинн Кэгни, Лурин Татл, Элиша Кук мл., Джим Бэкус, Верна Фелтон, Уиллис Бучей, Дон БеддоПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE1C80217D5F01D8F6CBBA5229590DAAE54F9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791821   (507811) от 30.08.2015
+
+Мотылек / Papillon (1973) BDRip [H.264/720p-LQ]
+
+>>След.
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США, Франция / Allied Artists Pictures CorporationЖанр: Драма, КриминалРежиссер: Франклин Дж. Шаффнер / Franklin J. SchaffnerАктеры: Стив МакКуин, Дастин Хоффман, Виктор Джори, Дон Гордон, Энтони Зерби, Роберт Димен, Вудроу Парфри, Билл Муми, Джордж Кулурис, Рэтна АссанПеревод: Многоголосый закадровый (профессиональный)Язык субтитров: Русский, АнглийскийПродолжительность: 02:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3D747B1B05700D04D5037F55C283A64E79B8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293008   (507643) от 24.07.2019
+
+Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бухгалтер Энди Дюфрейн обвинен в убийстве собственной жены и ее любовника. Оказавшись в тюрьме под названием Шоушенк, он сталкивается с жестокостью и беззаконием, царящими по обе стороны решетки. Каждый, кто попадает в эти стены, становится их рабом до конца жизни. Но Энди, обладающий живым умом и доброй душой, находит подход как к заключенным, так и к охранникам, (   Читать дальше...   )Производство: США / Warner Bros., Castle Rock EntertainmentЖанр: драма, криминалРежиссер: Фрэнк ДарабонтАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уитмор, Джеффри ДеМанн, Ларри БранденбургПеревод: Профессиональный многоголосый (Киномания)Субтитры: Русские (Kinomania, Soyuz-Video, Sunny-sko, Russian 4), АнглийскиеПродолжительность: 02:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B292A7CBC38B857F6ACAF000AD75CDFC753E17F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538243   (507396) от 25.08.2012
 
 Зуд седьмого года / The Seven Year Itch (1955) [1080p] Blu-ray
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507396.jpg" />
 </div>
 
 
@@ -36,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507198.jpg" />
 </div>
 
 
@@ -62,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506813.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505998.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505058.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503889.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503518.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503267.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503150.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503080.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501217.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500278.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500184.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499025.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498494.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498392.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498273.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496273.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495540.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494840.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494570.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493106.jpg" />
 </div>
 
 
@@ -574,111 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD129BD691DE6DC4D31D18DD674A3E6BB085C9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404493   (493042) от 25.08.2020
-
-Продавец четырех времен года / The Merchant of Four Seasons / Handler der vier Jahreszeiten (1971) BDRip [H.264/720p] [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагедия одиночки, оказавшегося лишним в обществе «всеобщего благоденствия» Эпохи Экономического чуда. Ханс Эпп несколько лет провел вдали от родины в иностранном легионе, и вот вернулся назад. «Уж лучше бы тебе не возвращаться!» — злобно шипит мать, встречая сына на пороге дома. И Ханс уходит, устраивается на работу в полицию, обзаводится семьей, потом становится (   Читать дальше...   )Производство: Германия (ФРГ) / Janus Films, Tango FilmЖанр: ДрамаРежиссер: Райнер Вернер ФассбиндерАктеры: Ганс Хиршмюллер, Ирм Херманн, Ханна Шигулла, Клаус Лёвич, Карл Шейдт, Андреа Шобер, Густи Крайссль, Ингрид Кавен, Курт Рааб, Хайде СимонПеревод: Профессиональный (двухголосый, закадровый), любительский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96940B5AD1D67F84A2500A1C9006B819200E054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382532   (490994) от 02.09.2011
-
-Грязная дюжина / The Dirty Dozen (1967) [720p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майор Райзман (Ли Марвин), числящийся у начальства на не очень хорошем счету из-за строптивости характера, получает возможность реабилитировать себя благодаря исключительно опасной миссии. Ему в подчинение выделяют двенадцать солдат, приговорённых трибуналом к смертной казни или отбыванию длительного срока на каторге. Флегматичный сын шахтёра Джозеф Владислав , бывший (   Читать дальше...   )Жанр: Военный, Боевик, ДрамаРежиссер: Роберт ОлдричАктеры: Ли Марвин, Эрнест Боргнайн, Чарльз Бронсон, Джим Браун, Джон Кассаветис, Ричард Джэкел, Джордж Кеннеди, Трини Лопес, Ральф Микер, Роберт Райан, Телли Савалас, Дональд Сазерленд, Клинт Уокер, Роберт Уэббер, Том Басби, Бен Кэрразерс, Стюарт Купер, Роберт Филлипс, Колин Мейтленд, Аль Манчини, Джордж Рубисек, Зик Уилсон, Дора Рейсье, Герард Хайнц, Джон Холлис, Хильдегард (   Читать дальше...   )Перевод: Многоголосый профессиональный закадровыйЯзык субтитров: Русские / АнглийскиеПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382761   (490790) от 02.09.2011
-
-Лицо со шрамом / Scarface (1983) BDRip [720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем — «Лицо со шрамом»…Жанр: триллер, драма, криминалРежиссер: Брайан Де Пальма / Brian De PalmaАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам КолонПеревод: Профессиональный многоголосовой + двухголосый ГланцаСубтитры: Русские, АнглийскиеФормат: MKVПродолжительность: 02:50:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111694   (489639) от 28.08.2018
-
-Мост через реку Квай / The Bridge on the River Kwai (1957) BDRip [H.265/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захваченные в плен японцами британские солдаты и их командир полковник Николсон вынуждены строить железнодорожный мост через реку Квай в Бирме. Несмотря на свирепый характер полковника Сайто, Николсон проявляет настоящее мужество.
-Тем временем командование назначает группу коммандос для уничтожения этого стратегически важного объекта.Производство: Великобритания, США / Columbia Pictures, Horizon Pictures (II)Жанр: Драма, Приключения, ВоенныйРежиссер: Дэвид ЛинАктеры: Алек Гиннесс, Уильям Холден, Джек Хоукинс, Сессю Хаякава, Джеймс Дональд, Джеффри Хорн, Андре Морелл, Питер Уильямс, Джон Боксер, Перси ХербертПеревод: Многоголосый закадровыйСубтитры: РусскиеПродолжительность: 02:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F957D94B5E33287E9151FC30F1B61B35C63D517C
 ```
 
 https://mybot314.ru/tekegram_catalog/

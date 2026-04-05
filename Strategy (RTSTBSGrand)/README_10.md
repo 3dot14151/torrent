@@ -1,3 +1,55 @@
+###  Публикация: 550215   (459262) от 21.09.2012
+
+Armies of Exigo / Armies of Exigo: Хроники великой войны [Ru/En] (RePack/1.4) 2004 | R.G. Catalyst
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта игра, созданная в духе WarCraft, впитала в себя все лучшее, что появилось в жанре real-time стратегий за последние несколько лет. Действие Armies of Exigo разворачивается в фантастическом мире. На выбор предоставляется три армии – Имперская, Падшая и армия Варваров. Стратегия предлагает полностью интерактивный мир, отличные визуальные эффекты и возможность создания армии количеством в 200 юнитов. Необычной особенностью игры является то, что привычные границы поля боя здесь ломаются – теперь сражения будут вестись не только на земле и в воздухе, но и в подземном мире.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7EB9A89DE1C5F051565FAE7ED88C9CC1F63E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102045   (458682) от 12.09.2018
+
+Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.2.2 XPLAY (А)/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к войне и воспользуйтесь изящным искусством стратегии, чтобы сокрушить противника! Не важно, предпочитаете ли вы сложные планы или грубую силу: «Антология Блицкриг» предоставит вам уникальную возможность продемонстрировать ваш полководческий талант. Наносите хирургически точные удары с помощью танков и авиации, чтобы обескровить противника и сделать (   Читать дальше...   )Тип издания: LicenseРазработчик: Nival InteractiveЖанр: Strategy (Real-time), IsometricЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62CF71A5FB0A2EA8B56E756BD448D26F3C224C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665201   (457065) от 29.09.2015
 
 Endless Space / Бесконечный космос (2012) [Ru/Multi] (1.1.58/dlc) SteamRip Let'sРlay [Gold Edition]
@@ -6,7 +58,7 @@ Endless Space / Бесконечный космос (2012) [Ru/Multi] (1.1.58/dl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457065.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Cliff Empire (2019) [Ru/Multi] (1.10b) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447886.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Othercide (2020) [Ru/En] (6.23/upd8) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444484.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Command & Conquer: Tiberian Sun + Tiberian Sun: Firestorm [Ru] (P) 1999 - 2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442973.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Endless Legend (2014) [Ru/Multi] (1.5.1.s3/dlc) License HI2U
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436472.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Knights of Honor [Ru/En] (Repack/1.05) 2004 | R.G.Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435115.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Warlock Dilogy (2012-2014) [Ru/En] (1.4.1.56/2.2.202.24549) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434929.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Aggressors: Ancient Rome (2018) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434777.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.23850) Repack xatab [Remastered Co
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433276.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Warlords: BattleCry 3 (2004) [Ru/En] (1.0.3) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430395.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2.21069/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429969.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Dungeons 2 (2015) [Ru/Multi] (1.6.1.31/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427745.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0.gogp180619) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418153.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Spellforce 2: Demons Of The Past (2014) [Ru/En] (2.68.5408) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415643.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ StarDrive 2 (2015) [Ru/En] (1.1e/dlc) Repack xatab [Digital Deluxe]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415131.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Sid Meier's Civilization V (2010-2014) [Ru/Multi] (1.0.3.279/dlc) Repack R.G. Ca
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413295.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Star Wolves / Звездные волки (2005) [Ru/En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410594.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Arena Wars 2 [En] (L) 2012 | RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409105.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Total War Anthology / Антология Total War [Ru/En] (Repack) 2000 - 2012 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399643.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Warcraft 3: The Reign of Chaos [Ru/En] (RePack/1.26a) 2003 | R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398593.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Kingdom at War [En] (RePack) 1992 | RG Games/Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396863.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ The Lord of the Rings: War of the Ring / Властелин колец: Войн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_395401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_395401.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388887.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ Mordheim: City of the Damned (2015) [Ru/Multi] (1.4.4.1/dlc) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388416.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Mordheim: City of the Damned – это первая видеоигра, сде�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12B547F04106B826C3D5E90D4D7D2B208885041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231778   (386913) от 07.10.2018
-
-Battlevoid: Harbinger (2016) [Ru/Multi] (2.0.6) License GOG
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battlevoid: Harbinger – это сложная игра в жанре космической научной фантастики, в которой смешаны разные жанры: «рогалик» (roguelike), походовая звездная стратегия и космические битвы в реальном времени. Вы – юный командир, которому поручено проникнуть в тыл врага, отправившись в далекие неизведанные галактики, и вы понятия не имеете, что вас ждет после прыжка через (   Читать дальше...   )Тип издания: LicenseРазработчик: Bugbyte LtdЖанр: Strategy, Simulator, IndieЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C3D1151D55B816B0AD15F5ED87F34F3568732C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174312   (386543) от 14.10.2017
-
-Dungeons 3 (2017) [Ru/En] (1.2) Repack Covfefe
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наконец-то Лорду Подземелья удалось объединить под своим началом все силы тьмы и основать империю зла. Пришло время сделать следующий шаг – расширить границы своих владений! Лорд Подземелья переманил на свою сторону жрицу темных эльфов, Талию, сделав ее своим главным помощником. Ничто не может помешать теперь властелину темного царства управлять операцией по завоеванию (   Читать дальше...   )Тип издания: RepackРазработчик: Realmforge StudiosЖанр: Strategy (God Sim, Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CB2C52A5B3CFA4FE232DD2F7E0DCA4F2E9BAE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

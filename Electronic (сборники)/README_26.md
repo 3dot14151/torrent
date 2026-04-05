@@ -1,3 +1,61 @@
+###  Публикация: 1364924   (933803) от 05.03.2020
+
+VA - Beatport Electro House: Pack #19 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933803.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexey Sonar - Flight To Shambala
+002. Sasha - Trigonometry
+003. Ralphie Boss - Whithout Any Desire
+004. Deep Makers - I Watch You Arrive(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 13:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB762F6ED4372BDE1253B233760194A1C81AFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364887   (933696) от 05.03.2020
+
+VA - Beatport Deep House: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Heats - Grated
+002. Divorosso - Ubbix
+003. Joel Jungell - Aero
+004. Jap Boy - Combo(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED91ABEDE8FCD62130F981C783569D71AEE9CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093709   (933619) от 15.01.2017
 
 VA - Trance Collection Vol.56 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
@@ -6,7 +64,7 @@ VA - Trance Collection Vol.56 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933619.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Can­dle­light Din­ne Lovely Chillout Tracks (2016) [MP3|320 kbps] <Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932631.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Record Super Chart #470 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932374.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Beauty Inside Dreamland (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932265.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930951.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Planetary Influence: Territory Of Dubstep (2017) [MP3|320 Kbps] <Dubste
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930858.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Best Chillout Vol.24 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930595.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Record Russian Mix Top 100 January (2017) [MP3|320 Kbps] <Club House, Pop-D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930248.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Deep House Collection Vol.104 (2017) [MP3|192-320 Kbps] <Deep House, Club H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930128.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Beatport Trance Pack (17.01.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929204.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Wings Of Melody: Butterfly Party (2016) [MP3|320 кб/с] <Chillout, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929155.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Top 100 14.02.2016 [MP3|320 kbps] <House, Electro, Progressive, De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929058.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Tempting Lounge: Sensual Lounge Music Selection (2016) [MP3|320 kbps] <Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927989.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Vintage Sounset Lounge (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927981.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Cocktail Chillhouse Collection (2016) [MP3|320 kbps] <Chill House, Lounge, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927978.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Essentials Dance Effects Skyline (2016) [MP3|251-320 кб/с] <Club, Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927965.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Games Rain: Chillout Party January (2017) [MP3|320 Kbps] <Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927885.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Music For Everyone - Chillout & Lounge Vol.5 (2017) [MP3|320 Kbps] <Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927855.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Record Super Chart № 423 (2016) [MP3|320 кб/с] <Club House, Electro Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927642.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Record Super Chart 628 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927273.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - The Prodigy - Best275z (1992 - 2015) [MP3|320 Kbps] <Electronic, Break beat
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927214.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - 100% Bigroom Vol. 1 (2016) [MP3|320 кб/с] <Progressive House, House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926244.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - EDM Deejay Compilation 2016 (2016) [MP3|320 кб/с] <Electro House, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926242.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - House Nation Volume 2 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926062.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - House Nation Volume 2 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B631097C776AF391B7765487CB943BEF9C63D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986737   (925982) от 17.02.2016
-
-VA - YouTube Top100 Music Singles Chart 25th January (2016) [MP3|236-320 кб/с] <Hip Hop, R&B, Pop Punk, Electropop, Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925982.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Hello
-002. Justin Bieber - Sorry
-003. Drake - Hotline Bling
-004. David Bowie - Lazarus(   Читать дальше...   )Жанр: Hip Hop, R&B, Pop Punk, Electropop, SynthpopПродолжительность: 06:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B3EA35D144F687CA27037AA1C8E3BA461621EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366101   (925831) от 10.03.2020
-
-VA - Beatport Deep House: Electro Sound Pack #20 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Stile - Some Time
-002. Leo Lacker - Behind
-003. Jay Cee Morgan - En Deux Heures
-004. P.Oker - Perfect(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384998411AE02A8A1874284406D85EFB267127B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

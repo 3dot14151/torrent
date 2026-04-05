@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515080.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Летний марафон № 185 / (Новый Хитовый Сборн
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513869.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513190.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511631.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510784.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509859.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Alex Gaudino & Taboo - I Don't Wanna Dance (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509723.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509720.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509693.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509642.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Летний марафон № 186 / Видеоклипы (Самые Та
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506906.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Diplo feat. Lazerdisk Party Sex - Set It Off (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506662.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Lady Gaga - Yoü And I  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504452.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Dash Berlin feat. Emma Hewitt - Like Spinning Plates (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503709.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Chris Parker - Symphony (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503400.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500871.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500193.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499513.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ IKA - Москва Слезам Не Верит (DJ Sergey Fisun version) (2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499122.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Осенний марафон № 188 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495788.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494349.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Parazitii feat. Dan Lazar - Toate-s La Fel (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493594.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490738.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489615.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VA - Осенний марафон № 189 / Видеоклипы (Самые Т
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489563.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487700.jpg" />
 </div>
 
 

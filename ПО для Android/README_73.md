@@ -1,3 +1,107 @@
+###  Публикация: 1643106   (234199) от 30.06.2023
+
+SmartOffice Pro 3.13.10 Mod by srajawwal09 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234199.jpg" />
+</div>
+
+
+###  Подробнее
+
+SmartOffice Pro - это не просто сборник офисных приложений для мобильных платформ помогающих в работе и повседневной деятельности, но и целый комплекс дополнительных функций и возможностей. Пользователи смогут работать с документами, редактировать, создавать презентации, выстраивать таблицы, взаимодействовать с PDF-файлами, отправлять на печать и многое другое. И (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.07.2022Разработчик: Artifex Software Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9473600F9BB94C93595EC854BFC69448703FB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643486   (234016) от 01.07.2023
+
+AirBrush: ИИ Фоторедактор 5.8.0 Mod by 0x7d, alenka_persikova [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234016.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirBrush - удобный, быстрый и очень результативный редактор фотографий рассчитанный на портретные изображения. То есть он преимущественно предназначен для любителей селфи. Ведь функционал и инструменты предлагают не какие-то сложные и профессиональные возможности, а улучшение внешнего вида лица. Устранение дефектов кожи, ретуширование, улучшение макияжа, смена тона, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 29.06.2023Разработчик: PIXOCIAL TECHNOLOGY (SINGAPORE) PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48152A36A337A0176EEC7B6A5B1C44AA534B853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644389   (233987) от 05.07.2023
+
+Pocket 8.1.1.0 Mod by ZackModz [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pocket - это программа для сохранения интересующих вас статей или веб-страниц для того, чтобы прочитать их позже. Это позволяет избежать захламления закладок ссылками, которые понадобятся только единожды.Тип издания: ProРелиз состоялся: 27.06.2023Разработчик: Mozilla CorporationПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E32D6B50534729C44AF464D09AD6C021FF5BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643469   (233934) от 01.07.2023
+
+KineMaster - Видеоредактор 7.1.0.30516.GP Mod by Shadow_Patcher, bahguo [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233934.jpg" />
+</div>
+
+
+###  Подробнее
+
+KineMaster - ещё один представитель когорты видеоредакторов что стал невероятно популярным у пользователей за счёт своих качеств, функционала, а так же очень удобного интерфейса помогающего применять всё, что есть в программе без жутких мытарств с неудобно расположенными кнопками и закладками. Данная программа станет очень хорошим помощником для тех кто предпочитает (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.06.2023Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792C565C87211CFCBF32CC2C282FEAF9F1A88D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643652   (233781) от 02.07.2023
 
 Music Editor / Музыкальный редактор 5.8.1 Mod by maxi123444 [Ru/Multi]
@@ -6,7 +110,7 @@ Music Editor / Музыкальный редактор 5.8.1 Mod by maxi123444 [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233781.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ GeoZilla v6.36.12 [Ru/Multi] – найти мой телефон. Семейн�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233635.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BimmerLink for BMW and MINI 2.29.0-5264 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233569.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ RAR for Android v6.22 build 115 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233550.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ ElectroBox - Electronics 15 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233150.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Bright - учить английский язык 1.4.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232945.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ Spelling Master: Spell & Vocab 2.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232798.jpg" />
 </div>
 
 
@@ -196,7 +300,7 @@ English Pronouncing Dictionary 5.6.60 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232712.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232323.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ Urban VPN proxy Unblocker 1.0.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232277.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ Erudite v12.10.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231795.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ Universal Copy v6.3.3 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231727.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ InShot v1.950.1411 Mod by Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231417.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ DOG VPN-Unlimited freedom VPN 3.8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231252.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ VPN Russia - VPN сервера в России v1.136 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231194.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ Made - Редактор и коллаж 1.2.14 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231146.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ Locus Map 4 v4.10.0 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231044.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230966.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ Mivo - Видеоредактор 3.34.619 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230948.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ SMD info v1.39 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230924.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ MediBang Paint Pro 25.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230879.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ X Icon Changer - Change Icons 4.2.9 Mod by Citrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230864.jpg" />
 </div>
 
 
@@ -576,110 +680,6 @@ X Icon Changer - отличный проект по персонализации
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD62D1E0E4CB4A8B5777A177FD8777C5D0F0C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637238   (230862) от 03.06.2023
-
-TrackView - HomeSafe v3.8.12  [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение для просмотра TrackView. Он может отслеживать приложения TrackView на других платформах, например. iOS и ПК. TrackView разработан для обеспечения безопасности семьи. Он превращает ваши смартфоны, планшеты и ПК в подключенную IP-камеру с GPS-локатором, обнаружением событий, оповещениями и возможностями записи в облаке/маршруте. Версии для Windows и (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.04.2023Разработчик: TrackViewПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29140D9E790C43FD41ABCFBB5B1BD63A0553260E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648497   (230826) от 23.07.2023
-
-Dynamic Island 1.3.0 Mod by youarefinished [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Island - ещё один проект предлагающий пользователям мобильных гаджетов на Android-е, обзавестись "динамическим островом" на рабочем столе. Приложение понравится не только качественно переданной структурой оригинала, но и возможностью детальной настройки различных аспектов работы. Благодаря чему пользователи смогут отлично провести время реализуя (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.06.2023Разработчик: GriceMobileПоддерживаемая ОС: Android 9.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD50B965B83E7467FF86CEAD667D0EB996DEAA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648510   (230824) от 23.07.2023
-
-NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 Mod by Balatan [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами погодное приложение обеспечивающее максимально полную картину в теме осадков. Проект берёт информацию с 1000 радаров по всему миру, что помогает ему демонстрировать пользователям только точные и актуальные данные в реальном времени. А так же крайне реалистичные прогнозы на 90 минут вперёд. Система оповещений, наглядно отображение на карте идущих дождей (   Читать дальше...   )Тип издания: Premium (Mod)Релиз состоялся: 20.07.2023Разработчик: MeteoLabПоддерживаемая ОС: Android 8.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8BC5633B903381E0D81EC4BA1503487FF75A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649359   (230675) от 27.07.2023
-
-PixelLab Pro - Text on pictures 2.1.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230675.jpg" />
-</div>
-
-
-###  Подробнее
-
-PixelLab - отличный фоторедактор, в котором все функции и возможности крутятся преимущественно вокруг наложения 3D текста на исходные файлы. В распоряжении пользователей большое количество пресетов, готовых проектов, заранее приготовленных вариантов шрифтов и их форм, а так же многое другое, что при правильном подходе поможет сохранить очень много времени. А так (   Читать дальше...   )Тип издания: Pro (Mod)Разработчик: App HoldingsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Украинский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50E6F0563617CE926B77412B2EA4BB2035F36A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

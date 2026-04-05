@@ -6,7 +6,7 @@ Radio Silence 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192276.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Translate Tab 2.0.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190590.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CHM Viewer Star 6.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190196.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Network Radar 3.0.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189815.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ OmmWriter 1.67 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189813.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NXPowerLite Desktop 10 v.10.0.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189802.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ PDF to Word&Document Converter 6.2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189688.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Cookie 7.0.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189428.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Bookshelf - Library 6.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189420.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ AirMail Pro 5 v.5.6.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189359.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Microsoft Office 2021 for Mac LTSC v.16.77 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189063.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Squeezer 2.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188983.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Epiphany WorkFlow II 8.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188981.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ eMail Address Extractor 4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188976.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ SpeakMe 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188972.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Focus Matrix Pro – Task Manager 1.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188926.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ GitKraken Client Enterprise for Mac 9.8.1 Intel/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188803.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ PCalc 4.10.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188591.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Cisdem PDF Converter OCR 8.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188514.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ PDF Merge & PDF Splitter + 6.3.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188263.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Web Dumper for Mac 3.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188253.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Microsoft Office 2021 for Mac LTSC 16.66 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187620.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Motive 1.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184580.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ SideNotes 1.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183542.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Premium Fonts 7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181383.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Templates for Pages – DesiGN 6.0.5  [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180826.jpg" />
 </div>
 
 

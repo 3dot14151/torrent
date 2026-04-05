@@ -1,3 +1,118 @@
+###  Публикация: 1848196   (1052525) от 16.01.2026
+
+Frank Sinatra - This Is Sinatra! (1956) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052525.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I've Got The World On A String
+A2 Three Coins In The Fountain
+A3 Love And Marriage
+A4 From Here To Eternity(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C1A143686C134759EE47E8E8DAEF9513D778E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848192   (1052524) от 16.01.2026
+
+Frank Sinatra - Sunday And Every Day With Frank Sinatra (1969) Music For Pleasure Series [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052524.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sunday
+A2 I'll Never BeThe Same
+A3 Tell Her You Love Her
+A4 Close To You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E33C86D8602B02C22B53B6A53C593245AFB5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847962   (1052388) от 15.01.2026
+
+Dust In Mind - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial, Melodic Death Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dust In Mind - французская рок-группа из Страсбурга, основана в 2013 году2013 - Dust in Mind (EP)
+2015 - Never Look Back
+2017 - Oblivion
+2018 - From Ashes to FlamesЖанр: Industrial, Melodic Death Metal, Nu MetalПродолжительность: 03:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847782   (1052312) от 14.01.2026
+
+Vermocracy - Studio Albums (3 releases) (2020-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vermocracy - австрийская дэт-метал группа из Вены, основана в 2017 году.2020 - Vermocracy
+2022 - Age of Dysphoria
+2026 - Of Failing and FadingЖанр: Melodic Death MetalПродолжительность: 01:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847451   (1052244) от 12.01.2026
 
 Destroy Them - Studio Albums (2 releases) (2018-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -6,7 +121,7 @@ Destroy Them - Studio Albums (2 releases) (2018-2026) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052244.jpg" />
 </div>
 
 
@@ -33,7 +148,7 @@ Velozza - Studio Albums (4 releases) (2017-2026) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052234.jpg" />
 </div>
 
 
@@ -62,7 +177,7 @@ For My Pain... - Studio Albums (2 releases) (2009-2026) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051979.jpg" />
 </div>
 
 
@@ -89,7 +204,7 @@ Dew-Scented - Studio Albums (11 releases) (1996-2015) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051663.jpg" />
 </div>
 
 
@@ -118,7 +233,7 @@ Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051342.jpg" />
 </div>
 
 
@@ -147,7 +262,7 @@ Miss May I - Studio Albums (9 releases) (2007-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051000.jpg" />
 </div>
 
 
@@ -176,7 +291,7 @@ Sinamore - Studio Albums (2 releases) (2006-2007) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050835.jpg" />
 </div>
 
 
@@ -203,7 +318,7 @@ End of Aeon - Studio Albums (2 releases) (2012-2016) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050827.jpg" />
 </div>
 
 
@@ -230,7 +345,7 @@ Kaunis Kuolematon - Studio Albums (5 releases) (2014-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050570.jpg" />
 </div>
 
 
@@ -259,7 +374,7 @@ Bloodbath - Studio Albums (6 releases) (2002-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050367.jpg" />
 </div>
 
 
@@ -288,7 +403,7 @@ Carpenters - The Singles 1969-1973 (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050302.jpg" />
 </div>
 
 
@@ -317,7 +432,7 @@ ABBA - The Visitors (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050301.jpg" />
 </div>
 
 
@@ -346,7 +461,7 @@ Dreamscape - Studio Albums (5 releases) (1997-2012) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049949.jpg" />
 </div>
 
 
@@ -375,7 +490,7 @@ Dreamshade - Studio Albums (5 releases) (2008-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049827.jpg" />
 </div>
 
 
@@ -404,7 +519,7 @@ ABBA - The Best Of ABBA 1972-1981 (1982) 5LP Box Set [FLAC 2.0|192/24|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049800.jpg" />
 </div>
 
 
@@ -433,7 +548,7 @@ Orange Goblin - Studio Albums (10 releases) (1997-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049799.jpg" />
 </div>
 
 
@@ -462,7 +577,7 @@ Vhaldemar (Vhäldemar) - Studio Albums (7 releases) (2002-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048973.jpg" />
 </div>
 
 
@@ -491,7 +606,7 @@ The Shadows - The Shadows' Greatest Hits (1963) [FLAC 1.0|192/24|image +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048714.jpg" />
 </div>
 
 
@@ -520,7 +635,7 @@ At Vance - Studio Albums (9 releases) (1999-2012) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048636.jpg" />
 </div>
 
 
@@ -549,7 +664,7 @@ VA - The Most Collection. Volume 2 (1971) Compilation, Dutch Pressing [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047754.jpg" />
 </div>
 
 
@@ -578,7 +693,7 @@ Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047681.jpg" />
 </div>
 
 
@@ -607,7 +722,7 @@ Triskelyon - Studio Albums (3 releases) (2022-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047680.jpg" />
 </div>
 
 
@@ -621,122 +736,6 @@ Triskelyon - канадский трэш-метал проект, созданн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840349   (1047282) от 04.12.2025
-
-VA - Believe In Music. 20 Original Hits 20 Original Stars (1972) Series: 20 Original Hits 20 Original Stars [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047282.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Faces - Stay With Me
-A2 O'Jays - Backstabbers
-A3 Free - All Right Now
-A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840151   (1047159) от 03.12.2025
-
-VA - Britain's Hot 12 (Vocal), Vol. 6 (1971) Series: Britain's Hot 12 [[FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047159.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ted Pelkins - Another Time, Another Place
-A2 Sweet Cream - I Believe (In Love)
-A3 Ted Jenniff - Maggie May
-A4 Street Crew - Tweedle Dee - Tweedle Dum(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAE29039F315E65988930F0E8E29278EC37262D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840150   (1047157) от 04.12.2025
-
-VA - Britain's Hot 12. Vocal (1970) Series: Britain's Hot 12 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047157.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 E. K. Boone - Raindrops Keep Fallin' On My Head
-A2 Firerain - Young, Gifted And Black
-A3 The Olympics - Come And Get It
-A4 Danny Field's Corp. - I Can't Tell The Bottom From The Topa(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC382EC4BAA9CAAB71E519D9524506861127FA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840145   (1047156) от 04.12.2025
-
-Broken Fate - Studio Albums (5 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broken Fate - швейцарская метал-группа из Цюриха, основана в 2007 году.2015 - The Bridge Between
-2018 - Reborn
-2021 - C-Digital Session 2020
-2023 - Fighters & DreamersЖанр: Melodic Death/Thrash MetalПродолжительность: 04:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A6B6526201B19774B6DFD568231E390DF2CEDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

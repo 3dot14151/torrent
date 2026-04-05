@@ -1,3 +1,61 @@
+###  Публикация: 1197064   (817571) от 06.01.2018
+
+Back to Earth - The Journey to the Inner Island (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age: Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey to Island B. One
+02. The Journey to Island A. Two
+03. The Journey to Island C. Three
+04. The Journey to Island K. Four(   Читать дальше...   )Жанр: New Age: RelaxationПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677C2A0C389AC8009E370F1298F2395EFF58B6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196653   (817440) от 06.01.2018
+
+ГештальТ - РекА (2014) OST [MP3|320 Kbps] <Electronic Pop Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ЛунА
+02. КапканЫ
+03. ВеселА
+04. Я рядоМ(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6795E6C5005A672D2896524B71E13FBAFE5AED59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382669   (817374) от 12.05.2020
 
 Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817374.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Shinnobu - Libertus (2017) [MP3|320 Kbps] <Neo-Classical, Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817293.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817047.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ VA - Tibetan Waves: Asian Ambient Relaxing Spirit, Deep Focus, Meditation Tibeta
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817035.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Mu
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816898.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethn
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816785.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815876.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Los clasicos argentinos Tango - Vol.10  - Alfredo De Angelis: El tango aleg
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815700.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - Cocktail Piano Romance (1999) [FLAC|Lossless|image + .cue] <Instrumental, E
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815691.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Richard Clayderman - Zeit Zum Traumen (1984) [FLAC|Lossless|image + .cue]<Pop, C
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815687.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815476.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Mark Knopfler & Evelyn Glennie - Altamira (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815372.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815347.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенко�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815336.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенко�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815195.jpg" />
 </div>
 
 
@@ -436,7 +494,7 @@ John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814918.jpg" />
 </div>
 
 
@@ -465,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814834.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814761.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ Irari (Irina Mikhailova, Ira Stein) - Esquisses (2004) [FLAC|Lossless|tracks + .
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814123.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Yanni - Ultimate Yanni (2003) 2CD [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814093.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813918.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ VA - Fetenhits - Latin (2017) [MP3|320 Kbps] <Kuduro, Bolero, Soca>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813782.jpg" />
 </div>
 
 
@@ -636,7 +694,7 @@ Mike Oldfield - Light + Shade (2005) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813459.jpg" />
 </div>
 
 
@@ -665,7 +723,7 @@ Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes,
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812013.jpg" />
 </div>
 
 
@@ -679,64 +737,6 @@ Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAA2A9382F9E7CA24FF325D7105DD26AE279B6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009122   (811919) от 20.04.2016
-
-Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Love    03:08
-02. You're My Everything    03:09
-03. Remembering the 80's    03:06
-04. Persia    03:51(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197907   (811887) от 09.01.2018
-
-Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter's Deepest Sleep
-02. Summer Afternoon
-03. Taos Song
-04. Heavy as a Feather(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

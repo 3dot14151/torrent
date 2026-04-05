@@ -1,3 +1,32 @@
+###  Публикация: 1065217   (419100) от 23.10.2016
+
+Amaranthe - Maximalism (2016) [FLAC|tracks|WEB-DL]<Modern Melodic Metal, Male and Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419100.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:10] 01. Maximize
+[03:22] 02. Boomerang
+[03:13] 03. That Song
+[03:05] 04. 21(   Читать дальше...   )Жанр: Modern Melodic Metal, Male and Female VocalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC59894076F6AD49E00CBB64B152AD909BCED806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324940   (418983) от 12.09.2019
 
 Good Charlotte - Generation Rx (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Post-Punk, Metalcore>
@@ -6,7 +35,7 @@ Good Charlotte - Generation Rx (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418983.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Pantera - The Great Southern Trendkill (1996) 2CD, Remastered, 2016, Rhino Recor
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418938.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Marilyn Manson - Heaven Upside Down (2017) [MP3|320 Kbps] <Alternative Rock, Hea
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418904.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The 69 Eyes - West End (2019) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418848.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Cold - The Things We Can't Stop (2019) [MP3|320 Kbps] <Alternative Rock, Post-Gr
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418842.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Lindemann - Steh auf (2019) Single [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418673.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ July Reign - Here Comes The Flood (2016) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418585.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Mountains of Charlie - Unfinished Business (2020) [MP3|320 Kbps] <Progressive Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418462.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ VA - Pure... Rock Ballads (2013) Box Set, 4 CD [FLAC|Lossless|tracks + .cue]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418371.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Big Thinkers - A New Beginning (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418365.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Built For The Future - Brave New World (2020) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418360.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Kataklysm - Unconquered (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418358.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Enshine - Singularity (2015) [MP3|320 кб/с]<Atmospheric Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418110.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418045.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Burner - Baptized In Gasoline (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418043.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Bubu - El Eco del Sol (2018) (2018) [FLAC|Lossless|image + .cue] <Progressive ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417935.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Deform - Мрачное Видение (2018) Maxi-Single [MP3|320 Kbps] <Altern
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417921.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417919.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417849.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ VA - The Very Best of Power Ballads (2005) 3CD [FLAC|track+.cue]<Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417721.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Billy Idol - Vital Idol: Revitalized (2018) Remixes [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417609.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Copperhead - Copperhead (1973) Reissue, 2001, Acadia [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417571.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Johnny Winter - Still Alive And Well (1973) 1994, Columbia [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417428.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Ohrenfeindt - Zwei Fauste Fur Rock'n'Roll (2017) [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417417.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Destruction - Thrash Anthems II (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417311.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Destruction - Thrash Anthems II (2017) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:454CECD54B30CAEC3967E47AF4A2B1A577523746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572832   (417256) от 29.08.2022
-
-Memento Mori - Songs For The Apocalypse Vol IV (1997) Reissue, 2019, Black Mark Production [FLAC|Lossless|image + .cue] <Doom Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417256.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Things You See (And The Things You Don't)
-2. Under My Blackened Sky
-3. One Sign Too Many
-4. Burned By Light(   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E03D39D94B20FF7810B1A617B4818105936D59A
 ```
 
 https://mybot314.ru/tekegram_catalog/

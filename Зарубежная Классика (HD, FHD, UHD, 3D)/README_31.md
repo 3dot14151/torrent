@@ -1,3 +1,83 @@
+###  Публикация: 788438   (733147) от 24.05.2014
+
+Викинги / The Vikings (1958) WED-DL [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысяча лет назад скандинавские викинги во главе с королем Рагнаром высадились на побережье Англии в надежде захватить вожделенные земли. Движимые жаждой наживы, безжалостные воины опустошали Британские острова, сея смерть и разрушение.
+
+Эйнар и Эрик были сводными братьями. Первый — сын короля викингов Рагнара, бесстрашный и непобедимый воин, которому не было равных (   Читать дальше...   )Жанр: Приключения, БоевикРежиссер: Ричард Флайшер / Richard FleischerАктеры: Кирк Дуглас, Тони Кертис, Эрнест Боргнайн, Джанет Ли, Джеймс Дональд, Александр Нокс , Максин Одли, Фрэнк Тринг, Эйлин Вэй, Эдрик КоннорсПеревод: ДублированныйЯзык субтитров: русские, английскиеПродолжительность: 01:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076709856AA479B6DE40A4C3C6A1B537875DBA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521810   (733056) от 05.02.2022
+
+Жилец / Le locataire / The Tenant (1976) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромный конторский служащий Трелковский решает сменить место проживания и переехать на новое место. Он снимает квартиру в обветшалом здании с недружелюбными соседями. От консьержки он узнает, что предыдущая квартирантка, Симона, покончила с собой, выбросившись из окна. Со временем Трелковский начинает всё больше и больше думать о ней, стараясь узнать как можно больше (   Читать дальше...   )Производство: Франция / Marianne Productions S.A.Жанр: триллер, драма, детективРежиссер: Роман ПоланскиАктеры: Роман Полански, Изабель Аджани, Мелвин Дуглас, Шелли Уинтерс, Бернар Фрессон, Клод Дофен, Джо Ван Флит, Рюфюс, Роман Бутей, Жак МоноПеревод: Многоголосый профессиональный, АвторскийСубтитры: русские, английскиеПродолжительность: 02:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1E1140F284CD49551A4FBF81574CFEA0964DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789438   (732744) от 25.05.2014
+
+Исход / Exodus (1960) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добросовестная неторопливая экранизация романа Леона Уриса рассказывает о создании и первых годах Израиля, войне за независимость, называемой во всем мире Палестинской. В повествовании множество персонажей. В центре можно выделить дуэт Пола Ньюмана в роли израильского лидера сопротивления и Эвы Мари Сэйнт в роли армейской медсестры, нееврейки. Первые годы, первые (   Читать дальше...   )Производство: США, Carlyle ProductionsЖанр: Боевик, Драма, Военный, ЭкранизацияРежиссер: Отто ПремингерАктеры: Пол Ньюман, Ева Мари Сэйнт, Ральф Ричардсон, Питер Лоуфорд, Сэл Минео, Джон ДерекПеревод: Профессиональный многоголосыйПродолжительность: 03:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBFB95C4ADCCC12D3ED32966F354E125C0B5441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522693   (731751) от 08.02.2022
 
 Элмер Гантри / Elmer Gantry (1960) BDRip [H.264/720p]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731751.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731621.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729713.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728542.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728532.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728298.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_728060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728060.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727631.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727301.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727073.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726445.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725860.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725115.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724743.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724091.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724071.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723987.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723942.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723865.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723442.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723008.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722477.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722266.jpg" />
 </div>
 
 
@@ -599,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16974D9392585485EEB1C53488328097859207F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128741   (722142) от 28.04.2017
-
-Нападение на 13-й участок / Assault on Precinct 13 (1976) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722142.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первый же свой рабочий день лейтенант полиции Бишоп получает временное назначение на старый участок номер 13, который готовится к закрытию. Почти все имущество уже вывезено, электропровода и телефонные линии обрезаны. Но именно этот день члены самой «отмороженной» банды Лос-Анджелеса выбрали для мести за гибель шестерых своих товарищей. Бандиты поклялись на крови (   Читать дальше...   )Производство: США, The CKK CorporationЖанр: Боевик, Триллер, КриминалРежиссер: Джон КарпентерАктеры: Остин Стокер, Дарвин Джостон, Лори Зиммер, Мартин Уэст, Тони Бёртон, Чарльз Сайферс, Нэнси Кайс, Питер Бруни, Джон Дж. Фокс, Марк Росс, Алан Косс, Генри Брэндон, Ким Ричардс, Фрэнк Даблдей, Гилберт Де Ла ПенаПеревод: Профессиональный многоголосый, авторский (Юрий Живов)Субтитры: Русские, английскиеПродолжительность: 01:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07827375987E2A9BE227C1B18764E17577D15901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128502   (722134) от 28.04.2017
-
-Игра в смерть / The Dead Pool (1988) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть известным не входит в планы детектива Гарри Кэллахэна из города Сан-Франциско. Его не радует перспектива оказаться в одной компании с рок-звездой, известным ведущим и кинокритиком. Ко всему прочему все трое уже мертвы. Эти знаменитости были в таинственном «Списке смертников», из-за которого составлялись пари и делались ставки.Производство: США / Malpaso Productions, Warner Bros. Pictures Co.Жанр: Боевик, Криминал, ТриллерРежиссер: Бадди Ван ХорнАктеры: Клинт Иствуд, Патриция Кларксон, Лиам Нисон, Ивэн С. Ким, Дэвид ХантПеревод: Дублированный (Варус Видео)Субтитры: отсутствуютПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1520F812D8EA1F7F0A73C8AAC017AC2D9603513C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326140   (721517) от 23.04.2011
-
-Трон / Tron (1982) BDRip [720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_721517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам никогда не приходила в голову мысль попасть внутрь компьютерной игры и стать ее участником? До определенного момента Кевин Флинн тоже думал, что это возможно лишь в его воображении. Но, оказавшись в секретной лаборатории, разрабатывающей компьютерные программы, ему предоставляется возможность увидеть электронный мир изнутри и сразиться в жестокой схватке с самим (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Стивен ЛисбергерАктеры: Джефф Бриджес, Брюс Бокслейтнер, Дэвид Уорнер, Синди Морган, Барнард Хьюс, Дэн Шор, Питер Юрасик, Тони Стефано, Крейг Чади, Винс Дидрик мл.Перевод: ДублированныйСубтитры: Russian,EnglishПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

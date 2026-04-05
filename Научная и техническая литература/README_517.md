@@ -1,137 +1,3 @@
-###  Публикация: 1084509   (214541) от 21.12.2016
-
-А. В. Гулыга | Что такое необходимость и что такое случайность (1959) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждое явление всегда вызывается к жизни каким-то другим явлением. Беспричинных явлений, действительно, нет. Любое событие имеет за собой длинный ряд причин. И все же случайности существуют. Случайность — это то, что может быть, а может и не быть, может быть так, а может быть иначе. Со случайностями человек сталкивается на каждом шагу. Он случайно встречает на улице (   Читать дальше...   )Жанр: История, философия, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9523F3CA6BC6E1C890C3DA270A2A13B800C56A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344054   (214536) от 08.12.2019
-
-Барбара Такман | Загадка XIV века (2019) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214536.jpg" />
-</div>
-
-
-###  Подробнее
-
-XIV век – переломное время. Одно из самых мрачных и загадочных столетий не только во французской, но и в европейской истории. Время «авиньонского пленения» пап, Столетней войны, пандемии «Черной смерти», которая унесла жизни трети населения Европы, короткой и кровавой Жакерии и расцвета множества причудливых ересей. Время насилия и беззакония, голода и разорения, (   Читать дальше...   )Жанр: ИсториографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD42CDABA94D13A9A7D22CFFD070B6241228F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586673   (214495) от 28.10.2022
-
-А.А. Самарский, А.В. Гулин | Численные методы (1989) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются основные принципы построения и исследования численных методов решения на ЭВМ различных классов математических задач. Наряду с традиционными разделами, такими как интерполирование, численное интегрирование, методы решения задач Коши для обыкновенных дифференциальных уравнений, большое место в книге занимают разностные методы для уравнений в частных производных (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D863C8CEDE299E369B590CFC641896BEF9612CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343866   (214489) от 08.12.2019
-
-С.А. Бельков | Прикладное программирование с использованием языка С-Шарп (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие предназначено для студентов-бакалавров, уже прошедших ранее курс изучения языка программирования С++ и приступающих теперь к изучению языка нового программирования С-Шарп (C#). Основное внимание уделено особенностям практического освоения нового языка программирования.
-Данное пособие будет полезно для студентов средних курсов, обучающихся разработке (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6519EAFE59999A4135BF6F2133A29F0291E612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514857   (214430) от 04.12.2021
-
-Анна Гандрабура | English For Tech (2021) [PDF] [En]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый современный электронный учебник английского для IT индустрии с акцентом на business English и soft skills.
-Вы научитесь:
-- Общаться с командой и заказчиками
-- Как исправить частые ошибки в грамматике и произношении(   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F737BAF0892229F577CA6AD0DBD7BE4F37B6855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426406   (214405) от 24.11.2020
 
 Юлия Скогарова | Политология для тех, кто не знал, что это наука (2020) [EPUB]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214405.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214362.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214343.jpg" />
 </div>
 
 
@@ -220,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214257.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214244.jpg" />
 </div>
 
 
@@ -272,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214238.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214228.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214164.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214151.jpg" />
 </div>
 
 
@@ -376,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214144.jpg" />
 </div>
 
 
@@ -402,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214105.jpg" />
 </div>
 
 
@@ -430,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214072.jpg" />
 </div>
 
 
@@ -457,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214064.jpg" />
 </div>
 
 
@@ -484,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213732.jpg" />
 </div>
 
 
@@ -513,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213683.jpg" />
 </div>
 
 
@@ -539,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213645.jpg" />
 </div>
 
 
@@ -568,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213616.jpg" />
 </div>
 
 
@@ -597,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213595.jpg" />
 </div>
 
 
@@ -623,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213505.jpg" />
 </div>
 
 
@@ -650,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213457.jpg" />
 </div>
 
 
@@ -676,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213455.jpg" />
 </div>
 
 
@@ -689,6 +555,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3747DD87894BD5D370F87743FA26C60AEBDF3DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558634   (213192) от 21.06.2022
+
+Руперт Хёхляйтнер | Камни и минералы (2022) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник практических навыков для тех, чьё хобби – геология. С помощью этого путеводителя по миру минералов и горных пород читатели смогут легко и безошибочно идентифицировать интересующие их камни, а также узнают всё самое удивительное о множестве их редких разновидностей. Книга содержит подробнейшие сведения об образовании, плотности, цвете черты, спайности, (   Читать дальше...   )Жанр: Атласы и энциклопедии. Иллюстрированный справочникПеревод: В.В. ДеминФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264CB819177046D23DC5BC378FF4B614632BFD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558745   (213168) от 22.06.2022
+
+Г.И. Левиев, М.Р. Трунин | Физика. Научись решать задачи сам (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие представляет собой сборник оригинальных задач, составленный в полном соответствии с учебной программой школьного курса физики. Особенность издания – в процедуре решения задач, развивающей у школьников способность самостоятельно думать. Большая часть задач составлена на основе реальных наблюдений и ситуаций, что позволяет ученику легко представить (   Читать дальше...   )Жанр: Задачники, ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE177CB607B79DEA09182831A025988D08EAE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559019   (213140) от 23.06.2022
+
+Микаэль Лонэ | Теорема зонтика, или Искусство правильно смотреть на мир через призму математики (2022) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше восприятие мира обманчиво. Наука часто ставит под сомнение наши самые сокровенные убеждения. Математика дает нам мощный инструмент для понимания механизмов Вселенной. Она учит нас мыслить шире и понимать больше, а главное, незримо сопровождает в нашей повседневной жизни.
+
+Автор книги – математик Микаэль Лонэ, популяризатор науки, создатель канала Micmaths (более (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Математика, Научно-популярная литератураПеревод: И. СысоеваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D544F1BE5612FB7044F80B7C33BDA7DFCDD32231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559652   (213056) от 26.06.2022
+
+С.Г. Цыдыпов | Администрирование локально-вычислительных сетей под управлением MS Windows Server (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит теоретическую информацию о базовых этапах настройки локально-вычислительной сети под управлением Windows Server.
+ Предназначено  для  обучающихся  по  направлениям подготовки  09.03.03  «Прикладная  информатика», 02.03.03  «Математическое  обеспечение  и  администрирование информационных систем»  в рамках дисциплины «Администрирование информационных систем».Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E5484B5A8C47AE5F23C6721E3AF04335F071CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559779   (213036) от 27.06.2022
+
+А.Е. Мамонтов | Лекции по дифференциальным уравнениям [8 книг] (2006 - 2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник книг по дифференциальным уравнениям доктора физико-математических наук из Новосибирского государственного университета А.Е. Мамонтова.Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C4C157A6A91006BF4C63009CC2285CFBC1A6AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

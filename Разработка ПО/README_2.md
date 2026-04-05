@@ -6,7 +6,7 @@ Code::Blocks 16.01 + Portable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832811.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Visual Assist X 10.9.2094 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832134.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual Studio 2019 Community 16.11.5 (Offline Cache, Unofficial) [Ru/E
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822578.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PGI Visual Fortran 12.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804106.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ JetBrains Intellij IDEA 2018.3.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799278.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Atmel Studio 7.0.790 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797233.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Visual Studio 2019 Professional 16.11.6 (Offline Cache, Unofficial) [R
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789592.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PascalABC.NET 3.2.0.1417 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786049.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SDL Passolo Collaboration 2016 16.0.391.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771465.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Radialix 3 3.00 Build 486 RePack by вовава [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767584.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AutoHotkey 1.1.33.00 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762101.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Themida 2.4.6.0 RePack by CodeineWaterfall [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761132.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AutoHotkey 2.0 - a115-f7c71ea8 Alpha Portable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760108.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Advanced Installer 13.0 Build 70330 RePack by loginvovchyk [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715433.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Atom 1.17.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668820.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 20.03.2019 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650019.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Advanced Installer 14.9 Build D1A66FF2F1 RePack by Alex Zaguzin [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639135.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Qt cross-platform framework 5.7 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635530.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Restorator 2018 3.90 Build 1793 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603627.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ DevExpress Universal Complete 17.2.7 Build 20180321 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602194.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ EhLib 8.0 Full Source [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595660.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Xilinx Vitis Unified Software Platform 2022.1 [En] (unpacked)
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587578.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ National Instruments LabView 2016 16.0 (x86/x64) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586085.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ LabView 2015 15.0 (x64) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578590.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Microsoft Visual Studio 2017 Professional 15.9.12 (Offline Cache, Unofficial) [R
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575634.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ PS4 4.50 SDK Offline Installer [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559194.jpg" />
 </div>
 
 

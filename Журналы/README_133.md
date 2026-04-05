@@ -1,3 +1,107 @@
+###  Публикация: 1117886   (815351) от 24.03.2017
+
+Журнал | DWJ №2 (февраль 2017) [PDF] [De]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий оружейный журнал. В нем предствлены лучшие образцы современного и раритетного стрелкового, охотничьего и холодного оружия. Авторы журнала DWJ — это эксперты, чья высочайшая квалификация признана во всей Европе, глубоко разбирающиеся во всех процессах, связанных с разработкой, производством и продажей всех видов оружия. В авторском коллективе DWJ работают (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6D169877D29D5534A1CB6B8B10A68522BBEAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117885   (815350) от 24.03.2017
+
+Журнал | DWJ №1 (январь 2017) [PDF] [De]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий оружейный журнал. В нем предствлены лучшие образцы современного и раритетного стрелкового, охотничьего и холодного оружия. Авторы журнала DWJ — это эксперты, чья высочайшая квалификация признана во всей Европе, глубоко разбирающиеся во всех процессах, связанных с разработкой, производством и продажей всех видов оружия. В авторском коллективе DWJ работают (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6044BD0EE34436BAF107FE8EE04FDF0BD465C14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117887   (815349) от 24.03.2017
+
+Журнал | DWJ №3 (март 2017) [PDF] [De]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий оружейный журнал. В нем предствлены лучшие образцы современного и раритетного стрелкового, охотничьего и холодного оружия. Авторы журнала DWJ — это эксперты, чья высочайшая квалификация признана во всей Европе, глубоко разбирающиеся во всех процессах, связанных с разработкой, производством и продажей всех видов оружия. В авторском коллективе DWJ работают (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401C9A342DB92B12937EDB76F11B35671563045D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118041   (815345) от 24.03.2017
+
+Журнал | Про кухню №4 (102) (апрель 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815345.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Про кухню" - первое издание о кухне как центре семейного уюта, о самом главном месте в жизни семьи, где готовят и едят, принимают гостей, общаются, принимают решения, грустят и радуются. Издание, которое отвечает на вопросы: где, как, сколько стоит и как использовать?Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D4D03B13A4B680C298B01E39ECDD7CD529C75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117888   (815344) от 24.03.2017
 
 Журнал | DWJ №4 (апрель 2017) [PDF] [De]
@@ -6,7 +110,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815344.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815339.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815338.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815234.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815191.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815179.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815068.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815053.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814985.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814917.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814895.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814886.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814480.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814327.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814039.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813914.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813913.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813830.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813820.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813816.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813807.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813805.jpg" />
 </div>
 
 
@@ -566,112 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2B87BF2DF8ED35E395BD0A876468A3E0C1A066C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197795   (813791) от 08.01.2018
-
-Журнал | Кактус Клуб №1-2 (2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский электронный журнал о кактусах и других суккулентных растениях.
-Выходит 2 раза в год.Жанр: ЦветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6BF7F5B8CBE1F5E29BB25E83D844F8E3DA2EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008688   (813672) от 19.04.2016
-
-Подшивка журналов | Моя любимая дача [+Спецвыпуски] (2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный иллюстрированный журнал, содержащий практические советы по огородничеству, садоводству и ландшафтному дизайну, рекомендации экспертов и садоводов. В каждом номере - садоводческий лунный календарь. На вопросы читателей отвечают эксперты и редакция.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78B9EFE3F8B019430A4B123B8CA16A5F1B13120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197432   (813515) от 08.01.2018
-
-Журнал | UPgrade №18 (804) (декабрь 2017) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813515.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPgrade – журнал о компьютерах и компьютерных технологиях, который стал первопроходцем на рынке массовых изданий о высоких технологиях. Cегодня издание – признанный лидер в своем медиасегменте. UPgrade – первое издание для широкого круга читателей, которых интересует не только сам по себе апгрейд компьютера, но и все, что так или иначе связано с миром IT.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C2EC6483D21ECA9929D6FF94CB9AE277417C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118477   (813478) от 25.03.2017
-
-Газета | Великие открытия №3 (март 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя теорию Дарвина продолжают изучать в школе, у ряда ученых к ней накопилось уже немало весьма
-неудобных вопросов. Появилась даже теория инволюции (деградации), автор которой, российский палеоантрополог Александр Белов, считает, что все животные на нашей планете произошли от человека в результате его деградации, одичания и приспособления к тем или иным природным (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9A2B13C3016111770CE502B498055421BEDC5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

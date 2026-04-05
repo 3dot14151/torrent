@@ -6,7 +6,7 @@ DMG Canvas 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660175.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sublime Text Dev Build 4130 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660165.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cocktail Sierra Edition 10.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660113.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MiniTube 2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660108.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ DEVONthink Pro Office 2.9.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660104.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Capo 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660020.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Game of Thrones: A Telltale Games Series. Episode 1-4 v. 1.0 (2015) [En] [OS X N
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659830.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Red Giant Magic Bullet Suite 12.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659640.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Red Giant Shooter Suite 12.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659635.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Little Snitch 3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659526.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Network Radar 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659375.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Doo - Get Things Done 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659369.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Serial 1.3.2
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659293.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Vectoraster 7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659190.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Sublime Text 3 Dev (3133) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659105.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VueScan Pro 9.5.79 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659090.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wondershare PDFelement 6 Pro 6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659003.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Audio Hijack 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658390.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Meta 1.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658273.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ TripMode 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658030.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ MediaHuman YouTube Downloader 3.9.8.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658028.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Serial Box 06-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658021.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Life Is Strange (Episode 1-2-3) v.1.0.0 (2015) [Ru] [OS X WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657566.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ CleanMyMac 3.8.4 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657538.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Sid Meier's Civilization V: Complete v1.4.0 (2010) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657430.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ BusyContacts 1.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656995.jpg" />
 </div>
 
 

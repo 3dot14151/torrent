@@ -1,139 +1,3 @@
-###  Публикация: 1072674   (352183) от 13.11.2016
-
-Гагарин Григорий Григорьевич | Живописный Кавказ, нарисованный с натуры [Le Caucase pittoresque dessine d’apres nature] (1847) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рисунки с натуры князя Григория Гагарина.
-Живописные виды Дагестана, Чечни, Армении, Азербайджана и Грузии, быт и искусство народов Кавказа.
-Альбом был выпущен на французском языке в 1847 году в Париже Жаном Полем Лемерсье. 1 карта Кавказа 19 в. + 80 литографий (цветные, тоновые и черно-белые литографии, цветные хромолитографии) с рисунков и акварелей замечательного (   Читать дальше...   )Жанр: Литографический альбомФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FAAB6C771ED047B3146809F4F66A79A34D76943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329594   (352124) от 05.10.2019
-
-И.П. Суздалев | Нанотехнология: физико-химия нанокластеров, наноструктур и наноматериалов (2009) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой попытку соединения теоретических и экспериментальных данных о нанокластерах и наносистемах с некоторыми вопросами более общего, вводного характера: методами исследования нанокластеров и поверхности твердого тела и микроскопическими и термодинамическими подходами к изучению нанокластеров и поверхностиЖанр: Физика, химияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0961263C1D6E78A3A65CA6FDE26B9F3A5AC40CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072264   (352015) от 13.11.2016
-
-Ш. М. Дволайцкий, С. Б. Членов (ред.) | Проблемы теоретической экономии (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352015.jpg" />
-</div>
-
-
-###  Подробнее
-
-В лежащем перед читателями сборнике напечатано 5 работ слушателей Института Красной Профессуры.
-
-Все работы вышли из семинариев Института: доклады гг. Леонтьева и Угарова написаны под руководством М. И. Нахимсона-Слектатора, работа т. Розенберга — под руководством С. Б. Членова, остальные три работы под руководством Ш. М. Дволайцкого. Не мешает отметить, что тт. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74671AE33608C4BFBEB46DF13E787FFB1C6327F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072417   (352014) от 13.11.2016
-
-А. Н. Каров | Проституция и новый быт (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличительные черты капиталистического общества — использование труда пролетарских масс для обогащения кучки капиталистов, с мизерной оплатой труда эксплуатируемых и с постоянной опасностью безработицы, является в то же время наиболее благоприятной почвой для расцвета проституции.
-
-Слово „проституция" происходит от латинского слова „prostituere" — выставлять, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166C1A233141678EC56CDFF63AB7A7EBD316BC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329510   (351964) от 05.10.2019
-
-А.В. Дорофеева | Математика. Сборник задач (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351964.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии представлены задачи па операции с бинарными отношениями, алгебраическими структурами, отображениями, комплексными числами. Содержатся задачи по дифференциальному и интегральному исчислению и теории рядов, теории вероятностей, математической статистике, а также задачи на проценты. В каждом разделе приведены основные определения, формулы и образцы решения (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CAC1F0297601EFD4F7ACDC4EB45BA11E9F82B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072394   (351914) от 13.11.2016
 
 Г. Е. Зиновьев, Н. Ленин | Против течения [сб. ст. из "Социал-демократа", "Коммуниста" и "сб. Социал-демократа"] (1923) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351914.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351875.jpg" />
 </div>
 
 
@@ -196,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351863.jpg" />
 </div>
 
 
@@ -222,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351730.jpg" />
 </div>
 
 
@@ -248,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351638.jpg" />
 </div>
 
 
@@ -276,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351523.jpg" />
 </div>
 
 
@@ -305,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351429.jpg" />
 </div>
 
 
@@ -331,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351412.jpg" />
 </div>
 
 
@@ -357,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351360.jpg" />
 </div>
 
 
@@ -383,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351275.jpg" />
 </div>
 
 
@@ -409,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351240.jpg" />
 </div>
 
 
@@ -435,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351108.jpg" />
 </div>
 
 
@@ -461,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350951.jpg" />
 </div>
 
 
@@ -487,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350939.jpg" />
 </div>
 
 
@@ -515,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350817.jpg" />
 </div>
 
 
@@ -541,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350816.jpg" />
 </div>
 
 
@@ -567,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350343.jpg" />
 </div>
 
 
@@ -593,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350282.jpg" />
 </div>
 
 
@@ -619,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350275.jpg" />
 </div>
 
 
@@ -647,7 +511,7 @@ Gordon L. Rottman | World War II US Army Combat Equipments (2016) [EPUB, PDF] [E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350072.jpg" />
 </div>
 
 
@@ -673,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350008.jpg" />
 </div>
 
 
@@ -684,6 +548,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ADEDACAA1129857158EEEA7E346B4021611B5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329660   (350001) от 06.10.2019
+
+С. Багавантам, Т. Венкатарайуду | Теория групп и ее применение к физическим проблемам (2006) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга, авторы которой — известные индийские физики С. Багавантам и Т. Венкатарайуду, посвящена применениям теории групп к различным разделам физики, таким как, например, кристаллография, рамановское рассеяние, многоатомные молекулы и др. Большинство вопросов изложено сравнительно просто, без излишних математических деталей, и не требует от читателя предварительной (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4CD3267B38DF530E4D8309E447F4A075683DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072671   (349982) от 14.11.2016
+
+Школа управления государством [секции Сокольнического совета и их работа] (1929) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349982.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дело расширения участия беспартийных рабочих и крестьян в работе по улучшению аппарата есть дело исключительно трудное, но в то же время такое, без настоящего развития которого советская власть неминуемо осуждена на гибель». В. И. ЛенинЖанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C39DCEF62AED5FFB13D03D7E3648F6CE94E301C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577850   (349939) от 21.09.2022
+
+Gordon L. Rottman | Vietnam War US & Allied Combat Equipments (2017) [EPUB, PDF] [Elite #216] [EN]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349939.jpg" />
+</div>
+
+
+###  Подробнее
+
+216-я книга серии Elite издательства Osprey, написанная ветераном Вьетнамской войны из отряда специального назначения и ориентированная на любителей военной техники, реконструкторов и коллекционеров, предлагает всестороннее исследование личного снаряжения, используемого вооруженными силами США и их союзниками за 8 лет войны во Вьетнаме.Жанр: Военная история, военное делоЯзык: АнглийскийФормат: EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DAE3EB71E18419F9A49D996145029F00D82E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256802   (349771) от 24.10.2018
+
+В.С. Кедров и др. | Плавательные бассейны. Водоснабжение и водоотведение (2002) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349771.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии приведены рекомендации по устройству и оборудованию бассейнов различного назначения и размеров для общественного и индивидуального использования. Рассмотрены вопросы расчетов, проектирования, подбора оборудования и эксплуатации различных систем водоснабжения и водоотведения бассейноЖанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4751C7F5C1D96F760E7475D3C823D451FCB8E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072659   (349736) от 14.11.2016
+
+А. Подчасовой (ред.) | Враги народа [к итогам процесса антисоветского троцкистского центра] (1937) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единодушным одобрением встретил советский народ приговор Военной коллегии Верховного суда по делу участников антисоветского троцкистского центра. На фабриках и заводах, в колхозах, на общегородских митингах трудящихся прокатилась бурная волна народного гнева против подлых изменников и предателей нашей родины, против убийц рабочих и красноармейцев, против германских (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A431C4357BA51A3B66765E2B30F78EA230115FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1623012   (238893) от 31.03.2023
+
+beQUIET 3.21 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение beQUIET предназначено для журналистов, учителей, студентов и других пользователей Macbook, которые хотят слышать звук, но не хотят мешать другим, например, на собраниях, в классах, в судах, на лекциях и в театрах.
+Пока beQUIET работает, внутренние динамики вашего компьютера отключены. Между тем, вы все еще можете слушать через разъем для наушников. beQUIET (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2023Разработчик: © 2015 - 2023 dragonBTVПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB3CC087274AD1396139D8D599831B3925282DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628279   (238892) от 22.04.2023
+
+Cisdem PDF Password Remover 5.0.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem PDF Password Remover - позволяет удалить пароль из PDF-документа и получить доступ к наиболее важным данным.
+Доступ к защищенным паролем PDF-файлам может быть огромной проблемой для многих предприятий, особенно, если этот файл PDF имеет запрет на печать, копирование и редактирование. Тем не менее, это не будет проблемой, если у вас есть Cisdem PDF Password (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEFD84542D6577045868CD4C572BC0425B4579EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623015   (238876) от 31.03.2023
 
 getIRC - IRC Client 1.4 [Multi]
@@ -6,7 +60,7 @@ getIRC - IRC Client 1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238876.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Time Calc PRO 1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238847.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Battery Charging Alert 3.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238800.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ rcmd • App Switcher 2.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238753.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Bootstrap Studio 6.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238749.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ ToothFairy 2.7.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238745.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ X Djing - Music Mix Maker 2.1.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238672.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Apeaksoft Data Recovery for Mac 1.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238615.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ M3U Edit 1.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238579.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ ScreenSaverNow 1.70 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238540.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ Clone Fighter 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238523.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ batchGIF 1.92 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238504.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ photo2movie 2.81 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238482.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ Integrity Pro 10.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238459.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ Word Count Icon 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238434.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ desktopCinema 3.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238426.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ HideAway 2.05 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238414.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ ScreenLog 2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238406.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ CVS 2.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238392.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ FSNotes 5.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238353.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ Deliver Express 2.6.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238335.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ Plist Converte‪r‬ 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238330.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ Perfect Face - Pimple Remover 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238292.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238285.jpg" />
 </div>
 
 
@@ -625,58 +679,6 @@ TunesKit Video Converter 2.1.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C311E8B45967DB36418F650EC55CC820D206ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491356   (238276) от 24.08.2021
-
-TunesKit Video Cutter 2.3.0 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный инструмент для резки видео, который может не только обрезать и объединять видео и аудио с сохранением 100% качества без потерь, но также редактировать и сохранять разделенные видеоклипы с несколькими эффектами в любом популярном формате для воспроизведения на любом устройстве.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFF09219AD3AC8D6E112E19459C765564A7362E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446199   (237935) от 08.02.2021
-
-start 4.5 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237935.jpg" />
-</div>
-
-
-###  Подробнее
-
-start - это уникальный лаунчер для macOS, позволяющий быстро и легко открывать приложения, документы или папки. Создайте порядок в Dock и начните работу с помощью приложения Smart Launcher. start поддерживает вас и ваш рабочий процесс благодаря хорошо спланированной организационной системе для приложений и быстрому доступу к тому, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: Gerald KoederПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F249D59EC025EB7F91DAE8C5F16156F994B96BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

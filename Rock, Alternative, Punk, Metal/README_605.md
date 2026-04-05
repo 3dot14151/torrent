@@ -1,3 +1,32 @@
+###  Публикация: 1567970   (466108) от 06.08.2022
+
+Voracious Scourge - In Death (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retribution of the Damned (Intro) 01:44
+02. Heaven's Scorched 05:09
+03. Defleshed Messiah 04:54
+04. Voracious Scourge 03:51(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7B7E62A12517E031EE19001426ADA689B98D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568169   (466107) от 06.08.2022
 
 Artical - Illusion X (2013) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Artical - Illusion X (2013) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466107.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Age Of Agony - The Dark Conquers All (Demo) (2003) [FLAC|Lossless|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466106.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Zubrowska - Family Vault (2005) [FLAC|Lossless|image + .cue] <Brutal Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466105.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466079.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Blackjack - Worlds Apart (1980) Japanese SHM-CD, 2013 [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466072.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ The Flatliners - New Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk,New Wave>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466037.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Temperance - Diamanti (2021) [FLAC|Lossless|image + .cue] <Modern Heavy Metal, M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466024.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Moonlight Haze - Animus (2022) [FLAC|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466011.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Airbourne - Breakin' Outta Hell (2016) Limited Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465969.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Bruce Dickinson - 6 Album (1990-2005) [MP3|320 Kbps] <Rock, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465878.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Metallica - Reload (1997) [APE|Lossless|image + .cue] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465856.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ JJ72 - I To Sky (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465756.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ JJ72 - October Swimmer (2001) Japan Promo [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465754.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Sunn O))) - Kannon (2015) [FLAC|Lossless|tracks + .cue] <Doom Metal, Drone>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465752.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Clutch - Book of Bad Decisions (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465653.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Dream Child - Until Death Do We Meet Again (2018) Japanese Edition [MP3|320 Kbps
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465648.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Running Wild - Death Or Glory (1989) 2CD, Deluxe Expanded Edition, 2017, Noise [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465630.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Tale - Riverman (1994) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465390.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Killswitch Engage - Atonement (2019) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465389.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465368.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Heavens Edge - Heavens Edge (1990) Remastered /2010, Rock Candy Records/[FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465278.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Andrew W.K. - I Get Wet (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465262.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Slipknot - We Are Not Your Kind (2019) Japan [FLAC|Lossless|tracks + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465111.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Runamok - Dance Of The Dead (2005) [FLAC|image +.cue]<Heavy/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465065.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Sleaford Mods - Key Markets (2015) [mp3|320 кб/с]<Post-Punk, Hip Hop, Punk-Ho
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464891.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Sleaford Mods - Key Markets (2015) [mp3|320 кб/с]<Post-Punk, Hip Hop, Punk-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F40D8B16662C734370470CFEE4A097B5A9630056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940806   (464887) от 26.09.2015
-
-Hanging Garden - Blackout Whiteout (2015) [MP3|320 кб/с]<Post-Metal, Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464887.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Borrowed Eyes
-2. Whiteout
-3. Embers
-4. Eclipse(   Читать дальше...   )Жанр: Post-Metal, Doom/Death MetalПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7192287370E9C00DD4798DCEE27BCC13801C88F
 ```
 
 https://mybot314.ru/tekegram_catalog/

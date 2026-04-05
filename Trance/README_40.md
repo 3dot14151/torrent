@@ -1,3 +1,61 @@
+###  Публикация: 1265647   (274139) от 28.11.2018
+
+VA - Black Hole Trance Music 11-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Myon & Late Night Alumni - Hearts & Silence (Myon Extended Club Mix)
+02.Lemmond - Cosmic Strings (Extended Mix)
+03.Somna & BLU EYES - Drawn To You (Extended Mix)
+04.Anske - The Light In You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CE2253438904DB67FDCC237E70FB6E5EB46C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265661   (274138) от 28.11.2018
+
+VA - Markus Schulz - We Are the Light (The Extended Mixes) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - The Awakening (Extended Mix) (08:03)
+02. Markus Schulz, Seri & Omnia - Road Of No Return (Extended Mix) (06:58)
+03. Markus Schulz & Alina Eremia - You Light Up The Night (Extended Mix) (06:53)
+04. Markus Schulz - We Are The Light (Feat. Nikki Flores) (Extended Mix) (06:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25711B56B4B3757E107BBB673AFAB5FE39952608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265509   (274128) от 28.11.2018
 
 VA - Vocal Trance Legends (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
@@ -6,7 +64,7 @@ VA - Vocal Trance Legends (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274128.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Deugene Music Winter Selection Vol. 10 (2017) [MP3|320 Kbps] <Trance,Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273754.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Electric Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273752.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Stargazers - Crystalize (The Best Of) (2019) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273715.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Anjunabeats The Yearbook (2017) [MP3|320 Kbps] <Trance,Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273680.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Techno Club Vol.53 - (Mixed by Talla 2XLC & Markus Schulz) (2017) [MP3|~250
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273601.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Practikompilation Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272536.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Recoverworld Trance Sessions 17.07 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272533.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Dark Club Vol.3 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272475.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - TFB Records: Best Of 2017 Part 1 (Mixed  by Aldo Henrycho) (2017) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272469.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Alter Future - To New Horizons (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272466.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Redux Presents: The Finest Selection (Mixed by Rene Ablaze) (2017) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272439.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Vocal Trance Gems - Best of 2018 (2018) [MP3|320 Kbps] <Trance,Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272070.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - FG Top 10: November (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271360.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trancer 100 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271351.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Trance Euphoria Vol.2 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271048.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Markus Schulz - We Are the Light (the Remixes) (2019) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270663.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Future Sound Of Egypt: Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270481.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Progressive Trance Vol. 5 (2018) [MP3|320 Kbps] <Trance, Progressive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270079.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - The VERSE Uplifting Trance Journey (Mixed by Philip Langham) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270045.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2019) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269826.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Amsterdam. The End Of Year Album (Mixed by Three Drives) (2017) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269621.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - The Best Of Suanda True (Mixed by Tom Exo) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269618.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Trance Pure (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269207.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Trance Pure (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9715E786AE798AF1B078B7869879F1EDCB4C5FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338630   (269004) от 16.11.2019
-
-Misja Helsloot - WhatTheHelsloot (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Misja - E-mocean (Misja Helsloot Deep Remix) (6:21)
-02. Sean Dexter - Synthetica (Misja Helsloot Deep Remix) (7:26)
-03. AxelPolo & Misja Helsloot presents Dark Echo - Apache (2:58)
-04. Misja Helsloot with Cari - See the Sun Again (3:54)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50470576F45546A42A1E72EF0F9358FF3C3BE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266912   (268413) от 04.12.2018
-
-VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren vs Shapov – The Last Dancer (Extended Mix)
-02. Cosmic Gate & Emma Hewitt – Tonight (Allen Watts Extended Remix)
-03. Richard Durand – The Air I Breathe (Extended Mix)
-04. Shane 54 And Jonathan Mendelsohn – Return To Love (Cubicore Extended Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4588A59930F6AA8EE68505F855434B86B7D8D6E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

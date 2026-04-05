@@ -6,7 +6,7 @@ The Red Rodney Quintet - Red Alert! (1990) Continuum Recording [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329057.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bill Evans - The Complete Bill Evans On Verve [Box set 18 CD] (1997) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328772.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nicki Parrott and Ken Peplowski - Like A Lover (2011) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328692.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dave Pike & Charles McPherson - Bluebird (1988) 2015, Timeless Records[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327668.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tony Bennett & Bill Charlap - The Silver Lining: The Songs Of Jerome Kern (2015)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327658.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Louis Armstrong - The Complete Town Hall Concert (1983) 2014, Sony Music[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327654.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Miles Davis Quintet with John Coltrane - The 1960 German Concerts (2010) Jazz Li
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327653.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Brian Landrus Orchestra - Generations (2017) BlueLand Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327293.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kai Winding - Seven Classic Albums (1955 - 1962) 4CD, 2015, Real Gone Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327291.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Larry Coryell - New High (2000) HighNote[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326805.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kenny Burrell - 12•15•78 (1978) 2CD, 1999, 32 Jazz[FLAC|tracks+.cue]<Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326782.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Marlena Shaw - Anthology (2000) Soulb[FLAC|image+.cue]<Vocal Jazz, Soul Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325844.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325587.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Yehudi Menuhin & Stephane Grappelli - Menuhin And Grappelli Play Gershwin (1973 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325370.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kenny G - Greatest Hits (2CD) (2009) [APE|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325234.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shelli LaTorre - Full Circle (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324040.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Claudia Franco - Soul Dance (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324036.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Claudia Koval - With Heart and Soul (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324030.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Nina Bradlin - Stardust (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324029.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Stan Getz - Cool Bebop (1945-1949) 2000, Jazz Archives[WavPack|image+.cue]<Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324028.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Arnett Cobb with the Red Garland Trio - Sizzling & Blue And Sentimental (1960) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323994.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Oscar Peterson - Time After Time (1986) 2000, Pablo Records[FLAC|tracks+.cue]<Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323983.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Lettuce - Crush (2015) [FLAC|tracks|WEB-DL]<Funk, Jazz Fusion, Jam Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323960.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Phil Woods - Freedom Jazz Dance (1969) 1990, Moon Records [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323841.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Teddy Wilson - Classic Jazz Archive: The Gentleman Of Swing (1934 - 1938) 2CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323835.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Paul Smith - Cool And Sparkling (1991) [APE|Lossless|image + .cue] <Bop, Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323719.jpg" />
 </div>
 
 

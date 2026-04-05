@@ -1,3 +1,55 @@
+###  Публикация: 557599   (277269) от 25.11.2018
+
+Dungeon Siege: Legends of Aranna / Dungeon Siege: Легенды Аранны (2003) [Ru] (1.50) Repack R.G. Games
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда несколько лет назад появилась на свет игра Dungeon Siege, к ней сразу же прочно приклеился титул «3D-убийцы Диабло». Кто-то посчитал, что она несколько линейна и излишне автономна от игрока, другие хвалили за графику, качественное месилово и удобный интерфейс. А пока первые и вторые спорили, Mad Doc Software, переговорив с Gas Powered Games и Microsoft, взялась (   Читать дальше...   )Тип издания: RePackРазработчик: Mad Doc Software, Gas Powered GamesЖанр: Action-RPG, Rogue-likeЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B06B67DE2A9F12894022A2FD88B6B60DE4DA622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613413   (277268) от 25.11.2018
+
+Я тоже хочу (2012) BDRip [720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277268.jpg" />
+</div>
+
+
+###  Подробнее
+
+По пустынной летней дороге мчится огромный черный джип. В нем — Бандит, его друг Матвей со стариком-отцом, Музыкант и красивая девушка. Они ищут Колокольню Счастья, которая по слухам находится где-то между Питером и Угличем, рядом с уже давно неработающей атомной станцией. Колокольня забирает людей. Но не всех. Но в темной большой машине каждый верит, что выберут (   Читать дальше...   )Производство: РоссияЖанр: Драма, КриминалРежиссер: Алексей БалабановАктеры: Александр Мосин, Олег Гаркуша, Юрий Матвеев, Алиса Шитикова, Алексей Балабанов, Петр Балабанов, Виктор Горбунов, Авдотья Смирнова, Сергей Шолохов, Сергей КульчицкийПеревод: Не требуется «Русский»Субтитры: ОтсутствуютПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE496F176E1B6D536DBD91DF7D48E29F50973086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 215840   (277267) от 25.11.2018
 
 Великие композиторы. Жизнь и творчество | 85 CD (2009) [MP3|320 Kbps] <Claccical>
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277267.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ BELOFF 2018.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277266.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Highlights School | МК Цветокоррекция и тонирование 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277221.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_277046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_277046.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_276961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_276961.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ VideoHive - AE Face Tools - 24958166 [AEP]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276821.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Mozilla Firefox Quantum 57.0.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276752.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Nioh (2017) [Ru/En] (1.21.03/dlc) Repack xatab [Complete Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276688.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Adobe Bridge CC 2017 (v7.0) x86-x64 Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276633.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276628.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ Autodesk AutoCAD 2017 for Mac (N.49.M.324) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276626.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275934.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275929.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_275828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_275828.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ Adobe Photoshop Lightroom 5.7.1 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275807.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ AIMP v3.00 Build 810 Beta 1 (20.12.2010) [Мультиязычный]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275565.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275563.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ Graveyard Keeper v.1.205 (2018) [Multi/Ru] [macOS Native game]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275545.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ Windows 10 Enterprise LTSB 2016 14393.3300 x64 Rus by OneSmiLe (09.11.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275542.jpg" />
 </div>
 
 
@@ -524,7 +576,7 @@ BELOFF 2019.11 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275538.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275458.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275372.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129r1/upd1/dlc/tr) Repack Other s [Gold
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275370.jpg" />
 </div>
 
 
@@ -632,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275355.jpg" />
 </div>
 
 
@@ -643,58 +695,6 @@ Santa’s Christmas Newsletter - Наблюдайте за  Сантой, как
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD32D6BC2CF7B1E9F05EC4E60A891303CC45C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 393314   (275163) от 21.12.2011
-
-Терра Нова / Terra Nova (сезон 1, серии 1-13 из 13) (2011) WEB-DLRip (Первый канал)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275163.jpg" />
-</div>
-
-
-###  Подробнее
-
-2149 год. Земля перенаселена. Большинство растений и животных уже исчезли с её лица. Будущее человечества под сомнением, единственную надежду на выживание ученые видят в прошлом. Неожиданно обнаруженный ими пространственно-временной портал позволяет претворить в жизнь самый смелый план — переселить людей на 85 миллионов лет назад с целью повторного восстановления (   Читать дальше...   )Жанр: Приключения, Фантастика, ДрамаРежиссер: Алекс ГрейвзАктеры: Джейсон О’Мара, Кристин Адамс, Байрон Дж. Брочманн, Джоэль Амос Бернс, Джейсон Чонг, Шелли Конн, Эка Дарвилл, Айша Ди, Дин Гейер, Мидо Хамада, Симона Кессель, Стивен Лэнг, Лэндон Лбуарон, Эллисон Миллер, Дэн Мор, Сэм Парсонсон, Роми Полье, Тоня Рени, Наоми Скотт, Валентино Дель Торо, Дэмиан Уолш-Хаулинг, Лаура УитноллПеревод: Профессиональный перевод (Первый канал)Продолжительность: 01:26:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356440   (274963) от 27.11.2018
-
-Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие негодяи (2011) [Ru] (1.0) Repack Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274963.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Grotesque Tactics: Настоящие негодяи" - это ироничная фэнтезийная РПГ с интересным сценарием и тактическими элементами. Юный призывник Дрейк проваливается на экзамене в Военную академию, и поэтому ему отказывают в праве сражаться за королевство Глория. Униженный и расстроенный, он ищет способ броситься в пасть беспощадного плотоядного гриба. Но вдруг Дрейк (   Читать дальше...   )Тип издания: RepackРазработчик: Silent DreamsЖанр: StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7795C41F5CBE5015E1F3ECD983FB655D900A9166
 ```
 
 https://mybot314.ru/tekegram_catalog/

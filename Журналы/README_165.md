@@ -1,3 +1,107 @@
+###  Публикация: 1016052   (771109) от 13.05.2016
+
+Журнал | Linux Format №4 (208) (апрель 2016) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в России ежемесячный журнал на русском языке, полностью посвященный операционной системе Linux. Основная задача журнала — своевременное и полноценное информирование читателей о современном состоянии индустрии программного обеспечения с открытым кодом, публикация обзоров о технологических новинках и обучающих программах, специализированные новости и интервью. (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D80372A33C0D616412DEE50E4CC5F095231B5C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 779712   (771106) от 22.04.2014
+
+Журнал | Идеи вашего дома [Россия] №5 (184) (май 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеи вашего дома — ежемесячный журнал, посвященный вопросам ремонта и обустройства интерьера. Заинтересует людей, планирующих реконструкцию, ремонт, дизайн интерьера своего жилья. Журнал предлагает большое количество планировочных и оформительских решений, обзоры ремонтно-строительных материалов, мебели, техники и оборудования.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E2F5224AE9389C361228026B0016008BCEA12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 779594   (771048) от 22.04.2014
+
+Журнал | Burda Special. Шить легко и быстро [+ выкройки] (весна-лето 2014) [PDF, JPEG]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burda — самый популярный журнал мод в мире. В спецыальном выпуске "Академия шитья" предсталено 26 модных образов для новичков. Для тех, кто учится шить: шаг за шагом создаем стильный гардероб.Формат: PDF, JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD6CF656EAC64D969260FF056FB19E69A286B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660784   (770753) от 26.05.2013
+
+Журнал | FHM [Россия] №5 (май 2013) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770753.jpg" />
+</div>
+
+
+###  Подробнее
+
+FHM (For Him Magazine) – самый известный журнал для мужчин в мире. Ежемесячно выходит в 33 странах, на 5 континентах, за исключением Антарктиды. Издается в России с 2001 года. Типичный читатель FHM – молодой человек 25-30 лет, который обладает ярко выраженным чувством стиля, хорошо разбирается в модных вещах и технических новинках. Читатели журнала всегда в курсе (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9F2F8242D0ABBBB9D99CEF949598A15A0FE2AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 661234   (770699) от 26.05.2013
 
 Журнал | Шитье и крой (ШиК) №6 [+выкройки] (июнь 2013) [PDF]
@@ -6,7 +110,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770699.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770474.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770447.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770439.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770382.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770369.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770366.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770359.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770348.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770345.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770289.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770238.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770228.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770190.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770146.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770119.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770032.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769968.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769483.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769383.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769372.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769361.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AF99F5C8C6F7241F6D4680DDB20DA17F4AA0ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392384   (769351) от 25.06.2020
-
-Журнал | IT News №4 (234) (май-июнь) (2020) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769351.jpg" />
-</div>
-
-
-###  Подробнее
-
-«IT News» — издание отражает события, происходящие в таких секторах рынка информационных технологий, как телекоммуникации, программное обеспечение, системная интеграция, развитие компьютерных сетей и другие направления.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FC68ED58D26C66583699B352F92CE9A3ACEEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392505   (769224) от 26.06.2020
-
-Газета | Народный совет №22 (май 2020) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4EA4F6E0694122385B76E81B6874F3FFC8C24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392504   (769195) от 26.06.2020
-
-Газета | Народный совет №21 (май 2020) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A257DD5B788E12DCE4F52BB77C884DC58D7BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392465   (769139) от 26.06.2020
-
-Журнал | Радио №6 (июнь 2020) [PDF, DJVU]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769139.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видео и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80A5AE4F15F53065D8EFA2DB5F3751799814C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

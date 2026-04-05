@@ -1,3 +1,32 @@
+###  Публикация: 1252009   (413078) от 03.10.2018
+
+Король и Шут - Жаль, нет ружья (2002) [FLAC|Lossless|tracks + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волосокрад (4:27)
+ 02. Мёртвый анархист (4:08)
+ 03. Смешной совет (4:06)
+ 04. Некромант (2:44)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96E26B479799029AEE1CB65B3DE1ED95DAF91DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251843   (412949) от 03.10.2018
 
 Twenty One Pilots - Trench (2018) [MP3|320 Kbps] <Indie Rock, Hip-Hop>
@@ -6,7 +35,7 @@ Twenty One Pilots - Trench (2018) [MP3|320 Kbps] <Indie Rock, Hip-Hop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412949.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Redhouse - One More Squeeze (1976) [MP3|224 Kbps] <Hard Rock, Progressive Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412844.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ After Tea - Jointhouse Blues (1970) Remastered, 2002, Progressive Line [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412835.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Betraying The Martyrs - Rapture (2019) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412801.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Metallophobia by Peterson - Metallophobia (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412761.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Alexander Paul Blake - Die Ruckkehr ins Goldene Zeitalter (2012) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412759.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Aethernaeum - Wanderungen durch den Daemmerwald (2013) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412757.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Amken - Passive Aggression (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412754.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ KrazarK - KrazarK (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412752.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Chris Norman - It's A Tragedy (2009) [MP3|256]<Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_412734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412734.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Sounds Of The Eighties - The Mid-'80s (1996) [FLAC|Lossless|tracks + .cue] <Vari
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412731.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Belphegor - Totenritual (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412696.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ KrazarK - KrazarK (2018) EP [MP3|320 Kbps] <Heavy Rock, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412670.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Disfallen - The Echoing Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412666.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Lovecraft - Can Abyss (2022) [MP3|320 Kbps] <Psychedelic Doom, Stoner Metal, Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412663.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Smokes of Krakatau - Smokes of Krakatau (2022) [MP3|320 Kbps] <Heavy Psych, Ston
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412661.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Tom Skinner's Science Project - First Set (2022) [MP3|320 Kbps] <Roots Rock, Blu
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412657.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Last Train - The Big Picture (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412593.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Van Morrison - Roll With The Punches (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412590.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ DragonForce - Extreme Power Metal (2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412563.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412539.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Omega - Gammapolis & Live At Kisstadion (2022) 2CD, Compilation[MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412535.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Omega - Beat (2022) 1966-68, Compilation [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412531.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Francesco Fareri - Universal Collision (2016) [MP3|320 Kbps] <Metal, Instrumenta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412399.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Lugnet - Tales From The Great Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412380.jpg" />
 </div>
 
 
@@ -714,32 +743,6 @@ Lugnet - Tales From The Great Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C8E6FD1529ADDD03ADA33FACF96A9F34E50FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066311   (412379) от 26.10.2016
-
-Silverstein - Ghost (2016) Single [MP3|320 Kbps] <Alternative Rock, Post Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost   (03:31)Жанр: Alternative Rock, Post HardcoreПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B148AFD8551EF54E726FC4BA25D1E893AFA6A76
 ```
 
 https://mybot314.ru/tekegram_catalog/

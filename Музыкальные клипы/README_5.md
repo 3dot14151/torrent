@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964934.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964048.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964011.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962993.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961654.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Зимний марафон № 221: Продвинутые Зимние Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960807.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960469.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960464.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960319.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ ABBA – Number Ones (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958192.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957286.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957219.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957198.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Eruption - One Way Ticket (1979) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956547.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955877.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955675.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955554.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955512.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955066.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955042.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Зимний марафон № 222: Праздничный Зимний Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954431.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951601.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music En
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951014.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA – Fetenhits: The Real Classics (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949881.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_948978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_948978.jpg" />
 </div>
 
 

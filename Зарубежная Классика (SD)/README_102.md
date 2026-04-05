@@ -1,3 +1,56 @@
+###  Публикация: 962838   (225701) от 14.12.2015
+
+Банда Горбуна / La banda del gobbo (1978) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас Милиан играет сразу две роли.
+Его близнецы Винченцо и Сержио похожи друг на друга как Пат и Патошон. Один из них горбун, другой просто энергичный идиот. Идиот занимается мелочевкой, горбун рубит бабло по крупному и тот и другой хорошо известны копам. Горбун вернулся с Корсики, где перетирал дела с тамошней мафией, а сейчас решил устроить прощальную гастроль (   Читать дальше...   )Производство: Италия / Dania Film, Medusa DistribuzioneЖанр: Боевик, Триллер, КриминалРежиссер: Умберто ЛенциАктеры: Томас Милиан, Пино Колицци, Иза Даниэли, Сальваторе Боргезе, Лучано Катеначчи, Зольви Штубинг, Гуидо Леонтини, Франческо Д’Адда, Фульвио Мингоцци, Карло ГаддиПеревод: Авторский одноголосый закадровый (Алексей Багичев)Субтитры: ОтсутствуютПродолжительность: 01:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2281E55A1AA2FF7588FE9C0B4F5BB930BBA8D448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418373   (225517) от 18.11.2020
+
+Дом на площади / The House in the Square (1951) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский физик Питер Стэндиш живет в Лондоне в старом, унаследованном от предков доме, который почти не изменился с XVIII столетия. Он верит, что каким-то образом он будет перенесен в 1784 год и проживет там часть своей жизни - потому что сведения об этом он нашел, исследуя старые бумаги, найденные им в доме. И вот, однажды, в грозу, он оказывается в 1784 году. (   Читать дальше...   )Производство: Великобритания / 20th Century Fox Film CorporationЖанр: Фэнтези, Драма, МелодрамаРежиссер: Рой Уорд БейкерАктеры: Тайрон Пауэр, Энн Блит, Майкл Ренни, Деннис Прайс, Беатрис Кэмпбелл, Кэтлин Байрон, Рэймонд Хантли, Ирен Браун, Рональд Адам, Роберт АткинсПеревод: Одноголосый любительский, Andre1288Субтитры: Русские, английскиеПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE5834E7EA65C8A9BF223FB089E0D214CFF5824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267200   (224274) от 12.12.2018
 
 Похищение сабинянок / Il ratto delle sabine (1961) DVDRip [H.264] [MVO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224274.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224028.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223558.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222978.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222921.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222883.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222322.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221986.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221968.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221960.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221603.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221393.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221284.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221131.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220914.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220539.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220258.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220094.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219976.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219796.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219707.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219568.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218881.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217771.jpg" />
 </div>
 
 
@@ -624,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEA6AA1E865B75E0C38C3884CC05195C1F7476F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964187   (217756) от 18.12.2015
-
-Филин и кошечка / The Owl and the Pussycat (1970) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соседей, как и родителей, не выбирают. Печальный факт для интеллектуала и моралиста Феликса, который с ужасом обнаруживает, что живет бок о бок с — какой ужас! — женщиной легкого поведения по имени Дорис.
-В свою очередь, остроумная нахалка Дорис совсем не в восторге от чопорного, невыносимо «правильного» зануды-соседа и не упускает случая отпустить шпильку-другую (   Читать дальше...   )Производство: США / Rastar Pictures, Tom Ward EnterprisesЖанр: КомедияРежиссер: Херберт РоссАктеры: Барбра Стрейзанд, Джордж Сигал, Роберт Клейн, Аллен Гарфилд, Роз Келли, Жак Сандулеску, Джек Мэннинг, Грэйс Карни, Барбара Энсон, Ким ЧанПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDA4970CA517165DDE697B314D4CB9E24C49D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511854   (217450) от 03.12.2021
-
-Жизнь и смерть полковника Блимпа / The Life and Death of Colonel Blimp (1943) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина жизни Клайва Кэнди, британского солдата. Она показана в эпизодах, начиная с 1902 года, когда он сделал блестящую карьеру молодого офицера в Бурской войне, до 1943 года, когда он скрипучим, старческим голосом рассказывает о времени бомбёжки Лондона, размышляет о потерянной молодости и любви...Производство: Великобритания, Independent Producers, The ArchersЖанр: драма, мелодрама, военныйРежиссер: Майкл Пауэлл, Эмерик ПрессбургерАктеры: Джеймс МакКехни, Невилл Мапп, Винсент Холман, Роджер Ливси, Дэвид Хатчесон, Спенсер Тревор, Роланд Калвер, Джеймс Найт, Дебора Керр, Дэннис АрунделлПеревод: любительский одноголосый (Александр Герусов)Субтитры: русские (на неанглийскую речь), английскиеПродолжительность: 02:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B5590197786D9640F559112FDFB4447634AF04
 ```
 
 https://mybot314.ru/tekegram_catalog/

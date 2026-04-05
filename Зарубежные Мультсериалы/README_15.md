@@ -1,3 +1,55 @@
+###  Публикация: 1394017   (764631) от 04.07.2020
+
+Школа Вэйсайд / Wayside (2007) WEB-DL [H.264/1080p-LQ] (сезоны 1-2, серии 1-26, 29-38, 41-52 из 52) Арт-Дубляж
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764631.jpg" />
+</div>
+
+
+###  Подробнее
+
+В школе Вэйсайд появился новый ученик по имени Тодд. Ему предстояло многое узнать об этой школе: Например, что там 30 этажей и что любой ученик может стать директором. В этой школе, можно поставить оценку учителю и за это ничего не будет. А ещё в классе можно поплавать с рыбками.Производство: Канада / Nelvana LimitedЖанр: мультфильм, комедияРежиссер: Риккардо ДюрантеАктеры: Марк Рендалл, Кедар Браун, Дениз Оливер, Лиза ЭнДжи, Мартин Виллафана, Джейн Иствуд, Дуэйн Хилл, Кэтлин Лэски, Джули Лемье, Терри МакгурринПеревод: Дублированный (Арт-Дубляж)Субтитры: русские (forced), английские (full, SDH)Продолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1753C85843ED6B072763561935578E9A23A3A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393981   (764581) от 04.07.2020
+
+Гриффины / Family Guy (2017) WEB-DL [H.264/1080p-LQ] (сезон 16, серии 1-20 из 20) 2x2
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764581.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: мультфильм, комедияРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Джон Винер, Дэнни Смит, Патрик Варбертон, Ральф Гармен, Алек СалкинПеревод: Многоголосый профессиональный (2x2)Субтитры: русские (forced) английские (SDH)Продолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B74D1FC0B181237CEB557635B82CC3F3FE23B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279613   (764294) от 31.01.2019
 
 Кунг-фу панда: Лапки судьбы / Kung Fu Panda: The Paws of Destiny (2018) WEB-DLRip (Сезон 1, Серии 13 из 13)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764294.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764225.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763792.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763733.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763720.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762408.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Lego: Рыцари Нексо /  Lego: Nexo Knights (2015) WEBRip (сезон 1,
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762321.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761643.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761642.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760905.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760182.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758918.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757105.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757014.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756668.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755189.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754894.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754883.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754667.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754353.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753731.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750917.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749140.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748820.jpg" />
 </div>
 
 
@@ -617,60 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB16649A822121E0639D641551D77109ADE31F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375817   (748113) от 14.07.2020
-
-Харли Квинн / Harley Quinn (2020) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-13 из 13) NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (NewStation)
-присутствует ненормативная лексика.Субтитры: русские (сообщество UGN SUBZ Translators), английскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65495179C200DACD2293CC7D47B01380A65B783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375815   (748107) от 14.07.2020
-
-Харли Квинн / Harley Quinn (2020) UHD WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 2, серии 1-13 из 13) NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (NewStation)
-присутствует ненормативная лексика.Субтитры: русские (сообщество UGN SUBZ Translators), английскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8545CAB1B83E9F94190FFBC6C43D61445DC31609
 ```
 
 https://mybot314.ru/tekegram_catalog/

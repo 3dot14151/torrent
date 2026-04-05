@@ -1,3 +1,32 @@
+###  Публикация: 1430511   (173964) от 10.12.2020
+
+Промозглость - Там, Где Гаснет Жизни Свет (2020) [MP3|320 Kbps] <Atmospheric Black Metal, Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В зареве тьмы (08:59)
+ 02. Жертва (08:31)
+ 03. Над безмятежностью могил (11:41)
+ 04. Предрешённого капкан (06:13)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Depressive Black MetalПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DC3B31DC584D082F5DD1E39FA971852AA2B45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430518   (173958) от 10.12.2020
 
 Frowning - Death Requiem (2020) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
@@ -6,7 +35,7 @@ Frowning - Death Requiem (2020) [FLAC|Lossless|image + .cue] <Funeral Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173958.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ DevilDriver - Dealing With Demons Vol. I (2020) [FLAC|Lossless|image + .cue] <Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173911.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Diablo Swing Orchestra - Swagger & Stroll Down the Rabbit Hole (2021) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173896.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sproingg - Clam (2020) [MP3|320 Kbps] <Progressive Rock, Eclectic Prog, Instrume
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173888.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Tarja Turunen - Best of: Living the Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173872.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Lee Abraham - Harmony-Synchronicity (2020) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173846.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Eye 2 Eye - The Wish (2011) [FLAC|Lossless|image + .cue] <Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173799.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ VA - Rock Christmas 2022 - The Very Best Of (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173797.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173791.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173772.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Flying Colors - Second Flight: Live At The Z7 (2015) 2CD [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173736.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Shocking Blue - 18 albums, 1 Box-set, 43CD (1967-2017) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173734.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Tarja Turunen - Best of: Living the Dream (2022) Remastered [MP3|320 Kbps] <Symp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173685.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173617.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Arch Enemy - Collection (1996-2025) 40CD [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173544.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ NovaReign - Legends (2018) [FLAC|Lossless|image + .cue] <Progressive, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173505.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Nergard - A Bit Closer to Heaven (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173500.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Nergard - Memorial for a Wish (2018 Version) (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173480.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ The Dead Amigos - Denim Egos (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173474.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173466.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173465.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173455.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173430.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Kevin Bailey - Ride Into The Storm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173419.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Kristofer Lee Bentley - It's So Good (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173417.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Kristofer Lee Bentley - It's So Good (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5752915B8CA548E3C0AE29C7C69E0369F562F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827138   (173414) от 20.10.2025
-
-Mr. M.D - Dog Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dark Days (3:21)
-02.  Doing What I've Been Told (2:58)
-03.  Funk #5 (2:49)
-04.  Gonna Ride (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A95A04E274BEE91E65E776181A810E76EF3A27
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Mick Jagger - Wandering Spirit (1993) Reissue, 2019, Polydor Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534196.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Black Sabbath - The Spirit Of 666 (2016) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532346.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Devils Deuce - Supercharged (2017) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531568.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Deep Purple - Live In Newcastle 2001 (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530611.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ David Gilmour - L.A. 3rd Night (2016) 2CD Bootleg, Live [MP3|320 Kbps] <Progress
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530507.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Freddie Mercury - Messenger Of The Gods: The Singles Collection (2016) 2CD [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530499.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ricky Nelson - Les Genies du Rock - I'm Walkin' (1993) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528762.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528496.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Zlote przeboje radia Pogoda (1997) [MP3|320 Kbps] <Pop-rock, Polish-rock, S
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526407.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Classic Road Trip (2018) [MP3|320 Kbps] <Blues, Psychedelic Rock, Folk, Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524255.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Damned - Les Genies du Rock - Gun Fury (1995) [MP3|320 кб/с]<Goth Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524124.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stiv Bators - Les Genies du Rock - Sonic Reducer (1994) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524123.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Doobie Brothers - Les Genies du Rock - First Album (1993) [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524121.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The 13th Floor Elevators - Les Genies du Rock - You'Re Gonna Miss Me (1993) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524113.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Stray Cats - Les Genies du Rock - Rockabilly Live (1994) [MP3|320 кб/с]<Rocka
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524111.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Kinks - Les Genies du Rock - Waterloo Sunset (1995) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524066.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Stillwater - Stillwater (1977) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524011.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Green Altar - Green Altar (2022) [MP3|320 Kbps] <Stoner Rock, Sludge, Doom Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522790.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bongskrap - Bong Voyage (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522789.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Shrooms Circle - The Constant Descent (2022) [MP3|320 Kbps] <Stoner Rock, Doom M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522788.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Horned Wolf - Become Like They Are (2022) [MP3|320 Kbps] <Sludge Rock, Doom Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522784.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - 100 Hits - The Best Soft Rock Album (2018) 5CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522665.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ The Nerves - Jack Lee - Plimsous - Les Genies Du Rock - West Coast Pop (1994) [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522553.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Jimmy Barnes - Best Of The Soul Years (2015) [MP3|320 кб/с]<Rock, Soul, Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522542.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522526.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Space Druids - 3 Relise (2019-2022) [MP3|320 Kbps] <Vintage Space, Psychedelic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522033.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1150247   (594036) от 15.07.2017
-
-VA - Песни На Стихи Андрея Вознесенского (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594036.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Николай Гнатюк - Танец На Барабане
-A2 Ольга Пирак - Два Стрижа
-A3 Петер Тилс - Белый Шиповник
-A4 Яак Йоала - Подберу Музыку(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548801   (593957) от 06.05.2022
 
 The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
@@ -35,7 +6,7 @@ The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593957.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Ray Conniff/Рэй Коннифф - Смех Под Дождем (1976) [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593733.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Ray Conniff/Рэй Коннифф - Голубая Рапсодия (1987) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593359.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Twisted Sister - Studio Albums (8 releases) (1982 - 2006) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592844.jpg" />
 </div>
 
 
@@ -152,7 +123,7 @@ Mike Oldfield - Tubular Bells (1973) remaster 2001 [DTS 4.0 CD-DA|44.1/16|image+
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592843.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Opeth - Дискография (19 albums) (1995 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592470.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Mastodon - Дискография (15 albums) (2001 - 2021) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592466.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Sting - Collection (8 Albums) (1985 - 2003) hand made [restored, declipped] [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592446.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансар�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590222.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Brian Flanagan - Where Dreams Are Made (2017) [DTS 5.1 CD-DA| 44.1/16|image+.cue
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590182.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590099.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589714.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Billy Talent - Studio Albums (7 releases) (1999 - 2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589389.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Electric Light Orchestra - Out Of The Blue (1977) 2LP  [FLAC 2.0 24/192|image (V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588313.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Queen - A Night At The Opera (1975) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587126.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ The Velvet Underground - The Velvet Underground & Nico (1967) 45th Anniversary R
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586250.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Eric Clapton - Give Me Strength - The '74/'75 Recordings (1974-1975) 2013, Polyd
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586236.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585889.jpg" />
 </div>
 
 
@@ -562,7 +533,7 @@ Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584759.jpg" />
 </div>
 
 
@@ -591,7 +562,7 @@ Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584456.jpg" />
 </div>
 
 
@@ -620,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584429.jpg" />
 </div>
 
 
@@ -649,7 +620,7 @@ C.C. Catch - Diamonds: Her Greatest Hits (1988) [FLAC 2.0|192/24|image +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584266.jpg" />
 </div>
 
 
@@ -678,7 +649,7 @@ Supertramp - Breakfast in America (1979) Reissue, 2013, A&M [DTS-HD MA, LPCM, Do
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584154.jpg" />
 </div>
 
 
@@ -707,7 +678,7 @@ Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Bl
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584150.jpg" />
 </div>
 
 
@@ -736,7 +707,7 @@ VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584015.jpg" />
 </div>
 
 
@@ -750,6 +721,35 @@ A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041372   (583171) от 08.08.2016
+
+Luciano Pavarotti - Ti Adoro (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Classical - Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Il canto    03:44
+02.    Neapolis    03:35
+03.    Starai con me    04:23
+04.    Ti adoro    03:13(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C85C521834722C39DBCE5FFBC9D672195C3EDB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

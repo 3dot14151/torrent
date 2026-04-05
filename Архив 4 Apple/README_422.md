@@ -6,7 +6,7 @@ EdgeView 2 v2.460 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359138.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Elmedia Player Pro 7.6 (1831) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359059.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Affinity Designer 1.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359053.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jump Desktop (RDP & VNC) 8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359041.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Piezo 1.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359037.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ App Cleaner & Uninstaller Pro 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359030.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Affinity Photo 1.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358924.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Softorino YouTube Converter 2 v2.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358906.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Rhinoceros 5 v5.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358744.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Audirvana Plus 3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358706.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ TrashMe 2.1.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358694.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358681.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ RightFont 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358642.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ TechTool Pro 9.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358524.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Boinx FotoMagico 4.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358455.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ A Better Finder Attributes 7 v7.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358434.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Scrutiny 9 v9.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358431.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Coherence X 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358430.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Rogue Amoeba Farrago 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358427.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Tidy Up 5 v5.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358425.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ PhotoMill X 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358424.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ BlueHarvest 8 v8.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358422.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ AudioFinder 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358418.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Get Backup Pro 3 v3.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358417.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ A Better Finder Rename 11 v11.24 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358415.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ goPanel 2 v2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358412.jpg" />
 </div>
 
 

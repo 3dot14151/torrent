@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587244.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586738.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586456.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585704.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574727.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573144.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570158.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569091.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569089.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567409.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567112.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564249.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563031.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562778.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562047.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561872.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561845.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561721.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561290.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551721.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551655.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551041.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550778.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549965.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549159.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548906.jpg" />
 </div>
 
 

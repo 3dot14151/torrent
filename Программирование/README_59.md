@@ -1,81 +1,3 @@
-###  Публикация: 1767606   (33355) от 22.12.2024
-
-Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширьте свой набор инструментов C++ быстро и эффективно с помощью этого передового ресурса. В обновленном шестом издании книги ветеран программирования и разработчик Марк Грегуар представляет еще один том, который поднимает планку для руководств по продвинутому программированию. Охватывая основные новые изменения, содержащиеся в новом стандарте C++ под кодовым (   Читать дальше...   )Жанр: Программирование, С++, C++23Язык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BA8B6398A9B1F74216CB4BFCDBF502419E8127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767581   (33333) от 22.12.2024
-
-Jakub Narębski | Mastering Git, 2nd Edition (2024) [EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга познакомит вас с последней версией Git, ее возможностями и передовыми методами ветвления, помогая освоить сложные сценарии разработки. Добавлена новая глава о решении проблем при управлении большими репозиториями, в которой представлены бесценные стратегии эффективного контроля версий с помощью Git. Книга выходит за рамки основ и подробно рассматривает архитектуру, (   Читать дальше...   )Жанр: Компьютерная литература, программированиеЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561B1A31508A10C98148C6653883E15F48B8FFB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767625   (33205) от 24.12.2024
-
-Alexey Soshin | Kotlin Design Patterns and Best Practices (3rd Edition) (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третье издание соответствует обновлениям Kotlin, начиная с версии 1.6, и предлагает глубокое понимание таких тем, как структурированный параллелизм и контекстные приемники. Книга начинается со знакомства с основным синтаксисом Kotlin и значением паттернов проектирования, охватывая классические креативные, структурные и поведенческие паттерны. Затем в книге рассматриваются (   Читать дальше...   )Жанр: Программирование, KotlinЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C7B94629C4E2FB809B631FDB6E3DD71834D9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767626   (33174) от 24.12.2024
 
 Mikhail Sakhniuk, Adam Boduch | React and React Native (5th Edition) (2024) [PDF] [EN]
@@ -84,7 +6,7 @@ Mikhail Sakhniuk, Adam Boduch | React and React Native (5th Edition) (2024) [PDF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33174.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ Frances Buontempo | Learn C++ by Example (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33172.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32437.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32065.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31335.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31237.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30579.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29251.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28207.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27235.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27228.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27121.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27115.jpg" />
 </div>
 
 
@@ -435,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26839.jpg" />
 </div>
 
 
@@ -464,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26234.jpg" />
 </div>
 
 
@@ -490,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26187.jpg" />
 </div>
 
 
@@ -516,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25159.jpg" />
 </div>
 
 
@@ -543,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24849.jpg" />
 </div>
 
 
@@ -569,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23286.jpg" />
 </div>
 
 
@@ -595,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22849.jpg" />
 </div>
 
 
@@ -621,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21692.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ Cuantum Technologies | Алгоритмы и структуры данных н�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21477.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21383.jpg" />
 </div>
 
 
@@ -684,6 +606,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:489103337ACEC21AFF3226DA06AC9694D3D5ED4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791766   (21379) от 15.04.2025
+
+Д. Талия, П. Трунфио, Ф. Мароццо и др. | Большие данные [2 книги] (2025) [PDF] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21379.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются модели, системы и фреймворки программирования, специально созданные для обработки и анализа больших наборов данных. Дается подробное описание свойств и механизмов ключевых парадигм программирования, используемых в анализе больших данных, таких как модели на основе MapReduce, рабочих потоков, массового синхронного параллелизма (BSP), передачи (   Читать дальше...   )Жанр: Програмирование. Интернет и технологии.Перевод: А. ЛогуновЯзык: Русский, английскийИздательство: Programming Big Data Applications; ДМКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6A048083FCB65B4CD60A459AC183A80B668BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791746   (21376) от 15.04.2025
+
+Владимир Туманов | Хранилища данных. Книга для проектировщиков, разработчиков и руководителей проектов (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хранилища данных как информационная технология появились в результате применения прикладного искусственного интеллекта в области систем принятия и поддержки решений. И в обозримой перспективе хранилища данных будут оставаться базовым элементом систем бизнес-аналитики в части обработки структурированных данных. В издании рассматривается архитектура хранилищ данных, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Ай Пи Ар Медиа; Идипи ХабФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F172809CCC1A5E801389F0C655195460B33145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791584   (21370) от 15.04.2025
+
+Бернар Коритес | Графика на Python [2 книги] (2023, 2024) [PDF] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21370.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге на наглядных примерах показано, как использовать встроенные графические примитивы Python – точки, линии и стрелки – для создания сложной графики, визуализации двух- и трехмерных объектов, диаграмм с данными и технических иллюстраций.
+Изучив книгу, вы сможете:
+- cоздавать 2D- и 3D-изображения;
+- добавлять к ним текст и символы;(   Читать дальше...   )Жанр: Програмирование. Интернет и технологии.Перевод: И. ЛюскоЯзык: Русский, английскийИздательство: Apress, ДМК ПРЕССФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A6A9B6325890A070E2B34587520392EA151E3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

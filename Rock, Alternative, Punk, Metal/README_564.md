@@ -1,3 +1,90 @@
+###  Публикация: 1561774   (512455) от 07.07.2022
+
+VA - Rock Playlist (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foals - 2am (3:44)
+02. Royal Blood - Honeybrains (3:06)
+03. Biffy Clyro - Mountains (3:20)
+04. Staind - It's Been Awhile (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 03:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E52FB9BC595329A63035026A51BE54BAE66A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562127   (512450) от 07.07.2022
+
+Powerwolf - The Monumental Mass - A Cinematic Metal Event (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue / Monumental Mass Theme (3:03)
+02. Faster Than the Flame (3:37)
+03. Venom of Venus (4:01)
+04. Stossgebet (3:53)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9233327DC50F5FC3D15399B6C80655121A9C3287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562037   (512449) от 07.07.2022
+
+Neorhythm - Anthropo (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Math Metal, Grrove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Savant (00:04:38)
+02 - Ignoramus (00:03:32)
+03 - Reformer (00:04:29)
+04 - Villain (00:03:24)(   Читать дальше...   )Жанр: Modern Death, Math Metal, Grrove MetalПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E636B72C52CCC73BC552F7C1AA514E392E4E0405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561939   (512442) от 07.07.2022
 
 Crematory - Inglorious Darkness (2022) [FLAC|Lossless|image + .cue] <Gothic Metal>
@@ -6,7 +93,7 @@ Crematory - Inglorious Darkness (2022) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512442.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Clive Mitten - Tales From A Misspent Youth Volume I (2022) 2CD [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512441.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Age Of Ignorance - Our Last Night (2012) [MP3|320 кб/с]<Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512431.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ Damnation Angels - Bringer Of Light (2012) Japanese Edition [FLAC|Lossless]<Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512390.jpg" />
 </div>
 
 
@@ -134,7 +221,7 @@ In The Silence - A Fair Dream Gone Mad (2012) [FLAC|Lossless]<Atmospheric Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512376.jpg" />
 </div>
 
 
@@ -167,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512372.jpg" />
 </div>
 
 
@@ -202,7 +289,7 @@ Argent - 8 albums, 1 Box-set, 15CD (1969-2022) [FLAC|Lossless|image + .cue] <Cla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512363.jpg" />
 </div>
 
 
@@ -231,7 +318,7 @@ Chris Randall (Sister Machine Gun) - The Devil His Due (2007) [OGG| 424-522 кб
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511938.jpg" />
 </div>
 
 
@@ -260,7 +347,7 @@ Sister Machine Gun - The Future Unformed (2015) EP [OGG| 499-530 кб/с]<Altern
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511931.jpg" />
 </div>
 
 
@@ -289,7 +376,7 @@ Tristania - Rubicon (2010) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511925.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Pillar - One Love Revolution (2015) LifeWay Exclusive [MP3|320 кб/с]<Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511889.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Styx - Gold (2006) 2CD [FLAC|tracks+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511844.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511798.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Stranded - New Dawn (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511792.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Santana - Greatest Hits (2012) 3CD [MP3|320 кб/с]<Latin Rock, Blues Rock, Jaz
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511752.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Violentor - Manifesto Di Odio (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511573.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Profetus - The Sadness Of Time Passing (2019) [FLAC|Lossless|image + .cue] <Fune
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511572.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Vaamatar - Medievalgeist (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511560.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Virgin Idol - Virgin Idol (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511559.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Greylotus - Dawnfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511557.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Profetus - Coronation Of The Black Sun & Saturnine (2006, 2009) 2xCD, Remastered
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511555.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Vortesvin - What Remains of the World (2022) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511553.jpg" />
 </div>
 
 
@@ -671,7 +758,7 @@ The Machinist - All is Not Well (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511549.jpg" />
 </div>
 
 
@@ -685,93 +772,6 @@ The Machinist - All is Not Well (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E75C47F67CBF2DECB2666313D15A074990811B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561795   (511545) от 08.07.2022
-
-Transmetal - Adios Satanas (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - El Apostata (00:01:22)
-02 - Vision Oscura (00:05:36)
-03 - Adios Satanas (00:04:04)
-04 - El Camino del Aliento (00:03:07)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B1555252CAF83F412605DD5C25FA5B607CBD76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562217   (511543) от 08.07.2022
-
-(Hed) P.E. & Dropout Kings - Last Ones Standing (Split) (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental, Hardcore Hip-Hop, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. (Hed) P.E. - Bartenders (feat. Dropout Kings & DJ Lethal)
-2. Dropout Kings - Hey Uh
-3. (Hed) P.E. - Boot Hill (feat. Hard Target)
-4. Dropout Kings - GlitchGang (Remix) (feat. (Hed) P.E., Crazy Town & Twiztid)Жанр: Experimental, Hardcore Hip-Hop, MetalcoreПродолжительность: 00:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85CBCA1C81FD5A946BF582DB8084E1D6383C63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562291   (511541) от 08.07.2022
-
-Serpents In Paradise - Temptation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Bites
-02. Tomorrow Never Comes
-03. Where's The Rock 'n' Roll Gone?
-04. Moonshine Blues(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25BBB4BE2F69ED9F4AEF375BEDAD072D4EE9452
 ```
 
 https://mybot314.ru/tekegram_catalog/

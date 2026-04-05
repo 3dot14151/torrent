@@ -1,29 +1,3 @@
-###  Публикация: 1093981   (932114) от 16.01.2017
-
-Debian GNU/Linux 8.7.0 Jessie [x86-64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Debian выпустили седьмое корректирующее обновление для стабильного дистрибутива Debian 8 (Jessie). Релиз 8.7 в основном исправляет проблемы с безопасностью, а также вносит некоторые коррективы в работу. Выпуск включает 87 обновлений с устранением проблем со стабильностью и 86 обновлений с устранением уязвимостей. Из изменений в Debian 8.7 можно отметить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A266A1298277124ED88EF3F03524BCAD0195F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365035   (931647) от 06.03.2020
 
 Ubuntu*Pack 18.04 (февраль 2020) [amd64] 1xDVD
@@ -32,7 +6,7 @@ Ubuntu*Pack 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931647.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Debian GNU/Linux 8.7.0 Jessie Live (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930586.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Debian GNU/Linux 8.7.0 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930463.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Debian GNU/Linux 8.7.1 Jessie [x86-64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930235.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Ubuntu Gnome 15.04 Vivid Vervet Alpha II [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929739.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Kubuntu 15.04 Vivid Vervet Alpha II [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929733.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Lubuntu 15.04 Alpha II (легкий дистрибутив) [i386, amd64] 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929717.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ Debian GNU/Linux 8.7.1 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929064.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928647.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [x86-64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928524.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ Ubuntu*Pack GNOME Flashback 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925484.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Ubuntu*Pack GNOME Classic 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925404.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ Ubuntu*Pack GNOME 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925399.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ Ubuntu*Pack Budgie 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925391.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ Ubuntu*Pack MATE 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925311.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Ubuntu*Pack KDE (Kubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925305.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ Debian Edu - Skolelinux 11.0.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925218.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925154.jpg" />
 </div>
 
 
@@ -512,7 +486,7 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925144.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ Kubuntu 14.04.4 LTS [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920422.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ Lubuntu 14.04.4 Trusty Tahr (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920280.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ Xubuntu 14.04.4 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920226.jpg" />
 </div>
 
 
@@ -617,7 +591,7 @@ Ctlos Linux Openbox 1.2.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920070.jpg" />
 </div>
 
 
@@ -644,7 +618,7 @@ EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918633.jpg" />
 </div>
 
 
@@ -670,7 +644,7 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918496.jpg" />
 </div>
 
 
@@ -681,6 +655,34 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:539FDD69A760DA1EDB69BFCCD35841306B85EC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757631   (915590) от 17.02.2014
+
+Edubuntu 12.04.4 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Edubuntu — дистрибутив операционной системы Linux, основанный на дистрибутиве Ubuntu. Ориентирован на использование в образовательных учреждениях. В Edubuntu включён Linux Terminal Server Project и большое количество программ образовательного направления, таких как GCompris; KDE Education Project; SchoolTool Calendar (en — school management information system) и ряд других.
+
+Установив Edubuntu Вы получите все возможности текущей версии Ubuntu 12.04.4 LTS плюс некоторый набор образовательных программ. Поскольку Edubuntu работает с теми же репозиториями, что и Ubuntu, в последней все эти программы также будут доступны, однако придется их устанавливать самостоятельно, на что уйдет дополнительное время.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFEABC5FB529015DC1DF18D471E13BD83475B0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

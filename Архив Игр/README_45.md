@@ -1,3 +1,57 @@
+###  Публикация: 539522   (504486) от 28.08.2012
+
+Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0) 2012 | SHARINGAN
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
+Каждое испытание представляет собой головоломку с бесконечным количеством решений. Вам пригодится, в первую очередь, умение стратегически мыслить, чтобы победить многочисленных противников и завершить свой путь..(   Читать дальше...   )Тип издания: RepackЖанр: Action / RPG / FantasyЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский, Немецкий, Французский, Испанский, Итальянский, Китайский, Корейский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCBF8D52D00001B371ACB22F64960A9F569E8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539336   (504392) от 28.08.2012
+
+Dark Souls: Prepare To Die Edition [Ru] (Repack/1.0.0.1) 2012 | {AVG}
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
+Каждое испытание представляет собой головоломку с бесконечным количеством решений. Вам пригодится, в первую очередь, умение стратегически мыслить, чтобы победить многочисленных противников и завершить свой путь..(   Читать дальше...   )Тип издания: RepackЖанр: Action / RPG / FantasyЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552ACD0319588C8C3123FA1411F2FFA01C0CEBF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540122   (504294) от 28.08.2012
 
 The Expendables 2. Videogame [En] (RePack/1.0) 2012 l {AVG}
@@ -6,7 +60,7 @@ The Expendables 2. Videogame [En] (RePack/1.0) 2012 l {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504294.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Iron Brigade [En] (RePack/1.0) 2012 | AVG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504276.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Deponia [Ru] (Repack/1.2.0.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504215.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Jagged Alliance: Crossfire / Jagged Alliance: Перестрелка [Ru] (RePac
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504214.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Dark Souls: Prepare To Die Edition [Ru] (Repack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504209.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ Galaxy on Fire 2. Full HD [Ru] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504075.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Fallout: New Vegas Ultimate Edition [Ru] (RePack/1.4.0.525) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504036.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ Need For Speed: Most Wanted / Muscle [Ru/En] (RePack/Mod) | R.G. Packers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503454.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Need For Speed: Shift + DLC: Ferrari + Exotic [Ru] (RePack/1.01/1.02) 2009 | evi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503449.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503313.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ Legends of Pegasus [En/Ge] (RePack/1.0.0.4115) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503067.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ Maestia: Rise Of Keledus [Ru] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503060.jpg" />
 </div>
 
 
@@ -335,7 +389,7 @@ Hitman: Sniper Challenge [Ru] (Repack) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503058.jpg" />
 </div>
 
 
@@ -363,7 +417,7 @@ Darksiders II: Death Lives - Limited Edition [Ru] (Repack/1.0.u2) 2012 | R.G. Wo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502988.jpg" />
 </div>
 
 
@@ -391,7 +445,7 @@ Damage Inc. Pacific Squadron WWII [En] [Repack) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502105.jpg" />
 </div>
 
 
@@ -417,7 +471,7 @@ Mass Effect 3 [Ru] (Lossless Repack/1.03.5427.46/3 DLC) 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502021.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ Mass Effect 3 [Ru] (RePack/1.3.5427.46/4 DLC) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501960.jpg" />
 </div>
 
 
@@ -471,7 +525,7 @@ Mass Effect Трилогия [Ru] (RePack) 2008-2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501952.jpg" />
 </div>
 
 
@@ -498,7 +552,7 @@ World of Tanks (2010) [Ru] (0.9.10) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501935.jpg" />
 </div>
 
 
@@ -524,7 +578,7 @@ X Rebirth (2013) [Ru/En] (3.60/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500934.jpg" />
 </div>
 
 
@@ -550,7 +604,7 @@ Transformers: Fall of Cybertron [En] (Rip/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500866.jpg" />
 </div>
 
 
@@ -577,7 +631,7 @@ I am alive [XBOX 360] [ENG] [Freeboot/JTAG] [XBLA] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500827.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ I Am Alive [En] (L) 2012 | R.G. GameWorks [без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499356.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ This War of Mine (2014) [Ru/Multi] (1.3.2/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499023.jpg" />
 </div>
 
 
@@ -642,61 +696,6 @@ This War of Mine (2014) [Ru/Multi] (1.3.2/dlc) Repack R.G. Revenants
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32EF71ED694D358FA7F3D0928D7EE49796B46ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542311   (498997) от 02.09.2012
-
-Alan Wake Дилогия [Ru] (Repack) 2012 | {AVG}
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alan Wake's American Nightmare - экшен с элементами хоррора, разработанный студией Remedy. События игры не являются продолжением или приквелом к оригинальному Alan Wake. American Nightmare расширяет и углубляет вселенную игры, добавляя ранее неизвестных персонажей и события.
-В этот раз Алан Уэйк сразится с мистером Скрэтчем, вестником тьмы! Новый захватывающий сюжет, орды ужасающих врагов, серьезное оружие и прекрасные пейзажи Аризоны, а также увлекательный новый режим станут настоящим подарком для фанатов Алана Уэйка, а для всех остальных — отличной возможностью познакомиться с историей писателя.(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537883   (498848) от 02.09.2012
-
-Darksiders II: Death Lives [Ru] (Repack/Upd.2) 2012 | R.G. Element Arts
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пробужденный концом света, Смерть, самый страшный из легендарных Четырех Всадников, отправляется в путь, чтобы восстановить человечество и очистить имя брата. По пути всадник узнает, что есть вещи похуже земного Апокалипсиса, и что древняя вражда может угрожать всему Созиданию...
-
-События второй части развиваются параллельно событиям первой. Война все еще заточен в тюрьме и теперь нам предстоит узнать историю второго всадника Апокалипсиса - Смерти. Он пытается разобраться в заговоре между адом и раем за право обладания Землей и найти и наказать тех, кто подставил Войну. .(   Читать дальше...   )Тип издания: RepackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0915A86D2120C9E47AFF626F9298B26E764D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

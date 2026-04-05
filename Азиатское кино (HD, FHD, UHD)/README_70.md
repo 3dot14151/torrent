@@ -1,3 +1,159 @@
+###  Публикация: 1599367   (159719) от 23.12.2022
+
+Большая четвёрка / The Big Four (2022) WEBRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159719.jpg" />
+</div>
+
+
+###  Подробнее
+
+детектив расследует смерть своего отца и отправляется за подсказкой на отдаленный тропический остров, где узнает, что он был лидером группы наемных убийц. Теперь за ней охотятся его враги, и ей приходится объединиться с мошенниками, которых тренировал её отец, - четырьмя отставными убийцами, которым не повезло и которые жаждут вернуться в игру.Производство: Индонезия / Frontier PicturesЖанр: боевик, комедия, криминалРежиссер: Тимо ТьяджантоАктеры: Абимана Арьясатья, Путри Марино, Лутеша, Арие Критин, Кристо Иммануэль, Marthino Lio, Michelle Tahalea, Kho Michael, Буди РосПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: русские, украинские, английские (Forced, Full, SDH)Продолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1214B45249EC3222FBF1053140570F6FED861EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599349   (159718) от 23.12.2022
+
+Большая четвёрка / The Big Four (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159718.jpg" />
+</div>
+
+
+###  Подробнее
+
+детектив расследует смерть своего отца и отправляется за подсказкой на отдаленный тропический остров, где узнает, что он был лидером группы наемных убийц. Теперь за ней охотятся его враги, и ей приходится объединиться с мошенниками, которых тренировал её отец, - четырьмя отставными убийцами, которым не повезло и которые жаждут вернуться в игру.Производство: Индонезия / Frontier PicturesЖанр: Боевик, комедия, криминалРежиссер: Тимо ТьяджантоАктеры: Абимана Арьясатья, Путри Марино, Лутеша, Арие Критин, Кристо Иммануэль, Marthino Lio, Michelle Tahalea, Kho Michael, Буди РосПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288A2F6D0CD74FFD6D4700F1FAE012A8811AEC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599921   (159151) от 25.12.2022
+
+Признание / Jabaek / Confession (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой бизнесмен обвиняется в убийстве любовницы. Ему на помощь приходит лучшая адвокатесса страны.Производство: Корея Южная / Lotte Entertainment, Realies PicturesЖанр: триллер, криминал, детективРежиссер: Юн Джон-сокАктеры: Со Джи-соп, Ким Юн-джин, Нана, Пак Хён-сук, Хван Сон-хи, Чхве Гван-иль, Хон Со-джунПеревод: Двуголосый любительский (RealFake)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7741323B9CDE565CFB5F7EAA483F83457BAB7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967725   (158332) от 21.12.2015
+
+Даосский маг Чон У Чхи / Woochi (2009) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примерно 500 лет назад в государстве Чосон произошло из ряда вон выходящее событие. Волшебная флейта, одно из величайших сокровищ страны, была похищена и оказалась в руках у злого чудовища. Небожители не могли остаться в стороне: они помогли побороть монстра и, чтобы защитить чудесный музыкальный инструмент от подобных посягательств в будущем, разделили его на две (   Читать дальше...   )Производство: Корея Южная / BK Pictures, CJ EntertainmentЖанр: Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Чхве Дон ХунАктеры: Ким Юн Сок, Им Су Чон, Кан Дон Вон, Ём Чон А, Ким Хё Чжин, Пэк Юн Сик, Сон Ён ЧанПеревод: Двуголосый закадровый, любительский (Ворон и MezIdA)Язык субтитров: ОтсутствуютПродолжительность: 02:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8B43F5C5730A241361304496F098A58B840DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968016   (158140) от 22.12.2015
+
+Преисподняя мертвых / Z airando (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя десять лет, глава клана якудза Хироя Мунакава (Шо Айкава), встречает своего верного соратника Такаши (Цуруми Синго) из тюрьмы. Парень принял удар вместо него, так что босс присматривал за его женой и дочерью, пока он отбывал срок. Но дочь Такаши, не желая встречаться с отцом, вместе со своей подругой сбежала на остров Зени. Однако, в это время на остров обрушилась (   Читать дальше...   )Производство: Япония / Kadokawa Daiei Studios, Nishimura Motion Picture Model Makers GroupЖанр: Ужасы, БоевикРежиссер: Хироси СинагаваАктеры: Сё Айкава, Дайго, Кунихиро Кавасима, Шунсуке Кадзама, Ючи Кимура, Ёскэ Кубодзука, Даизуке Миягава, Эрина Мизуно, Хидео НаканоПеревод: Двуголосый закадровый, любительскийЯзык субтитров: ОтсутствуютПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F510D1508EEAF589F43702DF1B5A3910F640F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193822   (158033) от 23.12.2017
+
+Токийский гуль / Tokyo guru (2017) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158033.jpg" />
+</div>
+
+
+###  Подробнее
+
+На студента Кэна Канэки напал гуль. Парню удалось спастись, когда на монстра упала металлическая конструкция и убила его. Обоих доставляют в больницу и Кэну пересаживают органы гуля.Производство: Япония / Geek SightЖанр: ужасы, фантастика, триллер, драмаРежиссер: Кэнтаро ХагивараАктеры: Масатака Кубота, Фумика Симидзу, Нобуюки Судзуки, Хиёри Сакурада, Ю Аои, Сёко Аида, Миносукэ Бандо, Данкан, Сэйка Фурухата, Кэнта ХаманоПеревод: двуголосый закадровый (den904 & DeadSno)Субтитры: английские, китайскиеПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A5447C113266F56E63C393364A083C473216C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676472   (157559) от 13.11.2023
 
 До встречи (Буду ждать, пока ты не придёшь) / Bu Jian Bu San / Be There Or Be Square (1998) BDRip [H.264/720p] [MVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157559.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156584.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156505.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156139.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155953.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155691.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155505.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154632.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154617.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154492.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154180.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153507.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153421.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153323.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153300.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153118.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152860.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152765.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152626.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152568.jpg" />
 </div>
 
 
@@ -512,162 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F613DE7ABF9138F1CAAD756D5789CCF44ED3D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433798   (152561) от 23.12.2020
-
-Звонок из прошлого / Kol / The Call (2020) (2020) WEBRip [H.264/720p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152561.jpg" />
-</div>
-
-
-###  Подробнее
-
-2019 год. 28-летняя Со-ён возвращается в отчий дом в сельской местности. Отец давно умер, а с матерью, которая лежит в больнице, отношения так и не наладились. Со-ён потеряла мобильный, поэтому включает городской телефон и начинает получать странные звонки от девушки с просьбами о помощи. Выясняется, что незнакомку зовут Ён-сук, ей тоже 28 лет, и она живёт в этом (   Читать дальше...   )Производство: Корея Южная / Next Entertainment World, Yong FilmЖанр: триллер, фантастика, криминалРежиссер: Ли Чхун-хёнАктеры: Пак Щин-хе, Чон Джон-со, Ким Сон-нён, Ли Эль, Пак Хо-сан, О Джон-сэ, Ли Дон-хви, Ом Чхэ-ёнПеревод: Многоголосый любительский (ShpadoinkleTV)Субтитры: отсутствуютПродолжительность: 01:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5E5313F0AD748B3F5A6AA4BECEE9E608AFF6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434102   (152446) от 23.12.2020
-
-Звонок из прошлого / Kol / The Call (2020) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152446.jpg" />
-</div>
-
-
-###  Подробнее
-
-2019 год. 28-летняя Со-ён возвращается в отчий дом в сельской местности. Отец давно умер, а с матерью, которая лежит в больнице, отношения так и не наладились. Со-ён потеряла мобильный, поэтому включает городской телефон и начинает получать странные звонки от девушки с просьбами о помощи. Выясняется, что незнакомку зовут Ён-сук, ей тоже 28 лет, и она живёт в этом (   Читать дальше...   )Производство: Корея Южная / Next Entertainment World, Yong FilmЖанр: Триллер, фантастика, криминалРежиссер: Ли Чхун-хёнАктеры: Пак Щин-хе, Чон Джон-со, Ким Сон-нён, Ли Эль, Пак Хо-сан, О Джон-сэ, Ли Дон-хви, Ом Чхэ-ён, Чо Гён-сук, Мун Чхан-гильПеревод: Многоголосый закадровый, любительский (ShpadoinkleTV)Субтитры: Русские (Forced, Full), английские, немецкие, французскиеПродолжительность: 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11206D5B812319C0F7E3928EA5488A32B2AB7542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601177   (152418) от 30.12.2022
-
-Дети свинга / Seuwingkijeu (2018) WEBRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время Корейской войны в лагере для военнопленных Кодже северокорейцы разделились на две большие группы: тех, кто согласен перейти на сторону Юга, и тех, кто остаётся верен идеям коммунизма. Чтобы не ударить в грязь лицом перед иностранными журналистами, комендант лагеря обязывает американского солдата Джексона организовать кружок танцев и заманить туда самого (   Читать дальше...   )Производство: Корея Южная / Annapurna Films, Next Entertainment WorldЖанр: Драма, военный, история, музыкаРежиссер: Кан Хён-чхольАктеры: То Гён-су, Джаред Граймс, Пак Хе-су, О Джон-сэ, Ким Мин-хо, Росс Кеттл, А.Дж. Симмонс, Сон Джэ-рён, Ли Дэвид, Пак Чин-джуПеревод: Двухголосый любительский (Храм Дорам)Язык озвучки: русский, корейскийСубтитры: корейские (hardsub), русскиеПродолжительность: 02:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8924BCA5CAD05808BFAF59503B31828DFC6A3E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601221   (152014) от 30.12.2022
-
-Падшие ангелы / Do lok tin si / Fallen Angels (1995) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Гонконге 1995 года, до передачи власти. В фильме представлены две переплетённые сюжетные линии — одна рассказывает историю наёмного убийцы, желающего покинуть преступный мир, проститутки, с которой он начинает отношения, и его агента, который влюблён в него. Другая история о немом бывшем заключённом, скрывающемся от полиции, и психически неуравновешенной (   Читать дальше...   )Производство: Гонконг, Block 2 Pictures Inc., Chan Ye-Cheng, Jet Tone Production Co.Жанр: драма, мелодрама, комедия, криминалРежиссер: Вонг Кар-ВайАктеры: Леон Лай, Мишель Райс, Такеши Канеширо, Чарли Ен, Карен Мок, Чань Фай-Хун, Чань Мань-Лэй, Тору Сайто, Кун То-Хой, Ли-на КванПеревод: Профессиональный двухголосыйЯзык озвучки: русский, кантонскийСубтитры: Русский, АнглийскийПродолжительность: 01:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985C5F53815B04AA453F80CEACCC6A704E0CC8AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601271   (151946) от 30.12.2022
-
-Чунгкингский экспресс / Chung Hing sam lam / Chungking express (1994) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский с жетоном N223 переживает разлуку с любимой. Работа прикидывается судьбой и сводит его с бывшей информаторшей — сексапильной блондинкой, вынужденной спасаться от недовольных партнеров по бизнесу. Еще один полицейский N633 по удивительному совпадению также переживает вынужденное одиночество. Ему невдомек, что миловидная, хотя и немного странная официантка (   Читать дальше...   )Производство: Гонконг, Jet Tone ProductionЖанр: драма, мелодрама, комедия, криминал, детективРежиссер: Вонг Кар-ВайАктеры: Бриджит Линь, Тони Люн Чу Вай, Фэй Вон, Такеши Канеширо, Валери Чоу, Пигги Чань, Ли-на Кван, Жиминг Хуанг, Лианг Жен, Суншэнь ЦзоПеревод: многоголосый профессиональный (Кармен Видео)Язык озвучки: русский, китайскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7716DDE235BC4E9BED9C095E146205855CB5CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601171   (151406) от 30.12.2022
-
-Помнить / Rimembeo / Remember (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151406.jpg" />
-</div>
-
-
-###  Подробнее
-
-На пальцах 80-летнего старика с болезнью Альцгеймера вытатуированы имена. Это имена людей, которых он считает виновными в гибели своей семьи во времена японской оккупации. Вместе с молодым напарником он отправляется в путешествие, цель которого — убить виновных одного за другим.Производство: Корея Южная / Acemaker Movie Works, Moonlight FilmЖанр: драма, триллерРежиссер: Ли Иль-хёнАктеры: Ли Сон-мин, Нам Джу-хёк, Чон Ман-щик, Пак Кын-хён, Юн Джэ-мун, Сон Ён-чхан, Мун Чхан-гиль, Чхве Мин-чхоль, Нам Мун-чхоль, Ян Хён-минПеревод: Многоголосый профессиональный (iTunes, Jaskier)Язык озвучки: Русский, КорейскийСубтитры: Русские (Forced), АнглийскиеПродолжительность: 02:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638AE5BC260F3232C633D29669D90FDA733F6BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

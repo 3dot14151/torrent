@@ -1,3 +1,33 @@
+###  Публикация: 1648916   (230503) от 25.07.2023
+
+Greg Lake - The Anthology - A Musical Journey (2020) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грег Лейк - британский бас-гитарист, гитарист, вокалист, автор песен и продюсер, наиболее известный как участник King Crimson и супергруппы Emerson, Lake & Palmer.
+Лейка считают одним из крупнейших талантов британской сцены прогрессивного рока и в качестве автора, и в качестве исполнителя. У него характерный тембр голоса и свой стиль игры на гитаре. Его музыкальный (   Читать дальше...   )Disc One:
+01. King Crimson - Peace - A Beginning (1970)
+02. The Shame - Don't Go 'way Little Girl (Single Mix) (1967)
+03. The Shy Limbs - Love (Single Mix) (1969)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADC69F1B2B4C24942EE5F93F1FB8314BA269D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637649   (230448) от 06.06.2023
 
 VA - Road Trip Country Rock (2023) [MP3|320 Kbps] <Country, Country Rock>
@@ -6,7 +36,7 @@ VA - Road Trip Country Rock (2023) [MP3|320 Kbps] <Country, Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230448.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230426.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230416.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ Black Country, New Road - Ants From Up There (2022) 2xCD, Box Set, Deluxe Editio
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230382.jpg" />
 </div>
 
 
@@ -122,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230379.jpg" />
 </div>
 
 
@@ -151,7 +181,7 @@ VA - Rock - Best of 2022 Explicit [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230378.jpg" />
 </div>
 
 
@@ -180,7 +210,7 @@ Led Zeppelin - Houses Of The Holy (1973) remastered 2014, Deluxe Edition [FLAC 2
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230343.jpg" />
 </div>
 
 
@@ -209,7 +239,7 @@ Redshark - Sudden Impact (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230257.jpg" />
 </div>
 
 
@@ -238,7 +268,7 @@ VA - Рок Легенди України (2002-2006) Рок Легенды Ук
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230253.jpg" />
 </div>
 
 
@@ -267,7 +297,7 @@ Damnation - Resurrection of Azarath (2003) Compilation, Conquer Records [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230150.jpg" />
 </div>
 
 
@@ -296,7 +326,7 @@ Blodhemn - Sverger Hemn (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230148.jpg" />
 </div>
 
 
@@ -325,7 +355,7 @@ Arkham Witch - Swords Against Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230146.jpg" />
 </div>
 
 
@@ -354,7 +384,7 @@ Arctora - The Storm Is Over (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230144.jpg" />
 </div>
 
 
@@ -383,7 +413,7 @@ We Came As Romans - Darkbloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230142.jpg" />
 </div>
 
 
@@ -412,7 +442,7 @@ Tribulation - Alive & Dead at Södra Teatern (2019) Live album 2CD [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230140.jpg" />
 </div>
 
 
@@ -441,7 +471,7 @@ TOWARDS the SUN - Интоксикация (2022) [MP3|320 Kbps] <Industrial Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230138.jpg" />
 </div>
 
 
@@ -470,7 +500,7 @@ Damn!Escape - Devil's Friend (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230136.jpg" />
 </div>
 
 
@@ -499,7 +529,7 @@ Roxette - Rarities (1995) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230134.jpg" />
 </div>
 
 
@@ -528,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230128.jpg" />
 </div>
 
 
@@ -557,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230124.jpg" />
 </div>
 
 
@@ -586,7 +616,7 @@ Roxette - Have A Nice Day (1999) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230122.jpg" />
 </div>
 
 
@@ -615,7 +645,7 @@ Roxette - Room Service (2001) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230113.jpg" />
 </div>
 
 
@@ -644,7 +674,7 @@ Dragonland - The Power Of The Nightstar (2022) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230112.jpg" />
 </div>
 
 
@@ -673,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230111.jpg" />
 </div>
 
 
@@ -702,7 +732,7 @@ Imminence - 4 альбома + 1 EP (2013-2021) [MP3|320 Kbps] <Post-Hardcore, M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230043.jpg" />
 </div>
 
 
@@ -716,35 +746,6 @@ Imminence - 4 альбома + 1 EP (2013-2021) [MP3|320 Kbps] <Post-Hardcore, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5489798723D7BD8C95F7F31836FE53A5BCF6E5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583264   (230017) от 14.10.2022
-
-VA - Rock Workout 2023 (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears For Fears - Everybody Wants To Rule The World (04:13)
-02. The Killers - Mr. Brightside (03:44)
-03. The All-American Rejects - Gives You Hell (03:34)
-04. Bon Jovi - Livin' On A Prayer (04:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AF07C9E37EBF32F6E44A9B2FA6D94E9BBFCF95
 ```
 
 https://mybot314.ru/tekegram_catalog/

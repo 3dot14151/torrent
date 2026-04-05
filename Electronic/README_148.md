@@ -1,3 +1,60 @@
+###  Публикация: 1388922   (784163) от 11.06.2020
+
+Master Boot Record - Discography (2016-2020) [FLAC|44.1/24|Lossless|WEB-DL|tracks] <Electronic / Rock>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784163.jpg" />
+</div>
+
+
+###  Подробнее
+
+MASTER BOOT RECORD - творческий псевдоним итальянского исполнителя, продюсера, автора песен Виктора Лава (Victor Love), известного в том числе по Dope Stars Inc., Hacking the Wave.
+Страсть к старым компьютерам и программам эпохи становления IT-технологий стала рычагом для создания нового направления музыки, основанного на синтезировании хэви-метала с добавлением (   Читать дальше...   )01. 33MHz (16:04)
+02. 64MB (7:35)Жанр: Electronic / RockПродолжительность: 00:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B520BBD575C2B8576BD27E2791113A9CE0217F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205047   (784097) от 08.02.2018
+
+VA - Uplifting Only: Orchestral Trance Year Mix 2017 (Mixed by Ory Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ram & Arctic Moon & Stine Grove - A Billion Stars Above (Intro Mix)
+02. Afternova & Andrea Becker - For You (Trance Mix)
+03. Illitheas & Manuel Rocca - Enchanted (Original Mix)
+04. Ana Criado - Still There's You (A.R.D.I. Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 04:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C1FCB57683DB90C656EFC166649789DACE2EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205060   (784093) от 08.02.2018
 
 VA - Aly & Fila - Future Sound of Egypt 534 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -6,7 +63,7 @@ VA - Aly & Fila - Future Sound of Egypt 534 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784093.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Eisfabrik - Null Kelvin (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784069.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ VA - CRL Studios Presents: Homeostasis (2020) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783936.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ VA - Training Hits: Workout Music (2020) [FLAC|Lossless|WEB-DL|tracks] <House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783905.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783812.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783811.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783809.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783808.jpg" />
 </div>
 
 
@@ -238,7 +295,7 @@ VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783806.jpg" />
 </div>
 
 
@@ -267,7 +324,7 @@ VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783805.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783803.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783802.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783801.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783800.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783799.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783798.jpg" />
 </div>
 
 
@@ -470,7 +527,7 @@ VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783797.jpg" />
 </div>
 
 
@@ -499,7 +556,7 @@ VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783796.jpg" />
 </div>
 
 
@@ -528,7 +585,7 @@ VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783795.jpg" />
 </div>
 
 
@@ -557,7 +614,7 @@ VA - Dance Party (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783793.jpg" />
 </div>
 
 
@@ -586,7 +643,7 @@ VA - Valentines Day Love Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783788.jpg" />
 </div>
 
 
@@ -615,7 +672,7 @@ VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783787.jpg" />
 </div>
 
 
@@ -644,7 +701,7 @@ VA - Defected Presents Classics In The House (2009) [FLAC|Lossless|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783781.jpg" />
 </div>
 
 
@@ -673,7 +730,7 @@ Fausto Papetti - Sax Project (2016) [MP3|320 Kbps] <Instrumental, Easy Listening
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783758.jpg" />
 </div>
 
 
@@ -687,64 +744,6 @@ Fausto Papetti - Sax Project (2016) [MP3|320 Kbps] <Instrumental, Easy Listening
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4E3DB0669C1AE3FC7F496A8EF9DD31BDD19644B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389949   (783672) от 13.06.2020
-
-VA - Goa, Vol.72 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783672.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Morrisound - Sound of Peace (6:21)
-2. Flowjob - Beatpolar (7:32)
-3. Microlin - What I Really Need (8:29)
-4. Inner State - Zero Point (Trycerapt Remix) (7:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D57F844D2E44C24A3DADC1C420044D263540056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389943   (783669) от 13.06.2020
-
-VA - Mat Zo Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783669.jpg" />
-</div>
-
-
-###  Подробнее
-
-25. Michael Cassette – Zeppelin (extended mix) (08:37)
-26. Signalrunners – Meet Me In Montauk (extended mix) (09:20)
-27. Myon & Shane 54 – Not A Lot Left (extended mix) (08:19)
-28. Andy Moor – Fake Awake (Ecomix remix) (08:40)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trance |Продолжительность: 01:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33D4CD76BBD4A6B714C948D5739B4E1E1B0AF75
 ```
 
 https://mybot314.ru/tekegram_catalog/

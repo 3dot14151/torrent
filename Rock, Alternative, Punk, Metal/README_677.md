@@ -1,3 +1,32 @@
+###  Публикация: 1574800   (379356) от 08.09.2022
+
+Yungblud (Dominic Richard Harrison) - 7 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Punk, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Funeral [00:03:30]
+02. Tissues [00:03:35]
+03. Memories [00:02:35]
+04. King Charles [00:02:44](   Читать дальше...   )Жанр: Alternative Rock, Pop Punk, Hip-HopПродолжительность: 7CD, 03:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA43246B81B78F25B4DFF9C36B8FE89B5A2232B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575143   (379354) от 08.09.2022
 
 Parkway Drive - Darker Still (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
@@ -6,7 +35,7 @@ Parkway Drive - Darker Still (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379354.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mysterious Narrators - EPISODE I (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379348.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Stratovarius - Episode (1996) Reissue, 2002, Victor [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379347.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ LunariaN - Burn the Beauty (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379345.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ See Through You - Hollowed Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379337.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Fog of Marina - Fog of Marina (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379256.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Living Darkness - The Bishop (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379253.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ IN CAUDA VENENUM - G​.​O​.​H​.​E. (2020) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379252.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Hexer - Realm of the Feathered Serpent (2020) [MP3|320 Kbps] <Doom Metal, Sludge
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379250.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Warbringer - Weapons Of Tomorrow (2020) 2xCD [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379243.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379219.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Stray From The Path - Euthanasia (2022) [MP3|320 Kbps] <Rapcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379211.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Nazareth - Tattooed on My Brain (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379183.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379121.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Neander - 1 Album / 1 Single (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379119.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ La Fin - 2 Albums: Empire of Nothing / The Endless Inertia (2016-2020) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379117.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Leger De Main - A Lasting Impression (2005) 2xCD [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379116.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Psychostasy - Unworthy Grave (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379114.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Every Hour Kills - Reawaken (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379112.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Suicide Of Society - War Investment (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379111.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Bootblacks - Thin Skies (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379108.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ DeadRise - DeadRise (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379106.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Empress - Premonition (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Post Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379105.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Zao - Preface: Early Recordings (1995-1996), Compilation, Remastered, 2020, Stea
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379103.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Robert Tepper - No Easy Way Out (1986) [APE|Lossless|image + .cue] <New Wave, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379102.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Robert Tepper - No Easy Way Out (1986) [APE|Lossless|image + .cue] <New Wave, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B33C43D34FB955F57E10EA0098FE858A261E1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575185   (379028) от 08.09.2022
-
-Ozzy Osbourne - Patient Number 9 (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patient Number 9 (Feat. Jeff Beck) (7:21)
-02. Immortal (Feat. Mike Mccready) (3:04)
-03. Parasite (Feat. Zakk Wylde) (4:06)
-04. No Escape From Now (Feat. Tony Iommi) (6:46)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:012B3780E6B4A5D8B66E2E3D2C73F3A7CA665EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

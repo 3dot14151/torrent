@@ -1,3 +1,108 @@
+###  Публикация: 1590319   (189107) от 13.11.2022
+
+Марина Серова | Смертельная карта (2023) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгении Охотниковой поступил неожиданный звонок: женщина, назвавшаяся Мартой, умоляла телохранителя срочно приехать, так как ей и ее сестре грозит опасность. Однако когда Женя прибыла, Марта исчезла из собственной квартиры. Ее сестра тоже пропала. Теперь Евгении предстоит распутать клубок таинственных похищений. Расследование приводит ее в психиатрическую клинику, (   Читать дальше...   )Жанр: Современные детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4467624C130AE55B279EB6308A94DD9D58EA31BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590556   (188669) от 14.11.2022
+
+Дарья Донцова | Курятник в пентхаусе (2022) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188669.jpg" />
+</div>
+
+
+###  Подробнее
+
+С годами некоторые девушки из аппетитной булочки превращаются в пухлый батон. Татьяне Сергеевой такая перспектива не нравится, она сидит на диете и очень устала от нее. Чтобы как-то переключиться и не переживать по поводу неудачного похудения, Татьяна с небывалым энтузиазмом взялась за расследование нового дела двадцатилетней Инессы Листовой. К Инессе пришла женщина, (   Читать дальше...   )Жанр: Иронические детективы, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A410CF0D7D30069EBFEFB891C91D5173896221F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590815   (188433) от 15.11.2022
+
+Оса Ларссон | Цикл Ребекка Мартинссон [6 книг] (2012-2022) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оса Елена Ларссон (швед. Åsa Elena Larsson; род. 28 июня 1966, Уппсала) - шведская писательница, автор серии книг о сыщике Ребекке Мартинссон. На данный момент переведены на русский язык и изданы пять романов.
+Оса начала писать потому, что ей было "скучно в голове", как она выразилась. "Я становлюсь спокойней, лучшей матерью и партнером. Никогда (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB38C77369C70C94AF07CAE33B17B334F7FF809B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591165   (187531) от 17.11.2022
+
+Елена Левашова | Влюбленная. Гордая. Одинокая (2021) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды он уже разбил ей сердце. Любе следует опасаться Мирослава, но девушку снова безумно влечет к нему. Их зарождающиеся отношения так похожи на сказку, и он, кажется, изменился… Можно ли снова доверять Мирославу или стоит держаться от него подальше? Непростой выбор усложняется до предела, когда он становится подозреваемым в убийстве, а она - свидетелем обвинения…Жанр: Современная русская литература, современные детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123B85B4A7AD7DB57F6E1D0A82FCC130FADD1B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591284   (187487) от 17.11.2022
 
 Марина Болдова | Третий круг рая (2022) [EPUB]
@@ -6,7 +111,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187487.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187479.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187159.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186859.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186845.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186838.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185171.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183703.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183644.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183006.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182216.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182213.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182184.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182179.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182120.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182029.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181467.jpg" />
 </div>
 
 
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181372.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180787.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180777.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180703.jpg" />
 </div>
 
 
@@ -560,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180691.jpg" />
 </div>
 
 
@@ -571,115 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C73C5F58C6781CE6AAC5DCAB52E6FAD034EE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285745   (180437) от 02.10.2023
-
-Рейчел Кейн | Цикл "Мертвое озеро" [6 книг] (2018-2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рейчел Кейн — самый известный псевдоним популярной американской писательницы Роксаны Лонгстрит Конрад (Roxanne Longstreet Conrad).
-Роксана Конрад (27 апреля 1962 - 1 ноября 2020) - автор произведений различных жанров - НФ, фэнтези, детективов, триллеров и хоррора.
-Литературная карьера писательницы началась в 1991 году. Тогда она стала известна как Роксана Лонгстрит (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5B8FB292E4FDA083A7223DAC2D9550338334B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428390   (179716) от 02.12.2020
-
-Дарья Донцова | Милашка на вираже (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья становится счастливой, когда тараканы в головах мужа и жены начинают дружить семьями. Так заявила Виоле Таракановой ее бывшая одноклассница Ирина. Они не виделись много лет, но сейчас Ире нужна помощь. Вилка не может ей отказать и узнает странную историю: еще одна их одноклассница Настя Тихонова в свое время удачно вышла замуж за богатого бизнесмена, жила счастливо, (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB24AD0EEAAD87631F75A1547F2CED17254A5BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428687   (179258) от 03.12.2020
-
-То Сону | Джастисмен (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия убийств, совершенных похожим способом – у каждой из жертв во лбу по два пулевых отверстия, – вызывает ропот общественности.
-В этих страшных следах преступлений, в том, как разметались по стене и предметам окружающей обстановки кровавые брызги и подтеки, есть нечто, напоминающее творчество знаменитого художника-абстракциониста Джексона Поллока.
-Пока полиция (   Читать дальше...   )Жанр: Современные детективы, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200548FBC1B375E6B6910089A8F09E295233336F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428726   (179211) от 03.12.2020
-
-Лаврентий Чекан | Красный дождь (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убиты две молодые женщины. Тело каждой несчастной было восемь раз пронизано тонким неметаллическим предметом. Причем пронизано очень медленно. Как если бы убийца растягивал свое удовольствие от самой процедуры убийства, доставляя жертве невыносимые страдания.
-Расследование приводит старшего лейтенанта следственного отдела полиции Валерия Самсонова в приют, где когда-то (   Читать дальше...   )Жанр: Современные детективы, ТриллерыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9FB86E8D4B8F9F84704E661828B118551A454D
 ```
 
 https://mybot314.ru/tekegram_catalog/

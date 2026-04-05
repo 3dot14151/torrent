@@ -1,3 +1,159 @@
+###  Публикация: 1653388   (206283) от 15.08.2023
+
+Первое, второе и компот. Истории и рецепты советского общепита (2023) WEB-DLRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы – то, что мы едим. Что вспоминает человек о своих детстве и юности, проведённых в стране, которой уже нет? "Докторскую" колбасу, салат "Оливье", плавленый сырок "Янтарь" и, конечно, самый вкусный в мире пломбир. Казалось, они были всегда – но это, конечно, не так… Авторы фильма приглашают в увлекательное путешествие в историю советской (   Читать дальше...   )Производство: Россия / ИП Виноградова Анна МихайловнаЖанр: документальныйРежиссер: Александр АндреевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC9A7B8B36F7974E92DE231AAB2910D646BA6B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653099   (206271) от 14.08.2023
+
+Сердца тьмы: Апокалипсис кинематографиста / Hearts of darkness: A filmmaker's apocalypse (1991) HDRip [H.264/1080p-LQ] [upscale AI] [PR]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о съёмках шедевра Фрэнсиса Форда Копполы «Апокалипсис сегодня», о мучительном создании сценария, съёмке, подборе актёров, бюджета. Всё это чуть не разрушило жизнь и карьеру прославленного режиссера.Производство: США / Zaloom Mayfield Productions, American ZoetropeЖанр: документальный, кинематографРежиссер: Френсис Форд КопполаУчастники: Марлон Брандо, Мартин Шин, Роберт Дювалл, Фредерик Форрест, Сэм Боттомс, Лоренс Фишбёрн, Альберт Холл, Харрисон Форд, Деннис Хоппер, Г.Д. СпрэдлинПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские (Jaskier, Антон Тарасенко), английские (full, SDH)Продолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F297E27F28F60F31435814C0473943497F61D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582573   (206240) от 10.10.2022
+
+Сверхъестественное / Super/Natural (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя последние научные инновации и передовые технологии кинопроизводства, чтобы раскрыть тайные силы и сверхчувства самых необычных животных в мире, зрители сериала смогут увидеть и услышать за пределами обычного человеческого восприятия, чтобы испытать мир природы так, как это делает конкретный вид — от увидеть цветы пчелиным зрением, подслушать разговор морских (   Читать дальше...   )Производство: США, Earthship Productions, National Geographic, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональный (NewComers)Субтитры: русские (на надписи, полные), английскиеПродолжительность: серии по ~00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91755ADE2AFB5DA67A9B7BE54E4774F475B4A9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582580   (206225) от 10.10.2022
+
+Сверхъестественное / Super/Natural (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя последние научные инновации и передовые технологии кинопроизводства, чтобы раскрыть тайные силы и сверхчувства самых необычных животных в мире, зрители сериала смогут увидеть и услышать за пределами обычного человеческого восприятия, чтобы испытать мир природы так, как это делает конкретный вид — от увидеть цветы пчелиным зрением, подслушать разговор морских (   Читать дальше...   )Производство: США, Earthship Productions, National Geographic, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональный (NewComers)Субтитры: русские (на надписи), русские, английскиеПродолжительность: серии по ~00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C293601CBE187C7B624E1B5514C79118C81FE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653384   (206221) от 15.08.2023
+
+Эльдорадо: все, что нацисты ненавидят / Eldorado: Everything the Nazis Hate / Eldorado - Alles, was die Nazis hassen (2023) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206221.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом документальном фильме о свободах, утраченных во время прихода Гитлера к власти, рассказывается о ночном клубе в Берлине 1920-х годов, который стал убежищем для квир-сообщества.Производство: Германия, Film Base Berlin, Netflix Studios, The Thursday CompanyЖанр: документальный, историяРежиссер: Бенджамин Канту, Мэтт ЛамбертУчастники: Эрен Гюверчин, Эли Отто Каппо, Антонио ЛаллоПеревод: субтитры (Netflix)Язык озвучки: английскийСубтитры: русские, украинские, английские, английские (для слабослышащих)Продолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234F64B011B52CF4004087DA7B6BB53346D5EBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653131   (206167) от 15.08.2023
+
+Величайшие в мире музеи живописи / Masterpieces of Painting in the World's Greatest Museums (2021) UHDTV [H.265/2160p] (серии 1-4 из ?)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Величайшие в мире музеи живописиПроизводство: Франция, Blue Bird ProductionsЖанр: документальный, изобразительное искусствоРежиссер: Джин ЛемондПеревод: одноголосый профессиональный (SDI Media Москва)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE86C93BB2F06AD6168E4CC8F64B14D7869AABE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653750   (206115) от 17.08.2023
 
 В сексе втроем нет «я» / There Is No I in Threesome (2021) WEB-DL [H.264/1080p]
@@ -6,7 +162,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206115.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206112.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206057.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205990.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205976.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205913.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Флот
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205892.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205860.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205853.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205804.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205787.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205757.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205536.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205370.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205358.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205351.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205267.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205154.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205107.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204996.jpg" />
 </div>
 
 
@@ -515,163 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49DC0956A175330C50A30824DD0C0EF482DF016E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583711   (204797) от 25.10.2022
-
-Джон Уэйн Гейси: Замаскированный дьявол / John Wayne Gacy: Devil in Disguise (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [VO]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это леденящая душу история одного из самых мерзких серийных убийц в мире, рассказанная словами самого Гейси в редком интервью, которое он дал в 1990 году, через десять лет после его осуждения, большая часть которого так и не была показана публике. А так же история тех, кого навсегда изменили его невероятные злодеяния, и тех, кто считает, что вся правда остается скрытой (   Читать дальше...   )Производство: США, Peacock, NBC News Studios, Witchcraft Motion Picture CompanyЖанр: документальный, криминал, биографияРежиссер: Род БлэкхерстПеревод: одноголосый любительский (Пожилой Ксеноморф)Субтитры: английские, испанскиеПродолжительность: серии ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C93891FDB6506E8914CDBA263ECF29B1F0C81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655016   (204752) от 23.08.2023
-
-Музейные истории / Museum stories (2019) UHDTV [H.265/2160p] (серии 1-5 из ?)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествия по музеям Франции.Производство: Франция, Urubu FilmsЖанр: документальный, искусство, архитектураРежиссер: Грегори ШепардПеревод: одноголосый профессиональный (Audiovisit)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB103B2C0097DFEB03E4C8D0BF298513A5417DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586809   (204681) от 28.10.2022
-
-Джеймс Мэй: Наш человек в Италии / James May: Our Man in Italy (2022) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 2, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Мэй путешествует по одной из своих любимых стран: Италии. Начав c сицилийской столицы Палермо и закончив в Доломитовых Альпах, он посетит почти все регионы Италии. Культура, еда, промышленность и даже немного спорта - все это будет происходить на фоне самых потрясающих городских и сельских пейзажей в мире. Для Джеймса Италия всегда казалась страной, в которой (   Читать дальше...   )Телекомпания: Великобритания, Amazon Prime VideoЖанр: документальный, история, путешествияРежиссер: Билл Бэйли , Том УиттерПеревод: профессиональный многоголосый, любительский многоголосыйЯзык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: серии ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41A1E948F62D4BC03BB05E61A046A276B2C91B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655198   (204646) от 24.08.2023
-
-Ингрид Бергман: В её собственных словах / Jag ar Ingrid (2015) BDRemux [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204646.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2011 году режиссер Стиг Бьëркман встречает Изабеллу Росселлини, дочь Ингрид Бергман, которая предлагает ему «снять фильм о Маме». С помощью Изабеллы Стиг сможет представить историю Ингрид, рассказанную ее собственными словами с ее собственными образами. У Ингрид Бергман было семь номинаций на премию Оскара, и три награды. Она признана одной из самых талантливых (   Читать дальше...   )Производство: Швеция, Chimney, Mantaray FilmЖанр: документальный, история, биографияРежиссер: Стиг БьёркманУчастники: Пиа Линдстрем, Роберто Росселлини, Изотта Росселлини, Ингрид БергманПеревод: двуголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: английские (полные, на шведскую речь)Продолжительность: 01:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488CE9E72ECE7FE23CC12610185175F4F0440BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591976   (204631) от 01.01.2023
-
-По следам советской Атлантиды (2022) DVB [H.264] (серии 1-22 из 28) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая советская держава, словно мифический остров Атлантида, в один миг рухнула и осталась в прошлом.
-Что продавали на улицах Москвы в 1930-е годы? Как была создана советская атомная бомба? Как жил простой советский гражданин в брежневскую эпоху? Почему СССР был самой читающей страной в мире? Ответы на эти и многие другие вопросы будут даны в формате видеолекций. (   Читать дальше...   )Производство: Россия, ТК ИсторияЖанр: документальный, история, политикаСубтитры: отсутствуютПродолжительность: ~00:13:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ACDC547D092E644B1D09279358002E8060A1686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601449   (204613) от 01.01.2023
-
-Новогоднее обращение Владимира Путина (31.12.2022) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогоднее обращение президента Российской Федерации В.В.Путина 31.12.2022 годаТелекомпания: 1 каналЖанр: ДокументальныйПродолжительность: 00:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07DFBCF481B44E66C188664075F3007814FD7C8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

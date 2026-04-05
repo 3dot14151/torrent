@@ -1,3 +1,32 @@
+###  Публикация: 1471085   (1015222) от 19.05.2021
+
+DunderData, Ted Petrou | Анализ данных на Python / Master Data Analysis with Python (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наиболее полный курс по анализу данных и визуализации на Python.
+350 Упражнений, 800 страниц текста, множество проектов и их решений.
+Что мы получим:
+70+ Jupyter Notebook, где вы можете читать текст, выполнять упражнения и добавлять заметки(   Читать дальше...   )Производство: DunderDataЖанр: Анализ данныхЯзык озвучки: АнглийскийПродолжительность: 11:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4E75020BA844414DFB6EF045B322160B06DA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471118   (1015199) от 19.05.2021
 
 Gumroad, Josh Gambrell, Ponte Ryuurui | Создание твёрдотельных ассетов для игр в Blender 2.9 / The BlenderBros Hard Surface Game Asset Course in Blender 2.9 (2021) PCRec [EN]
@@ -6,7 +35,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Создание твёрдотельн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015199.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ FlippedNormals, Mauricio García | 3D Art Characters In Zbrush - 16 Vols - Basic
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015194.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015193.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015192.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Rebrain, Дмитрий Дунаев и др. | Онлайн-практикум 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015184.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Udemy, Victor Deno | Создание PBR арта в Blender 2.90: Sci-fi ящ�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015064.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014908.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ Swiftlab, Дунаев Сергей | ВСЕ КУРСЫ ПО SWIFT (2018 - 2019)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014889.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Udemy, Brad Schiff | React For The Rest Of Us (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014794.jpg" />
 </div>
 
 
@@ -254,7 +283,7 @@ FlippedNormals, Emiel Sleegers | Создание ассетов героя - У
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014751.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ ITVDN, Сластен Максим | Верстка сайта на CSS Grid (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014729.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014718.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ Sergey Gricay | Dynamic wall SD Video tutorial Part 1 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014674.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ Anthony Eftekhari | 3D Matte Painting Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014629.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ FlippedNormals, Konrad Hetko | Создание лицевого рига в Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014597.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014570.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ James Paick | Creative Environments for Games Part 1 of 4 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014479.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Eytan Zana | Color and Light (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014474.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Julien Gauthier | Octane for Concept Art - Beginner (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014459.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ AmigosCode, Nelson | Database Design & Implementation (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014458.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Maciej Kuciara | Environment for Video Games: Callouts (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014456.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Udemy, Kane Ezki и др. | The Ultimate 2021 Fullstack Web Development Bootcamp
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014445.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ Anthony Eftekhari | Concept Art for Production (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014432.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ Kurt Papstein | Character Creation in ZBrush (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014424.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ ITVDN,  Александр Бреславец | Web Testing (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014407.jpg" />
 </div>
 
 
@@ -671,35 +700,6 @@ ITVDN,  Александр Бреславец | Web Testing (2021) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B2ACF249437B0BE8BED7DC4961C8E9590C32B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288904   (1014406) от 24.05.2021
-
-Джама Джурабаев | Продвинутое 3D рисование / Advanced 3D Painting (2017) PCRec [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014406.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе я покажу продвинутые методы 3D рисования в Photoshop.
-Эта техника позволит вам оживить ваши рисунки и легко настроить вашу композицию.
-Также это даст вам полный контроль над дизайном и сюжетом рисунка.
-(   Читать дальше...   )Производство: GumroadЖанр: Рисование, PhotoshopЯзык озвучки: Русский, АнглийскийПродолжительность: 01:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D5C1B362A19F9B8C52D30538195D695E9AA2B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

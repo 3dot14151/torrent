@@ -1,3 +1,29 @@
+###  Публикация: 1620403   (200992) от 20.03.2023
+
+Михаил Пелехатый, Павел Аглашевич | Газлайтинг. 28 тактик манипуляций для управления и эксплуатации личности (2021) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200992.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пока вы не осознаете, насколько легко манипулировать вашим разумом, вы остаётесь марионеткой в чужой игре. Единственный способ выйти из-под влияния манипуляций — это знать, как они применяются против вас и уметь применять их в отношении других».Жанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 08:02:49Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443AA2F719EBA80D833C13B7A284E934A4B44EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620463   (200987) от 20.03.2023
 
 Udemy, John Thompson | Spring Framework 6: Beginner to Guru (2023) WEB-DL [EN / EN Sub]
@@ -6,7 +32,7 @@ Udemy, John Thompson | Spring Framework 6: Beginner to Guru (2023) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200987.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200961.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200952.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200939.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Skillshare, Derek Davidson | 3D Creature Modeling with Nomad Sculpt (2023) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200935.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200929.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200914.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200912.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200909.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200888.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200847.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200840.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200839.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ Skillshare, Jake Fleming | Vector To Pixel Art (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200810.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ Proprofiling, Алексей Филатов | Социальная инжене�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200803.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ Class101, Studio Pants | Retro Video Game Like Illustrations: Pixel Art for Begi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200795.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ DESIGNLINE, Сергей Гуров | Поиск и реализация виз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200771.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200769.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200768.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200766.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200763.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200745.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Udemy, Serge Lansiquot | Learn C++ Programming by Making Games, Volume 1 (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200743.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Udemy, Alan Ayoubi | After Effects Animated Graphics Beast (2020) WEB-DL [AD] [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200736.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ Pikuma, Gustavo Pezzi | Fundamentals of 2D Game Engines with C++ SDL and Lua (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200726.jpg" />
 </div>
 
 
@@ -680,35 +706,6 @@ Pikuma, Gustavo Pezzi | Fundamentals of 2D Game Engines with C++ SDL and Lua (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6221DB0247BA0E301FA0C603B25054ED8B8E1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622458   (200708) от 28.03.2023
-
-Udemy, Muhamed Khalid | Modern OpenGL 3.3 with C++ GLSL for beginners (2021) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, это современный курс OpenGL, на этом курсе вы узнаете, как выполнять рендеринг в 2D / 3D пространстве, и одна из лучших особенностей этого курса в том, что вы можете найти все исходные коды на Github :) Также вы узнаете много о таких вещах, как ->
-
-- 2D-чертеж
-- 3D-рисунок(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: Английский,Продолжительность: 16:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7101BF629C6E7F91D48352840E8487D89DF2F680
 ```
 
 https://mybot314.ru/tekegram_catalog/

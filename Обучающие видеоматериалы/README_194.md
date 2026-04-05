@@ -1,3 +1,29 @@
+###  Публикация: 1579562   (232648) от 27.09.2022
+
+Udemy, Roman Dushkin | Перцептроны (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы, наверно, знаете, что перцептрон Розенблатта, изобретённый в середине XX века, стал прообразом современных искусственных нейронных сетей. Однако многое из того, что известно нам о нём и его создателе, не соответствует действительности. Перцептрон сегодня — математическая или компьютерная модель восприятия информации мозгом. Важным свойством перцептронов является (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:19:26Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAE97FD25876E6B7E2165F698EB77A52680A6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579585   (232633) от 27.09.2022
 
 Thinknetica Pro, Артем Кривоножко | Объектно-ориентированный дизайн в Ruby (2022) WEB-DL [RU]
@@ -6,7 +32,7 @@ Thinknetica Pro, Артем Кривоножко | Объектно-ориент
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232633.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232617.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ Blender Cloud, Pablo Vazquez | Cartoon Character Creation - Venom's Lab! 2 (2014
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232497.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ FlippedNormals, Emiel Sleegers | Creating Custom Decals for Games - In-Depth Tut
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232391.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Gumroad, Jan Urschel | Procedural Landscapes in Blender (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232318.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Artstation, Aaron Villarreal | Creating a Stylized Diorama | Aaron Villarreal (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232161.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232093.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Lectoroom, Мария Павлова | Букет клубники маслом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231997.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ World Of Level Design | UE4 Fundamentals Vol.1: The Essential Beginner's Guide t
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231973.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Udemy, Dr. Angela Yu | The Complete 2021 Web Development Bootcamp (2021) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231972.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ Art box school | Mини цветы. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231964.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Art box school | Листья. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231955.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Art box school | Эффектный пейзаж. Масло (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231945.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ milenanoda.school, Milena Noda | Марафон «Создание стилиз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231938.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Lynda, Brian Morse | PFTrack Essential Training (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231937.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Udemy, Michael Gerard | Unreal Engine 4 - Learn How to Create a Lost Road scene 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231911.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ The Gnomon Workshop, Gary Meyer | Fundamentals of Perspective Vol. 1-3 (2012) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231826.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ Rohan Dalvi | Procedural Modeling in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231698.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ Udemy, Mammoth Interactive, Erich Andreas | Complete Guitar Lessons System - Beg
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231575.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ Techworld with Nana, Nana Janashia | GitLab CI/CD - From Zero To Hero (2022) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231487.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ Udemy, Denis Astahov | Terraform с Нуля до Профессионала (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231343.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ Udemy, Rahul Arora | Selenium WebDriver Training with Java and Many Live Project
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231335.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Udemy, Dzianis Matveyenka | Gradle (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231333.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231307.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231247.jpg" />
 </div>
 
 
@@ -671,34 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D66FBF14C5CDCA6D513661C27E0CCA7C077FE6F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555614   (231215) от 04.06.2022
-
-Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D Painter (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстурируйте полную сцену с помощью различных материалов, таких как стена, металл, пластик, дерево, сталь и т.д.
-Мы начнем с создания нового проекта и запекания карт. Затем мы будем создавать текстуры для всех наших ассетов одну за другой с помощью ресурсов, предоставленных Substance 3D Painter.
-После завершения текстурирования мы экспортируем наши текстуры для (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 14:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B261378257117962B7AC8FE05D05ABC5F2EBD2EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

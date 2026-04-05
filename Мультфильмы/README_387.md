@@ -1,3 +1,136 @@
+###  Публикация: 1464103   (57107) от 09.05.2024
+
+Кастлвания / Castlevania (2017) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4) AlexFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смелая девушка Лиза приходит прямиком в замок графа Дракулы, чтобы тот поделился с ней всеми доступными научными знаниями. У неё благородная цель — девушка хочет стать лучшим врачом и облегчить жизнь людей, но местные не оценили рвения, и вот уже Лизу сжигают на костре за колдовство. Взбешённый Дракула решает мстить за любимую — он даёт жителям города год, а затем (   Читать дальше...   )Производство: США / Frederator Studios, Mua Film, NetflixЖанр: мультфильм, ужасы, фэнтези, боевикРежиссер: Сэм Дитс, Адам Дитс, Спенсер ВанАктеры: Ричард Армитедж, Джеймс Кэллис, Алехандра Рейносо, Тео Джеймс, Адетокумбо Маккормак, Джейми Мюррэй, Грэм Мактавиш, Мэтт Фрюэр, Эмили Суоллоу, Мэтт ЛоуПеревод: Многоголосый профессиональный (AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CCF176C994D85BC0FF9C266344A60DD2012E9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714560   (57094) от 09.05.2024
+
+Монстры за работой / Monsters at Work (2024) WEB-DL [H.264/1080p] (сезон 2, серии 1-10 из 10) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф мультфильмов «Корпорация монстров» и «Университет монстров». После того как выяснилось, что детский смех даёт намного больше энергии, прошло шесть месяцев. И за это время Монстрополис преобразился. Всюду теперь раздаётся смех, развивается индустрия развлечений, а монстры с большим удовольствием ходят на работу. В конце концов, не очень-то они от нас и отличаются, (   Читать дальше...   )Производство: США, Walt Disney Television Animation, Pixar Animation Studios, ICON Creative StudioЖанр: мультфильм, комедия, приключения, фэнтези, семейныйРежиссер: Стивен Дж. Андерсон, Роб Гиббс, Кейт ГудАктеры: Билли Кристал, Джон Гудман, Бен Фельдман, Минди Кейлинг, Генри Уинклер, Лукас Нефф, Аланна Юбак, Стивен Стэнтон, Кристофер Свиндл, Дженнифер ТиллиПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: ~00:21:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4849A3770569D8CD30CF9F7A9E32E1C01B26CB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721914   (57091) от 09.05.2024
+
+Фури-Кури / Furi Kuri / FLCL (2000-2001, TV) BDRip (сезон 1, 1-6 серии из 6) RinGo [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетянка Харуко Харухара сбивает на своем мотороллере ученика начальной школы Наоту Нандабу, но для достижения настоящего эффекта она бьет его своей гитарой по голове, после чего у него из образовавшейся на голове шишки… вырастает робот.Производство: Япония / Gainax, Production I.GЖанр: аниме, мультфильм, фантастика, комедия, боевикРежиссер: Кадзуя ЦурумакиАктеры: Мидзуки Дзюн, Синтани Маюми, Касаги Идзуми, Ито Мика, Миядзима Акира, Судзуки Кадзухито, Ито Хироси, Мацуо Судзуки, Окура Кодзи, Тиба Тиэми, Фукуй Юкари, Анно ХидэакиПеревод: Дублированный любительский (RinGo), Многоголосый любительский (Kansai)Язык озвучки: Русский, ЯпонскийСубтитры: русские (full, forced)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FFAF0BFB96FB7076A863FF57AA6AFD9281B994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721723   (57090) от 09.05.2024
+
+Том и Джерри: Волшебное кольцо / Tom and Jerry: The Magic Ring (2001) DVDRip [AV1/1080p] [10-bit] [Handmade upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том назначен ответственным за волшебное кольцо, которое принадлежит его хозяину, молодому волшебнику. Но вы и представить себе не можете, в какой ужас пришел кот, когда кольцо застряло на голове у малыша Джерри.
+Более того, мышонок прямо с кольцом на своей ушастой голове и отправился прогуляться в город! И еще до того, как вы успеете произнести «абракадабра», весь (   Читать дальше...   )Производство: США / Turner Entertainment, Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джеймс Т. УолкерАктеры: Джефф Беннетт, Фрэнк Уэлкер, Чарли Шлаттер, Джим Каммингс, Майли Флэнаган, Джесс Харнелл, Морис ЛаМарш, Тресс МакНилл, Тара Стронг, Билли УэстПеревод: Дублированный (Мост-Видео), Авторский (Гланц, Визгунов)Субтитры: русские, английские (Full, SDH)Продолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477B0D940346AC82B10CA32B733816263775B625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721913   (57077) от 09.05.2024
+
+Геркулес / Hercules (1997) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аид — властитель загробного мира. Много лет назад он был фактически сослан своим старшим братом Зевсом в глубины Ада и теперь намерен наверстать упущенное, собрав армию монстров и захватив Олимп. Единственный, кто может помешать Аиду — сын Зевса, юный Геркулес, поэтому прислужники злодея похищают младенца и превращают его в простого смертного.
+
+Спустя много лет юноша (   Читать дальше...   )Производство: США, Япония / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерАктеры: Тейт Донован, Джеймс Вудс, Дэнни ДеВито, Сьюзан Иган, Бобкэт Голдтуэйт, Мэтт Фрюэр, Роджер Барт, Джошуа Китон, Рип Торн, Барбара БарриПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5CA6CAA5BD93B78DB978A4E1691F48C0A06D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721751   (57076) от 09.05.2024
 
 Звёздные войны: Сказания об Империи / Star Wars: Tales of the Empire (2024) WEB-DLRip [H.264/720p] (сезон 1, серии 1-6 из 6) LostFilm
@@ -6,7 +139,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57076.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57057.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57034.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56996.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2021) WEB-DLRip (сез�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56990.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56967.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56960.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56909.jpg" />
 </div>
 
 
@@ -214,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56889.jpg" />
 </div>
 
 
@@ -240,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56796.jpg" />
 </div>
 
 
@@ -266,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56788.jpg" />
 </div>
 
 
@@ -292,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56782.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56707.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56697.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56674.jpg" />
 </div>
 
 
@@ -397,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56634.jpg" />
 </div>
 
 
@@ -423,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56575.jpg" />
 </div>
 
 
@@ -449,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56467.jpg" />
 </div>
 
 
@@ -475,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56439.jpg" />
 </div>
 
 
@@ -503,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56372.jpg" />
 </div>
 
 
@@ -529,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56348.jpg" />
 </div>
 
 
@@ -540,138 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D7D030B82A5E04CBC63FC4B2CC5DCCF9874A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723917   (56271) от 17.05.2024
-
-Покахонтас 2: Путешествие в Новый Свет / Pocahontas II: Journey to a New World (1998) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда новость о смерти Джона Смита достигает Америки, дочь индейского вождя Покахонтас, вместе со своим другом, енотом Мико, отправляется в трудный путь в Лондон чтобы установить мир между двумя великими землями. Однако, правитель Рэтклифф неподалеку, он пытается захватить Джеймстаун и цена для него не имеет значения, ничто не остановит его в желании оклеветать принцессу...Производство: США, Канада, Япония / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, мюзикл, драма, мелодрама, приключения, семейныйРежиссер: Том Эллери, Брэдли РэймондАктеры: Ирен Бедард, Джим Каммингс, Донал Гибсон, Финола Хьюз, Линда Хант, Рассел Минс, Дэвид Огден Стайерз, Джин Степлтон, Билли Зейн, Джефф БеннеттПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86B5F4A9DB5D1651DD85FCD08895DAFA67DA7D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724069   (56228) от 18.05.2024
-
-Мадагаскар / Madagascar (2005) BDRip  [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо изнеженных животных из Центрального зоопарка в Нью-Йорке - лев Алекс, зебра Марти, жираф Мелман и гиппопотамиха Глория - решаются на побег. Оказавшись после кораблекрушения на экзотическом острове Мадагаскар, населенном лемурами и поедающими их фоссами, путешественники с ужасом понимают, что с городскими привычками им придется распрощаться.
-Здесь нет людей, (   Читать дальше...   )Производство: США / DreamWorks Animation, 	DreamWorks SKG, Pacific Data Images (PDI)Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Эрик Дарнелл, Том МакГратАктеры: Бен Стиллер, Крис Рок, Дэвид Швиммер, Джада Пинкетт Смит, Саша Барон, Коэн Седрик, Энди Рихтер, Том МакГрат, Кристофер Найтс, Крис Миллер и другиеПеревод: Дублированный, многоголосый, авторский одноголосыйСубтитры: Русские.АнглийскиеПродолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2039893303835575991F1881AD39EBB54E1705E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724140   (56138) от 18.05.2024
-
-Великое путешествие Пуха: В поисках Кристофера Робина / Pooh's Grand Adventure: The Search for Christopher Robin (1997) WEB-DLRip [H.264/1080p-LQ] [Локализованная версия] [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винни Пух и Кристофер Робин лучшие друзья, они хотят навсегда сохранить свою дружбу и никогда не расставаться. Однако Кристофер Робин должен пойти в школу, но он так и не смог сказать об этом Пуху. Для того, чтобы предупредить Винни Пуха, Кристофер Робин оставляет горшочек с медом и записку, в которой все объясняет. Пух испачкал записку медом и, при попытке ее прочтения, (   Читать дальше...   )Производство: США, Япония / Walt Disney Pictures, DisneyToon Studios, Walt Disney Television AnimationЖанр: мультфильм, мюзикл, комедия, приключенияРежиссер: Карл ДжеерсАктеры: Джим Каммингс, Джон Фидлер, Кен Сэнсом, Андрэ Стойка, Питер Каллен, Брэйди Блум, Дэвид Уорнер, Пол Уинчелл, Фрэнки Дж. ДжалассоПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1894F559CEC7210A6C485FD0CB805069A4F82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724253   (56117) от 19.05.2024
-
-Том и Джерри: Вилли Вонка и шоколадная фабрика / Tom and Jerry: Willy Wonka and the Chocolate Factory (2017) WEB-DL [AV1/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том и Джерри встречаются с Чарли Бакетом - мальчиком, который находит один из пяти золотых билетов, скрытых внутри обёрток шоколадных батончиков Вонка. Тех немногих счастливчиков, которые находят золотой билет, приглашают посетить всемирно известную шоколадную фабрику Вилли Вонки и получить пожизненный запас шоколада.Производство: США / Turner Entertainment, Warner Bros. AnimationЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Спайк БрандтАктеры: Персонажи: Джон Пол Карлиак, Джесс Харнелл, Линкольн Мелчер, Мик Вингерт, Лори Алан, Джефф Бергман, Спайк Брандт, Рэйчел Батера, Кейт Хиггинс, Даллас ЛоватоПеревод: Многоголосый профессиональный, Двуголосый любительский (Колобок)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BD4CC0635F814E1CACEAAE0EF5D02C6D4C870C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724273   (56116) от 19.05.2024
-
-Том и Джерри: Трепещи, Усатый! / Tom and Jerry in Shiver Me Whiskers (2006) BDRip [AV1/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это хулиганское путешествие затеял Том, когда отправился в плавание на непритязательной лодке за самым известным и ужасным пиратом морей Капитаном Рэдом. Устав драить палубу, Том думает, что удача изменила ему, но тут неожиданно всплывает мистическая бутылка, в которой хранится карта сокровищ.
-Мечта Тома найти сокровище и забрать его себе, похоже, невыполнима - в (   Читать дальше...   )Производство: США / Turner Entertainment, Warner Bros. AnimationЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Скотт ДжералдсАктеры: Кевин Майкл Ричардсон, Кэти Нэджими, Чарльз Нельсон Рейли, Уоллес Шоун, Марк Хэмилл, Дэн Кастелланета, Peter Chtiko, Уильям ХаннаПеревод: Дублированный, Авторский (Дольский)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DD9A1B8E9790C03F77554496E9AF1D0A7F0E07
 ```
 
 https://mybot314.ru/tekegram_catalog/

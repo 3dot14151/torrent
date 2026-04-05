@@ -1,3 +1,218 @@
+###  Публикация: 553242   (442054) от 29.09.2012
+
+VA - Top Dance Music (2012) [MP3|320 кб/с]<Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris feat. Example - We'll Be Coming Back (R3hab EDC NYC Remix)
+02. Jese feat. Morty Simmons - Nothing Really Matters (Radio Edit)
+03. Макс Барских - Dance (DJ Favorite Radio Edit)
+04. Benga - Pour Your Love (Chuckie Remix)
+05. Dada Life feat. Daniel Gidlund - Feed The Dada (Original Mix)
+06. Jennifer Lopez ft. Flo Rida - Goin In (Slayback Bootleg)
+07. P!nk - Blow Me (One Last Kiss) (Gigi Barocco Bouncy Dirty Extended Mix)
+08. R.I.O. Feat. U-Jean - Summer Jam (Flava & Stevenson Bootleg Remix)
+09. Sebastian Ingrosso & Alesso - Calling (Lose My Mind) (Slayback Remix)
+10. Timati feat. Eve - Money In Da Bank (Bodybangers Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 02:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7E895A92C914D1B89C175DC51BF8A4204119D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553424   (441903) от 29.09.2012
+
+VA - Спорт FM (26.09.2012) [MP3|320 кб/с]<Pop, Rock, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rasmus - I'm a Mess
+02. Cady Groves - Love Actually
+03. Adam Lambert - Never Close Our Eyes
+04.The Offspring - Cruising California (Bumpin' In My Trunk)
+05. Linkin Park - Burn It Down
+06. Foster The People - Houdini
+07. The Black Keys - Gold On The Ceiling
+08. The Black Keys - Gold On The Ceiling
+09. The Offspring - Days Go By
+10. Maroon 5 - One More Night(   Читать дальше...   )Жанр: Pop, Rock, RetroПродолжительность: 01:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B27885B9ADA6272EC507851F54B72B68BDDEC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164448   (441510) от 09.09.2017
+
+VA - Billboard Hot 100 Singles Chart (16.09.2017) [MP3|192-320 Kbps] <Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taylor Swift - Look What You Made Me Do
+002. Luis Fonsi feat. Daddy Yankee - Despacito
+003. Cardi B - Bodak Yellow
+004. DJ Khaled feat. Rihanna & Bryson Tiller - Wild Thoughts(   Читать дальше...   )Жанр: Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D317EF6398FA1F31FA377ACF2D37711D48C80DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323011   (441420) от 01.09.2019
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver.87 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+1.Bbno$ & Y2k - Lalala (Ice & Nitrex Remix) (2:50)
+2.Beyoncé feat. Jay - Z - Crazy In Love (Lavrushkin & Max Roven Remix) (3:07)
+3.Burak Balkan - Boy (3:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC17FE59BB1421B2EE507FC2E369C3B6C7356500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162196   (441221) от 09.09.2017
+
+(OST) Sonic Mania (Tee Lopes, Falk Au Yeong, Hyper Potions) (2017) [MP3|320 кб/с]<Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник собранный из оригинального Flac01. Drowning
+02. Super Sonic
+03. Title Screen (Discovery)
+04. Main Menu (Comfort Zone)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB93F76D31F2CD03A6A43FA1190D7151462C6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409890   (440873) от 19.09.2020
+
+VA - The Official UK Top 40 Singles Chart 18.09.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cardi B, Megan Thee Stallion - WAP
+02. 24kgoldn, Iann Dior - Mood
+03. Headie One, AJ Tracey, Stormzy - Ain't It Different
+04. Nathan Dawe - Lighter (feat. KSI)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5FE175A4E7C06A6643DF08D170187D4EE7915E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570673   (440657) от 18.08.2022
+
+VA - Whore House The House, Funk Disco Summer Jam (2022) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Tech House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aruhtra - Come Get My Lovin
+02. Wildcard (US) - Shake Ya Junk
+03. Ivan Kay - Good Times
+04. Alec Lino - Brunch(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Tech HouseПродолжительность: 02:29:27 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595CCA6663BFD2E3409CA198A2892876BD2FD21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570679   (440633) от 18.08.2022
 
 VA - Pina Colada Records Summer Party (2022) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Indie Dance>
@@ -6,7 +221,7 @@ VA - Pina Colada Records Summer Party (2022) [MP3|320 Kbps] <Nu Disco, Soulful, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440633.jpg" />
 </div>
 
 
@@ -35,7 +250,7 @@ VA - Disco, Club & Dance (2022) [MP3|320 Kbps] <Nu Funky, Indie Dance, Disco, So
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440626.jpg" />
 </div>
 
 
@@ -64,7 +279,7 @@ VA - ЕвроХит Топ 40 Europa Plus 18.09.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440592.jpg" />
 </div>
 
 
@@ -93,7 +308,7 @@ VA - Empire Records – Disco Club (2017) [MP3|320 Kbps] <Deep House, Nu-Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439683.jpg" />
 </div>
 
 
@@ -122,7 +337,7 @@ VA - German Fashion Week (2012) [MP3|320 кб/с]<Club, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438832.jpg" />
 </div>
 
 
@@ -157,7 +372,7 @@ VA - Осенний TOP-лист радио Record №7 50/50 (2012) [MP3|256 к
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438822.jpg" />
 </div>
 
 
@@ -192,7 +407,7 @@ VA - Рок в Авто (Symphonic Metal) (2012) [MP3|320 кб/с]<Sympho Metal,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438545.jpg" />
 </div>
 
 
@@ -227,7 +442,7 @@ VA - Сборник медленных хитов Vol.13 (2012) [MP3|96-320 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438499.jpg" />
 </div>
 
 
@@ -262,7 +477,7 @@ VA - TOP 100 Зайцев.нет (04.09.2012) [MP3|128 - 320 кб/с]<Pop, Chans
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438485.jpg" />
 </div>
 
 
@@ -297,7 +512,7 @@ VA - Зайцев.нет Лучшие новинки Сентября (2020) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438073.jpg" />
 </div>
 
 
@@ -326,7 +541,7 @@ VA - Super Dance (2014) [MP3|320 кб/с]<Dance, Club, Progressive, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437822.jpg" />
 </div>
 
 
@@ -355,7 +570,7 @@ VA - Всё сразу 200 хитов Выпуск 9 (2015) [MP3|128-320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437721.jpg" />
 </div>
 
 
@@ -384,7 +599,7 @@ VA - не Громкие новинки недели 33 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437697.jpg" />
 </div>
 
 
@@ -413,7 +628,7 @@ VA - Любимые песни (2014) [MP3|320 кб/с]<Русский рок, �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437029.jpg" />
 </div>
 
 
@@ -442,7 +657,7 @@ VA - Relax FM (29.09.2012) [MP3|320 кб/с]<Relax, Ballads>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436811.jpg" />
 </div>
 
 
@@ -477,7 +692,7 @@ VA - Радио Energy - NRJ HOT30 (30.09.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436673.jpg" />
 </div>
 
 
@@ -512,7 +727,7 @@ VA - 100 Лучших трэков в стиле Европа Плюс (2017) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436458.jpg" />
 </div>
 
 
@@ -541,7 +756,7 @@ VA - Рок Нашествие Часть 2 (2012) [MP3|128 кб/с]<Рок>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435850.jpg" />
 </div>
 
 
@@ -576,7 +791,7 @@ VA - Ностальгия 4 NNM-Remix (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435464.jpg" />
 </div>
 
 
@@ -590,221 +805,6 @@ VA - Ностальгия 4 NNM-Remix (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B72D37D55DC0D975D4AD8AFD070383FE0740850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165218   (434688) от 12.09.2017
-
-VA - Cosmotronica & Space Disco Vol.4 (2017) [MP3|320 Kbps] <Synthpop, Spacesynth, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlight Project - Lights In The Sky
-02. Bruno Motta - Silk Notes (Edric Remix)
-03. Zonasphere - Timelines
-04. Pryda - The End Is Just The Beginning (Original Mix)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, ElectronicПродолжительность: 09:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F050AC47175AB2E4B0E4CD4007681238FA3D1AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165145   (434429) от 12.09.2017
-
-VA - Back To The Seventies (Compiled by ВИКТОР31RUS) (2017) [MP3|320 Kbps] <Pop, Disco, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434429.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Demis Roussos - From Souvenirs To Souvenirs  2:35
-002.  Eagles - Hotel California  6:31
-003.  Eruption - One Way Ticket (Long Version)  5:10
-004.  Stevie Wonder - Ebony Eyes  4:09(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 11:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBE2860118A8430E8B0EB240AB4D4D5322AE36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554861   (434152) от 02.10.2012
-
-VA - Осенний Non-Stop Vol. 2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niloo - Ола
- 02. Alle - Goodbye (Radio Edit)
- 03. Тимур Родригез - Я Верю В Твою Любовь
- 04. Arash feat. Sean Paul - She Makes Me Go
- 05. Paulina Starborn - Summer Night (Radio Edit)
- 06. Sharon Doorson - Fail In Love
- 07. Sonny Flame feat. Kenno - Boom Boom Room (Radio Edit)
- 08. Mr. Alama & Ligia - Far Away (Radio Edit)
- 09. Влад Соколовский и Паулина Анис - Гонки
- 10. Alyssa Reid feat. Snoop Dogg - The Game (Uk Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4AA0FBAEF9069D5C96E3BDB251E64048DCFF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555345   (434143) от 02.10.2012
-
-VA - German Fashion Week Vol.2 (2012) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Telo - Ai Se Eu Te Pego
-02. Maroon 5 Feat. Wiz Khalifa - Payphone
-03. Kris Feat. Dante Thomas - Diese Tage
-04. Of Monsters And Men - Little Talks
-05. Santigold - Disparate Youth
-06. Alex Clare - Too Close
-07. Nicki Minaj - Starships
-08. Pitbull - Back In Time (Men In Black 3 Theme)
-09. Michael Mind Project Feat. Bobby Anthony And Rozette - Feeling So Blue
-10. Fun. Feat. Janelle Monae - We Are Young(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 03:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14699AB9BF9109B68D3E146AF52DBA419EDB3C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571392   (433948) от 21.08.2022
-
-VA - Funky Collector Nostalgie (2022) [MP3|320 Kbps] <Dance, Rhythm & Blues, Rock, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barry White - Let The Music Play (Single Version)
-02. The Temptations - Treat Her Like A Lady
-03. Carl Carlton - She's A Bad Mama Jama (She's Built, She's Stacked)
-04. Womack & Womack - Teardrops(   Читать дальше...   )Жанр: Dance, Rhythm & Blues, Rock, FunkПродолжительность: 01:40:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5932E0CBB98673215B53D9F7613FC1715B5A026A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571381   (433947) от 21.08.2022
-
-VA - Disco Chance Real Time: Mashup (2022) [MP3|192-320 Kbps] <Dance, Club, R&B, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Rihanna Vs Joel Corry, Raye & David Guetta - We Found Love In Bed (Discosid String) (Clean)
-02. Bleu Clair vs. Village People - Ymca Vs. Disco Tool (Dion Dobbe Mashup)
-03. Dave Earl Vs Stonebridge & Therese - Put Eivissa High (Discosid Mashup)
-04. 22 Lockdown Vs Pickle - Never Gonna Catch You (Discosid String) (Clean)(   Читать дальше...   )Жанр: Dance, Club, R&B, Indie DanceПродолжительность: 02:09:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854181FB37E22D57A88EA94790F0CA0FC3092F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571403   (433944) от 21.08.2022
-
-VA - Mojito Mix (2022) [MP3|320 Kbps] <Reggaeton, Mambo & Electro Latino, Dancehall, Reggae Fusion>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex D - Modo Bellakeo (Remix)
-02. Rico - Sabrosa
-03. DJ Pasi - Noche De Fiesta
-04. Charly Rodriguez - La Razon(   Читать дальше...   )Жанр: Reggaeton, Mambo & Electro Latino, Dancehall, Reggae FusionПродолжительность: 01:38:45 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B8C5DBB128A08731B15EE4EDC999D291702B88
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (0.8.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1379.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1371.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157915-S35) Repack seleZen [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1335.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157967) Repack Wanterlude [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1236.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.5.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1081.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_201.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Temtem: Swarm (2024) [Ru/Multi] (0.8.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135.jpg" />
 </div>
 
 

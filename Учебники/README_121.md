@@ -1,3 +1,56 @@
+###  Публикация: 1726090   (55209) от 27.05.2024
+
+Е.М. Гершензон и др. | Курс общей физики (1979 - 1982) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55209.jpg" />
+</div>
+
+
+###  Подробнее
+
+4-х томный курс физики для студентов физико-математических факультетов педагогических институтов.Жанр: ФизикаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0E76299D4CB9B9B26FDC1D5EA338AD976C156E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726617   (55030) от 29.05.2024
+
+И.А. Бершадский | Микроконтроллеры и микропроцессорные устройства в электроэнергетике (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены принципы построения микропроцессорных систем, архитектура и назначение ее отдельных элементов, средства согласования микропроцессорных систем с объектами управления, методы программирования микроконтроллеров АУБ, базовые примеры применения микроконтроллеров. Показано использование микроконтроллеров в электроэнергетике.
+Для студентов электроэнергетических (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26A28746285EF9E86EC13321CD9A0C9410FB60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 890872   (55018) от 29.05.2024
 
 А.М. Заездный и др. | Теория нелинейных электрических цепей (1968) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55018.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55013.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55004.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Adrian Wallwork | English for Writing Research Papers (2017) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54907.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Rachel Smith | American English Pronunciation (2015) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54896.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54892.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54876.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54689.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54588.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54445.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54400.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54390.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54192.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54011.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53515.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53509.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53508.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53340.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53115.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52766.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52359.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52293.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52280.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52159.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACFAD7F54D9826699E062B7325338D66EB5C8EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732563   (52148) от 25.06.2024
-
-С.В. Борзунов, С.Д. Кургалин | Задачи по дискретной математике с алгоритмами на Python. 2-е изд. (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52148.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебное пособие включены задачи и упражнения вузовского курса дискретной математики, включая разделы, связанные со спецификой информационно-коммуникационных технологий. В каждой главе приводятся теоретические сведения, необходимые для решения задач разного уровня сложности, ответы и во многих случаях подробные пояснения к решениям. Второе издание книги отражает (   Читать дальше...   )Жанр: Компьютерная литература, математикаИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A005DCC58A20928396245E3D9B4B7CA7EFB758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732510   (52111) от 25.06.2024
-
-М.В. Гальперин | Электротехника и электроника (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52111.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрены электрические и электромагнитные поля, электрические цепи постоянного и переменного тока, трансформаторы, электрические машины и электропривод, передача и распределение электроэнергии, физические принципы действия, структуры и схемы включения полупроводниковых и фотоэлектронных приборов (диодов, тиристоров, биполярных и полевых транзисторов, (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ИД «ФОРУМ»; ИНФРА-МФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3649B0AD6C59164C1F752E4B68369313FB319BA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

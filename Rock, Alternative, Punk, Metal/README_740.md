@@ -1,3 +1,30 @@
+###  Публикация: 1259028   (323271) от 02.11.2018
+
+Dead Can Dance - Dionysus (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACT I : Sea Borne - Liberator of Minds - Dance of the Bacchantes (16:38)
+02. ACT II : The Mountain - The Invocation - The Forest - Psychopomp (19:26)Жанр: Modern Classical, AmbientПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0CCB81ABE7369BC52D4A0B44E5D3BE8D295910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582428   (323169) от 09.10.2022
 
 Iron Maiden - Live …New York 1982 (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +33,7 @@ Iron Maiden - Live …New York 1982 (2022) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323169.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Statement - Dreams From The Darkest Side (2022) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323167.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Eclesios - Halls of Salvation (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323166.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ The Tangent - Songs from the hard shoulder (2022) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323161.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ ESSE - Рок-опера «Дорога без возврата» (2011) [MP3|32
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323159.jpg" />
 </div>
 
 
@@ -153,7 +180,7 @@ Magistarium - Дискография (2009 - 2022) [MP3|320 Kbps] <Symphonic Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323158.jpg" />
 </div>
 
 
@@ -182,7 +209,7 @@ Metallica - Kill 'em All (1983) 1988, Reissue [FLAC|Lossless|tracks + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323096.jpg" />
 </div>
 
 
@@ -211,7 +238,7 @@ Metallica - ... And Justice For All (1988) [FLAC|Lossless|tracks + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323086.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ Rise To Fall - Defying The Gods (Japanese Edition) (2012) [FLAC|Lossless]<Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_322764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_322764.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ Nazareth - The Singles(2CD) (2012) [MP3|320 кб/с]<Hard Rock, Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322350.jpg" />
 </div>
 
 
@@ -310,7 +337,7 @@ Wyzards - The Final Catastrophe (1997) [APE|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322347.jpg" />
 </div>
 
 
@@ -339,7 +366,7 @@ Centinex - Subconcious Lobotomy (1992) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322337.jpg" />
 </div>
 
 
@@ -368,7 +395,7 @@ The Landscape Garden - Gild the Lily (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322295.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ Them - Return to Hemmersmoor (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322288.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ UNBLOCKERS - Бытие (2020) EP [FLAC|Lossless|WEB-DL|tracks] <HardCore-Punk, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322284.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ Carcass - Despicable (2020) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322219.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ Liar - 2 Albums (1977, 1978) [MP3|320 Kbps] <Classic Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322212.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ Manimal - Trapped In The Shadows (2015) [MP3|320 кб/с]<Power, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321969.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ Big Head Todd & The Monsters - New World Arisin' (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321923.jpg" />
 </div>
 
 
@@ -571,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321902.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ KROLiki - В моей голове (2015) [MP3|320 kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321878.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ Project NT - Дневник Постороннего (Истории Темны�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321788.jpg" />
 </div>
 
 
@@ -659,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321787.jpg" />
 </div>
 
 
@@ -685,7 +712,7 @@ Manegarm - Manegarm (2015) Limited Edition [MP3|320 кб/с]<Folk Metal, Viking 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321616.jpg" />
 </div>
 
 
@@ -714,7 +741,7 @@ Powermad - Absolute Power (1989) [APE|Lossless|image + .cue] <Power Metal, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321526.jpg" />
 </div>
 
 
@@ -728,35 +755,6 @@ Powermad - Absolute Power (1989) [APE|Lossless|image + .cue] <Power Metal, Heavy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41B27A98F5E0AA23197560359718982940817B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259255   (321525) от 03.11.2018
-
-Walter Giardino - Temple (1998) [APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corte Porteño 04:36
-02. Sobre La Raya 03:45
-03. Los Amigos Del Campeón 05:23
-04. Astróloga 05:00(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D7239E7C7FCE700DCAE8A507D5E9E4B2E8AEB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

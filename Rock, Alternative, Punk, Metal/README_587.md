@@ -1,3 +1,32 @@
+###  Публикация: 937286   (490185) от 14.09.2015
+
+Wolfheart - Shadow World (2015) [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon of Cold
+02. Zero Gravity
+03. Storm Centre
+04. Last of All Winters(   Читать дальше...   )Тип издания: АльбомЖанр: Melodic Death MetalПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3E2EF69352C873C460483BE8301BF719F4500F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936749   (490168) от 14.09.2015
 
 Fear Factory - Genexus (2015) Japanese Edition [FLAC|image+.cue]<Industrial Groove Metal>
@@ -6,7 +35,7 @@ Fear Factory - Genexus (2015) Japanese Edition [FLAC|image+.cue]<Industrial Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490168.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490120.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Rob Zombie - Mondo Sex Head (2012) Compilation & Remixes [FLAC|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490118.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sturm und Drang - 3 Albums (2007-2013) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490106.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489962.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ My Dying Bride - Feel the Misery (2015) [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489904.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Territory - Killer Instinct (2011) [FLAC|Lossless]<Heavy/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489903.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Pink Floyd - The Division Bell (1994/2011) EMI | Reissue, Remastered [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489820.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Callejon - Metropolis (2020) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489757.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Crafting the Conspiracy - The Cosmic Key, Pt. II (2020) [MP3|320 Kbps] <Deathcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489741.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Seether - Si Vis Pacem, Para Bellum (2020) [MP3|320 Kbps] <Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489405.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Mad Max - Stormchild Rising (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489399.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Rammstein - New Collection (2008) Compilation[FLAC|image + .cue]<Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489392.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ John Petrucci - Terminal Velocity (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489377.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Cosmos - Mind Games (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489315.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ Brutto - Родны Край (2015) [MP3|320 кб/с]<Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489265.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Pink Floyd - Transmissions + 1969 (2020) Unofficial Release, 2xCD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489254.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ Katatonia - Dead End Kings (2012) Limited Edition [MP3|320 кб/с]<Doom, Depres
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489137.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ Northlane - Alien (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metalcore, I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488870.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ Finsterforst - Zerfall (2019) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488869.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ Snow Patrol - Reworked (EP1) (2019) EP [FLAC|Lossless|tracks] <Indie Pop, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488733.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ Raydead - End in Sight (1993) [FLAC|Lossless|tracks] <Thrash, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488448.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ Infamous & Gratzug - Infamous & Gratzug (Split) (2016) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488432.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ Poison - Into The Abyss (Demo) (1987) Reissued, 2019, F.O.A.D. Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488423.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ Pleurisy - Experience The Sacrilege (1999) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488417.jpg" />
 </div>
 
 
@@ -729,35 +758,6 @@ Pleurisy - Experience The Sacrilege (1999) [FLAC|Lossless|WEB-DL|tracks] <Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F5F2E48FF1F67A12906315FD0734343EE0BFF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055342   (488412) от 22.09.2016
-
-Lordi - Monstereophonic (Theaterror vs. Demonarchy) (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock, Shock Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theaterror
-01. Scg8: One Message Waiting
-02. Let's Go Slaughter He-Man (I Wanna Be the Beast-Man in the Masters of the Universe)
-03. Hug You Hardcore(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Shock RockПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41E0C3849E88C84346EB6C43568669AB2FE3F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

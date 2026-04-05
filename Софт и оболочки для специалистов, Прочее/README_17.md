@@ -1,3 +1,107 @@
+###  Публикация: 504561   (260655) от 02.06.2012
+
+Microsoft Lync 2010 Client RUS x86 4.0.7577.0 [Русский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Серверное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Lync 2010 — клиент поистине объединенных коммуникаций, сочетающий возможности обмена мгновенными сообщениями, организации собраний и голосового общения. Приложение Lync 2010 с обновленным интерфейсом объединяет средства связи, работающие привычным для пользователей образом. В клиенте имеется панель инструментов, на которой очень просто найти и вызвать часто используемые функции, такие как номеронабиратель, визуальная голосовая почта, а также списки контактов и активных бесед.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838269   (259851) от 21.11.2025
+
+Microsoft Visual Studio 2026 Enterprise 18.0.1 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встреча Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4192B64C71CE4B22566D70B075AD82B9B10F399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838272   (259840) от 21.11.2025
+
+Microsoft Visual Studio 2022 Enterprise 17.14.21 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода, а затем развертывания приложения. Visual Studio включает компиляторы, средства завершения кода, управление (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E6CD7043E60B9D609A1EC9B8A74BAFC77C4C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837966   (257718) от 20.11.2025
+
+WinPE 11-10 Sergei Strelec (x64) 2025.11.19 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F299C871D415F77C5BBC1E106DEFB862A20A66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500259   (257364) от 23.05.2012
 
 Broadcomm Bluetooth Driver X86/X64 (2012) [Мульти/Русский]
@@ -6,7 +110,7 @@ Broadcomm Bluetooth Driver X86/X64 (2012) [Мульти/Русский]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257364.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Microsoft Visual Studio 2026 Professional 18.0.0 [11205.157] (Offline Cache) [Ru
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256804.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.0 [11205.157] (Offline Cache) [Ru/E
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256803.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Pythagoras CAD + GIS 12.26 [ENG + RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256530.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255903.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Microsoft Visual Studio 2022 Professional 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255902.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Realtime Landscaping Architect 2023 v23.02 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255465.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ JetBrains Rider 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255363.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ JetBrains WebStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255362.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Windows 10 PE (x64) by Ratiborus v.6.2023 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254564.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254459.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ EarthView 7.13.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252575.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Trimble Tekla Structures 2023 SP3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252229.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250677.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ AltSnap 1.66 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250625.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Wing Helper 1.50 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249660.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Java SE Development Kit 8.0.341 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249585.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248680.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ PilotEdit Lite & Pro 20.4.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247844.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ LEX LIVE 10 RC v.26.0.15 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246235.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ PowerShell Studio 2022 v5.8.202 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245271.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ Brackets 2.2.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245076.jpg" />
 </div>
 
 
@@ -578,113 +682,6 @@ Brackets - удобный и простой редактор исходного 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E64EFD51AB5DB00B71688E020D86D1461D1281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621800   (244956) от 26.03.2023
-
-Altair Compose 2022.2.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Altair Compose высокоуровневый язык вычислений основанный на числовом решении матриц предоставляющий единую среду для всех типов математических вычислений. Программа предоставляет широкий набор инструментов для решения матриц, дифференциальных уравнений и задач оптимизации.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF5D57CBFCE72350E61597725C801EFEF22A3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621928   (244873) от 26.03.2023
-
-Altair SimSolid 2022.2.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244873.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIMSOLID – разработка одноименной американской компании SIMSOLID Corporation, программный продукт, разработанный специально для инженеров-конструкторов, который позволяет проводить прочностной анализ деталей со сложной геометрией и крупных сборок.
-
-Главное преимущество SIMSOLID – автоматизированное упрощение сложной геометрии и автоматическая генерация КЭ-сетки. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA73910372AC8BB2C6BC91953916B5B1C960F28F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621913   (244817) от 26.03.2023
-
-Altair Flux & FluxMotor 2022.2.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Altair Flux- программный продукт для электромагнитного и термодинамического низкочастотного анализа.
-Altair FluxMotor — автономная программа ориентированная на предварительное проектирование электрических двигателей.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704C365520BFF3E94C9B77F51C97FC0999577104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621717   (244740) от 25.03.2023
-
-Altair Activate 2022.2.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Altair Activate позволяет конструкторам моделировать и оптимизировать мультидисциплинарные системы. Использование различных оптимизационных моделей обеспечивают выполнение всех поставленных конструкторских требований и выявление проблем на ранней стадии проектирования.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EFB7D43D9299D9387057F694BD9B78B6EBEFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

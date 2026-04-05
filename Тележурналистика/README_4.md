@@ -1,3 +1,29 @@
+###  Публикация: 1464926   (1019499) от 24.04.2021
+
+Живая еда с Сергеем Малозёмовым (24.04.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скоро Пасха — пора печь куличи. Каким должен быть идеальный кулич и можно ли сделать его полезным? Как сэкономить на еде без вреда для здоровья? Можно ли «верить» акциям в магазинах? Безопасны ли красители для яиц? Рецепт недели — необычный кулич.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF26FC76F615BF370E2F1D2293ECD8C06D9A7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465081   (1019472) от 24.04.2021
 
 Следствие вели... (24.04.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019472.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019322.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018443.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018280.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018083.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018068.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016510.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015987.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015794.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015457.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014846.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014426.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013561.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Happy End. Фильм о сериале (2021) WEBRip [H.264/1080p-LQ]
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013370.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013298.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013261.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013239.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012438.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012394.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010343.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010310.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010252.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010156.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009311.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009306.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34BCD262F169B6F27C9BC1FFE8D8A88116D3483E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480244   (1009155) от 27.06.2021
-
-Следствие вели... (27.06.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009155.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Знакомьтесь, ваша вдова!» 1986-й год, Ленинград. В одном из дворов в течение недели горит костер, который поддерживает местная детвора. Но, когда огонь гаснет, на пепелище обнаруживают сожженные части тела. Эксперты не могут установить даже пол погибшего человека. Тогда никто не догадывается: за этим ЧП скрывается целая серия хитроумных преступлений, совершенных (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3A33D257C57310CA1B29967F0159AFC678B44E
 ```
 
 https://mybot314.ru/tekegram_catalog/

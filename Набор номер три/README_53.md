@@ -1,3 +1,161 @@
+###  Публикация: 1352618   (992989) от 16.01.2020
+
+Microsoft исправила чрезвычайно опасную уязвимость в Windows
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft выпустит исправление для чрезвычайно опасной уязвимости в криптографическом компоненте ядра, затрагивающей все версии Windows.По данным портала KrebsOnSecurity, компания уже разослала патчи оборонным предприятиям в США и другим особо важным клиентам, занятым в управлении ключевой инфраструктурой интернета, и попросила их подписать соглашение о неразглашении (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352608   (992986) от 16.01.2020
+
+Microsoft официально прекратила техническую поддержку Windows 7
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Microsoft официально прекратила техническую поддержку операционной системы Windows 7.«Этот 10-летний период закончен, и Microsoft прекратила поддержку Windows 7, чтобы сконцентрировать инвестиции в поддержку более новых технологий и взаимодействий. Поддержка Windows 7 прекращена 14 января 2020 », — отметили в Microsoft.Microsoft больше не будет предоставлять (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352928   (992985) от 16.01.2020
+
+Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.12325.20298 (2020.01) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский + языковые пакеты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4CF1772AE6BD3CA1938BBE903D6CC275E6F325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263204   (992984) от 16.01.2020
+
+SolidWorks Premium Edition 2018 SP 5.0 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992984.jpg" />
+</div>
+
+
+###  Подробнее
+
+SolidWorks – система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения.
+SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC9B4E88526ED039D5579893FB805A962BE0C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301111   (992874) от 03.01.2012
+
+(Обновлено 28.12.2011) Библиотека Ножемана. Наиболее полная подборка литературы по ножам и холодному оружию. [2011, FB2, DJVU, PDF]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_992874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция, которая включает огромное количество литературы, посвященной ножам, холодному оружию и всему, таки или иначе, связанному с этой темой. В коллекцию вошли не только материалы, доступные в отечественных интернет-библиотеках, скорее наоборот, они всего лишь дополнение к тому, что мне удалось найти просеивая зарубежные источники. В основном это касается каталогов ножевых фирм - наиболее полной подборки вы еще не видели! Также представлено большое количество журналов, книг и статей.
+Но основным достоинством данной коллекции является даже не это, а то, что подборка снабжена удобной оболочкой, позволяющей с комфортом просматривать ее содержимое, осуществлять поиск, сохранять книги в нужное место и многое, многое другое.2011Формат: FB2, DJVU, PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 123463   (992867) от 03.01.2012
+
+Форсаж 4 / Fast & Furious (2009) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда кривая дорожка заставляет скрывающегося от правосудия Дома Торетто вернуться в Лос-Анджелес, вражда с агентом Брайаном О’Коннером вспыхивает с новой силой. Но у парочки обнаруживается общий противник, и Дому с Брайаном приходится заключить перемирие в надежде одержать над ним победу. Грабя конвои, роя подкопы и пересекая границы, они приходят к идеальной форме (   Читать дальше...   )Жанр: боевикРежиссер: Джастин ЛинАктеры: Вин Дизель, Пол Уокер, Джордана Брюстер, Мишель Родригес, Джон Ортиз, Лас Алонсо, Гал Гадот, Джек Конли, Ши Уигхэм, Лиза Лапира
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 430624   (992866) от 03.01.2012
 
 Сибирь. Монамур (2011) [H.264] BDRip
@@ -6,7 +164,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992866.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Battlefield: Bad Company 2 [Ru/En] (RePack) 2010 l R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992863.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992860.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Farming Simulator 2013 [Ru/En] (RePack) 2012 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992481.jpg" />
 </div>
 
 
@@ -113,7 +271,7 @@ FL Studio 10.0.9c Producer Edition [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992477.jpg" />
 </div>
 
 
@@ -141,7 +299,7 @@ Primo Ramdisk Server Edition 5.6.0 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992476.jpg" />
 </div>
 
 
@@ -169,7 +327,7 @@ Paragon Hard Disk Manager 12 Professional 10.1.19.16240 + Boot Media Builder [Р
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992473.jpg" />
 </div>
 
 
@@ -197,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992326.jpg" />
 </div>
 
 
@@ -223,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992321.jpg" />
 </div>
 
 
@@ -249,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992314.jpg" />
 </div>
 
 
@@ -276,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992106.jpg" />
 </div>
 
 
@@ -302,7 +460,7 @@ NNM-CLUB поздравляет с Новым Годом! Праздничный
 >>39
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992104.jpg" />
 </div>
 
 
@@ -329,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991579.jpg" />
 </div>
 
 
@@ -355,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991440.jpg" />
 </div>
 
 
@@ -381,7 +539,7 @@ Diablo 2: Lord of destruction / Median XL Ultimative v6d [Ru] (Mod) 2000/2013
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991437.jpg" />
 </div>
 
 
@@ -408,7 +566,7 @@ Windows XP Professional SP3 Clear AS 01.2013 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991436.jpg" />
 </div>
 
 
@@ -440,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991264.jpg" />
 </div>
 
 
@@ -467,7 +625,7 @@ Windows 7 SP1 44in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2020) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991260.jpg" />
 </div>
 
 
@@ -493,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991258.jpg" />
 </div>
 
 
@@ -519,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991251.jpg" />
 </div>
 
 
@@ -530,168 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB0083C8CCAB36AB5CDAD19955ABE775EA539AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353185   (991249) от 18.01.2020
-
-Windows 10 Enterprise x64 lite 1909 build 18363.592 by Zosma
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе Microsoft:
-Microsoft Windows 10.0.18363.535 Version 1909 (December 2019 Update)
-Удалены компоненты связанные с шпионством и отправкой телеметрии.
-Отключены бесполезные (вредные) службы(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5368F3B6D019FC169761EED02A1605D18ECCB6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353436   (991247) от 18.01.2020
-
-Windows 7 SP1 (x86/x64) 52in1 +/- Office 2016 by SmokieBlahBlah 18.01.20 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991247.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по январь 2020 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
-
-Ничего не вырезано (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894A744CD6C99047575EA32D29256A82D3754C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164894   (991246) от 18.01.2020
-
-Half-Life 2 (2004-2009) [Ru/En] (7000) Unofficial/Mod [Ultimate Edition 7]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Half-Life 2 - компьютерная игра, научно-фантастический шутер от первого лица, сиквел Half-Life, разработанная Valve Corporation. Игра была выпущена 16 ноября 2004 года (21 ноября 2004 года в России и странах СНГ компанией SoftClub) и получила высочайшие оценки многих авторитетных изданий. Помимо этого, игра собрала множество наград и более 35 титулов «Игра года 2004». (   Читать дальше...   )Тип издания: Unofficial/ModРазработчик: Valve SoftwareЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AA24A5AC31D269D2441B97E8990AEDD19CD79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941390   (991245) от 18.01.2020
-
-X Rebirth (2013) [Ru/En] (4.30/dlc) Repack alexalsp
-
->>3
->>28
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далекое будущее. Вселенная Х находится на пороге неотвратимых перемен. Пока весь мир шагает в неопределенность, появляются новые враги, ищущие силы и власти. В это нелегкое время начинаются приключения юного авантюриста и его спутницы. На потрепанном прославленном в боях космическом корабле наши герои столкнутся со вселенной один на один и сыграют ключевую роль в (   Читать дальше...   )Тип издания: RepackРазработчик: EgosoftЖанр: Simulator (Space), 3D, Privateer, TraderЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD10F5345EF994664B49F50C12FD28BD54FE4B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609330   (990746) от 28.01.2013
-
-Мой парень – псих / Silver Linings Playbook (2012) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная перемена в жизни героя, после того, как жена ему изменяет — что у него диагностируют биполярное расстройство, и он 8 месяцев проводит в психушке. После чего по решению суда не должен с ней встречаться.Жанр: Драма, Мелодрама, КомедияРежиссер: Дэвид О. РасселлПродюсер: Брюс Коэн, Донна Джильотти, Брэдли КуперАктеры: Брэдли Купер, Дженнифер Лоуренс, Роберт Де Ниро, Джеки Уивер, Крис Такер, Анупам Кхер, Джон Ортиз, Ши Уигхэм, Джулия Стайлз, Пол ХерманПеревод: Профессиональный (многоголосый)Продолжительность: 01:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D81BC6BE6F8EBB23CB7F1CCB26597C21048EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432214   (990529) от 06.01.2012
-
-В Швеции копирование информации признано религией
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская группа, выступающая за свободный обмен цифровой информацией, получила официальную регистрацию в качестве религиозной организации, передает Би-би-си.Группа, которая называет себя "Церковью Копимизма" (от англ. copy и me - "скопируй меня"), говорит, что официальное признание со стороны государства даст ей правовую защиту и свободу "священнодействия".Шведские СМИ отмечают, что "Церковь Копимизма" тесно связана с "Пиратским движением" Швеции, которое выступает за свободное распространение информации и против защиты авторских прав.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1067562   (387808) от 29.10.2016
+
+Dünedain (Dunedain) - Pandemonium (2016) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Eón   (05:12) 
+  02| Legado   (03:55) 
+  03| Bola De Cristal   (04:38) 
+  04| Vuela   (04:42) (   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE9A04771D5BAF71BA1B88BDE9990700980030F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574206   (387767) от 04.09.2022
 
 Gorillaz - Cracker Island / New Gold (2022) 2 Singles [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield, Electroniс>
@@ -6,7 +35,7 @@ Gorillaz - Cracker Island / New Gold (2022) 2 Singles [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387767.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Field Music - Making a New World (2020) [FLAC 2.0|48/24|tracks +.cue|WEB-DL] <In
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387745.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Wolves At The Gate - 2 Albums: Eclipse / Dawn (2019-2020) [MP3|320 Kbps] <Metalc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387738.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Anaal Nathrakh - 4 Albums (2014-2020) EXPLICIT, Metal Blade Records Inc. [FLAC 2
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387599.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Sepultura - Quadra (2020) Nuclear Blast Rec. [FLAC 2.0|48/24|tracks|WEB-DL] <Thr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387576.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Gun - Favourite Pleasures (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387526.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387458.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ As I Lay Dying - Shaped by Fire (2019) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387298.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Stephan Forte - Enigma Opera Black (2014) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387268.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nachtblut - Apostasie (2017) [MP3|320 Kbps] <Dark Metal, Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387241.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387219.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ The Naked and Famous - Simple Forms (2016) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386990.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Tove Lo - Lady Wood (2016) [MP3|320 Kbps] <Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386980.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386752.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ HammerFall - Built to Last (2016) [MP3|320 Kbps] <Power Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386740.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Dominion - Born God And Aware (2006) [FLAC|Lossless]<Brutal Death, Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_385960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385960.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Becoming The Archetype - I Am (2012) [FLAC|Lossless]<Deathcore, Progressive Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_385956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385956.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ Dark Millennium - Diana Read Peace (1993) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385789.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ Blind Scryer - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385788.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ D-Wall - Mind Core Ruption (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385787.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ Infantry - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385786.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ Endonomos - Endonomos (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385785.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ In Gloom - Self Titled (2020) Remaster, 2022 [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385784.jpg" />
 </div>
 
 
@@ -687,7 +716,7 @@ The Last Kind Words - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Post-M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385783.jpg" />
 </div>
 
 
@@ -716,7 +745,7 @@ Dark Millennium - Where Oceans Collide (2018) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385782.jpg" />
 </div>
 
 
@@ -730,35 +759,6 @@ Dark Millennium - Where Oceans Collide (2018) [FLAC|Lossless|image + .cue] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00211C00D66332CFD77622A21DB7F98CF471259A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574303   (385781) от 05.09.2022
-
-Сурогат - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сурогат Now! [00:01:02]
-02. Позор [00:04:01]
-03. Мёртвая любовь [00:04:09]
-04. Двигайся [00:04:32](   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 2 CD, 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1685DF8A4E5FDEBE5C6DD858C31DF58420EBD9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

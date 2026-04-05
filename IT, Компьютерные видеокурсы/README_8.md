@@ -1,29 +1,3 @@
-###  Публикация: 1446149   (1032847) от 08.02.2021
-
-Udemy, Andrei Neagoie и др. | Complete Machine Learning & Data Science Bootcamp 2021 (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это совершенно новый курс по машинному обучению и Data Science, который был запущен и обновлен в этом месяце с учетом последних тенденций и навыков на 2021 год! Станьте экспертом в области данных и инженером по машинному обучению! Присоединяйтесь к живому онлайн-сообществу из более чем 400 000 инженеров и к курсам, проводимым отраслевыми экспертами, которые действительно (   Читать дальше...   )Производство: UdemyЖанр: Machine Learning, Data ScienceЯзык озвучки: АнглийскийПродолжительность: 42:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370DDEA00C67A6CF4D470BF4F5C2CA05F71CA201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446415   (1032800) от 08.02.2021
 
 Специалист, Соколов Михаил | Linux. Уровень 1. Основы администрирования систем Debian, Ubuntu, CentOS (2020) PCRec
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032800.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Skillshare, Andrei Dumitrescu | Узнай Docker с нуля / Learn Docker Fro
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032445.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Udemy, Центр digital-профессий ITtensive | Машинное обу
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032385.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Pluralsight, Craig Stansbury | Cisco Core Security: Securing the Cloud (2021) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032039.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ ProgLib.academy, Вениамин Жиленко, Никита Ларионов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031750.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ ProgLib.academy, Никита Ларионов и др. | Онлайн-курc �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031746.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ BrainsCloud, Дмитрий Валак | HTML и CSS с нуля для начи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031743.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ OTUS, Алексей Цыкунов | Администратор Linux. Вирт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031696.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ fullstack.io, Amelia Wattenberger | Fullstack D3 Мастер-класс / Fulls
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031336.jpg" />
 </div>
 
 
@@ -281,7 +255,7 @@ Deworker Pro, Дмитрий Елисеев | Что есть React: Пишем 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031253.jpg" />
 </div>
 
 
@@ -309,7 +283,7 @@ Udemy, Neil Cummings | Complete guide to building an app with .Net Core and Reac
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030586.jpg" />
 </div>
 
 
@@ -336,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030541.jpg" />
 </div>
 
 
@@ -362,7 +336,7 @@ Thinknetica Pro, Святослав Крюков | Оптимизация зап
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030387.jpg" />
 </div>
 
 
@@ -389,7 +363,7 @@ Udemy, Мефодий Келевра | Maximum Paranoid v.2 (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030373.jpg" />
 </div>
 
 
@@ -417,7 +391,7 @@ OTUS, Дмитрий Бугайченко | Промышленный Machine Lea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030325.jpg" />
 </div>
 
 
@@ -446,7 +420,7 @@ Udemy, Nate Ross | API and Web Service Introduction (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030197.jpg" />
 </div>
 
 
@@ -472,7 +446,7 @@ Udemy, Patrick God | .NET Core 3.1 Web API & Entity Framework Core Jumpstart (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030179.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Udemy, Joseph Phillips | PMP Exam Prep Seminar - Pass the PMP on Your First Atte
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030177.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Udemy, Ariel Weinberger | NestJS Zero to Hero - Modern TypeScript Back-end Devel
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030148.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030075.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Skillbox, И. Павлов и др. | Алгоритмы и структуры �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029949.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Udemy, Colt Steele и др. | The Modern Javascript Bootcamp Course (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029857.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Udemy, Chang Tan | Введение в разработку эксплойтов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029837.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Udemy, Андрей Соколов | Docker для начинающих и ча�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029826.jpg" />
 </div>
 
 
@@ -693,7 +667,7 @@ Udemy, Stephen Grider | Полный курс по Elixir и Phoenix / The Compl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029692.jpg" />
 </div>
 
 
@@ -704,6 +678,32 @@ Udemy, Stephen Grider | Полный курс по Elixir и Phoenix / The Compl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40ED1C1B77199AD0189A16C8F0FEF5C32CB00368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449754   (1029679) от 22.02.2021
+
+The Coding Gnome, Dave Thomas  | Elixir для программистов / Elixir for Programmers (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истинное мастерство в Elixir происходит от понимания основных идиом: функциональное программирование, преобразования, параллелизм и структура приложения. Вам нужно знать инструменты, такие как IEx и mix. И вам нужно понимать такие фреймворки, как OTP и Phoenix. Этот курс поможет вам начать этот путь (и ваш опыт займет у вас оставшуюся часть пути). В курсе есть видео, (   Читать дальше...   )Производство: The Coding GnomeЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA28F104F63045ECB26948E1AA7F23958B632C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

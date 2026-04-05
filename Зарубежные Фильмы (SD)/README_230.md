@@ -1,81 +1,3 @@
-###  Публикация: 1281535   (749582) от 09.02.2019
-
-Богемская рапсодия / Bohemian Rhapsody (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чествование группы Queen, их музыки и их выдающегося вокалиста Фредди Меркьюри, который бросил вызов стереотипам и победил условности, чтобы стать одним из самых любимых артистов на планете. Фильм прослеживает головокружительный путь группы к успеху благодаря их культовым песням и революционному звуку, практически распад коллектива, поскольку образ жизни Меркьюри (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Драма, биография, музыкаРежиссер: Брайан СингерАктеры: Рами Малек, Люси Бойнтон, Гвилим Ли, Бен Харди, Джозеф Маццелло, Эйдан Гиллен, Аллен Лич, Том Холландер, Майк Майерс, Аарон МакКаскер и др.Перевод: Дублированный (Лицензия)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (SDH, SDH Colored)Продолжительность: 02:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06442CD23CB665F444F17E60CD7FBD78A931147F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019627   (749479) от 23.05.2016
-
-Запретная Зона 3D / Bunker of the Dead (2015) HDRip [H.264] [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое друзей Пол и Маркус находят в одном из старых дневников описание расположения секретного подземного бункера времен Второй Мировой войны. Вооружившись специальным 3D девайсом, передающим изображение «от первого лица» один из них отправляется на место, а второй помогает на расстоянии, отслеживая его перемещения и давая правильные советы.Производство: ГерманияЖанр: Ужасы, боевик, комедияРежиссер: Маттиас Олоф ЕйхАктеры: Сарита Брэдли, Патрик Янс, Кристиан Джангуирт, Хуан Карлос Лопез, Эстер Мааб, Андреас ПейпПеревод: Дублированный (чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9483CE30A49819165A45B25E312BA66AAA47F450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281628   (749460) от 09.02.2019
-
-Ничего хорошего в отеле «Эль рояль» / Bad Times at the El Royale (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь незнакомцев, у каждого из которых есть своя тайна, встречаются в заброшенном отеле «Эль Рояль» на озере Тахо. И этой ночью у каждого будет шанс на искупление… прежде чем всё пойдет к чертям.Производство: СШАЖанр: Триллер, драма, криминал, детективРежиссер: Дрю ГоддардАктеры: Крис Хемсворт, Дакота Джонсон, Джефф Бриджес, Синтия Эриво, Джон Хэмм, Кэйли Спэни, Льюис Пуллман, Ксавье Долан, Ник Офферман, Ши Уигхэ и др.Перевод: Дублированный (Лицензия Blu-ray CEE)Субтитры: Русские (полные + форс.), английские (Full), английские (SDH)Продолжительность: 02:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708136009698A0E33347D1D86B96E52A5F3CAE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523630   (749392) от 12.01.2022
 
 Нежный бар / The Tender Bar (2021) WEB-DLRip [MVO]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749392.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749083.jpg" />
 </div>
 
 
@@ -128,33 +50,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 206633   (748867) от 02.06.2010
-
-Невидимая сторона / The Blind Side (2009) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_748867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальная история игрока в американский футбол команды Baltimore Ravens Майкла Оэра. Оставшийся без крова молодой афроамериканец взят под опеку зажиточной семьёй. Жизнь в новом окружении полностью меняет судьбу замкнутого подростка, помогает реализовать свой потенциал. Поступив в университет штата Миссисипи, он играет в студенческой команде и познаёт скрытую сторону спортивной игры, учится стратегии и тактическому анализу. Знание того, что в игре зачастую именно мозг побеждает мускулы, вскоре поможет попасть Майклу в профессиональную лигу.
-_________________________________________________Жанр: драма, спортРежиссер: Джон Ли Хэнкок / John Lee HancockВ ролях: Сандра Баллок, Тим МакГроу, Куинтон Аарон, Джей Хед, Лили Коллинз, Рэй МакКиннон, Ким Диккенс, Адриан Ленокс, Кэти Бейтс, Катрин ДайерПеревод: Профессиональный (многоголосный) |Лицензия|Формат: AVI ///СОВМЕСТИМО С БЫТОВЫМИ ПЛЕЕРАМИ/// Размер 1/3 DVD
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019804   (748339) от 24.05.2016
 
 Зловещий / Ominous (2015) WEB-DLRip
@@ -163,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748339.jpg" />
 </div>
 
 
@@ -189,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748331.jpg" />
 </div>
 
 
@@ -215,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748108.jpg" />
 </div>
 
 
@@ -241,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748075.jpg" />
 </div>
 
 
@@ -267,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747974.jpg" />
 </div>
 
 
@@ -293,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747883.jpg" />
 </div>
 
 
@@ -319,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747881.jpg" />
 </div>
 
 
@@ -346,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747831.jpg" />
 </div>
 
 
@@ -373,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747783.jpg" />
 </div>
 
 
@@ -399,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747762.jpg" />
 </div>
 
 
@@ -425,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747758.jpg" />
 </div>
 
 
@@ -451,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747750.jpg" />
 </div>
 
 
@@ -478,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747735.jpg" />
 </div>
 
 
@@ -504,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747731.jpg" />
 </div>
 
 
@@ -530,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747689.jpg" />
 </div>
 
 
@@ -556,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747638.jpg" />
 </div>
 
 
@@ -582,7 +477,7 @@ CODA: Ребёнок глухих родителей / СODA (2021) WEB-DLRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747635.jpg" />
 </div>
 
 
@@ -608,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747631.jpg" />
 </div>
 
 
@@ -634,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747627.jpg" />
 </div>
 
 
@@ -660,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747592.jpg" />
 </div>
 
 
@@ -671,6 +566,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09DFBE97E942B1E4C493F3BC7CB2320836007109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019879   (747584) от 24.05.2016
+
+Маргарита / Marguerite (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж 20-х годов. Каждый год любители музыки собираются в замке Маргариты Дюмон. Никто почти ничего не знает об этой женщине за исключением того, что она богата и что в ее жизни одна страсть: музыка. Маргарита поет. Она поет искренне, но очень фальшиво. Ей никто никогда не говорил о том, что её пение ужасно. Муж, родственники и друзья поддерживают Маргариту и она (   Читать дальше...   )Производство: Франция, Чехия, Бельгия / Fidelite films, Memento filmsЖанр: ДрамаРежиссер: Ксавье ДжаннолиАктеры: Катрин Фро, Андре Маркон, Мишель Фо, Криста Тере, Denis Mpunga, Сильвен Дьюэд, Обер Фенуй, София Лебутт, Тео Чолби, Астрид ВетналлПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 02:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D2A10108E05E365F0124010E8B91801295A289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019664   (747581) от 24.05.2016
+
+По ту сторону двери / The Other Side of the Door (2016) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идиллическая жизнь молодой семьи за границей трагически прерывается гибелью маленького сына. Безутешная мать узнает о существовании древнего ритуала, который позволяет на время вернуть умерших, чтобы с ними попрощаться. Девушка отправляется в заброшенный храм, где двери служат порталом между мирами живых и мертвых, но пренебрегает предупреждением не открывать эти (   Читать дальше...   )Производство: Индия, Великобритания | 42, Kriti ProductionsЖанр: Триллер, УжасыРежиссер: Йоханнес РобертсАктеры: Сара Уэйн Кэллис, Джереми Систо, София Росински, Хавьер Ботет, Джакс Малкольм, Сучитра Пиллай-МаликПеревод: Дублированный (iTunes)Продолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F838CCA1C341B815FFB00F00294984E9A47F0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019706   (747573) от 24.05.2016
+
+Боги Египта / Gods of Egypt (2016) BDRip [H.264]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда мирное и процветающее египетское царство погружается в хаос: беспощадный бог тьмы Сет убивает своего брата Осириса и узурпирует трон. Вызов ему неожиданно бросает простой смертный, находчивый молодой вор. Чтобы вернуть к жизни свою прекрасную возлюбленную, ему приходится заручиться поддержкой могущественного и мстительного бога Гора. Лишь выдержав испытание (   Читать дальше...   )Производство: США / Mystery Clock Cinema, Pyramania, Summit EntertainmentЖанр: фэнтези, боевик, приключенияРежиссер: Алекс ПройасАктеры: Брентон Туэйтс, Джерард Батлер, Николай Костер-Валдау, Чэдвик Боузмэн, Элоди Юнг, Кортни Итон, Руфус Сьюэлл, Джеффри Раш, Брайан Браун, Рэйчел Блэйк, Эмма Бут, Александр Инглэнд, Горан Д’Клюе, Йайа Ден, Эбби Ли, Кеннет Рэнсом, Джон СамахаПеревод: Дублированный (Централ Партнершип)Язык субтитров: РусскийПродолжительность: 02:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F8F1B711984736889D1DBB17982C3E7D8819E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206942   (747172) от 03.06.2010
+
+Поезд на Юму / 3:10 to Yuma (2007) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747172.jpg" />
+</div>
+
+
+###  Подробнее
+
+После ареста известного бандита Бена Уэйда его банда продолжает угрожать местным жителям. Ветеран Гражданской войны и владелец небольшого ранчо Дэн Эванс соглашается тайно доставить Уэйда в ближайший город с железнодорожной станцией, чтобы того доставили на поезде в форт Юма. Как только они останавливаются в гостинице, становится очевидным, что тайна раскрыта, и (   Читать дальше...   )Жанр: Боевик, Вестерн, КриминалРежиссер: Джеймс МэнголдАктеры: Рассел Кроу, Кристиан Бэйл, Логан Лерман, Даллас Робертс, Бен Фостер, Питер Фонда, Кевин Дюран, Алан Тьюдик, Люче Рэйнс, Гретхен МолПеревод: ДублированныйПродолжительность: 02:02:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1359322   (964991) от 11.02.2020
+
+Анна Печерская | Юные герои Великой Отечественной (2015) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник составлен из рассказов о беспримерных подвигах юных героев, наравне с отцами и матерями, старшими сёстрами и братьями вставших в годы Великой Отечественной войны на защиту Родины, – Лёни Голикова, Марата Казея, Лары Михеенко, Вали Котика, Зины Портновой, Вити Коробкова, Саши Ковалёва, Нины Куковеровой и Володи Дубинина.
+Книга выходит в серии «Поклон (   Читать дальше...   )Жанр: Проза для детей, Исторические повести и рассказыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33BE55BDDC0783F4F22B8CFE5EFF288ECA76674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977950   (964811) от 22.01.2016
 
 С. Тачалов | Живые зонтики (1964) [PDF]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964811.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964807.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964789.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964726.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964663.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964447.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964285.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964207.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964205.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964195.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964181.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964153.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964135.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963953.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963936.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963742.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963724.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963548.jpg" />
 </div>
 
 
@@ -490,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963516.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963336.jpg" />
 </div>
 
 
@@ -544,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963219.jpg" />
 </div>
 
 
@@ -572,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963215.jpg" />
 </div>
 
 
@@ -599,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963152.jpg" />
 </div>
 
 
@@ -625,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963029.jpg" />
 </div>
 
 
@@ -653,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963024.jpg" />
 </div>
 
 
@@ -664,33 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB237F02CD96F3F108AB5F57FEEC0105BFF556E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747337   (963022) от 19.01.2014
-
-Н. Дмитриева | Псинка (1928) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята спорили с ожесточением.
-Сережа, вихрастый, быстроглазый мальчуган лет двенадцати, только что вернулся с собачьей выставки, куда ходил со школой, и с великим запалом рассказывал братишки с сестрой о том, что он сам видел.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF367C05C925341C755B3B878AE7D4DE83848716
 ```
 
 https://mybot314.ru/tekegram_catalog/

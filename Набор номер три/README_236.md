@@ -1,3 +1,161 @@
+###  Публикация: 1398403   (734601) от 28.07.2020
+
+Оригинальный Doom запустили в Minecraft
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Doom вышла более 25 лет назад, и с тех пор на чём только её не запускали: компьютерах, смартфонах, часах, принтерах, айподах, платёжных терминалах, кассах и даже пылесосах.Пользователь Reddit с ником DeltaTwoForce умудрился создать в Minecraft компьютер, на котором можно тоже играть в Doom.DeltaTwoForce использовал не обычную версию Minecraft, а прокачанный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398656   (734553) от 28.07.2020
+
+Microsoft принудительно обновит старые версии Windows
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft подтвердила переход на новый этап распространения последнего крупного обновления Windows 10. В результате, Windows 10 May 2020 Update начало распространяться для гораздо более широкого круга устройств, включая более старые компьютеры.Кроме того, Microsoft начала переводить пользователей старых версий Windows 10 на Windows 10 версии 2004. Специальная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399001   (734549) от 28.07.2020
+
+Космос / Cosmos (2019) BDRip [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три астронома случайно перехватывают сигнал, который они принимают за сигнал далекой инопланетной цивилизации, но истина еще более невероятна, чем любой из них может себе представить.Производство: Великобритания / Gravitas Yentures, Elliander PicturesЖанр: Фантастика, детектив, приключенияРежиссер: Эллиот Уивер, Зандер УиверАктеры: Том Инглэнд, Джошуа Форд, Arjun Singh Panam, Бен Варди, Марк Бейлис, Майк Колетта, Саймон ВортингтонПеревод: Многоголосый закадровый, любительский (Mallorn Studio)Субтитры: ОтсутствуютПродолжительность: 02:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0406E85F20C655CA29959225E58D65E5136504DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788509   (734488) от 21.05.2014
+
+ESET NOD32 Antivirus 7.0.317.4 RePack by SmokieBlahBlah (x86/x64) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734488.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 7 гарантирует вашему  высокий уровень антивирусной безопасности. Простой и надежный вариант для базовой защиты ПК от вирусов, червей, троянских программ, шпионского, рекламного и потенциально опасного ПО, руткитов и фишинг-атак.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99F5466B7AFD3D851E55318E687A9ED2A5E58FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708790   (734486) от 21.05.2014
+
+Сверхъестественное / Supernatural (2013) HDTVRip [сезон 9, серия 1-23 из 23] Kerob
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки. Как братья Винчестеры в очередной (   Читать дальше...   )Жанр: Ужасы, Фэнтези, ДетективРежиссер: Филип Сгриккиа, Джеймс Л. Конуэй, Питер ЭллисАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Марк Шеппард, Джеффри Дин Морган, Женевьев Падалеки, Синди Сэмпсон, Саманта Феррис, Митч ПиледжиПеревод: Одноголосый закадровый, любительский - KerobПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D7961A61170D0F27FB7BEEFB2DF34A444F0715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788555   (734485) от 21.05.2014
+
+ESET Smart Security + NOD32 Antivirus 7.0.317.4 RePack by SmokieBlahBlah [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734485.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 Antivirus 7 гарантирует вашему высокий уровень антивирусной безопасности. Простой и надежный вариант для базовой защиты ПК от вирусов, червей, троянских программ, шпионского, рекламного и потенциально опасного ПО, руткитов и фишинг-атак.
+
+ESET Smart Security 7 поможет сделать работу в интернете максимально защищенной и безопасной. Надежное распознавание (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912784850C2BD60BA70A6AE48D1078C927B28CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528353   (734363) от 02.02.2022
 
 В «Южном» рассказали, куда “пропал” украинский спутник «Сич-2-30»
@@ -6,7 +164,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734363.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734359.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734356.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734155.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Windows 10 PE (x86/x64) by Ratiborus v.3.2020 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734094.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ BELOFF 2022 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733891.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733890.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ Windows XP SP3 WIM Edition by SmokieBlahBlah 18.05.14 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733592.jpg" />
 </div>
 
 
@@ -220,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733590.jpg" />
 </div>
 
 
@@ -246,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733588.jpg" />
 </div>
 
 
@@ -272,7 +430,7 @@ Cafe Del Mar - Discography 133 Releases (1994-2021) [MP3|320 Kbps] <Chillout, Lo
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733471.jpg" />
 </div>
 
 
@@ -301,7 +459,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.11.5.5b4f/dlc) Repack Other s [Field Mars
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733470.jpg" />
 </div>
 
 
@@ -327,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733268.jpg" />
 </div>
 
 
@@ -353,7 +511,7 @@ ABBYY FineReader PDF 15.0.113.3886 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733248.jpg" />
 </div>
 
 
@@ -379,7 +537,7 @@ ABBYY FineReader PDF 15.0.113.3886 Corporate Full/Lite RePack by KpoJIuK [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733247.jpg" />
 </div>
 
 
@@ -405,7 +563,7 @@ Wolfenstein: The New Order [PS3] [EUR] [Ru] [4.55] [Cobra ODE / E3 ODE PRO ISO] 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733100.jpg" />
 </div>
 
 
@@ -433,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733098.jpg" />
 </div>
 
 
@@ -466,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733007.jpg" />
 </div>
 
 
@@ -492,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733002.jpg" />
 </div>
 
 
@@ -519,7 +677,7 @@ HITMAN 3 (2021) [Ru/Multi] (3.100/upd13/dlc) Repack Other s [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732994.jpg" />
 </div>
 
 
@@ -530,162 +688,6 @@ HITMAN 3 — эффектное завершение трилогии «Мир �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A277C66D3644C3CD5D34D94F0A5ACCDB518C0AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528844   (732603) от 06.02.2022
-
-В России перестал работать популярный VPN-сервис Tunnelbear
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решение о блокировке было вынесено Дюртюлинским районным судом Республики Башкортостан ещё в 2017 году, и до недавнего времени пользователям помогала опция GhostBear в настройках клиента, но теперь она не спасает ситуацию.Российские пользователи жалуются на недоступность популярного VPN Tunnelbear. Как отмечает «Roskomsvoboda. Tech Talk», блокировка на сервис была (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529113   (732592) от 06.02.2022
-
-ООН признала Москву лучшим мегаполисом в мире по качеству жизни
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организация Объединенных Наций (ООН) назвала Москву лучшим мегаполисом двум показателям: «Качество жизни» и «Уровень развития инфраструктуры».В первом оценивались сфера здравоохранения, культура и досуг, образование, наука и технологии, уровень развития инфраструктуры, безопасность и общественные пространства. Москве удалось опередить Сингапур и Гонконг. А во втором (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526935   (732584) от 06.02.2022
-
-Windows 10 21H2 + LTSC 2021 (x64) 20in1 +/- Office 2021 by Eagle123 (01.2022) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 v21H2 19044.1466, включающая в себя 5 русских и 5 английских редакции x64, с обновлениями по 01.2022, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4484BFA80564EF691EE09151C67BC6E607EB87A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528890   (732581) от 06.02.2022
-
-Свингеры (2021) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Новым годом всем хочется немного любви. Успешный бизнесмен Игорь ищет острых ощущений, а его девушка, сногсшибательная топ-модель, хочет, чтобы их отношения, наконец, вышли на новый уровень. В то же время в совершенно обычной семье Ирина жаждет снова разжечь страсть в своем муже. Вместе их всех случайно сводит приложение для обмена партнерами, и теперь предновогодняя (   Читать дальше...   )Производство: Россия, Латвия, Cinevilla Studio, Мотор Фильм СтудияЖанр: комедия, мелодрамаРежиссер: Андрейс Экис, Дмитрий ФиксАктеры: Дмитрий Нагиев, Ирина Пегова, Олеся Судзиловская, Наталья Рудова, Илья Носков, Иван Злобин, Дарья Руденок, Алексей Бояджи, Виктор КузинПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52417ABBADD0E7577A0BAF77668F7E8605BFF38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156669   (732580) от 06.02.2022
-
-Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03) License GOG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая игра от создателей Heavenly Sword, Enslaved: Odyssey to the West и DmC: Devil May Cry о путешествии в глубины легенд и безумия. В эпоху викингов измученная кельтская воительница отправляется в ужасную страну мертвых, чтобы сразиться за душу погибшего возлюбленного.Тип издания: LicenseРазработчик: Ninja TheoryЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064D8683B41F87A4F831BAE9F606C5C91F72D229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310351   (732578) от 06.02.2022
-
-Televizo  (ранее OTTplay) IPTV v1.9.3.21 [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проигрыватель для OTT IPTV телевидения. Смотрите Ваши любимые фильмы, мультфильмы, сериалы и передачи от Вашего провайдера на телевизоре, телефоне или планшете!Тип издания: Пиратка (разблокирована)Релиз состоялся: 01.02.2022Разработчик: Andrey MenscikovПоддерживаемая ОС: Android 5.0+, Android TVЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285A78F9CB79027157FF2B3B3B6D89D9E5E21325
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1124397   (785688) от 11.04.2017
+
+Chernobyl Terrorist Attack (2017) [En] (1.15) License PLAZA
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое ужасное орудие на земле – ядерное. Оно более ни разу не может быть принято на вооружение. Категория террористов завладела чернобыльский атомный реактор и грозит взорвать его. Стоимость мирного решения вопросца очень высока – 10 млрд евро, или... Или же сыщется смельчак в рядах спецназа, талантливый исключать опасность. Вы готовы сразиться в радиоактивной зоне (   Читать дальше...   )Тип издания: LicenseРазработчик: Play PublishingЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C88D9745803D6D0FC026FAE0401E5AF1F11C96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056863   (785499) от 12.04.2017
+
+Arma 2: Combined Operations (2010) [Multi] (1.62.95248.1/dlc) License GOG
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя три года после конфликта в Черноруси, изображенного в оригинальной Arma 2, новый конфликт назрел в области Зеленого моря, и силы коалиции во главе с армией США посылают в Такистан, чтобы быстро восстановить мир и предотвратить дальнейшие жертвы среди гражданского населения.
+Вы сможете опробовать себя в ролях различных бойцов армии США: от простого пехотинца (   Читать дальше...   )Тип издания: LicenseРазработчик: Bohemia InteractiveЖанр: Action (Shooter), Strategy, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AC03D5C2D0106686CFDC7189FC4112D4714B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277387   (785284) от 20.01.2019
 
 Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
@@ -6,7 +59,7 @@ Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785284.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785240.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Killing Floor 2 (2016) [Ru/Multi] (1094/dlc) SteamRip =nemos= [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784691.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Call of Duty: Modern Warfare Remastered (2016) [Ru] (1.13) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784524.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Silent Descent (2018) [En] (1.03) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784312.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784231.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Conarium (2017) [Ru/Multi] (1.0.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783952.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Kona / Kôna (2017) [Multi] (07-08-2017) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783713.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ Condemned Criminal Origins (2006) [Ru] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783708.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783279.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ Borderlands: Trilogy (2009-2014) [Ru/Multi] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783074.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ Observer / >observer_ (2017) [Ru/Multi] (1.0.0.3) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781546.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781170.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ Tropical Escape (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780445.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.9) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780161.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779837.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ Alien: Isolation (2014) [Ru/En] (1.0upd9/7dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779697.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ Hunt Down The Freeman (2018) [En] (1.0/upd1) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779167.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778890.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru/En] (16.00.20.0275) Repack R.G. Механик�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778582.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ Quadrant Episode 1-3 (2015-2016) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777843.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ Fleeting Ages (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777810.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru] (16.0.20.1060) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_777701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_777701.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ Share (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777450.jpg" />
 </div>
 
 
@@ -617,58 +670,6 @@ Share (2016) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E79835488127F11998F8C90808F57B6B288D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013766   (777051) от 05.05.2016
-
-Vortex: The Gateway (2016) [Ru/Multi] (1.1520) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vortex: The Gateway - это игра жанра "выживание в ужасе" с открытым игровым миром. Игра начинается с того, что вас засасывает в "воронку" пространства-времени, и вы оказываетесь на чуждой планете. Исследуйте, приспосабливайтесь, стройте и сражайтесь, чтобы выжить. Вы будете встречаться лицом к лицу с опасностями чуждого мира в различное время (   Читать дальше...   )Тип издания: RepackРазработчик: StormCube GamesЖанр: Action, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F256E1D396C6A56BF421202313441477DD185B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277607   (775485) от 21.01.2019
-
-Call of Duty 2 (2005) [Ru] (1.3) License 1C
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играя в Call of Duty 2, вы сможете пережить непреодолимые жизненные обстоятельства четырех различных солдат в трех игровых кампаниях. Вы можете как следовать сюжетной линии каждого из четырех героев, так и быстро перепрыгивать до важных событий, оставляя часть событий позади.Тип издания: LicenseРазработчик: Infinity Ward, Aspyr (Mac)Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF9E08C65E7B4C3717800A96764311CDC354EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

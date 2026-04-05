@@ -1,3 +1,29 @@
+###  Публикация: 1164527   (410241) от 23.09.2017
+
+Дэвид Аттенборо: Дикий город / David Attenboroughs: Wild City (2015) HDTVRip [H.264/720p-LQ] (серии 1-2 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410241.jpg" />
+</div>
+
+
+###  Подробнее
+
+На один градус севернее экватора находится маленький остров, процветающий тропический рай. А буквально из джунглей вырос один из самых динамично развивающихся городов мира - Сингапур, одна из самых густонаселенных стран на планете. Там, где когда-то были тропические джунгли, сейчас расположены 665 квадратных километров асфальта и небоскребов. Но даже при населении (   Читать дальше...   )Производство: Сингапур, Beach House Pictures Pte LtdЖанр: Документальный, научно - познавательный, фауна, флораРежиссер: Клэр КлементсПеревод: Одноголосый закадровый, профессиональный (Видеофильм - ТВ)Субтитры: отсутствуютПродолжительность: 2x~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952815C0B1A09A23DCF92E5E1B8E603BDCD0166F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557992   (406561) от 15.10.2012
 
 Сфера колдовства / La cle des champs (Das Wunder der Natur) (2011)  [H.264] BDRip
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406561.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398561.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397522.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395696.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394726.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393833.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393826.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386859.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386749.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384820.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384628.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383121.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382867.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382865.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378725.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377233.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376914.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375560.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374498.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374383.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374219.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372261.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372036.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371292.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371182.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0791A9BEE69E74D2AE8DAD982C521B58497FB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069993   (371157) от 05.11.2016
-
-Горбатые киты / Humpback Whales (2015) BDRip3D [H.264/1080p][вертикальная анаморфная стереопара][ENG]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прокомментированное дважды лауреатом премии "Золотой Глобус" Эваном МакГрегором, это - экстраординарное путешествие в сказочный мир одного из самых впечатляющих животных планеты. Съемки велись в красивейших местах Аляски, Гавайев и отдаленных берегов Тонги; во время этого приключения вы узнаете, как общаются киты между собой, как они поют, питаются, играют (   Читать дальше...   )Телекомпания: Pacific LifeЖанр: Документальный, ВидовойРежиссер: Грег МакГилвриПеревод: ОтсутствуетЯзык субтитров: английскийПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECD85527C4D44F396998C3FE7E91CED26F4B76C
 ```
 
 https://mybot314.ru/tekegram_catalog/

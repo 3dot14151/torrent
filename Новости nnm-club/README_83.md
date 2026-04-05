@@ -1,3 +1,29 @@
+###  Публикация: 1209550   (779211) от 27.02.2018
+
+Российские разработчики выпустили AR-приложение для создания голографических экскурсий
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики из России выпустили приложение MR Guide, которое позволяет любому желающему, не обладающему навыками программирования, создавать собственные голографические экскурсии и туры на очках дополненной реальности HoloLens. Конструктор позволяет интегрировать в AR-пространство любой цифровой контент, включая 360-градусные видео, фотографии, 3D-модели, текст (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209407   (779161) от 27.02.2018
 
 Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEB-DLRip [H.264] [MVO] [PR]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779161.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Nokia воскресила телефон из "Матрицы"
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779032.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779024.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778922.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778912.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778743.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ CyberGhost VPN 6.5.0.3180 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778741.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778739.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ DiRT 4 (2017) [Multi] (1.8/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778733.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.03.02 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778576.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778451.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778413.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778132.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778124.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778058.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Symantec Endpoint Protection 14.0.1 RU1 MP1 Build 3897 (14.0.3897.1101) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778035.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Linux Deepin 15.1.1 [x86-64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777767.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777707.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777689.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777429.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (03.05.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777409.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777407.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777398.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Malwarebytes Premium 3.4.4.2398 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777370.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777363.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F4A4EE05C2D9F0C0E758CA6E0A110F7E7FDE29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013498   (777021) от 05.05.2016
-
-Ирина Калмыкова | Урок № 22. Практический урок (2016) PCRec [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Использование знаний, опыта и наработок из прошлых уроков в другом варианте. Новые маленькие хитрости обработки. Объем снимка и динамика цвета. Урок не предполагает обязательного просмотра других уроков, так как содержит в себе новую информацию в полной мере.Жанр: ФотоПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CF37C5C20F6B6F0B798E61241042D2C8147B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

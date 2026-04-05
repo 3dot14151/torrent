@@ -1,3 +1,32 @@
+###  Публикация: 1263573   (286450) от 20.11.2018
+
+Anubis Gate - Covered In Black (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychotopia (6:41)
+02. The New Delhi Assassination (3:16)
+03. The Combat (5:43)
+04. Too Much Time (7:35)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE5A087DA63E7518A48E6EB75F9BB693A8F2CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263470   (286444) от 20.11.2018
 
 Vanden Plas - The God Thing (1997) Reissue, Special Edition, 2004, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +35,7 @@ Vanden Plas - The God Thing (1997) Reissue, Special Edition, 2004, Inside Out Mu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286444.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Deafheaven - New Bermuda (2015) [FLAC|Lossless|image + .cue] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286439.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dreamshade - Vibrant (2016) [MP3|320 Kbps] <Modern Melodic Death Metal, Metalcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286435.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Funeral Suits - Islands Apart (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286431.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Witchery - I Am Legion (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286403.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nordic Union - Second Coming (2018) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286318.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Holter - Vlad The Impaler (2018) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286307.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Conjonctive - Until The Whole World Dies... (2013) [FLAC|Lossless]<Blackened Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286306.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ Luke Combs - This One's For You Too (2018) Deluxe Edition [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286298.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ The Brew - 7 Albums (2008 - 2018) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286273.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Royal Hunt - Show Me How To Live (2011) [MP3|320 kbps]<Melodic Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286249.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Elvis Presley - Christmas With Elvis And The Royal Philharmonic Orchestra (2017)
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286204.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Hollow Coves - Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286188.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ The Score - Pressure • Stay (2019) EPs [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286175.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ The Rockets - Back Talk / Rocket Roll (1981,1982) 2005, Remastered [WavPack|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286105.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ P.O.D. - Circles (2018) Mascot Records [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286093.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ The Cog is Dead - Steam Powered Stories (2010) [MP3|128 kbps]<Steampunk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285971.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Bitcrush - From Sinking (2015) [FLAC|Lossless|WEB-DL|tracks]<Post Rock, Ambient,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285949.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ Revolution Saints - Light In The Dark (2017) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285862.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ Good Rats - Ratcity In Blue (1976) Remastered, 1998, Uncle Rat Music [MP3|320 к
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285798.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ Growl - Growl (1974) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285789.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ Sister Whiskey - Liquor & Poker (1993) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285783.jpg" />
 </div>
 
 
@@ -651,7 +680,7 @@ Jesus Culture - 12 Live albums (2006-2018) [MP3|234-320 кб/с]<Praise & Worshi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285742.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Louna - Дивный новый мир (2016) [MP3|320 Kbps] <Alternative Rock, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285701.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Quatermass / Quatermass II - 2 альбома, 3CD (1970-1997) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285656.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ Quatermass / Quatermass II - 2 альбома, 3CD (1970-1997) [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E4BE687FF2E19D2BD8118F8AC203CECA1F824B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081175   (284894) от 09.12.2016
-
-Loya - Aimovoria (2016) [MP3|320 Kbps] <Alternative Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aster 02:58
-02. Crimson 04:49
-03. Vitaly 04:43
-04. Void 04:32(   Читать дальше...   )Жанр: Alternative Metal, Post-RockПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E219B181C2D2602F129763B1BEEAA1E5C75F5553
 ```
 
 https://mybot314.ru/tekegram_catalog/

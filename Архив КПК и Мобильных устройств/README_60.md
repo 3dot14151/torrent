@@ -6,7 +6,7 @@ V Recorder - Запись видео с экрана 6.5.3 Mod by Mixroot [Ru/Mu
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515517.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FolderPlay v.1.8 [Программа] (S9.2-S9.4, S^3)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515409.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515312.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514269.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mosquito Simulator 2015 v1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513874.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513702.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Goblin Defenders 2 v1.6.308 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513647.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513502.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512716.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512657.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ QKSMS - Quick Text Messenger 3.9.4 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512403.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512399.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512179.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ TelInfoNumber / Информация о номере v 3.4 - 1.7.33 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511635.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Clime: Прогноз погоды и Радар 1.53.1 Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511476.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Lark Player - YouTube Music & Audio Player 5.31.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511453.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511452.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ OGWhatsApp 16.20 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511437.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511314.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511216.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511161.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511066.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Infinite Flight Simulator v15.08.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510711.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510534.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510449.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510321.jpg" />
 </div>
 
 

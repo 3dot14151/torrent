@@ -6,7 +6,7 @@ VA - 101 Hits Jukebox Classics (5CD) (2018) [MP3|320 Kbps] <Pop, Rock, Disco, So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381612.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marie Laforet - L'integrale Festival 1960/1970 (1998) [MP3|320 kbps]<French pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381247.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - Underground Nu-Disco Sessions Vol.7 (2016) [MP3|320 Kbps] <Soulful, Nu Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380612.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Caelestium - Caelestium (1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378946.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Patrick Juvet - 2 Albums (1978, 1979) Reissue CD [MP3|320 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378823.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Workout Music Tv - 40 Best Pop Hits For Step 2020 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378724.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Gym Music 2020 - Best fitness songs [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378710.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Frida Gold - Alina (2016) [MP3|320 Kbps] <Pop, Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378306.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Best of 2016 - Die Hits des Jahres (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378163.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - High Life - 20 Original Top Hits (1979) LP [MP3|320 Kbps] <Electronic, Pop-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378162.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Anastacia - It’s a Man’s World (2012) [MP3|320 кб/с]<Pop,Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377875.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - 100 Hits - The Best Nineties Album (2018) 5CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377372.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Monster Halloween Hits (2010) 3CD [MP3|320 кб/с]<Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377340.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ NK (Настя Каменских) - No Komments (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377279.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Carla Bruni - Carla Bruni (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376854.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Laura Branigan - The Complete Atlantic Albums (2019) [MP3|320 Kbps] <Pop, Pop Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376619.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Robbie Williams - The Heavy Entertainment Show (2016) Deluxe Edition [MP3|320 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375477.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Whitney Houston - I Will Always Love You-The Best of Whitney Houston (2012) [MP3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375341.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Vanessa Carlton - Liberman (2015) 2CD Deluxe [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375128.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Taco - Puttin' On The Ritz (2000) CD, Compilation [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375122.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374345.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Cook County - Pinball Playboy (Playboy Theme) (1979) LP [MP3|320 Kbps] <Disco, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374344.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Christian Kolonovits - 3 Albums (1976-1984) LP Collection [MP3|320 Kbps] <Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374176.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Ricchi E Poveri - The Best Dance Remixes (2015) [MP3|320 кб/с]<Dance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372581.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Bat & Ryyd - Ehtaa Tavaraa (1989) Reissue CD, Snap Records, 2000 [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372174.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370897.jpg" />
 </div>
 
 

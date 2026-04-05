@@ -1,3 +1,55 @@
+###  Публикация: 1057559   (472385) от 29.09.2016
+
+The Long Dark  (2014) [Ru/Multi] (365) Repack Ученик_77
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое The Long Dark? The Long Dark - это исследовательская игра-симулятор выживания, в которой игроки-одиночки должны позаботиться о себе в ходе изучения обширных морозных необитаемых территорий. Здесь нет зомби - только вы, холод и все, что вам может предложить мать-природа.Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Pусский, Английский и другиеЯзык интерфейса: Pусский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DB416DDAD56AF1916EE81DCCE98D029AE60720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547602   (471517) от 16.09.2012
+
+Free Running [English] [PAL] (2009) [Wii]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Free Running – это симулятор паркура. Более 60 различных испытаний, разбросанных по 10 уровням в 3 городских зонах, каждая со своим стилем геймплея. 9 игровых режимов, включая "гонку", "трюки" и "собирание целей". Free Running предлагает нам реальных спортсменов, движения которых переносятся в игру при помощи последних достижении в области motion-capture. В игре вы сможете попробовать все головокружительные пируэты, которые вытворяют мастера паркура.Жанр: Simulator / SportЯзык озвучки: EnglishЯзык интерфейса: English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30730FA745F7FE2C41DF2A774FE0AC20346FA761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547782   (471256) от 16.09.2012
 
 Batman: Arkham City Game of the Year Edition + 6 DLC [Ru] (RePack) 2011 | R.G. World Games
@@ -6,7 +58,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru] (RePack) 2011 | R.G. W
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471256.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Alan Wake Дилогия [Ru/En] (Repack) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471100.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Black Mesa [Ru/En] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471077.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Dark Sector [Ru] (LossLess RePack) 2009 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470935.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Twisted Metal [PS3] [ENG] [NTSC] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470923.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ SCP - Containment Breach [En] (RePack/0.3) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470907.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ MotoGP 15 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470737.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Dark Souls: Prepare To Die Edition [Ru/En] (Repack/1.0.0.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468545.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Invisible, Inc. (2015) [Ru/En] (173288/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467991.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Du Super Wario Bros [English] (2011) [Wii]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466577.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ War for the Overworld (2015) [Ru/Multi] (1.2.1/dlc) Repack SpaceX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466293.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ Max Payne 3 [PS3] [RUS] [PAL] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466177.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465948.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Sorcerer King (2015) [En] (1.2) Repack leve1ord
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465935.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464822.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru] (1.02) RePack YelloSOFT [Delux
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464421.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Borderlands 2 [En] (Repack/1.0) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464354.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464317.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ Borderlands 2 [En] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464210.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ Prelude of the Chambered (2011) [En] (1.0) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464149.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ Jet Set Radio HD [En/Multi4] (L) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463922.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ Renowned Explorers: International Society (2015) [En] (1.0.192) SteamRip R.G. И
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463798.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ Tony Hawk's Pro Skater HD [En] (Repack) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462738.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462375.jpg" />
 </div>
 
 
@@ -644,60 +696,6 @@ NVIDIA видеокарты полностью поддерживаются, и 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549001   (462003) от 20.09.2012
-
-F1 2012 [En] (P) 2012 | FAIRLIGHT
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462003.jpg" />
-</div>
-
-
-###  Подробнее
-
-F1 2012 — это новая часть всемирно известной серии гоночных симуляторов. В этой игре каждый игрок сможет почувствовать себя настоящим гонщиком Formula 1. Вам предстоит не только участвовать в гонках, но и давать интервью репортерам, совершенствовать свой болид, налаживать отношения со своей командой и делать все, чтобы стать гонщиком номер один!
-В режиме чемпионов вас встретят настоящие гонщики — Кими Райкконен, Льюис Хэмилтон, Дженсон Баттон, Фернандо Алонсо, Себастьян Феттель и Михаэль Шумахер. Обойдя каждого в напряженной схватке, вы сможете доказать свое превосходство и стать обладателем титула чемпиона.
-В игре присутствуют все официальные команды, гонщики и трассы из чемпионата Formula 1 2012-го года.(   Читать дальше...   )Тип издания: ПираткаЖанр: Racing / Simulator / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D59AC8504D9CBD9D90997D7FE309243232408C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548947   (461883) от 20.09.2012
-
-Pro Evolution Soccer 2013 [Ru/Multi6] (L) (2012) | SKIDROW
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro Evolution Soccer 2013 – продолжение знаменитой серии симуляторов футбола от японской компании Konami. Игра предложит полную свободу контроля над мячом, полностью ручные пассы и удары, пониженную скорость дриблинга, больше контроля над вратарями, а также улучшенный искусственные интеллект.(   Читать дальше...   )Тип издания: ЛиценияЖанр: Sport (Soccer) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Шведский, Голландский, Турецкий, Арабский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69AFAAA4FBA6FFC099EEC1F4A6EA0599545DFA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

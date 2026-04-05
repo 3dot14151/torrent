@@ -1,3 +1,90 @@
+###  Публикация: 931356   (512928) от 25.08.2015
+
+Styx - Gold (2006) 2CD [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Collar Man (Long Nights)
+02. Sing For The Day
+03. Renegade
+04. Pieces Of Eight(   Читать дальше...   )Жанр: RockПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545AEBFEB1572F4E10F61ACD7614EA56B1B12AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931102   (512920) от 25.08.2015
+
+Pop Evil - Up (2015) Deluxe Edition [OGG| 383-544 кб/с]<Alternative Rock, Hard Rock, Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footsteps
+02. Core
+03. In Disarray
+04. Take It All(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post GrungeПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E5ACF5DABA79863ED075097D4E60420C99A8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931179   (512867) от 25.08.2015
+
+Наутилус Помпилиус - Концерт в Москве (2013) [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся в ДК МЭЛЗ, Москва, 1987 г.01. Эпиграф (Разлука)   [2:43]
+  02. Мальчик зима   [2:26]
+  03. Стриптиз   [7:35]
+  04. Казанова   [4:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB779B35549E570C3DC6CEB929000EBCC447E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242508   (512818) от 24.08.2018
 
 U.D.O. - Steelfactory (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
@@ -6,7 +93,7 @@ U.D.O. - Steelfactory (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512818.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Horned Wolf - Set Your Kings On Fire (2016) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512601.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Toblakai - Puritans Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512599.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Patriarchs In Black - Reach for the Scars (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512597.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Ellison Effect - Atmospheric Metal (2022) [MP3|320 Kbps] <Atmospheric Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512595.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ The Order Of Elijah - Accession (2012) [MP3|320 кб/с]<Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512594.jpg" />
 </div>
 
 
@@ -184,7 +271,7 @@ Toblakai - The Book of the Fallen (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512593.jpg" />
 </div>
 
 
@@ -213,7 +300,7 @@ Lunear - Curve.Axis.Symmetry. (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512592.jpg" />
 </div>
 
 
@@ -242,7 +329,7 @@ Marlugubre - Maladie (2022) [MP3|320 Kbps] <Death Metal, Post-Black, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512591.jpg" />
 </div>
 
 
@@ -271,7 +358,7 @@ Pili Coit (Pili Coït) - Love Everywhere (2021) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512590.jpg" />
 </div>
 
 
@@ -300,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512589.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Zeremony - Survivin' Rock'n'Roll (2022) [MP3|320 Kbps] <Hard Rock Tradition>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512587.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512586.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Phish - Lawn Boy (1990) [MP3|320 кб/с]<Progressive rock, Jazz-Rock, Fusion, A
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512534.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Blind Channel - Lifestyles Of The Sick & Dangerous (2022) [FLAC 2.0|44/24|WEB-DL
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512518.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512517.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Bad/Love - Life Imitates Art (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512515.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Altaria - Wisdom (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodic Power Metal, Har
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512514.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Bruce Cockburn - Greatest Hits (1970-2020) 2 x CD, Compilation, 2021, True North
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512510.jpg" />
 </div>
 
 
@@ -564,7 +651,7 @@ Neil Young with Crazy Horse - Toast (2022) [FLAC 2.0|192/24|WEB-DL|tracks] <Rock
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512501.jpg" />
 </div>
 
 
@@ -593,7 +680,7 @@ Phish - Lawn Boy (1990) / Elektra / [FLAC|Lossless]<Progressive rock, Rock, Jam,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512466.jpg" />
 </div>
 
 
@@ -627,7 +714,7 @@ Secret Signs - For A Lifetime (2012) [MP3|320 кб/с]<Gothic Metal, Female Voca
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512464.jpg" />
 </div>
 
 
@@ -656,7 +743,7 @@ Bente Smaavik - 1979-2011 (2012) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512462.jpg" />
 </div>
 
 
@@ -676,93 +763,6 @@ Bente Smaavik - 1979-2011 (2012) [MP3|320 кб/с]<Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:762FE5DEFD38396E2E1366BC0B4BBBD3EFE4E6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561774   (512455) от 07.07.2022
-
-VA - Rock Playlist (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foals - 2am (3:44)
-02. Royal Blood - Honeybrains (3:06)
-03. Biffy Clyro - Mountains (3:20)
-04. Staind - It's Been Awhile (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 03:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E52FB9BC595329A63035026A51BE54BAE66A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562127   (512450) от 07.07.2022
-
-Powerwolf - The Monumental Mass - A Cinematic Metal Event (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue / Monumental Mass Theme (3:03)
-02. Faster Than the Flame (3:37)
-03. Venom of Venus (4:01)
-04. Stossgebet (3:53)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9233327DC50F5FC3D15399B6C80655121A9C3287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562037   (512449) от 07.07.2022
-
-Neorhythm - Anthropo (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Math Metal, Grrove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Savant (00:04:38)
-02 - Ignoramus (00:03:32)
-03 - Reformer (00:04:29)
-04 - Villain (00:03:24)(   Читать дальше...   )Жанр: Modern Death, Math Metal, Grrove MetalПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E636B72C52CCC73BC552F7C1AA514E392E4E0405
 ```
 
 https://mybot314.ru/tekegram_catalog/

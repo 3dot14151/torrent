@@ -1,3 +1,56 @@
+###  Публикация: 1511674   (788832) от 21.11.2021
+
+Fantastical 2 v2.5.16 fix [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.
+Основным отличием от аналогичных программ такого типа, является возможность добавления события на естественном (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2020Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9629D6195FB47C54B03E66313E3908236C10B8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203094   (788596) от 01.02.2018
+
+Tipard Mac Video Converter Ultimate 9.1.28 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите скачать видео с YouTube, Vimeo и других веб-сайтов по обмену видео на Mac? Вам нужно копировать и конвертировать DVD/видео в любые популярные форматы видео, такие как MP4, FLV, AVI? Вы хотите преобразовать 4K видео в 4K/1080p, конвертировать 2D видео в 3D-формат? Или хотите повернуть или улучшить качество видео, чтобы получить неожиданный визуальный эффект? (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2018Разработчик: Tipard StudioПоддерживаемая ОС: OS X 10.5 или вышеЯзык интерфейса: English, French, German, Japanese
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27282FAEF91E2FBD7A588BAD15955B9E972F7BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511848   (788384) от 22.11.2021
 
 FotoJet Photo Editor 1.0.7 [Multi]
@@ -6,7 +59,7 @@ FotoJet Photo Editor 1.0.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788384.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ MonitorControl 4.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788382.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ FotoJet Designer 1.2.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788380.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ SwitchGlass 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788363.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ FxFactory Pro 7.2.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788350.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ WinZip Pro 6.5.4149 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788109.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Wondershare Data Recovery 6.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788013.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Shapes 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787956.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ InternetSpeedTest 2.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787877.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ OmniPlan Pro 3 v3.10.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787875.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Devonthink Pro Office 2.11.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787873.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ Pixelmator Classic 3.9.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787856.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ MP3 Cutter Joiner 6.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787842.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ Reallusion Cartoon Animator 4 v4.51 Pipeline macOS [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787831.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ Folx GO+ 5.26 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787773.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ OmniPlan Pro 3.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787679.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ PaintCode 3.3.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787677.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ TunesKit Audio Capture 2.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787624.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ TunesKit Video Cutter 2.0.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787623.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ Arturia Pigments 1.1.1.503 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787616.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ JPEGmini Pro 2.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787504.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ Infinite Color Panel 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787442.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Visible Body Muscle Premium 7.1.56 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787361.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ Visible Body Anatomy & Physiology 6.2.07 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787347.jpg" />
 </div>
 
 
@@ -630,59 +683,6 @@ Visible Body Anatomy & Physiology 6.2.07 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:532A6F964A52012A2E9A21B27353BBE58C9A2C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276810   (787251) от 18.01.2019
-
-Hedge 18.3.9 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Резервное копирование и проверка файлов
-Есть много вариантов, когда речь заходит об утилитах копирования и проверки. Одна из новейших программ, называется Hedge For Mac. Hedge For Mac позволяет пользователю создавать несколько резервных копий своих мультимедийных носителей и полностью проверять эти копии. Программа использует очень простой пользовательский интерфейс, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: hedgeformacПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AE6FB57EFFDC657200255CE0E6F7593BAABFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276916   (787240) от 18.01.2019
-
-Silverstack Lab 6.4.9 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Silverstack Lab - это первое программное обеспечение, которое позволяет одновременно обрабатывать и  управлять данными и создавать ежедневные заметки в одном инструменте. Резервное копирование видеозаписей может быть надежно организовано и прозрачно - в то же время можно создавать ежедневные газеты. Благодаря такому одновременному подходу все цифровые активы становятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Pomfort GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8424BEF7D91D02217F3E13A3C9FFFE1D9F856EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

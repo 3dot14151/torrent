@@ -1,3 +1,59 @@
+###  Публикация: 950871   (365502) от 28.10.2015
+
+Журнал | Твоя Юла №11 (ноябрь 2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский познавательный журнал:
+- викторины;
+- комиксы;
+- страшилки;(   Читать дальше...   )Жанр: Журнал для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5506124B5F0C090309280EEF159DBA91B129DEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951189   (365486) от 28.10.2015
+
+Журнал | Каникулы с Золотой антилопой №11 (63) (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский познавательный и развивающий журнал.
+В номере: лабиринты с секретом, картинки из Зазеркалья, ребусы, шарады, кроссворды.Жанр: Журнал для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A93A7C43A9280C3703C967E683A01872810714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416797   (365258) от 17.10.2020
 
 Ольга Епифанова | Самая первая энциклопедия. Животные фермы (2014) [PDF]
@@ -6,7 +62,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365258.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365257.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365253.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365217.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365200.jpg" />
 </div>
 
 
@@ -143,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364949.jpg" />
 </div>
 
 
@@ -170,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364796.jpg" />
 </div>
 
 
@@ -197,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364733.jpg" />
 </div>
 
 
@@ -224,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364364.jpg" />
 </div>
 
 
@@ -251,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364314.jpg" />
 </div>
 
 
@@ -278,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364113.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363870.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363867.jpg" />
 </div>
 
 
@@ -356,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363670.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363662.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363625.jpg" />
 </div>
 
 
@@ -437,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363485.jpg" />
 </div>
 
 
@@ -463,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363480.jpg" />
 </div>
 
 
@@ -490,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363467.jpg" />
 </div>
 
 
@@ -519,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363203.jpg" />
 </div>
 
 
@@ -545,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363187.jpg" />
 </div>
 
 
@@ -571,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363153.jpg" />
 </div>
 
 
@@ -599,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363013.jpg" />
 </div>
 
 
@@ -627,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363008.jpg" />
 </div>
 
 
@@ -640,58 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37B34BBCB13E26B8048993B5613DB363BB51D5D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416994   (362844) от 18.10.2020
-
-Р.Л. Тоалсон | Лесной хозяин (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь мир Леноры переворачивается с ног на голову, и она вынуждена отправиться жить к чудаковатому родственнику – дяде Ричарду. Тот живёт в богатом поместье. Дядя вечно занят и лишь запрещает племяннице ходить в лес – больше из него и слова не вытянешь. Очень скоро одиночество и печаль по прошлому приводят девочку именно туда, куда ей не велят ходить, – к загадочной (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: А. Ф. РодинаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80E77F99A178D2ACF5EC1CDD24BFCE5D9CE9386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417082   (362842) от 18.10.2020
-
-Виктор Бакурский | Детская энциклопедия РОСМЭН. Танки (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга знакомит юных читателей с удивительным миром танков. Автор рассказывает не только об их почти столетней истории и самых интересных образцах, об участии в двух мировых войнах и ряде локальных конфликтах, но и о легендарных бронированных машинах, оказавших наибольшее влияние на ударную мощь бронетанковых соединений и на развитие бронетанковой техники. Книга (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1A67D85B9240FAF3E2FF569C6B4F67A0853659
 ```
 
 https://mybot314.ru/tekegram_catalog/

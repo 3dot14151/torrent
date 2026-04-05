@@ -1,3 +1,55 @@
+###  Публикация: 1842012   (1048367) от 14.12.2025
+
+Антон Павлович Чехов, Николай Васильевич Гоголь, и др. | Сборник радиоспектаклей №4 (1953-2010) [MP3, Исполняет театральный коллектив]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая повесть Н.В. Гоголя "Нос" хорошо известна российскому читателю. Наверное, все помнят историю, приключившуюся в Санкт-Петербурге с коллежским асессором Ковалевым (предпочитавшим именоваться майором): мало того, что пропавший с его лица Нос загадочным образом оказался в свежевыпеченном хлебе, - так он еще в роли статского советника важно разъезжал (   Читать дальше...   )Жанр: аудиоспектакльИздательство: Радио «Петербург»Формат: аудиоспектакль, MP3, 192kbpsПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850E91E06F4DFA8F7BBE701968F8FE5F8D717C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841450   (1048183) от 19.12.2025
+
+Аркадий и Георгий Вайнеры, Гилберт Кийт Честертон, и др. | Сборник радиоспектаклей №1 (2005-2012) [MP3, Коллектив исполнителей театров]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патер Браун, благодаря своим незаурядным способностям сыщика успешно расследует преступления.Жанр: Детектив, радиоспектакльИздательство: Студия «Звуковая книга»Формат: аудиоспектакль, MP3, 192kbpsПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2124DBBDAA57607E27F645A6CED28BE41196298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841654   (1048085) от 12.12.2025
 
 Галина Чередий, Алёна Нефёдова | Уха из петуха (2025) [MP3, Марина Филиппова]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048085.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048081.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048058.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047600.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047595.jpg" />
 </div>
 
 
@@ -146,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047476.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047426.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047077.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ SergeyWolfram | Чуть - чуть знаменит или Дальше буд�
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044432.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039868.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039863.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038538.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033989.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033985.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033619.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032577.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032575.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032353.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031869.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031203.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031195.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013532.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010181.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009955.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37D68DE350016C25384820A42CAD60B7F944016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479493   (1009557) от 24.06.2021
-
-Лидия Канг, Нэйт Педерсон | История шарлатанства. Краткий обзор худших способов лечения с древности до наших дней (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009557.jpg" />
-</div>
-
-
-###  Подробнее
-
-«История шарлатанства» доктора медицины Лидии Канг и журналиста Нэйта Педерсена – это история худших способов лечения, которые практиковались врачами, целителями и мошенниками с древности до наших дней. Сегодня многие из этих способов кажутся нам невероятными: представьте себе времена, когда врачи прописывали опиум при младенческом плаче, ртуть при желтой лихорадке (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 09:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B3FD5D4592AB87AA1274A9B61985D02DF55F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479439   (1009556) от 24.06.2021
-
-Марк Форсайт | Краткая история пьянства от каменного века до наших дней (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009556.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Краткая история пьянства» – это история давнего романа Homo sapiens с алкоголем. В каждой эпохе – от каменного века до времен сухого закона – мы найдем ответы на конкретные вопросы: что пили? сколько? кто и в каком составе? А главное – зачем и по какому поводу? Попутно мы познакомимся с шаманами неолита, превратившими спиртное в канал общения с предками, поприсутствуем (   Читать дальше...   )Жанр: Общая история, Популярно об историиПродолжительность: 06:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DCC7A4DD7E21B309A663D83CD08C947DB8427C
 ```
 
 https://mybot314.ru/tekegram_catalog/

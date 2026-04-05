@@ -1,139 +1,3 @@
-###  Публикация: 1426000   (216088) от 23.11.2020
-
-Сибирская Благозвонница (изд.) | Людоед 20 века. Л.Д. Троцкий (2012) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Репрессии в России в 20–30-ые годы ХХ столетия, угасившие духовно и разорившие экономически Российскую державу – мирового лидера, и поныне подвергаются анализу. Сторонники Льва Троцкого, коих во всём мире тысячи тысяч, утверждают, что Россию постигло бы меньшее зло, если бы её возглавил не Сталин, а Троцкий. Своё мнение об этой исторической альтернативе излагает (   Читать дальше...   )Жанр: История. Документальная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C06A726FF6246600ADDF4531CD54364151AE1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343806   (216032) от 07.12.2019
-
-Карло Ровелли | Нереальная реальность. Путешествие по квантовой петле (2020) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216032.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Карло Ровелли – это человек, который сделал физику сексуальной, ученый, которого мы называем следующим Стивеном Хокингом». – The Times Magazine
-
-Что есть время и пространство? Откуда берется материя? Что такое реальность?
-(   Читать дальше...   )Жанр: Научно-популярная литература, ФизикаПеревод: Александр СергеевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F949D61308A24F01696EF1DB3D0F38BE858DC3EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343627   (216010) от 07.12.2019
-
-М. Л. Смолянский (ред.) | Пособие по математике для поступающих в техникумы (1978) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материалы, изложенные в пособии, полностью соответствуют существующей программе по математике для 5—8 классов средней школы.
-
-Пособие состоит из двух частей. Первая часть посвящена алгебре. В ней разъясняются, в частности, понятия множества, натурального числа, действительного числа и функции. В ней рассказывается также об операциях над множествами и о построении (   Читать дальше...   )Жанр: История, науковедение, математикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD1990FB41B96EB2B8C3B80FE0B4AD8E4A6AF4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426039   (215998) от 23.11.2020
-
-Книжная серия | Научно-популярная медицина [9 книг] (2018-2020) [EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Научно-популярная медицина» – это объединение ряда изданий по общему для них характеру, обладающих единой тематической линией.
-Медицина - это не бюро халявных добрых дел по первому требованию. Это не означает, что вы можете курить, пить бензин и жрать пирожки с помойки, а потом придёт белый халат и всё исправит быстро, бесплатно и в любое время, чтоб вы могли (   Читать дальше...   )Жанр: Биографии и мемуары, Популярно о медицине, Истории из жизниФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F8598ECF2744145E12921840F349F953BF313A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652942   (215983) от 13.08.2023
-
-В.Т. Базылев, К.И. Дуничев, В.П. Иваницкая и др. | Сборник задач по геометрии (1980) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник задач по геометрии для студентов педагогических институтов содержит около 1900 задач и упражнений, охватывающих все разделы программы по геометрии для пединститутов. Он рассчитан на обеспечение задачным материалом теоретического курса, изложенного в пособии «Геометрия», I и II, написанном авторским коллективом в составе В. Т. Базылева, К. И. Дуничева, В. (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D6EC2FC90523D77D18719C215A0E9DF4473ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967050   (215947) от 19.12.2015
 
 Джон Кейжу | Открытия, которые изменили мир (2015) [FB2]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215947.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215914.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215832.jpg" />
 </div>
 
 
@@ -221,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215797.jpg" />
 </div>
 
 
@@ -247,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215779.jpg" />
 </div>
 
 
@@ -276,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215645.jpg" />
 </div>
 
 
@@ -302,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215571.jpg" />
 </div>
 
 
@@ -329,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215520.jpg" />
 </div>
 
 
@@ -355,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215456.jpg" />
 </div>
 
 
@@ -381,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215317.jpg" />
 </div>
 
 
@@ -408,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215312.jpg" />
 </div>
 
 
@@ -434,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215307.jpg" />
 </div>
 
 
@@ -460,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215253.jpg" />
 </div>
 
 
@@ -488,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215235.jpg" />
 </div>
 
 
@@ -514,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215004.jpg" />
 </div>
 
 
@@ -541,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215000.jpg" />
 </div>
 
 
@@ -569,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214971.jpg" />
 </div>
 
 
@@ -595,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214828.jpg" />
 </div>
 
 
@@ -623,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214745.jpg" />
 </div>
 
 
@@ -649,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214641.jpg" />
 </div>
 
 
@@ -676,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214543.jpg" />
 </div>
 
 
@@ -687,6 +551,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2BABFF831300760D23B84798C95268937FF9075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084509   (214541) от 21.12.2016
+
+А. В. Гулыга | Что такое необходимость и что такое случайность (1959) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое явление всегда вызывается к жизни каким-то другим явлением. Беспричинных явлений, действительно, нет. Любое событие имеет за собой длинный ряд причин. И все же случайности существуют. Случайность — это то, что может быть, а может и не быть, может быть так, а может быть иначе. Со случайностями человек сталкивается на каждом шагу. Он случайно встречает на улице (   Читать дальше...   )Жанр: История, философия, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9523F3CA6BC6E1C890C3DA270A2A13B800C56A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344054   (214536) от 08.12.2019
+
+Барбара Такман | Загадка XIV века (2019) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214536.jpg" />
+</div>
+
+
+###  Подробнее
+
+XIV век – переломное время. Одно из самых мрачных и загадочных столетий не только во французской, но и в европейской истории. Время «авиньонского пленения» пап, Столетней войны, пандемии «Черной смерти», которая унесла жизни трети населения Европы, короткой и кровавой Жакерии и расцвета множества причудливых ересей. Время насилия и беззакония, голода и разорения, (   Читать дальше...   )Жанр: ИсториографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD42CDABA94D13A9A7D22CFFD070B6241228F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586673   (214495) от 28.10.2022
+
+А.А. Самарский, А.В. Гулин | Численные методы (1989) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются основные принципы построения и исследования численных методов решения на ЭВМ различных классов математических задач. Наряду с традиционными разделами, такими как интерполирование, численное интегрирование, методы решения задач Коши для обыкновенных дифференциальных уравнений, большое место в книге занимают разностные методы для уравнений в частных производных (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D863C8CEDE299E369B590CFC641896BEF9612CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343866   (214489) от 08.12.2019
+
+С.А. Бельков | Прикладное программирование с использованием языка С-Шарп (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие предназначено для студентов-бакалавров, уже прошедших ранее курс изучения языка программирования С++ и приступающих теперь к изучению языка нового программирования С-Шарп (C#). Основное внимание уделено особенностям практического освоения нового языка программирования.
+Данное пособие будет полезно для студентов средних курсов, обучающихся разработке (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6519EAFE59999A4135BF6F2133A29F0291E612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514857   (214430) от 04.12.2021
+
+Анна Гандрабура | English For Tech (2021) [PDF] [En]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый современный электронный учебник английского для IT индустрии с акцентом на business English и soft skills.
+Вы научитесь:
+- Общаться с командой и заказчиками
+- Как исправить частые ошибки в грамматике и произношении(   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F737BAF0892229F577CA6AD0DBD7BE4F37B6855
 ```
 
 https://mybot314.ru/tekegram_catalog/

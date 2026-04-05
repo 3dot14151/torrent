@@ -1,3 +1,159 @@
+###  Публикация: 1669564   (131113) от 08.12.2023
+
+Трюффо и Годар: великая дуэль / Truffaut - Godard: scenario d'une rupture (2015) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трюффо и Годар - не только главные режиссеры новой волны, но и хорошие друзья. Что именно их объединяло и как разные взгляды на кино разрушили их дружбу?Производство: ФранцияЖанр: документальный, история, кинематографРежиссер: Клер Дюге, Арно ГигеПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9176264B4BB3726DFA7575C6FF026BFFD4A2BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666243   (131086) от 08.12.2023
+
+Туризм против природы / Tourisme contre nature (2021) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли совместить туризм, охрану окружающей среды и уважение к местному населению? Лето 2020 года в Квебеке. В разгар пандемии департамент Гаспези посещает почти миллион туристов. Приемная способность региона быстро перенасыщается, пляжи и общественные места заполнены, а иногда и разорены... Вернемся к событиям тех дней.Производство: Канада, TV5MONDE EuropeЖанр: документальный, туризм, экологияРежиссер: Жан ГенеттПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод компании Hiventy by TransPerfect), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE9B89FF6D799015F800C4FBF5620009231C0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682763   (131074) от 08.12.2023
+
+Дикие Канарские острова / Wild Canary Islands (2021) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131074.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самом сердце лазурной Атлантики дрейфует древний архипелаг вулканического происхождения - Канарские острова. Горные ландшафты островов стали родиной уникальной флоры и фауны.Производство: Испания, Terra IncognitaЖанр: документальный, природа, флора, фаунаРежиссер: Хуан Антонио Р. ЛьяноПеревод: одноголосый профессиональный (1 ТВЧ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AC1FD5074BEED9C47EFD329F970C40893DC88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665142   (131052) от 08.12.2023
+
+Кто убил Джилл Дандо? / Who Killed Jill Dando? (2023) WEBRip [H.264/720p] (сезон 1, серии 1-3 из 3) [VO]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131052.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1999 году в Лондоне произошло шокирующее убийство известнейшей телеведущей новостей и криминальных программ Джилл Дандо. У следствия не было никаких зацепок, но подозреваемый все-таки был найден. Дело дошло до суда и убийца понес заслуженное наказание. Но, кажется, что-то пошло не так...Производство: Великобритания, 42, Empress FilmsЖанр: документальный, криминал, история, детективРежиссер: Маркус ПлоурайтУчастники: Гарет Сноу, Филип Ральф, Барри Джордж, Винс ВильямсПеревод: одноголосый любительский (Crimecast)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDB02A3BA248FAFCA60FBF44EE1E66E4D06C8CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669720   (131040) от 08.12.2023
+
+Тинторетто: Бунтарь в Венеции / Tintoretto. A Rebel in Venice (2019) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музейное шоу рассказывает историю художника Якопо Робусти, получившего прозвище Тинторетто ("сын красильщика"), с первых лет его творческой карьеры до самой смерти. Художник ни разу не покинул стены Венеции, даже в дни суровых испытаний. Тинторетто пережил страшную эпидемию чумы 1575 года, истребившую большую часть населения. Именно в это время живописец (   Читать дальше...   )Производство: Италия, Sky Arts Production Hub, ExceptЖанр: документальный, история, искусствоРежиссер: Джузеппе Доминго РоманоУчастники: Хелена Бонэм Картер, Питер Гринуэй, Мелания Гайя МаццуккоПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C74A69578AE03902101C10D3CADA81475066ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667359   (131038) от 08.12.2023
+
+Франция: невероятное путешествие / France, le fabuleux voyage (2021) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131038.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Франции с геологической точки зрения. Мы проследим как на протяжении нашего путешествия длиною в 2 миллиарда лет горный массив становится Бретанью, лагуны предшествуют Парижу, лед горной вершины Эгюий-дю-Миди тает, образуя русла рек...Производство: Франция, TV5MONDE Europe, Bons Clients, LesЖанр: документальный, история, геологияРежиссер: Мишель ПитьоУчастники: Филипп ТорретонПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод М.Лабори, компания Hiventy), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 01:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64EB5EBE7E6FD9FBF2B7A54A195F77A1C10A49E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669717   (131034) от 08.12.2023
 
 Пикассо. Траектория цвета: от голубого к розовому / Picasso, metamorphoses in Blue and Rose / Picasso, metamorphoses en bleu et rose (2018) SATRip [H.264]
@@ -6,7 +162,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131034.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131028.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131021.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131012.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131010.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131000.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130998.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130953.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130942.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130936.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130877.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130844.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130805.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130781.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130424.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130416.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130404.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130244.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130223.jpg" />
 </div>
 
 
@@ -502,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130214.jpg" />
 </div>
 
 
@@ -513,163 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F6F8C61EC5D97D9ED674951842D616814B64DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525053   (130130) от 19.01.2022
-
-History Channel: Тайны древности: Магия и чудеса Ветхого Завета / Ancient Mysteries: Mysteries of the Bible. Magic and Miracles of the Old Testament (1998) DVDRip
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130130.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Библии с помощью различных чудес Бог появляется перед людьми и заставляет их поверить в себя, воодушевляет людей или насылает несчастья на их врагов. Однако, в Книге Книг не употребляется слово "чудо" при описании этих захватывающих событий. Чудеса в Библии всего лишь часть истории, все это могло происходить на самом деле. Возможно ли это, и как объяснить (   Читать дальше...   )Производство: США, Filmroos Inc., A&E Television Network (History Channel)Жанр: документальный, альтернативная историяРежиссер: Брэм Рус, Бад Вайзер, Трейси Бергер, Сьюзен ЛутцПеревод: двуголосый профессиональный (Кипарис)Субтитры: отсутствуютПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE963401E5C5C19032502FBBDD1AF4098B2AC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525216   (130030) от 19.01.2022
-
-Фаберже: предметы вожделения / Faberge: les objets du desir (2021) HDTVRip [H.264] [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карл Густав Фаберже (1846-1920), царский ювелир - гений, который нарушил законы традиционного ювелирного дела, мастерски создав целое направление, насчитывающее более двухсот тысяч экземпляров. Среди них императорские яйца, заказанные Александром III, которые представляют собой своеобразную летопись жизни Романовых.Производство: Франция, Martange Production, TV5MONDE Europe HDЖанр: Документальный, история, искусствоРежиссер: Жан-Пьер КоттеПеревод: субтитрыЯзык озвучки: французскийСубтитры: Русские (неотключаемые, Hiventy)Продолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45920611A118D79AD336D6BA9D39CC4EB00524BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670646   (129998) от 09.12.2023
-
-Геймплей: История революции видеоигр / Gameplay: The Story of the Videogame Revolution (2015) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие тысячелетия человечество обходилось без компьютерных игр. Когда это изменилось, мир навсегда стал иным. Это история обо всем, что произошло после. Всего лишь за 50 лет индустрия игр прошла путь от точек на экране до трехмерной графики, не уступающей голливудским блокбастерам. Игры не только развлекали нас, но и изменили сам наш подход к умным машинам. Вызывающие, (   Читать дальше...   )Производство: СШАЖанр: документальный, история, кинематографРежиссер: Ричард ГолдгевичтПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 01:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C577474DF451E08D73F750E134CD150B1957099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683134   (129986) от 09.12.2023
-
-Экстрасенсы. Битва сильнейших (09.12.2023) WEBRip [H.264/1080p] (сезон 1, выпуск 27)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129986.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом шоу ТНТ «Экстрасенсы. Битва сильнейших» за право стать лучшим сражаются самые яркие участники легендарной «Битвы экстрасенсов». Самые сильные победители и финалисты «Битвы» приняли вызов продюсеров и согласились еще раз доказать свои способности.
-«Экстрасенсы. Битва сильнейших» – это турнир, в котором лучшие из лучших показывают свою силу и эзотерические (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2198CA9696A022DFE6221078D94510460FF83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670760   (129928) от 09.12.2023
-
-Без ума от Мадонны / Crazy for Madonna (2018) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляд на биографию иконы музыки и Голливуда, Мадонны, прозванной королевой поп-музыки. Ее выдающаяся карьера охватывает более четырех десятилетий. Не боясь споров и осуждений, Мадонна навсегда изменила историю поп-культуры.Производство: США, Sabbatical EntertainmentЖанр: документальный, история, биография, музыкаРежиссер: Карла ДуартеУчастники: Офелинда ГарсияПеревод: двуголосый профессиональный (SDI Media Россия)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B15DB1D8D95AF40D4C357EFF46677CC509DE194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670755   (129895) от 09.12.2023
-
-Жан Кокто, ложь и правда / Jean Cocteau, mensonges et verites (1997) DVDRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129895.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждого — свой Жан Кокто: Годар вспомнит «банду четырёх» и серые мундиры Оккупации, Ходоровски — Кокто-«сюрреалиста», Робише — театрального Кокто, Бабиле — балетного. Марэ вспомнит, как Кокто разделялся при письме на мыслителя и секретаря, выглядя при этом как убийца. Симсоло складывает из этих высказываний чёткий образ поэта — но не сухаря, который марает бумагу (   Читать дальше...   )Производство: ФранцияЖанр: документальный, история, искусствоРежиссер: Ноэль СимсолоУчастники: Жан Кокто, Жан-Люк Годар, Алехандро Ходоровски, Жан Маре, Анри АлеканПеревод: многоголосый профессиональный (СВ Дубль)Язык озвучки: русскийСубтитры: русские, английские (отдельным файлом)Продолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7B213C0F59AAD0A92DD983CD6DBAB8D8F608CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358028.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357663.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357517.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357402.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357396.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357388.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355490.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Осенний марафон № 201 / Видеоклипы (Популя�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353150.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350586.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350427.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348212.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347839.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345434.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345255.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Осенний марафон № 202 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344068.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ ZAZ (2010-2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342779.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341230.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340940.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340462.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Suzi Quatro (vol.1) (2012) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340453.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Suzi Quatro (vol.2) (2012) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340347.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Leanna Decker - Killer (2011) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340212.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338054.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DJ Sub - Resident Evil VS Silent Hill (Dubstep video Mix) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337927.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ DVJ Bazuka - Breakin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337699.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VA - Осенний марафон № 203 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336896.jpg" />
 </div>
 
 

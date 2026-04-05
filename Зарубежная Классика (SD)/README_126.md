@@ -1,3 +1,56 @@
+###  Публикация: 1779871   (27475) от 16.02.2025
+
+Колонна / Columna (1968) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27475.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 106-м году нашей эры никто и не помышлял о развале Римской империи. После решающей битвы пала столица даков, и императору Траяну принесли отрубленную голову дакийского царя Децебала.
+Во имя семьи, во имя любви, во имя чести - и после страшной гибели своего царя даки вновь поднимаются на битву с римлянами.Производство: Италия, Германия (ФРГ), Румыния / CCC Filmkunst GmbH, Studioul Cinematografic BucurestiЖанр: мелодрама, историяРежиссер: Мирча ДрэганАктеры: Ричард Джонсон, Антонелла Луальди, Иларион Чобану, Амедео Наццари, Штефан Чуботарашу, Флорин Пьерсик, Амза Пелля, Сидония Манолаке, Эмиль Ботта, Франко ИнтерленгиПеревод: Дублированный, киностудия «Мосфильм»Язык озвучки: Русский, румынскийСубтитры: АнглийскиеПродолжительность: 02:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C74677CFF968A1868E7996BE2361D31F1A4859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780137   (27212) от 18.02.2025
+
+Добро пожаловать, мистер Маршалл / Bienvenido Mister Marshall / Welcome Mr. Marshall! (1953) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27212.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, произошедшая в небольшом испанском городе Вильяр дель Рио, жители которого узнают о приезде американских дипломатов и начинают готовиться к приему ради того, чтобы поразить своих гостей в надежде получить помощь по плану Маршалла.Производство: Испания / Unión Industrial CinematográficaЖанр: комедияРежиссер: Луис Гарсия БерлангаАктеры: Лолита Севилья, Маноло Моран, Хосе Исберт, Альберто Ромеа, Эльвира Кинтилья, Луис Перес де Леон, Феликс Фернандес, Фернандо Агирре, Хоакин Роа, Николас Д. ПерчикотПеревод: Многоголосый профессиональный ("СВ Дубль" по заказу т/к "Культура")Язык озвучки: Русский, испанскийСубтитры: отсутствуютПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AB379AECC09BE3D46B7DEF994FE8BA08803E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 252078   (27169) от 19.02.2025
 
 Плата за страх / Le salaire de la peur (1952) DVDRip [Цветной]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27169.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26442.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26194.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25875.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25601.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25258.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24712.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23958.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23784.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23480.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22243.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21963.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21648.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21359.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21177.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20772.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20589.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20560.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20504.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19723.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19462.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19238.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19115.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18259.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F506323DFDFAA8D2E04FD6175630877A98DC032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795357   (18129) от 16.05.2025
-
-Афера Томаса Крауна / The Thomas Crown Affair (1968) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бостонский миллионер Томас Краун разрабатывает план гениального ограбления банка, считая, что всё сойдёт ему с рук. Уставший быть частью истеблишмента, он надеется провернуть дельце и улететь в Рио. Эрвин Вивер - один из банды грабителей, которые ни разу не встречались с Крауном, организовавшим ограбление без единой зацепки. Краун кладёт три миллиона украденных долларов (   Читать дальше...   )Производство: США / Simkoe, Solar Productions, The Mirisch CorporationЖанр: Триллер, драма, мелодрама, криминалРежиссер: Норман ДжуисонАктеры: Стив МакКуин, Фэй Данауэй, Пол Бурк, Джек Уэстон, Бифф МакГуайр, Эддисон Пауэлл, Астрид Хирен, Гордон Пинсент, Яфет Котто, Сидни АрмусПеревод: Многоголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88ACD2C38DBAA1373F0FFC0016F540B300AF8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795975   (17700) от 20.05.2025
-
-Потише, басы! / Doucement les basses (1971) HDTVRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17700.jpg" />
-</div>
-
-
-###  Подробнее
-
-После гибели жены в результате несчастного случая известный музыкант Симон Медьё становится священником и уезжает в отдалённую небольшую деревню. Спустя несколько лет в церкви появляется незнакомый мужчина, который представляется мужем погибшей жены Симона и сообщает ему, что женщина жива и приехала вместе с ним.Производство: Италия, Франция / Франция, Италия / Adel Productions, Medusa DistribuzioneЖанр: комедияРежиссер: Жак ДерэАктеры: Ален Делон, Натали Делон, Поль Мёрисс, Жюльен Гиомар, Андре Болле, Поль Пребуа, Миранда Кампа, Филипп Кастелли, Серж Даври, Карло НеллПеревод: Многоголосый профессиональный ("ФильмЭкспорт")Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2A11A5D257AB751D9F488CE343B36ECB70B7A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

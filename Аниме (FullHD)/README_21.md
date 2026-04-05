@@ -6,7 +6,7 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740418.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740301.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Free! / Free! Iwatobi Swim Club / Вольный! [2013, TV, 12 + 3sp] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739548.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки Буранки [2016, TV, 12 из 12] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739359.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Courtesy of Zettai Karen Children: The Unlimited - Hyoubu Kyousuke | The Unlimit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739221.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739073.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Shinreigari | Shinrei Kari | Ghost Hound | Охота на призраков [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738934.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Kyoukai no Rinne | Rin-ne | Риннэ: Меж двух миров [2015, TV, 75
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738702.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Bubuki Buranki: Hoshi no Kyojin | BBK/BRNK: The Gentle Giants of the Galaxy | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737604.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sakurada Reset | Sagrada Reset | Переустановка Сакурады [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737594.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Seisen Cerberus: Ryuukoku no Fatalite | Святой воин Цербер: Бе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737587.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ World Trigger | Импульс мира [2014, TV, 73 из 73] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736568.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Action Heroine Cheer Fruits | Фруктовые героини [2017, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736112.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ookiku Furikabutte: Natsu no Taikai-hen | Замахнись сильнее: Л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735271.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Handa-kun | Ханда [2016, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734276.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733527.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Maison Ikkoku: Bangaihen Ikkokujima Nanpa Shimatsuki | Maison Ikkoku: Deserted I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733430.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Maison Ikkoku: Shiki Utsuriyuku Kisetsu no Naka de | Maison Ikkoku: Through the 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733387.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Kuro no Sumika -Chronus- / Чёрные сущности -Хронус- [2014, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732741.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Blade Runner: Black Lotus | Бегущий по лезвию: Чёрный ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732591.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Bishoujo Senshi Sailor Moon R / Sailor Moon R Movie: Promise of the Rose + SP / 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731724.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730711.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Fate/Kaleid Liner Prisma Illya Zwei! | Судьба: Девочка-волшеб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730449.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Classroom Crisis | Кризис в классе [2015, TV, 13 + 1sp] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730024.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Kuma miko | Kumamiko: Girl Meets Bear | Жрица и медведь [2016, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729975.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729018.jpg" />
 </div>
 
 

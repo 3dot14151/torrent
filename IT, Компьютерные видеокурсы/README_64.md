@@ -1,32 +1,3 @@
-###  Публикация: 1175637   (378174) от 18.10.2017
-
-Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем собственный STL (2017) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записи лекций летней C++ школы от Unigine в исполнении Андрея Аксёнова.
-
-Бесплатный онлайн-курс программирования на С++ для продвинутых.
-01 Курс - Пишем собственный STL:(   Читать дальше...   )Производство: UNIGINEЖанр: Программирование, С++Продолжительность: 14:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8F08657123B7BDAB86760BE5681913AE186D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175150   (378061) от 18.10.2017
 
 Udemy | The Complete Angular Course: Beginner to Advanced (2017) PCRec [H.264/720p-LQ] [EN]
@@ -35,7 +6,7 @@ Udemy | The Complete Angular Course: Beginner to Advanced (2017) PCRec [H.264/72
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378061.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378014.jpg" />
 </div>
 
 
@@ -92,7 +63,7 @@ Academind Pro | Vue 3 - Полное руководство (включая Rout
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378004.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377912.jpg" />
 </div>
 
 
@@ -149,7 +120,7 @@ WayUp | Веб-верстальщик. Код фрилансера (2017) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377910.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377904.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377903.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ FructCode, Sergei Nikonov | Курс HTML/CSS - Интерактивный ку�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376480.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ ITVDN | Сборник бесплатных вебинаров (2014 - 2015) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376405.jpg" />
 </div>
 
 
@@ -290,7 +261,7 @@ FrontendConf 2020 | Профессиональная конференция фр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375761.jpg" />
 </div>
 
 
@@ -319,7 +290,7 @@ Oleg Lav | Бесплатная антивирусная программа Pand
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374756.jpg" />
 </div>
 
 
@@ -345,7 +316,7 @@ IT Education Center | Linux для новичков (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373979.jpg" />
 </div>
 
 
@@ -371,7 +342,7 @@ Embacy | Курс вёрстки на Webflow (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372312.jpg" />
 </div>
 
 
@@ -400,7 +371,7 @@ Udemy, Drozdov Sergey | Робот для торговли криптовалю�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372311.jpg" />
 </div>
 
 
@@ -426,7 +397,7 @@ Udemy, Yuri Popov | Unreal Engine — полное руководство по �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372300.jpg" />
 </div>
 
 
@@ -454,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371429.jpg" />
 </div>
 
 
@@ -481,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371403.jpg" />
 </div>
 
 
@@ -510,7 +481,7 @@ software-testing.ru | Организация функционального те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371296.jpg" />
 </div>
 
 
@@ -536,7 +507,7 @@ Udemy, Виктор Черемных | Настройка MikroTik и CISCO Fire
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370061.jpg" />
 </div>
 
 
@@ -562,7 +533,7 @@ software-testing.ru | Техники и инструменты поиска и �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369234.jpg" />
 </div>
 
 
@@ -591,7 +562,7 @@ tocode.ru | Курс по vue.js - с нуля до про (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368999.jpg" />
 </div>
 
 
@@ -620,7 +591,7 @@ JUG Ru Group | Heisenbug 2022 Spring. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367983.jpg" />
 </div>
 
 
@@ -647,7 +618,7 @@ Oleg Lav | ZoneAlarm Free Firewall — Фаервол для вашего ком
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367204.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366858.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ JUG Ru Group | Hydra 2022. Concurrent and distributed computing conference / Hyd
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366178.jpg" />
 </div>
 
 
@@ -714,6 +685,32 @@ Hydra - это техническая конференция, на котору�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8E306FC4A9B0C3670AECB12C3BD66CAA92362F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575402   (365121) от 16.11.2012
+
+Видеоурок | Технология ремонта блока питания ATX [2012] WEB-DLRip [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блок питания персонального компьютера преобразует сетевое переменное напряжение 220 вольт 50 герц в постоянное напряжение плюс пять и плюс двенадцать вольт которые используются для питания цифровых схем. Вам представлен один из вариантов ремонта блока питания. Приятного просмотра.Жанр: ВидеоурокПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B3CEAF9B1ABD01DB88526B5277D6181E775462
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1021036   (742423) от 28.05.2016
+
+VA - Music For Everyone - Vocal Trance & Progressive Vol.5 (2016) [MP3|320 кб/с] <Trance, Vocal Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742423.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ellie Lawson with Adrian&Raz - A New Moon (MozQe Bootleg)
+2. Gregory Esayan - Triumph (Original Mix)
+3. Johan Vilborg & Jeza - Sweet Disaster (Original Mix)
+4. Marsbeing feat. Matvey Emerson - With Me (Dub Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive TranceПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0039A0E37D6BFBB86F0BCB3947E0B75B9D867B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282798   (742345) от 14.02.2019
+
+VA - The Last Sun Rays (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742345.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adаm Whitе - Timе Stооd Still
+002. Kеурlауеr & Alеxаndrа Bаdоi - Run Awау
+003. Alеxаndеr Pороv, Nаtаliе Giоiа - Nоthing Is Ovеr
+004. Andу Mооr & Sоmn - Frее Fаll (Extеndеd Mix)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 09 :18 :01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7844CE6B9C65BA7056DEF688B467E108342756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217540   (742264) от 05.04.2018
 
 VA - Trance 100 World Fashion (2018) [MP3|320 Kbps] <Harmonic, Emotional, Tuneful>
@@ -6,7 +64,7 @@ VA - Trance 100 World Fashion (2018) [MP3|320 Kbps] <Harmonic, Emotional, Tunefu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742264.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Yoga Spirits: Wellness Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741083.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - DabSTEP Mistik MiX by zXz. Vol.1 (2013-2014) [MP3|192 кб/с] <DubStep, Gl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740993.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Psy Trance Timewarp (2018) [MP3|320 Kbps] <Psy Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740946.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Неформатная Электронная Музыка Vol.1 [Compiled 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740680.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740262.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ VA - Hits of My Soul Vol. 44 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740145.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739724.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739672.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ VA - Soulful Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739662.jpg" />
 </div>
 
 
@@ -300,7 +358,7 @@ VA - Empire Records - Red Star 4 (2019) [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739524.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ VA - Empire Records - Red Star 5 (2019) [MP3|320 Kbps] <SpaceSynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739520.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ VA - Flower Sound Chill House (2019) [MP3|320 Kbps] <Chill, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739476.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Tony Birch - Introspective Waves (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739128.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Space - Space Symphony (2022) 2CD Compilation [MP3|320 Kbps] <Electronic, Space 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738990.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ VA - Lounge At The Seashore 12 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738756.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ VA - Basstronix (2022) [MP3|320 Kbps] <Drum & Bass, Bassline, Electro Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738146.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ VA - Beatport Trance: Sound Pack #398 (2022) [MP3|320 Kbps] <Trance, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738145.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ Evgene Ikonnikov - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738127.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ VA - Progressive Trance Sound Party (2020) [MP3|320 Kbps] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737601.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737561.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ VA - Beatport Chill House: Electro Sound Pack #129 (2020) [MP3|320 Kbps] <Chill 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737549.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ VA - DUB Tropical House: World Electro Sound (2020) [MP3|320 Kbps] <Dub House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737545.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ VA - Beatport Progressive House: Sound Pack #130 (2020) [MP3|320 Kbps] <Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737523.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ VA - Beatport Progressive House: Sound Pack #130 (2020) [MP3|320 Kbps] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D12037644E4D3B96C4F1DDA66CB952D358DC61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397689   (737516) от 22.07.2020
-
-VA - Beatport Tech House: Electro Sound Pack #135 (2020) [MP3|320 Kbps] <Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Nexus - Space
-02. Mind Against - Above It All
-03. Deemkeyne - Effectivity
-04. Techno Red - Tradition(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 06:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14209DEE34D09ED3D972195234134615BD98E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397687   (737512) от 22.07.2020
-
-VA - Beatport Tech House: Electro Sound Pack #131 (2020) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737512.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Max Sabatini - Into The Sunrise
-002. Black Casta - Freddys Coming
-003. Rich Mode - Feel So Good
-004. Franx - Return(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742E27BA0C7D1F0F7E3FF57CB1EBEC5576C3510E
 ```
 
 https://mybot314.ru/tekegram_catalog/

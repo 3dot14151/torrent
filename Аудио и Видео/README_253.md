@@ -6,7 +6,7 @@ VA - Trip to Munich Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Chillout;
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180841.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Pop Vocal Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Chillout; Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180832.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mirko Hirsch - Missing Pieces: Return to Neon (Special Edition) (2020) [AAC|~347
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180195.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Cinderella, vol. 3 (50 Lovely Lounge Cookies) (2019) [AAC|~329 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180123.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Cinderella, vol. 2 (50 Lovely Lounge Cookies) (2019) [AAC|~313 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180114.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Modern Blues (2020) [AAC|~313 Kbps] <Rock, Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180087.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Blues Masters (2020) [AAC|~310 Kbps] <Rock, Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180073.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Cinderella, vol. 4 (50 Lovely Lounge Cookies) (2019) [AAC|~324 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180062.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Cinderella, vol. 1 (50 Lovely Lounge Cookies) (2019) [AAC|~326 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180044.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Deezer Best Of: Top Russia 2020 (2020) [AAC|~318 Kbps] <various>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179992.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179313.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179151.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179143.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179106.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179045.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rammstein - Herzeleid (XXV Anniversary Edition - Remastered) (2020) [AAC|~361 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179016.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ad Infinitum - Chapter I: Monarchy (2020) [AAC|~328 Kbps] <Power Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178520.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ad Infinitum - Chapter I Revisited (2020) [AAC|~338 Kbps] <Power Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178441.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Armada Christmas Dinner Mix (2020) [AAC|~312 Kbps] <Pop, House, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178402.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178362.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178352.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178350.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Winter Lounge Mood: Chillout Your Mind (2020) [AAC|~308 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177701.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - All Night Jazz: Chillout Your Mind (2020) [AAC|~317 Kbps] <Lounge, Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177683.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177632.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176786.jpg" />
 </div>
 
 

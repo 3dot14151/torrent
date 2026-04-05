@@ -1,3 +1,56 @@
+###  Публикация: 1840302   (1047112) от 04.12.2025
+
+Ночной дозор (2004) BDRip [AV1/1080p-LQ] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что на ночных улицах опасно. Но в данном случае речь идет не о преступниках и маньяках. Когда наступает ночь, и силы Зла властвуют безраздельно, можно столкнуться с теми, с кем не встретишься днем — темными магами, вампирами и прочей нечистью. Их сила столь велика, что справиться с ними обычным оружием невозможно.
+Но по следу «ночных охотников» идут те, (   Читать дальше...   )Производство: Россия / Первый канал, Кинокомпания Таббак, Базелевс-ПродакшнЖанр: фэнтези, боевик, триллерРежиссер: Тимур БекмамбетовАктеры: Константин Хабенский, Владимир Меньшов, Валерий Золотухин, Мария Порошина, Галина Тюнина, Гоша Куценко, Алексей Чадов, Жанна Фриске, Илья Лагутенко, Виктор ВержбицкийСубтитры: Русские (forced)Продолжительность: 01:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C86F8D0717A74175234E5E1A75C90CE9C4960E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840170   (1047060) от 03.12.2025
+
+Серые волки (1993) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм интерпретирует факты и события смещения Н. С. Хрущева. Параллельно с исторической хроникой развивается драматическая история человека, попытавшегося раскрыть тайну заговора и остановить развитие событий.Производство: Россия / Мосфильм, СоюзкиноЖанр: боевик, биография, историяРежиссер: Игорь ГостевАктеры: Ролан Быков, Владимир Самойлов, Лев Дуров, Петр Вельяминов, Александр Белявский, Богдан Ступка, Александр Мохов, Александра Захарова, Александр Потапов, Владимир Трошин, Евгений ЖариковСубтитры: отсутствуютПродолжительность: 01:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F0E2BF4FAA5F8BD4EF9338181B26FBD60A89EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840048   (1047057) от 02.12.2025
 
 Мишень (2011) BDRip [H.264/720p]
@@ -6,7 +59,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047057.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046933.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046914.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046850.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046740.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046739.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046729.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046700.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046680.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046623.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046606.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046580.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046519.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046518.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046369.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046302.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046297.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046295.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046292.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046290.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046238.jpg" />
 </div>
 
 
@@ -544,32 +597,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 765890   (1046163) от 04.01.2023
-
-Золото (2012) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судебный пристав предъявляет семье Брагиных иск по карточным долгам пропавшего брата. Для расчётов — два месяца. Или Гордея, как брата должника ждёт арест и тюрьма. Выход один — бросить всё и бежать. Всех спасает золотая жила. Прииск быстро приносит богатство: теперь Гордей — золотопромышленник! Но новая беда — ещё хуже: деньги! Их слишком много! Все хотят получить (   Читать дальше...   )Жанр: Драма, КомедияРежиссер: Андрей МармонтовАктеры: Сергей Безруков, Ирина Скобцева, Андрей Мерзликин, Михаил Пореченков, Анна Герман, Максим Шибаев, Любовь Куликова, Владимир Кабалин, Алексей Шемес, Дарья МихайловаПродолжительность: 01:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BF00621EA83E33AFFA04EAB86D30F81572B5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 238960   (1046161) от 04.01.2023
 
 Медвежий поцелуй (2002) DVDRip
@@ -578,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046161.jpg" />
 </div>
 
 
@@ -605,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046095.jpg" />
 </div>
 
 
@@ -631,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045969.jpg" />
 </div>
 
 
@@ -642,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C351D9CB2C5C81061BF3435EB93219E1207734E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603136   (1045790) от 08.01.2023
-
-Ёлки-иголки (2022) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катя — ландшафтный дизайнер. 31 декабря она развозит новогодние елки заказчикам. Последняя елочка из невыполненного заказа могла бы стать единственным Катиным гостем на Новый год, но мама полна решимости познакомить дочь с молодым человеком. Чтобы избежать этой участи, девушка соглашается встретить дядю, своего соседа из Чикаго. С этого момента для нее начинается (   Читать дальше...   )Производство: Россия / Продюсерский центр Киностудии им. М. Горького, ООО «МАЙВЭЙСТУДИЯ»Жанр: комедия, семейныйРежиссер: Александр БаршакАктеры: Алина Алексеева, Павел Прилучный, Оскар Кучера, Гарик Сукачев,  Дмитрий Калихов, Анастасия Веденская, Владислав Ветров, Агриппина Стеклова, Владимир Гарцунов, Александр ОбласовСубтитры: русские (Forsed Hardsub), русские (Full отдельно)Продолжительность: 01:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D8243FAC9A4FFE55DE04B0110579094A3221BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

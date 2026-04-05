@@ -1,3 +1,119 @@
+###  Публикация: 1556193   (561525) от 08.06.2022
+
+Joe Bouchard (ex-Blue Oyster Cult) - American Rocker (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Way is The Highway (00:02:45)
+02 - In The Golden Age (00:03:44)
+03 - Deadly Kisses (00:04:04)
+04 - Love Out of Thin Air (00:04:03)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C0CD016BF1646AE9CB062CDDF1C58B1BE1D199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556154   (561524) от 08.06.2022
+
+Reeper - Rise of Chaos (2021) Deluxe Edition, 2022, Art Gates Records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rebound (00:03:35)
+02 - Save Me (00:03:30)
+03 - Home (00:04:03)
+04 - Let It Go (00:03:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard, Desert, Stoner RockПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0A56A67D5B0B6A641A07BDB8477455624E3FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556286   (561519) от 08.06.2022
+
+Roadside Gamblers - Rust, Smoke & Gasoline (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rust, Smoke & Gasoline (04:10)
+02. The Witch (04:32)
+03. Before I Lay in My Grave (04:10)
+04. Farewell (04:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DBE59E68FDAC9752520D9FBC46F4E30A49FA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044833   (561395) от 22.08.2016
+
+Joe Satriani - Original Album Classic (1986 - 1998) 5CD Box set, 2008, Epic [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not of This Earth (4:04)
+ 02. The Snake (4:43)
+ 03. Rubina (5:57)
+ 04. Memories (4:06)(   Читать дальше...   )Жанр: Rock, Hard Rock, InstrumentalПродолжительность: 04:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1604A9717B7EACEF918DF96B62F7F8A44909548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045184   (561392) от 22.08.2016
 
 Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 1990, Polydor [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +122,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 1990, Polydor [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561392.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Voiceless Void - Vampire - Another Side Of Death (2005) [FLAC|Lossless]<Gothic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561237.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ Jimmy LaFave - Texoma (2001) [MP3|320 кб/с]<Rock, Folk, Americana>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561042.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ Year Of The Goat - The Unspeakable (2015) [MP3|320 кб/с]<Occult Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561039.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ Jess And The Ancient Ones - Jess And The Ancient Ones (2012) [FLAC|Lossless]<Psy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560971.jpg" />
 </div>
 
 
@@ -160,7 +276,7 @@ Rachael Yamagata - Happenstance (2004) [MP3|320 кб/с]<Soft Rock, Pop Rock, In
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560921.jpg" />
 </div>
 
 
@@ -189,7 +305,7 @@ Blur (Seymour) - 21 (Limited Edition, Box Set) (2012) [MP3|320 kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560733.jpg" />
 </div>
 
 
@@ -225,7 +341,7 @@ Finger Eleven - Five Crooked Lines (2015) [MP3|320 кб/с]<Alternative Rock, Po
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560645.jpg" />
 </div>
 
 
@@ -254,7 +370,7 @@ Jimi Hendrix - Sir James Marshall - Gypsy On Cloud Nine (1986) 2LP [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560619.jpg" />
 </div>
 
 
@@ -289,7 +405,7 @@ Masfel - Angyaltojas (2000) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560521.jpg" />
 </div>
 
 
@@ -318,7 +434,7 @@ VA - Hospital Hungary (2005) Приложение #083 к журналу Stereo 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560469.jpg" />
 </div>
 
 
@@ -347,7 +463,7 @@ A Sound Of Thunder - It Was Metal (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560445.jpg" />
 </div>
 
 
@@ -376,7 +492,7 @@ Dare - Out Of The Silence II (Anniversary Special Edition) (2018) [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560261.jpg" />
 </div>
 
 
@@ -405,7 +521,7 @@ Chemical Breath - Values (1994) [FLAC|Lossless|image + .cue] <Death-Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560206.jpg" />
 </div>
 
 
@@ -434,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560119.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Sean Feucht - Key of David (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Christian Pop 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559967.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Valley of the Sun - Old Gods (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559929.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Wind Rose - Warfront (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Folk Power Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559868.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Dirt - Deadbeat (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559855.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ DGM - The Passage (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559834.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Keys - Keys (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard, Prog Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559732.jpg" />
 </div>
 
 
@@ -643,7 +759,7 @@ Dead Register - Alive (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559731.jpg" />
 </div>
 
 
@@ -657,122 +773,6 @@ Dead Register - Alive (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Gothic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5670983F17E33F6B3991CEDA9EFE5964EB4679DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556445   (559727) от 09.06.2022
-
-Nekonomicon - Nekonomicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nintendocore, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559727.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Those Creatures from Ganon are Pretty Bad
-2. Ghost Maze Project
-3. Dismantled
-4. One-Winged Angel of Death(   Читать дальше...   )Жанр: Nintendocore, Metalcore, ElectronicПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D843C9E786ED60363B4107F8F4321E0FA0EC57DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556364   (559722) от 09.06.2022
-
-Ronni Le Tekro - Bigfoot TV (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life On Long Island (05:08)
-02. Demons (04:35)
-03. Moving Like a Cat (04:14)
-04. The Black Rose (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A558E22C60BB100A9E3B0FE129AB8AC31087171E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153274   (559698) от 26.07.2017
-
-VA - Rock 'N' Roll Britannia (2016) Box Set, 3CD [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полезно в жизни возвращаться к истокам. Не замутненные последующими наслоениями они (истоки) позволяют взглянуть на обыденные вещи совершенно с другой стороны. И это новое зрение влечет за собой иные не менее разумеющиеся открытия. И приходит понимание, что вся сущая музыка в этом мире имеет в себе отблеск тех далеких 50-60-х, которые собственно и сформировали сегодняшнюю (   Читать дальше...   )CD1:
-01. Cliff Richard - Twenty Flight Rock  (1:47)
-02. Marty Wilde - Sea Of Love  (2:26)
-03. Adam Faith - High School Confidential  (2:23)(   Читать дальше...   )Тип издания: Box Set, 3CDРелиз состоялся: 5 Aug. 2016Жанр: RockПродолжительность: 02:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D84A9A8FAB8173F1FDDA3E036CE00535052C39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045347   (559694) от 23.08.2016
-
-Hellbringer - Awakened From The Abyss (2016) [MP3|320 Kbps] <Thrash Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Of The Cross
-02. Coven Of Darkness
-03. Realm Of The Heretic
-04. Iron Gates(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B913D66A84393DBF8F9EDFA9D02C3C3FCF55FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

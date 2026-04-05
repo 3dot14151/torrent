@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941436.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941432.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941430.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940266.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940119.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939388.jpg" />
 </div>
 
 
@@ -155,68 +155,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 283903   (938422) от 18.01.2011
-
-Александр Солженицын | Двести лет вместе (1795 - 1995) Часть II. [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_938422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть труда Александра Исаевича Солженицына. Она охватывает период революций и советское время.  Эта книга может перевернуть ваши представления о сосуществовании двух наций - евреев и русских.
-
-"Искренно стараюсь понять обе стороны. Для этого – погружаюсь в события, а не в полемику. Стремлюсь показать. Вступаю в споры лишь в тех неотклонимых случаях, где справедливость покрыта наслоениями неправды. Смею ожидать, что книга не будет встречена гневом крайних и непримиримых, а наоборот, сослужит взаимному согласию.
-Я надеюсь найти доброжелательных собеседников и в евреях, и в русских.
-Автор понимает свою конечную задачу так: посильно разглядеть для будущего взаимодоступные и добрые пути русско-еврейских отношений. "
-А. И. СолженицынЖанр: История
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A4DA71F4D5644094AEB6D6BD6B64FDFB603824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283893   (938413) от 18.01.2011
-
-Александр Солженицын | Двести лет вместе.(1795 - 1995). Часть I. [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_938413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Александра Исаевича Солженицына «Двести лет вместе» — это попытка рассмотрения такого большого и интересного явления, как сосуществование двух народов — русского и еврейского — на протяжении двух веков российской истории.
-
-"Искренно стараюсь понять обе стороны. Для этого – погружаюсь в события, а не в полемику. Стремлюсь показать. Вступаю в споры лишь в тех неотклонимых случаях, где справедливость покрыта наслоениями неправды. Смею ожидать, что книга не будет встречена гневом крайних и непримиримых, а наоборот, сослужит взаимному согласию.
-Я надеюсь найти доброжелательных собеседников и в евреях, и в русских.
-Автор понимает свою конечную задачу так: посильно разглядеть для будущего взаимодоступные и добрые пути русско-еврейских отношений. "
-А. И. СолженицынЖанр: История
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60739F3754304A102505C9F5787B52B7F37CC0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985661   (934080) от 12.02.2016
 
 Георгий Марков | Сибирь (2016) [MP3]
@@ -225,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934080.jpg" />
 </div>
 
 
@@ -251,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933999.jpg" />
 </div>
 
 
@@ -279,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930935.jpg" />
 </div>
 
 
@@ -305,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929295.jpg" />
 </div>
 
 
@@ -331,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929268.jpg" />
 </div>
 
 
@@ -357,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929170.jpg" />
 </div>
 
 
@@ -384,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929159.jpg" />
 </div>
 
 
@@ -412,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929053.jpg" />
 </div>
 
 
@@ -438,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927653.jpg" />
 </div>
 
 
@@ -464,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926902.jpg" />
 </div>
 
 
@@ -491,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925902.jpg" />
 </div>
 
 
@@ -517,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924590.jpg" />
 </div>
 
 
@@ -543,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924500.jpg" />
 </div>
 
 
@@ -569,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924498.jpg" />
 </div>
 
 
@@ -596,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924482.jpg" />
 </div>
 
 
@@ -623,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921013.jpg" />
 </div>
 
 
@@ -649,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921008.jpg" />
 </div>
 
 
@@ -675,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921002.jpg" />
 </div>
 
 
@@ -686,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B440E026638AD36B3E7F7A158E767BBBCE22682E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988783   (920959) от 20.02.2016
+
+Сергей Марков | Люди великой цели (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920959.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первый том избранной прозы Сергея Маркова вошли широкоизвестный у нас и за рубежом роман «Юконский ворон» – об исследователе Аляски Лаврентии Загоскине. Примыкающая к роману «Летопись Аляски» – оригинальное научное изыскание истории Русской Америки. Представлена также книга «Люди великой цели», которую составили повести о выдающемся мореходе Семене Дежневе и знаменитых (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 14:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00524C77484F5A8C32DCBF5AEFE36FD43FF2D21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988482   (920697) от 20.02.2016
+
+Исай Калашников | Жестокий век (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Исая Калашникова - широкое художественное полотно, выдержанное в традициях русской реалистической прозы. Оно воссоздает красочную картину жизни монголов в конце XII - начале XIII века. В центре романа образ Тэмуджина - Чингисхана. На глазах читателя происходит разрушение личности. Мстительность и злоба, характерные для Чингисхана, с годами проявляются все острее. (   Читать дальше...   )Жанр: Исторический романПродолжительность: 48:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53449F33E85911091ECE580443436E9144AB1A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

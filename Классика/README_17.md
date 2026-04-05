@@ -1,3 +1,32 @@
+###  Публикация: 1010711   (802037) от 25.04.2016
+
+Max Richter - Recomposed By Max Richter: Vivaldi - The Four Seasons (2012) [MP3|320 кб/с] <Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring  (0:42)
+02. Spring 1 (2:32)
+03. Spring 2 (3:19)
+04. Spring 3 (3:09)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C09AE0E5D21117544B08B3AF801B4EE00A05456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506366   (800892) от 30.10.2021
 
 Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Folk>
@@ -6,7 +35,7 @@ Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800892.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, In
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800830.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800142.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - 50 Piano Masterworks (2017) [MP3|320 Kbps] <Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800069.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Isao Tomita - Different Dimensions (1997) [FLAC|Lossless|tracks + .cue] <Electro
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799617.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799476.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Handel - Carmelite Vespers 1707 (1989) 2CD, 1999, Virgin Veritas [APE|Lossless|i
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799150.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Cla
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796935.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Aram Khachaturian / Арам Хачатурян - Spartacus / Спартак  (1
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796756.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Andrew Lawrence-King - Harp Music of The Italian Renaissance (1987) reissue  200
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795344.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ James Galway, Marisa Robles, Neville Marriner - Mozart: Flute Concertos; Concert
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793379.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ VA - The Holiday Season Classical Selection (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790769.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Andres Segovia - My Favourite Works (1987)  [FLAC|Lossless|tracks] <Classical, C
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788042.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ The Planets - Classical Graffiti (2002) [MP3|320 Kbps] <Pop, Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787832.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Julien Marchal - INSIGHT II (2016) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787668.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Julien Marchal - INSIGHT (2015) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Pia
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787662.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ VA - Winter Classical Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787094.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ The Planets - Дискография (2002) [FLAC|Lossless|tracks + .cue] <Pop, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787091.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Bing & Ruth - No Home of the Mind (2017) [FLAC|Lossless|tracks + .cue] <Electron
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785757.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ The London Promenade Orchestra - Beautiful Melodies With A Touch Of The Classics
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785233.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784286.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784278.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ The Wagner Projec - Matthias Goerne, The Swedish Radio Symphony Orchestra, Danie
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784272.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Haydn- Das Niederländische Philharmonische Orchester - Symphonie Nr. 100,Sympho
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784031.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Beethoven - Alexander Gauk  Violin Concerto In D Major, Op. 61 (1955-1960)  [FLA
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784019.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ B	Larghetto(   Читать дальше...   )Жанр: ClassicalПродолж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FD81D856603513F877B78470B07969038E58A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205369   (783464) от 10.02.2018
-
-Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contemporary, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/18. Hent I (2:56)
- 02/18. Pern (4:27)
- 03/18. Hent II (1:15)
- 04/18. Porz Goret (4:56)(   Читать дальше...   )Жанр: Neoclassical, Contemporary, PianoПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247D54A9DFE800BA24E6B64C0F4BFE41395AACDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

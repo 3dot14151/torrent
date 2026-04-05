@@ -1,3 +1,32 @@
+###  Публикация: 1760090   (37540) от 12.11.2024
+
+Ольга Шульдешова | Сборник вебинаров по выполнению архитектурных решений зданий в программе ArchiCAD 25 (2022-2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37540.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вебинар мастер-класс на тему: "Решение вопросов при работе в программе ArchiCAD".
+Часть 1
+2. Вебинар мастер-класс на тему: "Решение вопросов при работе в программе ArchiCAD".
+Часть 2(   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 29:34:48Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6BE4930C51C96F20E1D67E785934007E437EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760949   (37033) от 17.11.2024
 
 Udemy, Yassine Larayedh | Master Simulations Using Geometry Nodes in Blender (2024) PCRec [EN]
@@ -6,7 +35,7 @@ Udemy, Yassine Larayedh | Master Simulations Using Geometry Nodes in Blender (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37033.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Guitardo, Александр Литвак | Фортепиано 30 за 30. 1 �
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36426.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ JustDjango | Basic & Advanced Django Roadmap (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36021.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ Psy2.0 | Начинающий практик - путь к уверенному 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35790.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ Ruslan Sharipov | Изи навыки - (UX) (2024) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35674.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ HTML Academy | PHP. Профессиональная веб-разработка
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35390.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35295.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34151.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Thehousefx, Will Wallace |  Destruction Training with Thinking Particles (2014) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33278.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33221.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32951.jpg" />
 </div>
 
 
@@ -310,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32949.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32676.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ chemelova.design, Кристина Чемелова | Курс по стройк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32645.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32603.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32586.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32542.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Freshlife28, Антон Петряков | Худеем со спортом (202
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32441.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Freshlife28, Антон Петряков | Худеем без спорта и �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32433.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Freshlife28, Антон Петряков | Практикум осознанно
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32432.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ StableDif, Олег Конюков | Курс по ComfyUI. От основ, д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32381.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32375.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32280.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ OTUS, Виталий Юшкевич | Архитектор высоких наг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32278.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Skillbox | Профессия Аналитик 1С (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32277.jpg" />
 </div>
 
 
@@ -690,32 +719,6 @@ Skillbox | Профессия Аналитик 1С (2024) WEB-DL [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D3445A7C83F25A4A6B6A97366AD2F38DC3473D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770560   (32272) от 02.01.2025
-
-Специалист, Павел Монахов | Системное администрирование Linux (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс нацелен на предоставление слушателям ключевых знаний и практических навыков, необходимых для работы в качестве системного администратора Linux. В рамках курса рассматриваются темы, связанные с администрированием, настройкой и обновлением Linux систем самых популярных дистрибутивов - Red Hat, SUSE, Debian/Ubuntu. Внимание уделяется инструментам и концепциям, (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 22:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041793FA9512B2028D68856146DA90C8BB57BBA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

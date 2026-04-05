@@ -1,3 +1,29 @@
+###  Публикация: 1371314   (891497) от 30.03.2020
+
+OTUS | РНР для начинающих программистов (2020) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все необходимые знания и навыки для курса "Backend-разработчик на PHP"Производство: Александр ПряхинЖанр: Программирование, РНРПродолжительность: 04:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F250682CB4B3FB088344B30F23D0118D7C0A8573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371301   (891332) от 30.03.2020
 
 OTUS | Android-разработчик. Базовый курс (2019) PCRec [H.264]
@@ -6,7 +32,7 @@ OTUS | Android-разработчик. Базовый курс (2019) PCRec [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891332.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ OTUS | Математика для Data Science. Базовый курс (2020) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891321.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890880.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890791.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Udemy, Sergei Bukharov | Проектирование ПО по принципа
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890283.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Pluralsight.com | Индексирование MySQL для производит
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889897.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Pluralsight.com | Оптимизация запросов MySQL и настро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889890.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ CG Cookie | Создание анимированного игрового Sci-F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889833.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ RealPython | Data Collection & Storage (2019) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888928.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ ArtStation, Bailey Facer | Violent Seduction – Tempeste Set Creation (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888913.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Nomad Coders | YouTube CloneCoding (2021) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888753.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Domestika, Karmen Loh | Lighting and Color for Digital Portraits in Photoshop (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888720.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_888528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_888528.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888350.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ Pluralsight.com | Мониторинг MySQL с помощью Performance Schem
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888190.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ CG Cookie | Создание процедурных песчаных дюн в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888149.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ CG Cookie | Риггинг трансформирующейся винтовки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888107.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ CG Cookie | Анимация оружия персонажей от первог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888092.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ Steve Grisetti | Lynda - HitFilm 3 Pro Essential Training (2015) PCRec [H.264/72
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887760.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ Unreal Engine, Jerome Platteaux | Lighting with Unreal Engine Masterclass (2017)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887383.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887358.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ Udemy, Michael Ricks | Learn How To Do Amazing Cloth Animation In Unreal Engine 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887331.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Udemy, Dennis Ivy, Brad Traversy | Django with React | An Ecommerce Website  (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887133.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Podlodka, А. Ложечкин и др. | Podlodka Soft Skills Crew - Комму
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887127.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ Stepik, Артём Прытков | Tableau Профессионал (2021) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887086.jpg" />
 </div>
 
 
@@ -671,34 +697,6 @@ Stepik, Артём Прытков | Tableau Профессионал (2021) WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1427A3E030641133DEEB8C9774BB9441F8FDA4FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494563   (887037) от 08.09.2021
-
-Антон Севостьянов | Мастер-класс «Прокачайся до сисадмина» (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня поднимем домен на Windows Server 2016 с нуля и до полностью рабочего состояния!
-Главное достоинство доменной сети это простота дальнейшего администрирования, так что для вас это выгоднее в двойне!
-Почему? В сети с доменом, есть сервер, а остальные машины являются клиентами и взаимодействие в сети между компьютерами осуществляется через контроллер домена, (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 02:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C49F1E6362337006C0FAF8D94566A9BA14AECB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

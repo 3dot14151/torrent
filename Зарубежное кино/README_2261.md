@@ -1,3 +1,215 @@
+###  Публикация: 1820636   (309) от 28.09.2025
+
+Фантастическая четверка: Вторжение Серебряного серфера / 4: Rise of the Silver Surfer (2007) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая четверка получает вызов со стороны великого и могучего Серебряного Серфера - таинственного межгалактического вестника, который прилетает на Землю, чтобы подготовить ее к полному разрушению. Пока Серебряный Серфер носится по всему земному шару, разрушая все на своём пути, Рид, Сью, Джонни и Бен должны разгадать его тайну и найти способ противостоять (   Читать дальше...   )Производство: Великобритания, Германия, США / 1492 Pictures, 20th Century Fox Film CorporationЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Тим СториАктеры: Йоан Гриффит, Джессика Альба, Крис Эванс, Майкл Чиклис, Джулиан МакМэхон, Даг Джонс, Лоренс Фишбёрн, Керри Вашингтон, Андре Брауэр, Бо ГарреттПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, английскиеПродолжительность: 01:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843C0D45E012A01D04038C1A48C54229B791E430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820566   (306) от 28.09.2025
+
+Хоббит / The Hobbit (2012 - 2014) BDRip 3D [H.264/1080p] [Extended Edition] [Вертикальная анаморфная стереопара] [Трилогия]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_306.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хооббит» — поставленная режиссёром Питером Джексоном серия из трёх связанных единым сюжетом кинофильмов, представляющая собой экранизацию повести Дж. Р. Р. Толкина «Хоббит, или Туда и обратно».
+Трилогия состоит из фильмов:
+«Хоббит: Нежданное путешествие» (The Hobbit: An Unexpected Journey, 2012)
+«Хоббит: Пустошь Смауга» (The Hobbit: The Desolation of Smaug, 2013)(   Читать дальше...   )Производство: США, Новая Зеландия / Metro-Goldwyn-Mayer (MGM), New Line Cinema, WingNut FilmsЖанр: фэнтези, приключения, семейныйРежиссер: Питер ДжексонАктеры: Мартин Фриман, Иэн МакКеллен, Ричард Армитедж, Джеймс Несбитт, Кен Стотт, Грэм МакТавиш, Дин О’Горман, Эйдан Тернер, Джед Брофи, Марк ХэдлоуПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 03:02:33 / 03:06:41 / 02:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1446DB76AA2724D5BC7830583E605DA6178BEFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820550   (296) от 28.09.2025
+
+Инспектор Зенде / Inspector Zende (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_296.jpg" />
+</div>
+
+
+###  Подробнее
+
+После побега из тюрьмы серийный убийца Карл Бходжрадж возвращается в Мумбаи, где инспектор Зенде начинает охоту, чтобы снова поймать неуловимого преступника. Их противостояние превращается в напряжённую игру, где каждая ошибка может стоить жизни, а правда скрыта за маской обмана.Производство: Индия / Netflix, RetrophilesЖанр: комедия, криминалРежиссер: Чинмей МандлекарАктеры: Манодж Баджпаи, Джим Сарбх, Сачин Хедекар, Гириджа Оук, Сукумар Туду, Сумит Чандра, Викас Чаван, Хариш Дудхаде, Бхау КадамПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, Английский, ХиндиСубтитры: Английские (Forced, Full, SDH), Хинди (Forced, Full, SDH)Продолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AF67822A8912E7816440A8EA662F22178B997E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820621   (292) от 28.09.2025
+
+Твои, мои и наши / Yours, Mine and Ours (2005) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жена адмирала Фрэнка умерла, оставив ему восьмерых детей. Покинул этот мир и муж Хелен. Только она воспитывает аж десятерых шалопаев. В юношеские годы Фрэнк и Хелен встречались, и забытая страсть вспыхивает вновь, стоит им увидеть друг друга на встрече выпускников. Только вот их дети совсем не рады тому, что теперь братьев и сестёр у них стало вдвое больше. Причем (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Metro-Goldwyn-Mayer (MGM), Nickelodeon Movies...Жанр: комедия, мелодрама, семейныйРежиссер: Раджа ГоснеллАктеры: Деннис Куэйд, Рене Руссо, Шон Фэрис, Катя Певек, Дин Коллинз, Тайлер Патрик Джонс, Хейли Рэмм, Брекен Палмер, Бриджер Палмер, Тай ПаницПеревод: дублированный (Невафильм), авторский (Евгений Гранкин)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2418878C8821B1E4D20C010A4F7926E4426A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810218   (205) от 29.09.2025
+
+Тайное окно / Secret Window (2004) BDRemux [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель Морт Рейни живет в доме на берегу. Ещё недавно у него была жена и карьера писателя, сейчас с женой он встречается только для того, чтобы в очередной раз отказаться подписать документы о разводе. С творчеством у Морта тоже не очень гладко, он начинает писать и тут же стирает написанное. Все дни напролет Морт только спит или смотрит на экран компьютера. Но (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Триллер, ДетективРежиссер: Дэвид КеппАктеры: Джонни Депп, Джон Туртурро, Мария Белло, Тимоти Хаттон, Чарльз С. Даттон, Лен Кариу, Джоан Хини, Джон Данн-Хилл, Власта Врана, Мэтт Холлэнд, Джиллиан Ферраби, Бронуэн Мэнтел, Элизабет Марло, Кайл Аллатт, Ричард Жютра, Кевин Вудхаус, Вито Филлипо, Сара АлленПеревод: Дублированный, Многоголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000FC2E1FA3FDCDA71E40127B8AE96C52643A6C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726816   (200) от 29.09.2025
+
+Влюбись в меня, если осмелишься / Jeux d'enfants (2003) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба свела их не зря: вдвоем они составили странную, но гармоничную пару. Они родились великими выдумщиками, такими, от которых стонала школа. Их проделки можно было бы осудить и окрестить их закоренелыми хулиганами, если бы эти двое не были просто маленькими детьми.
+Они придумали игру, такую, которую могли придумать только они, игру «осмелишься — не осмелишься». (   Читать дальше...   )Производство: Франция, Бельгия | Artémis Productions, Canal+Жанр: драма, мелодрама, комедияРежиссер: Ян СамюэльАктеры: Гийом Кане, Марион Котийяр, Тибо Верхак, Жозефин Леба-Жоли, Эммануэль Грёнвольд, Жерар Уоткинс, Жиль Леллуш, Жюлия Фор, Литиция Венеция Тарновска, Элоди Наварр ...Перевод: ДублированныйСубтитры: русские, французкиеПродолжительность: 01:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA1A8CC1BBC497DA4FB41D4A4F9A1597E377C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274297   (196) от 29.09.2025
+
+Любой ценой / Hell or High Water (2016) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата-лузера решают наведаться в хранилища пары-тройки банков, которые много лет безбожно обкрадывают своих должников. Расследование дерзких ограблений с грубым почерком увенчает карьеру шерифа Маркуса. Но куда выведет это нехитрое дело?Производство: США / Film 44, Odd Lot Entertainment, Sidney Kimmel EntertainmentЖанр: Триллер, Драма, Криминал, ВестернРежиссер: Дэвид МаккензиАктеры: Джефф Бриджес, Крис Пайн, Бен Фостер, Джил Бирмингем, Дейл Дикки, Уильям Стерчи, Бак Тейлор, Кристин Берг Кит Мэривезер Жакмо Буззел.Перевод: Дублированный, Авторский (Дмитрий "Goblin" Пучков)Субтитры: нетПродолжительность: 01:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05711684B5A96862F6E074A4592C2D57722DAA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 93743   (183) от 29.09.2025
+
+Ангулимала / Angulimala (2003) DVDRip [H.264] VO
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древняя Индия. Рождение этого мальчика сопровождали дурные знамения, все указывало на то, что родился жестокий убийца. Пытаясь изменить его судьбу, родители назвали мальчика Ахимсакой («не приносящий вреда») и отправили изучать Дхарму к почитаемому учителю-брахману. Однако сбитый с истинного пути Ахимсака все равно стал разбойником - он верил, что если убьет 1000 (   Читать дальше...   )Жанр: ДрамаРежиссер: Сутеп Танират / Sutape TunnirutВ ролях: Ахимсака/Ангулимала - Нопчай Чайанам (Nopachai Chaiyanam), Нанта - Стелла Малуччи (Stella Malucchi), Видхура - Джон Раттанаверот (John Rattanaveroj), учитель Сати - Камрон Канатилака (Kamron Gunatilaka), Мантани - Алиса Качончаякун (Alisa Kajornchaiyakul), брат-наставник Ахимсаки - Варин Сачдев (Varin Sachdev), Ахимсака в детстве - Алан Йоненнан (Alan Yongyuennan), (   Читать дальше...   )Перевод: Одноголосый закадровыйСубтитры: нетПродолжительность: 01:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCF3F34AF1C3AC27C456512C4EC33F4700DC56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506846   (182) от 29.09.2025
 
 Зола / Zola (2020) BDRemux [H.264/1080p]
@@ -6,7 +218,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182.jpg" />
 </div>
 
 
@@ -32,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178.jpg" />
 </div>
 
 
@@ -58,7 +270,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.264/1080p] [3D]  
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172.jpg" />
 </div>
 
 
@@ -84,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167.jpg" />
 </div>
 
 
@@ -110,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160.jpg" />
 </div>
 
 
@@ -136,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157.jpg" />
 </div>
 
 
@@ -162,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149.jpg" />
 </div>
 
 
@@ -189,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146.jpg" />
 </div>
 
 
@@ -215,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134.jpg" />
 </div>
 
 
@@ -241,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114.jpg" />
 </div>
 
 
@@ -267,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105.jpg" />
 </div>
 
 
@@ -293,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89.jpg" />
 </div>
 
 
@@ -319,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83.jpg" />
 </div>
 
 
@@ -345,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79.jpg" />
 </div>
 
 
@@ -371,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75.jpg" />
 </div>
 
 
@@ -398,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69.jpg" />
 </div>
 
 

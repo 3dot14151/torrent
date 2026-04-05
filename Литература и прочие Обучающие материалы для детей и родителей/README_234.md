@@ -1,3 +1,56 @@
+###  Публикация: 1306584   (555520) от 05.06.2019
+
+И.Е. Гусев, А.Г. Мерников | Лучшие советские задачи и головоломки. Проверь свою наблюдательность и изобретательность (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проверенные временем головоломки дадут вам возможность наточить свой ум до остроты булавки, а быстроту принятия решений развить до космических скоростей. Они значительно обогатят копилку хитрых математических приемов, пригодных в том числе и для решения бытовых задач. Занимательные сюжеты погрузят вас в атмосферу головоломки, превращая перебор гипотез и подходов (   Читать дальше...   )Жанр: Головоломки, Кроссворды, ЗагадкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3D644024529BAECB0F9413813657EE1614C7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306787   (555489) от 06.06.2019
+
+Александр Лондон | Дикие. Лунный Отряд (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга цикла «Дикие»
+«Все одной лапы» – это девиз легендарного Лунного Отряда. Лунный Отряд – это пятеро животных, которые в глубокой древности поклялись защищать свободу всех Диких под небесами. И енот по имени Кит тоже слышал легенды о Лунном Отряде. Еще бы, ведь среди основателей Отряда был его предок – Первый Енот! Кит еще совсем юн, он только-только начал (   Читать дальше...   )Жанр: Фэнтези, Городское фэнтези, Фантастика для детейПеревод: Анастасия КузнецоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E7DA559CBB7A6F1B8454ACCEFA724CB6A3086A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306859   (555420) от 06.06.2019
 
 Н.В. Селянцева, О.А. Чалышева | Полный курс английского языка для начальной школы (2019) [PDF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555420.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555238.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555058.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555041.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555016.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554983.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554856.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554849.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554820.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554669.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553845.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553621.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553320.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553319.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553312.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553225.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553149.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553116.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553047.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553037.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552912.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552787.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552783.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552746.jpg" />
 </div>
 
 
@@ -625,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AB15FE2A7D44737F42B81AE2529381019FA0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815435   (552514) от 23.08.2014
-
-Константин Иосифов | Охотники за джихами (1962) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто они такие, эти охотники и эти джихи? Миша Капелюшников а Адгур Джикирба впервые задали себе этот вопрос, когда получили странное письмо, которое начиналось словами: «Если ты можешь видеть кончик собственного носа, умеешь хранить тайну и не боишься темноты…» и завершалось подписью: «Охотник за джихами». Много приключений порешили ребята, пока не нашли ответа на (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7808E57F4996F637A48839E19A85FDEE42693EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692003   (552502) от 23.08.2013
-
-А. Ивич | Приключения изобретений [1966] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изобретения рождаются, взрослеют и старятся. Жизнь их полна приключений. Они спорят друг с другом, а то и вступают в битвы. Тысячелетие пробирался из страны в страну секрет изготовления бумаги, а электрический свет за год завоевал Европу и... был побеждён в битве с газовой горелкой — люди думали, что навсегда.
-Чертёж вертолёта появился на пятьсот лет раньше, чем (   Читать дальше...   )Жанр: Познавательные рассказыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F826BACD1617395B914FB313685C7014812C28E
 ```
 
 https://mybot314.ru/tekegram_catalog/

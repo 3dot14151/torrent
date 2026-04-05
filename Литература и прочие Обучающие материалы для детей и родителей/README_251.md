@@ -1,3 +1,59 @@
+###  Публикация: 1315693   (511802) от 21.07.2019
+
+студия Диафильм | Белый пудель (1951) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести и рассказы о животных. Собаки. Повести и рассказы русских писателей.
+
+Этот день был не особо удачным для бродячих циркачей — дедушки Мартына Лодыжкина (на плече — старая «нездоровая» шарманка), мальчика Сергея (взят дедушкой «напрокат» у забулдыги, который вскоре умер) и пуделя Арто: со многих мисхорских дач их выгоняли, лишь одна барыня дала гривенник, и (   Читать дальше...   )Жанр: Детская прозаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89044E092B2302C9B67A7A605D84D11831C3FAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315694   (511799) от 21.07.2019
+
+студия Диафильм | Два жадных медвежонка (1953) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Венгерские народные сказки. Сказки о животных. Медведи.
+
+Топали они по тропинке, ломились через заросли. День плутали по лесу, другой. А на третий вышли на опушку. Здесь они и нашли большую головку сыра. Решили медвежата поделить сыр поровну. Но как это сделать? Хотели было по очереди откусывать. Но вдруг один больше откусит, чем другой? Жадность одолела медвежат. (   Читать дальше...   )Жанр: Детская прозаПеревод: А. Краснова, В. ВаждаевФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAED487C9584B380AE679CFCA2D2F3D3D0747E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931586   (511703) от 26.08.2015
 
 Лиза. Спецвыпуск журнала "Бабушкин компот для внучат" №3 (2015) [PDF]
@@ -6,7 +62,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511703.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511693.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511687.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511535.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511448.jpg" />
 </div>
 
 
@@ -143,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511117.jpg" />
 </div>
 
 
@@ -169,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511104.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511101.jpg" />
 </div>
 
 
@@ -222,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511081.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511019.jpg" />
 </div>
 
 
@@ -277,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510988.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510974.jpg" />
 </div>
 
 
@@ -331,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510946.jpg" />
 </div>
 
 
@@ -357,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510945.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510909.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510753.jpg" />
 </div>
 
 
@@ -439,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510438.jpg" />
 </div>
 
 
@@ -465,7 +521,7 @@ Tom Tierney | Мода Средневековья/Medievai Fashions (1998) [PDF]
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510427.jpg" />
 </div>
 
 
@@ -491,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510396.jpg" />
 </div>
 
 
@@ -517,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510393.jpg" />
 </div>
 
 
@@ -543,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510390.jpg" />
 </div>
 
 
@@ -570,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510343.jpg" />
 </div>
 
 
@@ -596,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510278.jpg" />
 </div>
 
 
@@ -622,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510273.jpg" />
 </div>
 
 
@@ -635,59 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91FD932950D8A32D0E6675411944593989EB87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932101   (510270) от 28.08.2015
-
-Юрий Сотник | На школьном дворе. Приключение не удалось (1986) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510270.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу входит новая повесть «На школьном дворе» и ранее издававшаяся «Приключение не удалось».
-В новой.повести рассказывается о жизни школьников в небольшом сибирском городке, о директоре школы, человеке разностороннем, влюбленном в свое дело, который не только учит, но и воспитывает детей, увлекая их общественно-полезными делами. Эта повесть о любви учеников к (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DE38D81CFDD73B693F1D3C453622ED411237B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932066   (510264) от 28.08.2015
-
-Ганс Андерсен | Свинопас (1922) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно в описании книги Г. Х. Андерсена «Свинопас», иллюстрированной М. В. Добужинским, указывают годы издания 1921 — 1922, так как известны три варианта этого издания, трудно различимые даже для специалистов. В процессе работы художник демонстрирует своё мастерство иллюстратора, создавая целостный образ книги. Она мыслится как органичное сочетание всех графических (   Читать дальше...   )Жанр: Детская иллюстрированная книга XX века, сказкаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977D4CFA6C96E45CE1BFEF641859EB5F9896C313
 ```
 
 https://mybot314.ru/tekegram_catalog/

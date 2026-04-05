@@ -1,3 +1,108 @@
+###  Публикация: 1422368   (835860) от 09.10.2021
+
+Advanced Download Manager and Torrent downloader v12.6.1 Pro Mod  [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продвинутый менеджер загрузок. Позволит удобно скачивать файлы на Android устройстве. Программа позволит планировать закачки на определенное время, докачивать файлы после обрыва связи, параллельно скачивать файлы, ускорено скачивать файлы в несколько потоков, сохранять различные типы в файлов в разные папки в зависимости от формата. Для удобства предусмотрена функция (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 08.10.2021Разработчик: AdvancedAppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D34332981432B7F07F83B6A7FEA510D44AE7A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500393   (835850) от 09.10.2021
+
+Карты для iGo 2021.Q2 HERE (NQ, NavTeq) Европа [18.07.2021]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835850.jpg" />
+</div>
+
+
+###  Подробнее
+
+iGO R3 Here (NavTeq) Европа 2020.Q2 (.fbl, .fda, .fjw, .fjv (Russia), .fpa, .fsp, .ftr, .hnr, .poi, .3dl, .3dc, .ph, .dem, .spc)Релиз состоялся: 18.07.2021Разработчик: HEREПоддерживаемая ОС: iGO8/Primo/MyWay/Amigo (Android, WinCE, WM)Язык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B668962E1324764C34B154B50B01E795B52A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378432   (835807) от 01.05.2020
+
+Battery Widget Plus v2.43 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835807.jpg" />
+</div>
+
+
+###  Подробнее
+
+BatteryWidget показывает точный уровень заряда батареи в строке состояния, здоровья, температуры, напряжения процессора. Нажав после установки виджета, виджет показывает температуру и напряжение.
+Дважды щелкните Появится экран установки.Тип издания: Plus Paid c МаркетаРелиз состоялся: 30.04.2020Разработчик: JINASYSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D831A983E8C3EA2FAD1D771B524A0982E18B0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004907   (834013) от 08.04.2016
+
+Garmin: Road Map of Latvia LM and Road Map of Latvia TOPO LM v2.7 [Lv]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_834013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорожная и топографическая карты Латвии для навигаторов Гармин.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: март 2016Разработчик: KurTuEsiПоддерживаемая ОС: GarminЯзык интерфейса: ЛатышскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA042DC02F587EE47EAA6AF147063AF93059B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501828   (833463) от 11.10.2021
 
 Автошкола МАРС v1.1.3 [Ru]
@@ -6,7 +111,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833463.jpg" />
 </div>
 
 
@@ -35,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833462.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833357.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ Electrical Cost v3.0.4 Pro [Ru/Multi] - прогнозный расчет сто
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831469.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830186.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ Glitch Lab v1.4.5 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829525.jpg" />
 </div>
 
 
@@ -169,7 +274,7 @@ Maths Formulas 9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827969.jpg" />
 </div>
 
 
@@ -195,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824892.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824637.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824312.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ Open Camera 1.48.1 [Ru] - Фото и видеокамера
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823844.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822091.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ Garmin: NaviGuide Hungary 2017.10 NT Final (+ v2018.10 NT Beta test) [Hu]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820532.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Garmin: City Navigator South America NT 2018.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820519.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ Garmin: City Navigator Australia & New Zealand HERE NT 2018.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820513.jpg" />
 </div>
 
 
@@ -408,7 +513,7 @@ Garmin: City Navigator North America NT 2018.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820422.jpg" />
 </div>
 
 
@@ -434,7 +539,7 @@ Garmin: City Navigator China NT 2015.40 AN (по регионам) [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819450.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ Garmin: TOPO Southern Africa v3 PRO + Madagascar [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819448.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ Garmin: Topo Chile Deluxe 2015.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819444.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ Garmin: TOPO Portugal Light v3 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819442.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ Garmin: TOPO Belarus v3 Light [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819156.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ Garmin: TopoActive East+West Europe v3.00 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819006.jpg" />
 </div>
 
 
@@ -576,113 +681,6 @@ Garmin TopoActive помогает активно проводить время 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12286614787B037830395C4B84D6B56DDC01C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196833   (818764) от 05.01.2018
-
-Garmin: City Navigator Middle East & N Africa NT 2018.10 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перемещайтесь по улицам с уверенностью. Этот продукт содержит подробные карты и точки интереса для навигаторов Гармин, так что вы можете перемещаться с точными подсказками от поворота к повороту на любой адрес или перекресток.Тип издания: карты разблокированыРелиз состоялся: август 2017Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D217156C24E2081124540A5DA42E7D0CE15BA045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994048   (818720) от 16.04.2016
-
-Perfect Angle v1.6 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытайте свой ум головоломками, основанными на оптических иллюзиях. Найдите вращая камеру идеальный угол для наведения порядка и откройте для себя освежающую историю, полную тайн.Тип издания: FreeРелиз состоялся: 24.03.2016Разработчик: Ivanovich GamesПоддерживаемая ОС: Android 4.0.3+Жанр: Puzzle — Logic (Паззл, Головоломка)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF5CFEA5C1E288973826A032E2EA01DDA6C7DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197068   (816884) от 06.01.2018
-
-Компьютерный мастер 1.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816884.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью приложения даже самый неопытный человек сможет сам установить операционную систему, удалить любой вирус, настроить роутер (маршрутизатор) и даже собрать компьютер.Тип издания: Пиратка (Полная с Маркета)Релиз состоялся: 5 июня 2016 г.Разработчик: NeosectorgazaПоддерживаемая ОС: Android 2.2 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF446A900D5AE3165476F75F41FE69A4F26CE9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473042   (815723) от 21.10.2021
-
-Медпомощь При ДТП v1.1.2 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение представляет собой пособие по оказанию экстренной медицинской помощи при ДТП. Содержит в себе алгоритм действий в первые минуты после аварии, особенности оказания первой помощи в тяжелых условиях, а также:
-
-- Правила извлечения, иммобилизации и транспортировки пострадавших
-- Перечень медикаментов автомобильной аптечки, их применение, а также рекомендации (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 30 августа 2021 г.Разработчик: Monolith publisherПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFC92CF110F5879FCA054CF807EB7B9CCCF068D
 ```
 
 https://mybot314.ru/tekegram_catalog/

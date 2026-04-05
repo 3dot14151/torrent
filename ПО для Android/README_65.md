@@ -1,3 +1,110 @@
+###  Публикация: 1064129   (288899) от 18.11.2018
+
+Монеты России и СССР v4.5 Full [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для нумизматов и просто интересующихся. Может использоваться как инструмент для работы с коллекцией, либо как справочник. Содержит полный перечень юбилейных монет и монет регулярного чекана с 1921 года, также содержит информацию о пробных монетах СССР. Более 1200 монет!Тип издания: с Маркета + кейгенРелиз состоялся: 27.11.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD45E797C9F5A953B0FEDBB738B63DE74937DA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080515   (288126) от 07.12.2016
+
+Справочник инженера сварщика Premium 1.1.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288126.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Справочник инженера сварщика" разработан в помощь специалистам сварочного производства при предварительной оценки норм расхода сварочных материалов и выбора технологии сварки.
+Содержит справочные материалы по технологии сварки стальных конструкций, расчету основных (по размерам и весу) и сварочных материалов (по весу проката и длинам швов), маркам сталей (   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 11 января 2016 г.Разработчик: Sergey MalyshevПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8148E0236297206FE31A0239E3F116B661C219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081037   (284112) от 09.12.2016
+
+Peers.TV 6.11.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Peers.TV — это популярные телеканалы в высоком качестве, более 500 программ, телешоу и сериалов, а благодаря расширению функционала — ещё и IP-телевидение!
+Peers.TV — это бесплатное приложение для просмотра ТВ онлайн и в записи 24 часа в сутки, 7 дней в неделю.
+При помощи особой магии Peers.TV превратит ваш смартфон или планшет в мобильный телевизор.Тип издания: версия с Гуглплей (Free)Релиз состоялся: 6.12.2016Разработчик: InetraПоддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22479F2D9960FB0156A9AC7E54D56751030CB030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081755   (282800) от 10.12.2016
+
+TrustGo Antivirus & Mobile Security 2.4.5.487 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное комплексное решение для защиты приватных данных и анализа угроз на Вашем смартфоне.Тип издания: FreeРелиз состоялся: 07.12.2016Разработчик: TrustGo, Inc.Поддерживаемая ОС: Android 4.0+Жанр: AntivirusЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BE2C1C143F38C802E628818E6A60FC002A23F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082490   (278515) от 12.12.2016
 
 Английский язык с Emister 1.13 [Ru] Premium
@@ -6,7 +113,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278515.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Online Radio  Box Pro v1.0.175 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277502.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277274.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ KMPlayer 2.3.0 [Ad Free] [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276843.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Automatic Call Recorder Pro 1.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276827.jpg" />
 </div>
 
 
@@ -143,7 +250,7 @@ Root Call SMS Manager 1.8.1 [Ru] Full
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276746.jpg" />
 </div>
 
 
@@ -172,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276683.jpg" />
 </div>
 
 
@@ -201,7 +308,7 @@ AnExplorer PRO File Manager v4.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276269.jpg" />
 </div>
 
 
@@ -227,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275685.jpg" />
 </div>
 
 
@@ -253,7 +360,7 @@ GSM Spy Finder 16.01 (AdFree) [Ru-Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275483.jpg" />
 </div>
 
 
@@ -279,7 +386,7 @@ AnTuTu Benchmark 6.3.1 [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274183.jpg" />
 </div>
 
 
@@ -305,7 +412,7 @@ mPro.Скорая помощь v2.2.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273010.jpg" />
 </div>
 
 
@@ -331,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272314.jpg" />
 </div>
 
 
@@ -358,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272241.jpg" />
 </div>
 
 
@@ -386,7 +493,7 @@ WordBit v1.3.5 [Ru/En] - Английский язык (на блокировк�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271343.jpg" />
 </div>
 
 
@@ -412,7 +519,7 @@ FreeFlix TV Pro v1.0.3 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271118.jpg" />
 </div>
 
 
@@ -438,7 +545,7 @@ VIP MP3 Player (ZK.FM Player) v4.1 (96) Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268612.jpg" />
 </div>
 
 
@@ -464,7 +571,7 @@ Zoiper v1.53 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266586.jpg" />
 </div>
 
 
@@ -490,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265309.jpg" />
 </div>
 
 
@@ -516,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262048.jpg" />
 </div>
 
 
@@ -542,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262035.jpg" />
 </div>
 
 
@@ -568,7 +675,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v3.1.38 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261722.jpg" />
 </div>
 
 
@@ -579,110 +686,6 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839058   (261721) от 26.11.2025
-
-ProShot v8.32.3 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в ProShot, полное решение для фото- и видеосъемки на Android. Являетесь ли вы опытным профессионалом или только начинаете, в ProShot есть что-то для вас. Его обширный набор функций и уникальный интерфейс открывают неограниченные возможности, гарантируя, что вы никогда не пропустите идеальный снимок.Тип издания: Pro / PatchedРелиз состоялся: 25.11.2025Разработчик: Rise Up GamesПоддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DB622851B136356EA41405D30D8D6A5C593967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839056   (261720) от 26.11.2025
-
-Smart AudioBook Player Pro v11.6.2 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 26.11.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0294A94277BB6BE8D31C7AA46E82AE5720D96A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839060   (261717) от 26.11.2025
-
-AI Photo Editor Pro - Polish v1.693.239 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоторедактор - коллаж фото предлагает все, что вы хотите редактировать арт фото. Множество стильных эффектов, фильтров, монтаж, сеток и удаление объектов помогут вам создать привлекательный рисования, даже если вы никогда не редактировали фотографию раньше. превратить ваши фотографии в настоящие произведения искусства в стиле аниме с Аниме фото функция. Мультяшные (   Читать дальше...   )Тип издания: ProРелиз состоялся: 25.11.2025Разработчик: InShot Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C13BA941789E0552E05608AD9D3A27287CAFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839062   (261715) от 26.11.2025
-
-FacePic - AI Face App v3.2.4 Pro Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261715.jpg" />
-</div>
-
-
-###  Подробнее
-
-FacePic — приложение AI Face, приложение для легкого редактирования лиц с помощью ИИ, которое позволит вам вывести свои селфи на новый уровень. Благодаря широкому выбору фильтров для лица, эффектов Facetune и замены лиц вы будете поражены тем, как быстро вы сможете добиться фотореалистичных результатов. Попрощайтесь с обычными фотографиями — хотите ли вы изменить (   Читать дальше...   )Тип издания: ProРелиз состоялся: 26.11.2025Разработчик: Photo Collage & Grid - Foto GridПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EFF3DD58A2FD68C144D65991CDEC7D24E418E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

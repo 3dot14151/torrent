@@ -1,3 +1,59 @@
+###  Публикация: 1637557   (251767) от 04.06.2023
+
+Avast Premium Security 23.5.6066 RePack by xetrin [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avast Premium Security – комплексный антивирус "все-в-одном", теперь еще более быстрый и эффективный благодаря переносу вычислительных процессов в облачное пространство. Крупнейшая в мире сеть обнаружения угроз, искусственный интеллект на основе облачных технологий и молниеносно быстрый анализ поведения выделяют наш антивирус среди всех остальных.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE8E3A4DA7BACB5A54DAB21AB59A4A0BDA0EA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495358   (251342) от 11.05.2012
+
+Ubuntu 12.04 LTS [amd64] (1xDVD)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ubuntu — это разрабатываемая сообществом, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит все необходимые программы, которые вам нужны: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других.
+
+Ubuntu 12.04 LTS богата на очень интересные обновления, которых давно ждали многие пользователи Ubuntu. Стоить отметить, что наконец-то ввели улучшенную поддержку многомониторных конфигураций, сделали более дружественный интерфейс экрана входа в систему (LightDM), доработали оболочку Unity и ещё сделали множество других "вкусностей".
+
+Здесь, в этом релизе, полное совпадение с контрольными суммами образа amd64 с официального сайта, который, видимо, был заменен спустя несколько часов после первоначального релиза. Тем не менее, в предыдущем релизе проблем нет: https://nnm-club.me/forum/viewtopic.php?t=488535
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DECAF680BC746031485C32535CEEF79EC6E4FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495143   (251333) от 11.05.2012
 
 Windows7 Firewall Control v5.0.0.15 RePack by Kyvaldiys [русский]
@@ -6,7 +62,7 @@ Windows7 Firewall Control v5.0.0.15 RePack by Kyvaldiys [русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251333.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251224.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251054.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251049.jpg" />
 </div>
 
 
@@ -118,7 +174,7 @@ IBM SPSS Statistics v20 Multilingual-32bit + Fix Pack 1 20.0.0.1 [Многояз
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250662.jpg" />
 </div>
 
 
@@ -145,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_250513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_250513.jpg" />
 </div>
 
 
@@ -171,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250378.jpg" />
 </div>
 
 
@@ -197,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250374.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250334.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_250254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_250254.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250107.jpg" />
 </div>
 
 
@@ -302,7 +358,7 @@ Tesla представила доступный автономный дом Tesl
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249334.jpg" />
 </div>
 
 
@@ -328,7 +384,7 @@ Heroes of Might and Magic III (1999) [Ru/Multi] (4.0/dlc) License GOG [Complete 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249060.jpg" />
 </div>
 
 
@@ -354,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249013.jpg" />
 </div>
 
 
@@ -380,7 +436,7 @@ StarCraft 2: Wings of Liberty Platinum Edition + LAN Multiplayer [Ru] (Lossless 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248668.jpg" />
 </div>
 
 
@@ -406,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248373.jpg" />
 </div>
 
 
@@ -434,7 +490,7 @@ Left 4 Dead [Ru/En] 2008 (RePack/1.0.2.6) | R.G. BoxPack
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248109.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247806.jpg" />
 </div>
 
 
@@ -487,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247720.jpg" />
 </div>
 
 
@@ -514,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247668.jpg" />
 </div>
 
 
@@ -543,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247666.jpg" />
 </div>
 
 
@@ -569,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247600.jpg" />
 </div>
 
 
@@ -595,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247597.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247579.jpg" />
 </div>
 
 
@@ -632,59 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A65CE402E58D10DBBFCFD9C8EB692C6111725B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596389   (247540) от 16.06.2023
-
-Udemy, Антон Ларичев | JavaScript с нуля - основы языка и практика для начинающих (2022) WEB-DL [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247540.jpg" />
-</div>
-
-
-###  Подробнее
-
-JavaScript является самым популярным языком программирования в мире. На нём работают все веб приложения в мире, а так же множество мобильных и desktop приложений. Вы можете создать на нём полноценное fullstack приложение с backend написанным там же на JavaScript.
-Этот курс является первой частью курсов по JavaScript, которая направлена на детальное изучение основ (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2278279A06ACD284BA360D3E3D29E019F658C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640018   (247537) от 16.06.2023
-
-Все страхи Бо / Beau Is Afraid (2023) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бо боится всего на свете и старается не выходить из дома. И правильно делает - мир полон опасностей, а улицы кишат сумасшедшими. Но однажды, несмотря на страхи, он решается на путешествие в родной город. Теперь его ждёт невообразимо странное приключение, выходящее за рамки пространства и времени.Производство: Канада, Финляндия, США, A24, Access Entertainment, IPR.VCЖанр: Ужасы, драма, комедияРежиссер: Ари АстерАктеры: Хоакин Феникс, Патти ЛюПон, Эми Райан, Натан Лэйн, Кайли Роджерс, Дени Меноше, Паркер Поузи, Зои Листер Джонс, Армен Нахапетян, Джулия АнтонеллиПеревод: Дублированный (Mосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: английские, испанскиеПродолжительность: 02:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10ED3A72BD245913C0721516BF94690E552A7B89
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 137689   (271737) от 30.11.2018
-
-Потап и Настя Каменских - Плагиат (2009) [MP3|128-320]<R'n'B, PoP>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271737.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fabri fibra - Applausi per fibra (4:12) @192kbps CBR
-2. Потап и Настя Каменских - На раЁне (2:55) @128kbps CBR
-3. Jazzyfatnastees - Let It Go (4:18) @192kbps CBR
-4. Потап & Настя Каменских - Почему Молчишь (3:39) @320kbps CBR(   Читать дальше...   )Жанр: R'n'B, PoPПродолжительность: 02:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B3D3D7680ED17F68A444549CA09989A2C04CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189260   (271212) от 05.12.2017
 
 Валерия - К солнцу (2017) [MP3|320 Kbps] <Pop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271212.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270192.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269708.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269337.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Новый год в стиле Ретро (2016) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268349.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268255.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Plazma - Indian Summer (2017) [MP3|320 Kbps] <Рор>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267678.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267116.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266565.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VLNY - Ближе (2017) [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265978.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264464.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264276.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263728.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Новый русский хит 2 (2017) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261890.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261265.jpg" />
 </div>
 
 
@@ -476,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260663.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256371.jpg" />
 </div>
 
 
@@ -540,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255864.jpg" />
 </div>
 
 
@@ -569,7 +540,7 @@ VLNY - Меня здесь нет (2023) [MP3|320 Kbps] <Indie Pop, Synth Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255191.jpg" />
 </div>
 
 
@@ -598,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252100.jpg" />
 </div>
 
 
@@ -624,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251281.jpg" />
 </div>
 
 
@@ -659,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249679.jpg" />
 </div>
 
 
@@ -688,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248853.jpg" />
 </div>
 
 
@@ -723,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242952.jpg" />
 </div>
 
 
@@ -752,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242813.jpg" />
 </div>
 
 
@@ -766,6 +737,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8875206BBC3036EF74BB23F086D26AD4A04DD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541462   (242704) от 03.04.2022
+
+Mad Show Boys - Эпидемия добра (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эпидемия добра.mp3
+02. Зебра-альбинос.mp3
+03. Звёздный путь.mp3
+04. Хечословацкая сепня.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6650AA5DE27F8C588BF0FFE1F397E7B6E54E474F
 ```
 
 https://mybot314.ru/tekegram_catalog/

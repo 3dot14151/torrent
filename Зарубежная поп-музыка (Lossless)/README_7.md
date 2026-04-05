@@ -6,7 +6,7 @@ St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015125.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Zolita - Evil Angel (Deluxe) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014667.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - American Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014527.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ My Brothers And I - Love Is (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014202.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Texas - Hi (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013842.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013795.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013222.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012890.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012881.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012727.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012439.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Michael Bolton - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012111.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pastel Coast - Hovercraft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011844.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ryan Adams ‎ - Big Colors (2021) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010831.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sophie Ellis‐Bextor - Trip the Light Fantastic (2007) [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010807.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Vaccine of Sadness (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010663.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Goodbye My Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010195.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010192.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010176.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Percy Faith - Columbia Singles Volume III 1959-1967 (2005) [FLAC|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009857.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Acoustic Pop 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009720.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Melanie C - In And Out Of Love (Acoustic) (2021) EP [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009600.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009586.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009559.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Andy Williams - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Vocal, Oldie
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009298.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - The Best 2000s Album In The World… Ever! (2021) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009128.jpg" />
 </div>
 
 

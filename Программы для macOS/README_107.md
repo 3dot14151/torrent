@@ -1,3 +1,55 @@
+###  Публикация: 1419133   (343711) от 26.10.2020
+
+CorelDRAW Graphics Suite 2020 v22.1.0.517 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343711.jpg" />
+</div>
+
+
+###  Подробнее
+
+CorelDRAW Graphics Suite 2020 — новейшее и самое передовое программное обеспечение для графического дизайна. В состав пакета входят все признанные в индустрии инструменты, представленные в CorelDRAW Graphics Suite, а также множество других функций. Забудьте о набросках на бумаге и сканировании рисунков! Замечательный новый инструмент LiveSketch™ позволяет мгновенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Corel CorporationПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95749CAA8E9FABCDB11673506EC5A18EA018BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330284   (343277) от 09.10.2019
+
+Motion 5.4.4 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motion - это мощный графический инструмент, который позволяет легко создавать кинематографические 2D, 3D и 360 ° титры, плавные переходы и реалистичные эффекты в режиме реального времени. А благодаря новому движку Metal, Motion позволяет создавать и воспроизводить эффекты с невероятной скоростью.Тип издания: macOS SoftwareРелиз состоялся: 07.10.2019Разработчик: Apple IncПоддерживаемая ОС: 10.14.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F13572BFD8863456122CC6DDB54E81350103D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073900   (342839) от 17.11.2016
 
 Delineato Pro 1.2.7 [En]
@@ -6,7 +58,7 @@ Delineato Pro 1.2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342839.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Chrono Plus – Time Tracker & Timesheet with Billing 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342824.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Timing 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342670.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Pro Paint 3.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342656.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ ShottyBlur 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342303.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ JixiPix Spektrel Art 1.1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342198.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ JixiPix Hand Tint Pro 1.0.16 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342197.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ JixiPix PuzziPix Pro 1.0.13 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342196.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Malwarebytes for Mac Premium 3.1.1.505 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342078.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ Topaz Plugins Bundle (17.11.2016) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341992.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Amphetamine 5.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341919.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ Ample Sound Ample Guitar Twelve v3.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341863.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Capture One Pro 10 v10.2.1.39 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341845.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Affinity Designer 1.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341841.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ FL Studio Producer Edition 12.1.3 [En] [OS X WineSkin]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341257.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Vill Q 1.2.12 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341212.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ Movavi Video Editor 15 Business v15.5.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341003.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ Mountain 1.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340439.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ Cyberduck 6.8.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340409.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ DockShelf 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340145.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Copy'em Paste (Clipboard Mgr.) 2.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340030.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ Unibox 1.8.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339741.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ Exposure X6 Bundle v6.0.1.86 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339714.jpg" />
 </div>
 
 
@@ -623,7 +675,7 @@ Nik Software Dfine 2.112 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339624.jpg" />
 </div>
 
 
@@ -636,68 +688,6 @@ Dfine 2 — потрясающий плагин для Adobe Photoshop, позв
 ● Подключаемые профили для каждого типа фотокамер
 ● Уникальная технология U Point позволяющая гибко корректировать отдельные участки изображения
 ● Инструмент выделения (Selective tool), позволяющий применять эффект только к выделенной области изображенияНазвание программы: Dfine 2Релиз состоялся: август 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581138   (339609) от 26.11.2012
-
-Nik Software Sharpener Pro 3.010 [Eng]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sharpener Pro™ — профессиональный плагин для Adobe Photoshop, с богатым набором новых возможностей, реализованных в обновленном продукте, позволяет выполнять огромный спектр задач – от предварительной коррекции резкости в файлах RAW, полученных с фотокамер, до финального увеличения резкости с учетом особенностей технологии вывода изображения. Позволяет работать с 16-битными изображениями без необходимости их перевода в 8-битные. Область предварительного просмотра позволяет вам во время работы видеть, как изменяется качество фотографии в зависимости от примененных эффектов.
-Возможности плагина:
-● Создание точного и избирательного контроля резкости
-● Обновленный механизм финальной корректировки резкости позволяет готовить изображения к выводу практически на любых устройствах и носителях – на экране мониторов, на струйных принтерах, в полноцветной полиграфии, шелкографии и т.д.
-● Увеличение резкости мелких деталей и текстур с новой структурой, фокусом, и местных отличий инструментов для привлечения (   Читать дальше...   )Название программы: Sharpener Pro 3Релиз состоялся: август 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581136   (339497) от 26.11.2012
-
-Nik Software Viveza 2.009 [Eng]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viveza 2 – плагин, расширяющий функциональность набора инструментов для редактирования цифровых изображений в Adobe Photoshop. С помощью этого приложения пользователи смогут регулировать яркость, контрастность и насыщенность цвета отдельных объектов или областей фотоснимка. Программа самостоятельно выделяет нужные объекты и создает маски в автоматическом режиме, тем самым позволяя специалистам трудиться более продуктивно. (х64 только в этой новости)
-Возможности плагина:
-● Регулировка яркости, контраста и насыщенности выделенной части изображения
-● Уникальная технология U Point, позволяющая гибко корректировать отдельные участки изображения
-● Инструмент выделения (Selective tool), позволяющий применять эффект только к выделенной области изображения
-● Интеграция Smart-объектов в Adobe Photoshop
-● Предварительный просмотр результатов на экране перед печатью.Название программы: Viveza 2Релиз состоялся: август 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
 
 ## Скачать торент
 ```bash

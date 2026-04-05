@@ -1,137 +1,3 @@
-###  Публикация: 1356272   (980398) от 29.01.2020
-
-А. Таранин (ред.) | Уголовный Кодекс Российской Федерации на 2020 год (2020) [PDF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание содержит сверенный с официальными источниками текст Уголовного кодекса Российской Федерации с учетом принятых изменений и дополнений на 2020 год. В комментарии к статьям включена информация о возможных изменениях в Уголовном кодексе РФ по результатам принятия законопроектов, находящихся на рассмотрении в Государственной Думе РФ.
-Для более удобного (   Читать дальше...   )Жанр: Нормативные правовые акты, Уголовное правоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BD573C785062E71B4FFC69EAE3600CE0F5D908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356136   (980391) от 29.01.2020
-
-Александр Бушков | Остров кошмаров. Корона и плаха (2020) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья книга трилогии «Остров кошмаров».
-
-Современные англичане забыли о многих своих гнусных «изобретениях», например об институте «сервентов» XVII века.
-За сто с лишним лет Британия насильно отправила в Америку в общей сложности 50 000 белых рабов – своих граждан! Их перевозили в битком набитых трюмах, в которых оголодавшие люди охотились за корабельными крысами, (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA95273E71AAE4508C443623414276975EE4F541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356069   (980386) от 29.01.2020
-
-Е.И. Давыденко (сост.) | Льготы, пособия, субсидии, компенсации в 2020 году (2020) [PDF, DOCX]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980386.jpg" />
-</div>
-
-
-###  Подробнее
-
-У государства есть не только права, но и обязанности, о которых мы часто забываем, следя за уплатой налогов, коммунальных платежей и штрафов. Автор и издатели уверены – граждане должны знать о своих правах. Сегодня дважды и трижды платит не скупой, а незнающий. Что такое налоговый вычет? Как платить за квартиру вдвое меньше? Как получить субсидию на приобретение (   Читать дальше...   )Жанр: Юриспруденция, Гражданское право, Жилищное правоФормат: PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C36F00A9815DA4C2BA5C1546A95E936883C703A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973305   (980329) от 08.01.2016
-
-И. И. Агол | Витализм, механистический материализм и марксизм (2013) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателя предлагается книга известного советского биолога и философа И. И. Атола (1891-1937), посвященная разработке с точки зрения диалектического материализма некоторых вопросов биологии. Автор подробно разбирает, оценивает и критикует как основные проблемы современной ему виталистической теории, так и попытки механистов (философов, стоявших на позициях (   Читать дальше...   )Жанр: История, философия, биологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF22715356B174B25A8E87FEECCFC79F0BD8E9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973013   (980326) от 08.01.2016
-
-У. Моррис | Искусство и жизнь. Избранные статьи, лекции, речи, письма (1973) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980326.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании впервые на русском языке представлено обширное и многообразное наследие У. Морриса (1834–1896), известного английского поэта, писателя, архитектора, живописца, декоратора и дизайнера, автора социально-утопического романа «Вести ниоткуда», активного общественного деятеля, с 1883 года социалиста. Книга представляет интерес как для специалистов по (   Читать дальше...   )Жанр: История, философия, эстетика, искусство, политология, поэзияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861327DA06A969FF846D702D4D73744E1B054E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973264   (980295) от 08.01.2016
 
 Андре Моруа | Дон Жуан, или Жизнь Байрона (2010) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980295.jpg" />
 </div>
 
 
@@ -169,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980292.jpg" />
 </div>
 
 
@@ -195,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980284.jpg" />
 </div>
 
 
@@ -221,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980283.jpg" />
 </div>
 
 
@@ -247,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980282.jpg" />
 </div>
 
 
@@ -273,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980280.jpg" />
 </div>
 
 
@@ -300,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980249.jpg" />
 </div>
 
 
@@ -326,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980248.jpg" />
 </div>
 
 
@@ -353,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980114.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980109.jpg" />
 </div>
 
 
@@ -405,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980104.jpg" />
 </div>
 
 
@@ -434,7 +300,7 @@ A.С. Копылов и др. | Процессы и аппараты перед�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979829.jpg" />
 </div>
 
 
@@ -462,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979648.jpg" />
 </div>
 
 
@@ -488,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979404.jpg" />
 </div>
 
 
@@ -515,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979316.jpg" />
 </div>
 
 
@@ -541,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979310.jpg" />
 </div>
 
 
@@ -567,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979286.jpg" />
 </div>
 
 
@@ -593,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979284.jpg" />
 </div>
 
 
@@ -619,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979259.jpg" />
 </div>
 
 
@@ -646,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979148.jpg" />
 </div>
 
 
@@ -674,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979026.jpg" />
 </div>
 
 
@@ -685,6 +551,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37847F65180DD374577371ADB7350FC4CAFE1884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973910   (978947) от 09.01.2016
+
+Виктор Крупнов | Современный деловой английский в диалогах + словарь (2013) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник содержит 25 бизнес-диалогов для развития навыков устного общения деловых людей, а также образцы коммерческой документации (деловых писем) для грамотного ведения деловой переписки. Сборник заканчивается русско-английским словарем "Язык делового общения", содержащим большое количество терминов, фраз, словосочетаний, необходимых для ведения (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9257E41EF91491BFF2281D07644CF1ED3388E1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356307   (978722) от 30.01.2020
+
+Алексей Маслов | Загадки, тайны и коды "Дао дэ цзина" (2005) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978722.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дао дэ цзин», приписываемый Лао-цзы, – один из самых знаменитых и по-прежнему самых загадочных текстов VI–V вв. до н. э., принадлежащий одной из наиболее закрытых школ китайской традиции, которая и дала начало даосизму. Если это тайный текст, то почему он был записан? Если это текст не тайный, общедоступный, то почему же он столь высоко ценился всей китайской мистической (   Читать дальше...   )Жанр: Философия, РелигияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31A1177B276D4C115DECD4177C02D5D4F28FF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356331   (978714) от 30.01.2020
+
+И.Н. Огородников | Микропроцессорная техника: введение в Cortex-M3 (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие нацелено на формирование у студентов практических навыков разработки и программирования микропроцессорных устройств автоматики физических установок, приборов радиационной безопасности человека и окружающей среды, а также различных приборов биофизического и медицинского назначения.
+Рассмотрены практические вопросы программирования микропроцессорных (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0357E0EFF54109F4A55126EB52644B6BACA3E141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973584   (978669) от 09.01.2016
+
+Габриэль Билич | Анатомия человека. Большой популярный атлас (2015) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбирая домашний анатомический атлас, легко растеряться. Научные книги пугают терминами, латынью и мелкими рисунками с бесконечными подписями. Популярные, наоборот, грешат неточностями и поверхностной подачей материала. Вы держите в руках большой и практичный атлас, сочетающий лучшие черты популярного и научного издания: крупные иллюстрации с емкими, но точными пояснениями, (   Читать дальше...   )Жанр: Анатомия и физиология человекаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C439E45FD86F203430E7845B3AB683239240115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356285   (978607) от 30.01.2020
+
+Валерия Черепенчук (сост.) | 1000 шедевров мирового искусства (2019) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под обложкой этого издания вы найдете не только творения Леонардо да Винчи и Винсента Ван Гога. К шедеврам мы причисляем и простые на первый взгляд картины реалистов, имевших смелость заявить, что простые крестьяне и тяжелый физический труд вполне достойны кисти художника; и отдельные произведения представителей поп-арта, которые в ХХ веке спровоцировали очередной (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F8C8CD56D98A6A0CAA3E040E3DE85482C39BE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

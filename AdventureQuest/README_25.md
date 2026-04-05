@@ -1,3 +1,81 @@
+###  Публикация: 1336860   (757999) от 07.01.2022
+
+The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меня зовут Генри Бишоп, я расскажу вам свою ужасную историю... Эта история произошла со мной в конце 70-х, и даже самый страшный кошмар покажется лишь отголосками ужаса в сравнении с теми загадочными событиями, участником которых я стал. Я работал риелтором по продаже недвижимости и был у нас старинный особняк в штате Мэн, который никто не мог продать. Он висел, (   Читать дальше...   )Тип издания: RepackРазработчик: Blazes GamesЖанр: Adventure (Horror), Action, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DFED3632C4EEFF59FB7255B8EBA38AE67F74F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156781   (755902) от 27.03.2018
+
+Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) License CODEX [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755902.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Брюса Уэна продолжается в новой главе от Telltale Games. В этот раз ему предстоит защитить Готэм от Загадочника, который вернулся в город и совершает ужасные преступления. Джокер также не останется в стороне, ведь у него всегда припрятан козырь в рукаве.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A3BC90E88A4F180C6743B2CA19761D7689FCD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469639   (754509) от 09.01.2022
+
+Retro Machina (2021) [Ru/Multi] (1.11) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Retro Machina — это новое приключение в футуристическом мире, населенном роботами. Путешествие начнется со свалки, на которую выбросили нашего главного героя, и приведет к разгадке тайны исчезнувшей цивилизации. Судьба планеты в ваших руках!Тип издания: RepackРазработчик: Orbit StudioЖанр: Adventure, Action, PuzzleЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989101C32CEFF9078AE41A294DD8CDF9CE7C4613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201378   (754268) от 28.03.2018
 
 Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repack xatab [Episode 1-5]
@@ -6,7 +84,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754268.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Insomnis (2022) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752807.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751631.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751296.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747474.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.1.703) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747260.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745770.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.5.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745063.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744882.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Shadows on the Vatican Act I: Greed (2014) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744733.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Shadows on the Vatican Act II: Wrath (2015) [Ru/Multi] (1.0 u2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744502.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Bear With Me (2016) [Ru/Multi] (1.1.0) Repack alivedeath
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744442.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Late Shift (2017) [Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740494.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Paws and Soul (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740298.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.7) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740295.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738694.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738666.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738381.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737752.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Whispering Willows (2014) [Ru/Multi] (1.6.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736362.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Creaks (2020) [Ru/Multi] (1.0) License GOG [Collector's Edition] (обновля
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735955.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Life is Strange: Remastered Collection (2022) [Ru/Multi] (2.0.392.645158/dlc) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733473.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733299.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E2FA2E23302168314CECCB5E4FD60D1A87F9755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004166   (732307) от 29.05.2016
-
-1979 Revolution: Black Friday (2016) [Ru/En] (1.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732307.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1978 году в процветавшем и относительно демократичном в культурном плане Иране случилась так называемая Исламская революция, в результате которой шах Мохаммед Реза Пехлеви был свергнут, монархия упразднена, а к власти пришло мусульманское духовенство.Тип издания: LicenseРазработчик: iNK StoriesЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560B048909424F7E2E6BE8ACE22226FFD3627E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997895   (731271) от 30.05.2016
-
-Tiny Knight (2016) [En] (1.2) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tiny Knight - трехмерный платформер про сражения с монстрами и решение паззлов.Тип издания: LicenseРазработчик: ConvexЖанр: AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CDA7AE9048DC66172BB3FC0B585B8DD2FEC321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284106   (730509) от 19.02.2019
-
-Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – художник, путешествующий по острову Ист-Шейд. У вас с собой только мольберт, а перед вами - неописуемая красота природы. Вам предстоит знакомиться с местными жителями, заводить друзей и помогать тем, кто в этом нуждается. Преодолевайте естественные препятствия и находите всеми забытые уголки острова! Узнайте, как ваши действия могут повлиять на мир вокруг вас.Тип издания: RepackРазработчик: Eastshade StudiosЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478FD70090DD8500E2D2AED51E42F21751C49518
 ```
 
 https://mybot314.ru/tekegram_catalog/

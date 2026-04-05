@@ -1,3 +1,61 @@
+###  Публикация: 1133350   (695200) от 12.05.2017
+
+VA - Poolside Grooves #3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Benatural - Sodur (Original Mix)  7:41
+02.  Van Young - Em Be Myo (Original Mix)  4:53
+03.  Miper - Alpha Swirl (Original Mix)  4:45
+04.  Dominik Pointvogl - Piano Sunset (Original Mix)  6:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916F2E7B9B1AEF7889B768D0A2478A1D1495346E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133345   (695198) от 12.05.2017
+
+VA - Breakfast On The Beach (25 Beautiful Electronic Anthems) Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jack Funk - Naples (Original Mix)  10:28
+02.  Oceanus - Arabamish (Original Mix)  5:34
+03.  Alexius Gabrikov - The Lone Seagull (Original Mix)  3:13
+04.  Zach Fernandez - Chiem (Original Mix)  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8634FA7CDEBC6896C529ABB69A3D4998AC6A247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133047   (695195) от 12.05.2017
 
 VA - Dubai Lounge Vol.1 (Compiled by Volcanuca) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Dubai Lounge Vol.1 (Compiled by Volcanuca) (2017) [MP3|320 Kbps] <Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695195.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Meteor Trance Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695194.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Big City Beats Vol. 26 (World Club Dome 2017 Edition) (2017) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695189.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Max Freegrant - Wonderful Life (2017) [MP3|320 Kbps] <House, Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695188.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - On Air Ibiza Lounge 2017 (Selected Chill Out & Deep House Tracks) (2017) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695135.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Mood For Coffee Vol.1 (Wonderful Selection Of Modern Lounge Music) (2017) [
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695133.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Niklas Paschburg - Tuur mang Welten (2016) Unperceived Records [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695107.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Elite Lounge – Chillout Music For Bars & Hotel Lobbies (2018) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695092.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695065.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Funk City Vol 1 (2016) [MP3|320 кб/с] <Funky, Disco, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694845.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Dinka - Sundry: The Chillout Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694836.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Vanilla - Origin (2015) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Experim
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694450.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694404.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Entheogenic - Enthymesis (2014) [FLAC|Lossless|WEB-DL]<Psychill, Tribal, Downtem
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694331.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Igor Cold (Igor Dyachenko) - The Crying Room (2014) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694307.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Abora Recordings: Best Of 2019 (Mixed by Ori Uplift) (2020) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694277.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Vocal Trance feat. Jess Morgan (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694270.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Mama Thresl, Vol.2: Urban Soul meets the Alps (2019) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694196.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - A State Of Trance (Mixed by Armin van Buuren) (2020) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694156.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Summer Seeds (Selection By Cubixx & Sun) (2020) [FLAC|Lossless|WEB-DL|track
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694028.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Brother Moon Sister Sun / BMSS Records presents: Compilations Collection - 
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693746.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - White Dinner Session Vol.1 (Relaxed & Sunny Dinner Tunes) (2017) [MP3|320 K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693434.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Island Of Summer (Ibiza Smooth Summer Tunes) (2017) [MP3|320 Kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693432.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Not That Simple Sound Vol.10: Premium Lounge & Downtempo Moods (2017) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693429.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Not That Simple Sound Vol.10: Premium Lounge & Downtempo Moods (2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B9B920554FE6EE0C986AACC906FD25A8412A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133587   (693427) от 13.05.2017
-
-VA - EDM Hits Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Russian Dolls & Nathia Kate - Always (Original Mix)  4:24
-02.  Audino & ELMY - Beat It (Extended Mix)  4:11
-03.  Feel - Firedrops (Original Mix)  3:25
-04.  Papulin - Paper Boats (feat. Maria Milewska) (Original Mix)  3:35(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506E43231A1A3264FFEA187B1BBCB0C374302E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133863   (693426) от 13.05.2017
-
-VA - Blue Lounge 2: Selected Lounge Tunes By The Ocean (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jean-Michel Vallet - Living In My Dreams (Main)  2:33
-02.  Giacomo Bondi - Days (Full Mix)  4:41
-03.  Oliver Fox - Deep Project (Main)  2:49
-04.  Jean-Michel Vallet - Day To Love (Main)  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BA5131526804D8B777C0F1D463EE4A9BD13748
 ```
 
 https://mybot314.ru/tekegram_catalog/

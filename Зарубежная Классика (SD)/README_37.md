@@ -1,3 +1,56 @@
+###  Публикация: 1274325   (774084) от 23.01.2019
+
+Великая ночь Казановы / Casanova's Big Night (1954) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это случилось в итальянском городе Парма а 1757 году. Время настоящих страстей, убийства ради мести, признание в любви ради адюльтера, флирт ради легкой победы. И вот в самом центре таких событий оказался один человек, который прославил свое имя на все века — лучший фехтовальщик в Европе и самый знаменитый любовник во всей истории человечества Казанова!
+Но эта история (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Мюзикл, Комедия, ПриключенияРежиссер: Норман З. МакЛеодАктеры: Боб Хоуп, Джоан Фонтейн, Одри Далтон, Бэзил Рэтбоун, Хью Марлоу, Арнольд Мосс, Джон Кэрредин, Джон Хойт, Хоуп Эмерсон, Роберт ХаттонПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9753B9EDB6D672ED8AA20FFB656E75D69F44E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125015   (773325) от 13.04.2017
+
+Быстрая леди / The Fast Lady (1962) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник муниципалитета, велосипедист, влюбившись в дочь владельца крупной автомобильной фирмы, пересаживается на старенький, но заслуженный «бентли» по имени «Быстрая леди». Обучиться вождению за короткий срок ему помогает приятель, продавец машин, а также возлюбленная; ворчит и противодействует — её отец.Производство: ВеликобританияЖанр: КомедияРежиссер: Кен ЭннакинАктеры: Джеймс Робертсон Джастис, Лесли Филлипс, Стэнли Бакстер, Кэтлин Харрисон, Джули Кристи, Эрик Баркер, Оливер Джонстон, Аллан Катбертсон, Эсма Кэннон, Дик Эмери ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049E39721E53C34EFA86B916CA75578F434D2ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121691   (773048) от 13.04.2017
 
 Побег из Алькатраса / Escape from Alcatraz (1979) HDTVRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773048.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772828.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772351.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771946.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771597.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771585.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771083.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770942.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770234.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770223.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769703.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769296.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769042.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768719.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767477.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767068.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766826.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766789.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766550.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766277.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766068.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766064.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765679.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765192.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EB5582356857324173B1DFEABE228F3DF48ABE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 8063   (765096) от 03.07.2020
-
-Монти Пайтон: Как раздражать людей / Monty Python: How To Irritate People (1968)
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765096.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Как раздражать людей» — это пред-«Монти Пайтон»: десять скетчей, снятые будущими участниками культовой группы в 1968 году, до её фактического образования. В скетчах участвуют Джон Клиз и еще два будущих монти-пайтонца — Грэм Чепмен и Майкл Пэлин. Короткие истории, в которых разыгрывается нешуточная драма человеческого бытия в казалось бы привычных ситуациях: общение (   Читать дальше...   )Жанр: английский юморВ ролях: Джон Клиз, Грэм Чепмэн, Майкл Палин, Тим Брук-Тэйлор и др.
-Великобритания, 1968.Перевод: Русский насколько-можно-профессиональный (одноголосый)Продолжительность: 1 ч 08 мин 10 сек
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64D97CCDE068A6033C4C318D8A9803EFBFE4DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 230783   (765008) от 02.01.2022
-
-Дон Ку сын Зорро / Don Q Son of Zorro (1925) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765008.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о доне Сезаре Вега, сыне известного Зорро и о его приключениях в Мадриде, куда он, как и отец, поехал учиться... Хотя фильм и задуман, как продолжение нашумевшего «Знака Зорро», сам Зорро появляется только в самом конце, да и то ненадолго. К тому же его маскировка уже не нужна, ведь все давно знают, кто скрывается под маской.
-Фильм является сиквелом «Знака (   Читать дальше...   )Производство: США, Elton CorporationЖанр: Мелодрама, приключения, немое киноРежиссер: Дональд КриспАктеры: Дуглас Фербенкс, Мэри Астор, Джек МакДональд, Дональд Крисп, Стелла Де Лэнти, Warner Oland, Джин Хершот, Альберт МакКуорри, Лотти Пикфорд, Чарльз СтивенсПеревод: Немой с интертитрамиСубтитры: Английские интертитры, озвучивание титров по-русски за кадром.Продолжительность: 01:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F574420078C06F13924633120180C67871AD2A9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

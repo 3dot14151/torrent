@@ -1,3 +1,58 @@
+###  Публикация: 1808135   (10625) от 23.07.2025
+
+Windows 10 PRO 22H2 19045.3324 (х64) remaked as Windows 7/Windows Vista by windows umbrella (v6, 07.2025)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 с интерфейсом Windows 7 и  Windows Vista. ОС подходит для слабых ПК. Данная ОС подходит для пользователей которые не пользуются онлайн услугами Microsoft.Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FACC0A72D864FCBD978B6792DFBFB8F686F6B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180158   (10624) от 23.07.2025
+
+Ozzy Osbourne - 49 аlbums, 2 Box-Set, 144CD (1980-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Heavy Metal, Hard Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10624.jpg" />
+</div>
+
+
+###  Подробнее
+
+О́ззи О́сборн — британский рок-певец, музыкант, один из основателей и участник группы Black Sabbath, оказавшей значительное влияние на появление таких музыкальных стилей, как хард-рок и хеви-метал. Успешность его карьеры и популярность принесли ему неофициальный титул «Крёстный отец хэви-метала». После ухода из Black Sabbath начал сольную карьеру. На декабрь (   Читать дальше...   )Список альбомов:
+1980 | Blizzard Of Ozz
+1981 | Diary Of A Madman
+1983 | Bark At The Moon(   Читать дальше...   )Жанр: Heavy Metal, Hard' n' Heavy  †Продолжительность: 4d 11:47:25  †
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB94FAB287E2912CFCFB7D720446E6B36542BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790016   (10542) от 24.07.2025
 
 The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.0105/dlc) Repack Other s [Remastered]
@@ -6,7 +61,7 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.0105/dlc) Repack Other s [R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10542.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Launcher for zapret 2.9 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10335.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10332.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10317.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ Windows 11 Pro x64 Version 24H2 Build 26100.4652 by Igors_VL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10235.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Cloudflare начал блокировать пиратские сайты дл�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10141.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ MInstAll v.03.07.2025 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10020.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9913.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9877.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9811.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ Takopi no Genzai | Takopi's Original Sin | Первородный грех Та�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9718.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ Joe Bonamassa - 20 Studio Albums, 19 Live, 1 Compilation (1994 - 2025) 53 CD [FL
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9705.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9605.jpg" />
 </div>
 
 
@@ -349,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9604.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ Myst (2021) [Ru/Multi] (3.0.5 HotFix) License GOG [VR]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9598.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9496.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ UALinux RescuePack v.25.08 (Antivirus LiveDisk) (август 2025) [En] (обн
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9494.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9486.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9474.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9283.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9076.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8973.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8970.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8968.jpg" />
 </div>
 
 
@@ -623,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02DA89334FB4CF3DA47AC177F4CB995989DF0FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810877   (8849) от 09.08.2025
-
-Чиновников Санкт-Петербурга будет отбирать искусственный интеллект
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чиновников Санкт-Петербурга будет отбирать искусственный интеллект  Администрация Санкт-Петербурга начала тестировать нейросеть для отбора кандидатов на госслужбу, разработанную Национальным исследовательским университетом ИТМО. Пока искусственный интеллект (ИИ) тренируется на кандидатах в молодежный кадровый резерв.  В Смольном заявляют, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811459   (8727) от 10.08.2025
-
-Российская сборная одержала победу на Международной олимпиаде по ИИ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборная России по искусственному интеллекту установила исторический рекорд на Международной олимпиаде в Пекине, завоевав шесть золотых медалей из восьми возможных наград. Это лучший результат по высшим наградам среди всех 61 страны-участницы престижного турнира, который проходил при поддержке ЮНЕСКО.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

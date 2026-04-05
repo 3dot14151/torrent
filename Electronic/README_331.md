@@ -1,3 +1,116 @@
+###  Публикация: 1415669   (374301) от 13.10.2020
+
+Zake - Geneva (2020) Past Inside the Present [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. IlluminationЖанр: Ambient, Drone, Dub TechnoПродолжительность: 01:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEC25303AB7C3BB2AE1B392E23DE4783E101741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415805   (374292) от 13.10.2020
+
+Asa Tone - Temporary Music (2020) Japan Edition [FLAC|Lossless|tracks + .cue] <Electronic, Minimal, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Tell A Picture (2:02)
+02. Perpetual Motion Via Jungle Transport (3:44)
+03. Visit From Tokay (2:48)
+04. Inexplicable Notion (Location Specific) (4:01)(   Читать дальше...   )Жанр: Electronic, Minimal, ExperimentalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A001C8C53058FDB70ED88558010909CC22902F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415747   (374177) от 13.10.2020
+
+Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Field Recording, Techno Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birds And Sunrise On Langeoogerstr. (08:22)
+ 02. Appreciation (07:32)
+ 03. Winterwald (07:44)
+ 04. In Your Hometown, Before You Were Born (feat. Ryckyboy) (07:14)(   Читать дальше...   )Жанр: Ambient, Field Recording, Techno AmbientПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DA6AF69B18A454561CCCEB18BFB80BDB5CBDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069652   (374164) от 04.11.2016
+
+VA - Best Autumn Chillout Hits (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonnight - I Need a New Love (Bryan Milton Remix) (6:25)
+02. Seven24 - The Mirage (6:31)
+03. Seven24 - Performance (Tom Strobe Remix) (4:45)
+04. Seven24 - The Meaning (Tom Strobe Remix) (6:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3016A286A5B72107A5703E552F358CBD7D245C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951894   (374109) от 25.09.2019
 
 Younger Brother - Discography 10 Releases (2002-2019) Twisted Records [FLAC|Lossless|tracks+.cue, tracks]<Downtempo, Psyсhill, Leftfield, Experimental, Ambient>
@@ -6,7 +119,7 @@ Younger Brother - Discography 10 Releases (2002-2019) Twisted Records [FLAC|Loss
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374109.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ Paul Van Dyk - From Then On (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373924.jpg" />
 </div>
 
 
@@ -61,7 +174,7 @@ Isophlux - Label-Pack 43 Releases (1995-2020) [FLAC|Lossless|tracks+.cue, tracks
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373906.jpg" />
 </div>
 
 
@@ -87,7 +200,7 @@ VA - Pedro Del Mar: Mellomania Step 16 (2009) 2CD, Compilation, Mixed [MP3|~245-
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373335.jpg" />
 </div>
 
 
@@ -116,7 +229,7 @@ Binary Finary - Live @ Spin San Diego, United States Of Trance Classics, (2018-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373325.jpg" />
 </div>
 
 
@@ -145,7 +258,7 @@ Toyah - Anthem (1981) 2CD, Deluxe Edition, Remaster, 2022, Safari Records [FLAC|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373241.jpg" />
 </div>
 
 
@@ -174,7 +287,7 @@ VA - Figments Of Duality (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373193.jpg" />
 </div>
 
 
@@ -203,7 +316,7 @@ VA - Mellomania Step 16 (Mixed by Pedro del Mar) (2009) 2CD, Compilation, Mixed 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373187.jpg" />
 </div>
 
 
@@ -232,7 +345,7 @@ Galaxy Racer - Across The Universe (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373184.jpg" />
 </div>
 
 
@@ -261,7 +374,7 @@ DRYVE - 80s Kids (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372883.jpg" />
 </div>
 
 
@@ -290,7 +403,7 @@ VA - Dance Hits Euro Style (2015) [MP3|320 кб/с]<House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372759.jpg" />
 </div>
 
 
@@ -319,7 +432,7 @@ Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|tracks + .cue] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372720.jpg" />
 </div>
 
 
@@ -348,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372572.jpg" />
 </div>
 
 
@@ -377,7 +490,7 @@ Ahmed Romel - RUYA (2019) [FLAC|Lossless|WEB|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372568.jpg" />
 </div>
 
 
@@ -406,7 +519,7 @@ VA - FSOE Ibiza Closing Party (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372565.jpg" />
 </div>
 
 
@@ -435,7 +548,7 @@ VA - Ibiza Trance (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372564.jpg" />
 </div>
 
 
@@ -464,7 +577,7 @@ VA - ADE Trance Collection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372442.jpg" />
 </div>
 
 
@@ -493,7 +606,7 @@ VA - JOOF DJ Sessions Volume 4 (Mixed by Fonarev) (2017) [FLAC|Lossless|WEB|trac
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372439.jpg" />
 </div>
 
 
@@ -522,7 +635,7 @@ VA - Solarstone presents Pure Trance 7 (Extended) (2019) [FLAC|Lossless|WEB|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372437.jpg" />
 </div>
 
 
@@ -551,7 +664,7 @@ Rat & Co - Discography 9 Releases (2012-2017) [FLAC|Lossless|tracks+.cue, tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372294.jpg" />
 </div>
 
 
@@ -580,7 +693,7 @@ VA - Black Hole Trance Music 10-17 (2017) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372293.jpg" />
 </div>
 
 
@@ -609,7 +722,7 @@ Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [FLAC|Lossless|WEB|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372266.jpg" />
 </div>
 
 
@@ -623,121 +736,6 @@ Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [FLAC|Lossless|WEB|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5BBC398D67CE039380EE5063FEEA995E638499B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327662   (372259) от 26.09.2019
-
-VA - A State Of Trance Ibiza 2019 (Mixed by Armin van Buuren) (2019) [FLAC|Lossless|CD|image + .cue] <Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Avian Grays feat. Jordan Shaw - Something Real
-02. Omnia & Whiteout - U
-03. Tom Fall - Arcadia
-04. Nikhil Prakash x Tomac - Pressure(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A14D14F450E095FF93A9260E525DFAC2CDDD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176434   (371924) от 21.10.2017
-
-Satori - Maktub (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, World>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sherazade And Her Never Ending Stories (3:42)
- 02. Umama (5:33)
- 03. Dive Into The Mystic (5:19)
- 04. Shotgun (5:23)(   Читать дальше...   )Жанр: Deep House, Downtempo, WorldПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE88C69A8D3834FA66B6AEFA372725CE61EC850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218963   (371391) от 14.10.2020
-
-Circular - Discography 7 Releases (1997-2020) Origo Sound, Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, IDM, Psybient, Abstract>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bjalle Viril (07:22)
- 02. Fiskeugle (06:18)
- 03. Pingleslim (05:04)Тип издания: CD, WebЖанр: Ambient, Downtempo, IDM, Psybient, Abstract •Продолжительность: 06:42:08 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6F98CA525FFEB29857732B5D13024652DDBA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070041   (371317) от 05.11.2016
-
-Meta Meat - Metameat (2016) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Industrial, Tribal, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melt (05:26)
-02. Backstitch (05:12)
-03. Sword (03:18)
-04. Shudder (06:52)(   Читать дальше...   )Жанр: Industrial, Tribal, ExperimentalПродолжительность: 01:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16AE4A5F008F8FF970D04BC677986CE180749143
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Fenetre 0.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336854.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DropDMG 3.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336852.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Studies 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336851.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Tri-BACKUP Pro 9 v9.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336850.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ iRingg 1.0.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336848.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ OmniGraffle Pro 7 v7.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336847.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336846.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Mate Translate 6.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336844.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Renamer 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336736.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Power Manager 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336733.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Audirvana 3.5.23 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336730.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Carbon Copy Cloner 5 v5.1.12 (5830) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336728.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Things 3 v3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336726.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ iVI Video Converter 4 v4.650 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336725.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Clock - The Best World Clock 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336723.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Typeface 2 v2.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336717.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Librarian Pro 5 v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336605.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Scrivener 3 v3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336603.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ TablePlus 2.9 (263) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336599.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Sidify Apple Music Converter 1.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336589.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Path Finder 8.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336522.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Ableton Live Suite 10 v10.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336472.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Alien Skin Eye Candy 7 v7.2.3.75 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336469.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Records 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336441.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ WiFi Signal 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336431.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Paragon NTFS for Mac 15.5.62
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336372.jpg" />
 </div>
 
 

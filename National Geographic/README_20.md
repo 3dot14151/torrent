@@ -6,7 +6,7 @@ NG: Амазония: наизловещий ритуал / Search for the Amazo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603152.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603071.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602637.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602142.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601858.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601216.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599930.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599925.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG: Прекрасная Америка: Величественный Север
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598226.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598067.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596254.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595965.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NGW: Гризли Аляски бросают вызов. Короли остр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595005.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594602.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NGW: В поисках таинственного зверя / Search for the Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593547.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593271.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593114.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592989.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592969.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592877.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG: Египет с величайшим исследователем в мир�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592709.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591157.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589748.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NG: Дикая сторона кошек / Wild Side of Cats (2012) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589503.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NG: Дикая река Конго / Wild Congo (2013) HDTVRip [H.264/720p-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589172.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586168.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1779752   (27647) от 14.02.2025
+
+Rebrain, Денис Сальников | RabbitMQ (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс "RabbitMQ" от Rebrain состоит из 11 модулей, охватывающих все аспекты работы с RabbitMQ: начиная с основ AMQP, управления очередями и маршрутизацией и заканчивая продвинутыми темами, такими как Dead letter exchange, RPC, TLS, кластеризация, плагины, производительность и мониторинг. Программа курса предназначена для DevOps-инженеров, системных администраторов, (   Читать дальше...   )Производство: RebrainЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9275A300B515FCDC24AF948D9540052EE255A709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779728   (27646) от 14.02.2025
 
 Алина Ахмадиева | Вкус детства или назад в СССР (2021) WEB-DL [RU]
@@ -6,7 +32,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27646.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27645.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27632.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27603.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Jeffrey Way | Laracasts Full Dump (2025) WEB-DL [EN / EN Sub] [Дамп сайт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27598.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Udemy, Андрей Суховицкий | Основы Domain Driven Design (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27581.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ JUG Ru Group | DevOops 2024. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27549.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Resonance Music Academy, Иван Романовский | Production. Курс 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27548.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27506.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27462.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27421.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ David East | Getting Started With React.js (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27382.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Pluralsight | AngularJS for .NET Developers (2013) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27377.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Skillfactory, Иван Кудрявин | Специалист по киберб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27372.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27359.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Udemy | Шахматы на JavaScript (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27270.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27264.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ PurpleSchool, Антон Ларичев | Neovim - практика и наст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27261.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ JUG Ru Group | GoFunc 2024 Autumn. Конференция по разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27224.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ K-syndicate (Knowledge Syndicate), Анатолий Колесник | Advanced 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27209.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ JUG Ru Group | Java-конференция для опытных разрабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27189.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ GetAnalyst | Проектирование БД - подходы к решени�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27179.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Udemy, Михаил Непомнящий | Тестирование JavaScript �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27158.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ GetAnalyst | Интеграции: подходы к решению практи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27139.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27137.jpg" />
 </div>
 
 
@@ -669,32 +695,6 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F9555D90F141619D7C65C5D3B362BD043D32F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780667   (27128) от 19.02.2025
-
-Кирилл Поздняков | Продвинутый backend на nodejs за 12 часов (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27128.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы пройдемся по темам Nodejs в углубленном формате. Курс рассчитан на разработчиков разного уровня. Тут вы рассмотрите продвинутые темы и полный спектр возможностей языка на продвинутом уровне.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADC26EB74F82DBF1173C35E17B3B795D49840C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

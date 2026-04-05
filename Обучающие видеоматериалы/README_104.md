@@ -1,3 +1,29 @@
+###  Публикация: 1393965   (766055) от 02.07.2020
+
+Lynda.com | Camera Movement for Video Productions (2014) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинопроизводство является понятием, основанным на движении: действие происходит не только в кадре, но также камера движется сама. Возможность придать камере движение – это то, что отделяет операторов-новичков от профессионалов. В данном курсе мастистый инструктор по продакшену объяснит важность движения камеры и пользу включения её в ваши видео-проекты. Уроки даются (   Читать дальше...   )Производство: Lynda.comЖанр: Видеоурок, туториалЯзык озвучки: АнглийскийПродолжительность: 0:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CD7BF5D7DFAC48CC752FA2601B02ABF3CAA536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393768   (765979) от 02.07.2020
 
 Udemy | MQL5: Создание торговых роботов и индикаторов (2020) PCRec [H.264/720p-LQ]
@@ -6,7 +32,7 @@ Udemy | MQL5: Создание торговых роботов и индикат
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765979.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ SANS Institute, Joshua Wright | SEC504: Hacker Tools, Techniques, and Incident H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765915.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Udemy | Разжёванный курс по JavaScript для чайников 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765892.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Udemy, Tom See | Linux RHCSA preparation course - RHEL 8.2 - Latest version (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765852.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Udemy, Imran Teli | DevOps Projects | 20 Real Time DevOps Projects (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765847.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Udemy, Luca Berton | Automate Ubuntu Linux SysAdmin tasks in 30+ Ansible example
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765845.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ Udemy, Testing World | End to End Automation using Python | Web Application & AP
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765844.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765289.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ Allan McKay | FX Technical Director Transformation Module 6 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765286.jpg" />
 </div>
 
 
@@ -257,7 +283,7 @@ Lynda.com | Creative DSLR Video Techniques (2013) WEB-DL [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765262.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765201.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765198.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ ITVDN | Онлайн курс  CoffeeScript (2017) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765149.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765125.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ Udemy | Основы ООП на Python (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765110.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765108.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ VideoSmile, Артём Слаква | Мини-курс «Blender для нов�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765094.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Megan DiPiero | Следующий уровень - Онлайн-семинар 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765024.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Rosella Vanon | The complete beauty & portrait retouching masterclass (2020) PCR
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765023.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ CG Masters | Мастер создания автомобиля в Blender / Mas
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765018.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Udemy | Ultimate Ethical Hacking Course 2021 (2021) WEB-DL [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765011.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765005.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ SANS Institute, James Shewmaker, Stephen Sims | SEC660: Advanced Penetration Tes
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765002.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Udemy, Bryson Payne | Real-World Ethical Hacking: Hands-on Cybersecurity (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765000.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ Udemy, Catalin Stefan | Android Jetpack masterclass in Kotlin (2021) WEB-DL [En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764998.jpg" />
 </div>
 
 
@@ -678,32 +704,6 @@ Udemy, Catalin Stefan | Android Jetpack masterclass in Kotlin (2021) WEB-DL [En 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9D4F77FE4579DDF89C3E8A47AE3AD48BF39A7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521377   (764962) от 02.01.2022
-
-5daydeal | Набор курсов и фотографий (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый 2021 набор фотографий и курсов с сайта 5daydealЖанр: фотографияЯзык озвучки: АнглийскийПродолжительность: 48:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DED3E22786667D0BDE4957F4AA3F29E1B817CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

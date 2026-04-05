@@ -1,3 +1,81 @@
+###  Публикация: 1610131   (1042577) от 06.02.2023
+
+The Book of Bondmaids (2021) [Ru/Multi] (1.84/dlc) License GOG [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевство в руинах, принцесса в цепях, герой, оказавшийся между искуплением и проклятием, и древняя, потрепанная, пыльная книга. Правящая королевская династия Конуссии была свергнута, и теперь на троне восседает нежить-лич. Как придворный предыдущего режима вы были частично ответственны за переворот, и поэтому ваши услуги были востребованы Личем.Тип издания: LicenseРазработчик: kamtiЖанр: Приключeние, Визуальные новеллы, ДрaмаЯзык субтитров: Русский, Английский, Китайский, Японский и другиеЯзык интерфейса: Русский, Английский, Китайский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E73CCB5EB2ADF5945A5E8E25A33796E1AA8DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437044   (1042374) от 03.01.2021
+
+The Walking Dead: The Telltale Definitive Series (2020) [Ru/Multi] (1.6/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042374.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Walking Dead: The Telltale Definitive Series содержит все четыре сезона, дополнения 400 Days и The Walking Dead: Michonne - всего 23 уникальных эпизода, которые подарят игрокам более 50 часов игры. Издание с графическими улучшениями, бонусами от создателей и тщательно воссозданными классическими меню - это лучший способ пройти путь юной Клементины и узнать, чем (   Читать дальше...   )Тип издания: LicenseРазработчик: Skybound GamesЖанр: Приключение, Survival, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE2091C10BC2267E8289CF2DC38417B26CC6442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437319   (1042210) от 04.01.2021
+
+DARQ (2019) [Ru/Multi] (2.3.1/dlc) License GOG [Complete Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042210.jpg" />
+</div>
+
+
+###  Подробнее
+
+DARQ – игра про мальчика по имени Ллойд, который осознаёт, что спит. Сон стремительно превращается в кошмар, а все попытки проснуться оборачиваются неудачей. Исследуя тёмные уголки своего подсознания, Ллойд учится контролировать свой сон. Он ходит по стенкам, по потолку, скрывается от монстров и разгадывает невероятные головоломки, чтобы не только остаться в живых, (   Читать дальше...   )Тип издания: LicenseРазработчик: Unfold GamesЖанр: Adventure (Horror), Puzzle, 3DЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246C3BB1A7B3D576110FC305D72CE7C5BA75B268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071003   (1041225) от 11.02.2023
 
 Twinsen's Little Big Adventure Classic / Relentless: Twinsen's Adventure (1994) [Multi] (3.2.3.2/dlc) License GOG
@@ -6,7 +84,7 @@ Twinsen's Little Big Adventure Classic / Relentless: Twinsen's Adventure (1994) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041225.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ GRUNND (2023) [En] (1.016d) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040965.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Fear of the Dark (2023) [Ru/Multi] (Build 10576095) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039218.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ JUSTICE SUCKS: Tactical Vacuum Action (2022) [Ru/Multi] (1.1.01-615-aa61ab1) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038298.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Long Dark (2017) [Ru/Multi] (1.93) Repack xatab [Episode 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037865.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Samsara Room (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037768.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036778.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036486.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Fantastic Kitty Rue (2022) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035819.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035677.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ File Destined (2023) [Ru/Multi] (1.0.382) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034718.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034316.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 1054
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034256.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Riddle of the Sphinx: The Awakening / Загадка Сфинкса: Пробу�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033695.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032901.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Harvester (1996) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032886.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032863.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032848.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Uncertain: Last Quiet Day (2016) [Ru/Multi] (1.0.1.004) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032612.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Call of the Sea (2020) [Ru/Multi] (1.1.105) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032603.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Late Shift (2017) [Ru/Multi] (20200107) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032373.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031943.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031704.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Fireproof Games с гордостью представляют версию че
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07BE01F3ABDFBD43101259A5590EBD1CCEAC331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447619   (1031490) от 14.02.2021
-
-Her Story (2015) [En] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Her Story – новая видеоигра от Сэма Барлоу, создателя Silent Hill: Shattered Memories и Aisle. Весь игровой процесс криминального детектива Her Story вращается вокруг полицейской базы данных с допросами подозреваемых. Во всех видеороликах допросов снялась Вива Сейферт, актриса и участница группы Joe Gideon and the Shark. Как это работает? Her Story усаживает вас (   Читать дальше...   )Тип издания: LicenseРазработчик: Sam BarlowЖанр: Simulator, Detective, FMVЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3251ACDBC7BF0615B95E0037B540B8D165AA18C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621190   (1031314) от 23.03.2023
-
-Rough Justice: '84 (2023) [Multi] (1.0.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rough Justice: '84 - детективный симулятор, дающий возможность управлять частным охранным агентством. События игры развиваются в солнечных 80-х годах. На плечи игрока выпадает тяжелая ноша - очистить улицы родного города от преступности. В центре истории секретные организации, тайные заговоры и политические интриги. Геймплей позволяет нанимать команду опытных оперативников, (   Читать дальше...   )Тип издания: LicenseРазработчик: Gamma Minus UGЖанр: Приключение, Стратегия, ДeтективЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский, Китайский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE71DF420B6CB5D73B45ED3F875783130EDDB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238319   (1031005) от 16.02.2021
-
-Don't Starve (2013) [Ru/En] (429404/dlc) Repack West4it
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031005.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Don’t Starve» — это бескомпромиссная игра на выживание в диком мире, наполненном наукой и магией. Вы — Уилсон, отважный ученый господин, которого поймал злобный демон и отправил в загадочные дикие земли.Тип издания: RepackРазработчик: Klei EntertainmentЖанр: Adventure, Indie, Sandbox, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DD31C5A0BE8703AA9C9D4F47DEE5FA3440B011
 ```
 
 https://mybot314.ru/tekegram_catalog/

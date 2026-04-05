@@ -1,3 +1,31 @@
+###  Публикация: 991315   (898751) от 03.03.2016
+
+Context Tools | Автоматизация контекстной рекламы с помощью Context Tools (2016) PCRec [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надстройка Context-Tools для Microsoft Excel. Эта программа создана для специалистов по контекстной рекламе, чтобы автоматизировать многие рутинные операции при создании кампаний. На данный момент программа насчитывает более 80 функций!
+
+Скачайте бесплатный видеокурс. Он в простой форме раскроет все возможности программы не в теории, а на реальных примерах из практики (   Читать дальше...   )Жанр: Яндекс Директ, Google Adwords, ExcelПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E570DB5C2EC858E6038E39028B0724FFAD855C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991548   (898727) от 03.03.2016
 
 Екатерина Туманова | Полная стратегия за 5 уроков (2015) PCRec [H.264/720p]
@@ -6,7 +34,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898727.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ The Art Of Aaron Blaise, Ronnie Williford | Taking Control of Color with Ronnie 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898657.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Andy Anderson | Adobe Photoshop CC Tutorials for Beginners (2014) PCRec [H.264] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898654.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Udemy | Ultimate AngularJS: Build a Real-World App from Scratch (2016) [EN] [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898652.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ Udemy, Bonnie Schulkin | React Query: Server State Management in React (2021) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898647.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ Robeen Dey | Udemy | The Complete Web Developer Bootcamp - Beginner to Expert (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898642.jpg" />
 </div>
 
 
@@ -171,7 +199,7 @@ Udemy, Chris Sikes | Red Team Ethical Hacking - Intermediate  (2021) WEB-DL [En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898639.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898623.jpg" />
 </div>
 
 
@@ -227,7 +255,7 @@ Udemy, Stephane Maarek | Ultimate AWS Certified SysOps Administrator Associate 2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898585.jpg" />
 </div>
 
 
@@ -253,7 +281,7 @@ Udemy, Coding Minutes и др. | Python Programming Master Course (2021) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898581.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ Udemy, Tim Buchalka's Learn Programming Academy, Dr. Frank Mitropoulos | Beginni
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898563.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898486.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898466.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898443.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898414.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ Rohan Dalvi | Houdini 17 New Erosion node (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897340.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897266.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 1 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897221.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ Allegorithmic, Wes McDermott | Substance in Unreal Engine 4 (2015) PCRec [En, Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897194.jpg" />
 </div>
 
 
@@ -524,7 +552,7 @@ Rohan Dalvi | Introduction to Vex for Visual Effects in Houdini (2017) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897187.jpg" />
 </div>
 
 
@@ -550,7 +578,7 @@ Udemy, Erindale Woodford | Procedural Materials in Blender 2.9 (2021) PCRec [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897170.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ Digital Tutors, Joshua Kinney | Creating Animal Fur for Games in Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897166.jpg" />
 </div>
 
 
@@ -606,7 +634,7 @@ Digital Tutors, Alex Tuzhikov | Modeling an Interior Scene from Photo Reference 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897087.jpg" />
 </div>
 
 
@@ -632,7 +660,7 @@ ArtClever, Тина Хабарова | Курс «Декоратор» [LITE в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897078.jpg" />
 </div>
 
 
@@ -659,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896831.jpg" />
 </div>
 
 
@@ -672,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86E1FFBCD6EBE12386544F7D755D7ACAF745DD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992962   (896775) от 04.03.2016
-
-Lynda.com | Основные принципы дизайна логотипа (2013) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избежать ошибок, улучшить процесс проектирования, реагировать на требовательных клиентов, и решать творческие задачи, которые участвуют в создании логотипа. В этом курсе Von Glitschka показывает вам, как заботиться о мелочах, как контракты, а также о важнейших решениях дизайна, участвующие в построении пакета бренда. Научитесь определять ожидания вашего клиента до (   Читать дальше...   )Жанр: Веб-дизайнПродолжительность: 02:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3197626D4B94E017EB6FBCDDBD123B4C031044A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Clawfinger - Before We All Die (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060373.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - War Child Records - HELP(2) (2026) Explicit [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060309.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - Early Indiana Punk And New Wave: (The Crazy Al's Year(s) 1976 - 1983) (2014
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060257.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Coldplay - X&Y (2005) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059848.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ R.E.M. - Reckoning (1984) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059612.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Nirvana - In Utero (1993) [FLAC|Lossless|tracks + .cue] <Grunge, Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054977.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Melissa Bonny - Cherry Red Apocalypse (2026) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054260.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Deftones - Collection (1995 - 2025) 23CD [FLAC|Lossless|image + .cue|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054082.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Binding - Cool Memory (2025) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Post-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053110.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ends With A Bullet - For All My Sins (2026) [FLAC|Lossless|WEB-DL|tracks] <Moder
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052168.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Jay-Z / Linkin Park - Collision Course (2004) Brazil, 936248963-2, AA0050000 Pre
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051581.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Linkin Park - Recharged (2013) Brazil, 0093624941606, AB0003000 Pressing [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051580.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Linkin Park - Songs From The Underground (2008) Japan, WPCR-13468, 2009 [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051578.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Linkin Park - One More Light Live (2017) Brazil, 0093624907923, AB0001000 Pressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050437.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Linkin Park - One More Light (2017) Argentina, 559687-2 [FLAC|Lossless|image + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050435.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Linkin Park - Living Things (2012) Brazil, 9362495048, AD0001000 Pressing [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050434.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Linkin Park - Minutes To Midnight (2007) Brazil, 9362444772, AA0031000 Pressing 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050433.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Linkin Park - Reanimation (2002) U.S., 9 48326-2, 2011+ [FLAC|Lossless|image + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050364.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Stone Sour - Collection (2002 - 2017) 7 CD [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047543.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Darko US - Dethmask, Pt. 1-2 (2020-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046460.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Astronoid - Radiant Bloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative & In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046131.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Anti-Flag - Lies They Tell Our Children (2023) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046048.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Nina Hagen – Love (1987) [FLAC|Lossless|tracks + .cue]<New Wave, Punk, Pop Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044543.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ New Found Glory - Make The Most Of It (2023) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044331.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ The Smashing Pumpkins - Atum: Act I-II (2022-2023) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043539.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Russkaja - Turbo Polka Party (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gyp
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043249.jpg" />
 </div>
 
 

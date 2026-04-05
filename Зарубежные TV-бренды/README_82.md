@@ -6,7 +6,7 @@ NG. Легенда о хрустальном черепе / Legend of the Crysta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ History Channel. Династия Трампов / Biography: The Trump Dynasty 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456441.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Выдающиеся женщины ХХ столетия. Амелия Э�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455393.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Нацизм: Предостережение истории (1999) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454979.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454781.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NG: Взгляд изнутри: Северная Корея - тогда и с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454733.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NGW: Удивительные летучие мыши / Incredible Bats (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454684.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454675.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NG. Мафия. Тото Риина / Mafia Confidential. Toto Riina (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454640.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ BBC. Загадки квантовой физики / The Secrets of Quantum Phy
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454311.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NG: Международный аэропорт Дубай. Серия 2 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453852.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453386.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453376.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BBC: Атлантида была здесь / Atlantis: the Evidence (2010) IPTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453244.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Плутон: первая встреча / Direct from Pluto-The Fir
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453238.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453163.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ BBC Horizon: В какой Вселенной мы находимся? / Which U
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453102.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ NG: Исследователь 2.0 / Explorer (2015) HDTV [H.264/1080i] (8 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453076.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NG. Нападение нацистов на США (Атака нацистов
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452648.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ History Channel. Погода, изменившая ход истории / Weat
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452422.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Discovery. Самая странная погода на Земле / Strangest 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452414.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452361.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452350.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2015) HDTVRip (3 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451032.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ National Geographic: Американские транссексуалы / Ameri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450279.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448889.jpg" />
 </div>
 
 

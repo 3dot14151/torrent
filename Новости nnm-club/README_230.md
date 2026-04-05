@@ -1,3 +1,55 @@
+###  Публикация: 1646315   (246970) от 15.07.2023
+
+Переустановка больше не проблема: Windows 11 теперь можно легко восстанавливать с помощью Windows Update
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переустановка ОС Windows считается универсальным лекарством от большинства программных проблем и сбоев. Однако очень немногим пользователям нравится переустанавливать Windows и восстанавливать все свои приложения, игры, файлы, настройки и многое другое. Несмотря на то, что Microsoft работает над тем, чтобы сделать резервное копирование Windows более удобным и простым, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582298   (246961) от 15.07.2023
+
+СССР. Знак качества с Иваном Охлобыстиным (2021-2023) WEBRip (выпуски 1-75 из ??) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский Союз - это не только серп и молот, первые полёты в космос, «МИР! ТРУД! МАЙ!» или гонка вооружения. Для многих это - время молодости. Лучший период в жизни каждого человека, когда мы учились любить, дружить, справляться с поражениями, не терять голову от побед и не беспокоились о завтрашнем дне… Ведущий программы «СССР. Знак качества», найденные им артефакты, (   Читать дальше...   )Производство: Россия, ООО «Студия-А» по заказу ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: документальный, телепередача, история, хроникаРежиссер: Евгений КривцовУчастники: Иван ОхлобыстинЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6777E916A1BC7E9812995CFC97E3B0AE9A9CFAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604383   (246940) от 16.07.2023
 
 Snappy Driver Installer 1.23.5 (R2305) | Драйверпаки 23.07.0 [Multi/Ru] (Неофициальная полная раздача)
@@ -6,7 +58,7 @@ Snappy Driver Installer 1.23.5 (R2305) | Драйверпаки 23.07.0 [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246940.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246939.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246904.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246901.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246878.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 10.1.2046.0 (19.07.2023) RePack
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246868.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246850.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246840.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246820.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246817.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.22.07.23) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246805.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246769.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.02.338408) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246738.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Dragon Age II + 16 DLC + High Texture Pack [Ru/En] (Lossless RePack/1.04) 2011 |
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246701.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246699.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_244743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_244743.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243767.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242917.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Mozilla FireFox 99.0.0.8124 Portable by JolyAnderson [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242710.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242196.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Apple изучает возможность показа рекламы на iPh
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241066.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239533.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Google заблокировал аккаунт отца, отправившег�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239429.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237181.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Европейская служба защиты данных запустит собственную социальную сеть, — используя ПО с открытым исходным кодом Mastodon.На этой неделе EDPS объявила о пилотном запуске сервера. Его назвали EU Voice, и он создан для того чтобы европейские организации и управления могли общаться с населением.
 Кроме того, служба тестирует альтернативу YouTube — EU Video. Новый сервис (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551445   (234694) от 17.05.2022
-
-Google показала очки дополненной реальности, показывающие перевод речи собеседника
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google завершила свою конференцию I/O интересным сюрпризом – компания показала свои новые очки дополненной реальности. Ключевой особенностью, которую продемонстрировала Google, была возможность видеть переводы с других языков прямо перед глазами.К сожалению, компания не поделилась подробностями об этих очках. Google лишь продемонстрировала видео, демонстрирующее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578389   (233358) от 24.09.2022
-
-В сети появились фейковые вакансии от ушедших зарубежных IT-компаний
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233358.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России появились фейковые объявления с предложениями работы в крупных зарубежных IT-компаниях. Мошенники полностью копируют описания должностей с зарубежных порталов и делают так, чтобы они индексировались поисковиком Google при соответствующем запросе. Вместо ожидаемой работы соискателя ждет обман на крупную сумму, сообщает издание "Известия".Так, например, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

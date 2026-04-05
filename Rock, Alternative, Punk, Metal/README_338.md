@@ -1,3 +1,145 @@
+###  Публикация: 1215264   (759838) от 25.03.2018
+
+Auri - Auri (2018) [MP3|320 Kbps] <Folk Rock, Celtic, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Space Between (5:01)
+ 02. I Hope Your World Is Kind (5:03)
+ 03. Skeleton Tree (4:19)
+ 04. Desert Flower (6:04)(   Читать дальше...   )Жанр: Folk Rock, Celtic, Female VocalПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AC334F697803FE810F7AAA5D2A5409095031E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320814   (759815) от 08.04.2011
+
+Buddy Holly - Memorial Collection - (2008)3CD [FLAC|Lossless]<Rock'n'roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock'n'rollПродолжительность: 02:06:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215335   (759718) от 25.03.2018
+
+Jack White - Boarding House Reach (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connected By Love
+02. Why Walk a Dog?
+03. Corporation
+04. Abulia and Akrasia(   Читать дальше...   )Жанр: Indie Rock, Blues-RockПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D8AB7A85DDA238FBA186D3C3E05EA99069D65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215364   (759615) от 25.03.2018
+
+Wildways - Day X (2018) [MP3|320 Kbps] <Post-Hardcore, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day X (4:05)
+ 02. Self Riot (3:49)
+ 03. 16.9 Oz (3:32)
+ 04. Sarah (3:16)(   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, ElectronicПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B114F6F765BE0E78D3D56F7344AFF31A8FB205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017977   (759381) от 18.05.2016
+
+The King Must Die - Murder All Doubt (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Well Being
+02. In Blood
+03. Murder All Doubt
+04. A New Hell You Embark(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0067894AFBB034DFD8507214C4C7CEC3D71996E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017982   (759376) от 18.05.2016
 
 Beatray - A Ship's Call (2016) [MP3|320 кб/с] <Power Metal ,Heavy Metal>
@@ -6,7 +148,7 @@ Beatray - A Ship's Call (2016) [MP3|320 кб/с] <Power Metal ,Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759376.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ Evil Masquerade - The Outcast Hall of Fame (2016) [MP3|320 кб/с] <Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759375.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ Dakesis - The New Dawn (2016) [MP3|320 кб/с] <Progressive, Power Metal, Femal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759288.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ Daevid Allen -  Les Genies du Rock - Banana Moon (1993) [MP3|320 кб/с] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759278.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ Percewood's Onagram - Collection (4CD) (1969-1974) [FLAC|Lossless]<Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759058.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ Haken - Virus (2020) [MP3|320 Kbps] <Progressive Metal, Prog Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758855.jpg" />
 </div>
 
 
@@ -180,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758848.jpg" />
 </div>
 
 
@@ -209,7 +351,7 @@ Myriad Lights - Mark Of Vengeance (2012) [WavPack|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758794.jpg" />
 </div>
 
 
@@ -238,7 +380,7 @@ Shok Paris - Concrete Killers (1989) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758793.jpg" />
 </div>
 
 
@@ -267,7 +409,7 @@ Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758792.jpg" />
 </div>
 
 
@@ -296,7 +438,7 @@ Restless - We Rock The Nation (1985) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758791.jpg" />
 </div>
 
 
@@ -325,7 +467,7 @@ Skew Siskin - Electric Chair Music & Voices From The War (1996) 2CD [APE|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758790.jpg" />
 </div>
 
 
@@ -354,7 +496,7 @@ Destruction - Live Attack (2021) 2xCD [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758782.jpg" />
 </div>
 
 
@@ -383,7 +525,7 @@ Ventana - Discography 6 Releases (2008-2021) [MP3|320 Kbps] <Industrial Metal, N
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758661.jpg" />
 </div>
 
 
@@ -412,7 +554,7 @@ Crossfire - See You In Hell (1983) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758660.jpg" />
 </div>
 
 
@@ -441,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758651.jpg" />
 </div>
 
 
@@ -468,7 +610,7 @@ Evildead - Annihilation Of Civilization (1989) [APE|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758526.jpg" />
 </div>
 
 
@@ -497,7 +639,7 @@ Kauan - 8 Albums (2007-2017) [FLAC|Lossless|image + .cue] <Atmospheric Post Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758512.jpg" />
 </div>
 
 
@@ -526,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758375.jpg" />
 </div>
 
 
@@ -555,7 +697,7 @@ Thorium - Ocean Of Blasphemy (1999) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758218.jpg" />
 </div>
 
 
@@ -584,7 +726,7 @@ Fungus Hill - Cosmic Construction on Proxima B (2018) [MP3|320 Kbps] <Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758215.jpg" />
 </div>
 
 
@@ -598,151 +740,6 @@ Fungus Hill - Cosmic Construction on Proxima B (2018) [MP3|320 Kbps] <Psychedeli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61DC2ECD04E0ED34D50D874E2AB0A64777113C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215607   (758106) от 26.03.2018
-
-The Absence - A Gift for the Obsessed (2018) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Gift for the Obsessed
-02. Misery Trophies
-03. The Forging
-04. Thought & Memory(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7262224821DF9DDC2E1E43F57E67F96AF0F86FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215619   (758105) от 26.03.2018
-
-Eldritch - Cracksleep (2018) [MP3|320 Kbps] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracksleep
-02. Reset
-03. Deep Frost
-04. Aberration of Nature(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086F148A97A0A049327BF3909E150C5350354CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215612   (758097) от 26.03.2018
-
-Stormzone - Lucifer's Factory (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Hedges
-02. Lucifer's Factory
-03. Cushy Glen
-04. Last Night In Hell(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740596189381EB946AF8865F513DA284AA142CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215614   (757954) от 26.03.2018
-
-Monster Magnet - Mindfucker (2018) [MP3|320 Kbps] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket Freak
-02. Soul
-03. Mindfucker
-04. I’m God(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E2B059F51A65EA82F26909BB0A1C7811BD34DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215573   (757941) от 26.03.2018
-
-Good Times - Просто Сложно Понять (2018) [MP3|320 Kbps] <Ska, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:54)
- 02. Бельмондо (3:42)
- 03. Титьки (3:02)
- 04. Раз и навсегда (3:24)(   Читать дальше...   )Жанр: Ska, PunkПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB9069EF483EDC5CE5B298BEA110B5BD9ED4AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

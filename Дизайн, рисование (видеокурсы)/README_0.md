@@ -1,3 +1,55 @@
+###  Публикация: 1841877   (1048434) от 13.12.2025
+
+Yarets.Art, Виктория Ярец | Pixel Art (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтаешь оживлять миры, где каждый пиксель — история? Раскрой магию Pixel Art! Эта программа взорвёт ваш креатив! Представь: ты создаёшь миры, принты, персонажей, которые дышат ретро-эстетикой, словно сошли с экранов культовых игр 90-х. Что, если ты можешь не только играть, но и творить их — даже без опыта и дорогих программ?Производство: Yarets.ArtЖанр: видеокурс, обучающий курс, графика, дизайн, ProcreateЯзык озвучки: русскийПродолжительность: 04:02:56Реклама: наложение на видео (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B220BAB8915CC90DB6F805138BD709E42A25829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841444   (1047981) от 11.12.2025
+
+TutorPlace, Дарина Костина | Adobe Illustrator для начинающих (2024) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите овладеть всеми секретами Adobe Illustrator? Узнайте, как создавать профессиональную векторную графику и проекты от А до Я, освоив основные инструменты и техники дизайна!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, графика, дизайн, Adobe IllustratorЯзык озвучки: русскийПродолжительность: 08:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2DD336AEB71EF8364938971051F9BA0FF7499A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840873   (1047638) от 07.12.2025
 
 Академия Нолим, Максим Мазурин | Верстка на Тильде с нуля до pro (2025) PCRec [AD] [RU]
@@ -6,7 +58,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047638.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Fashion Factory, Гузель Юзеева | Fashion-иллюстрация (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047578.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Gumroad, Mitch Leeuwe | Collection of drawing guides (2019-2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047340.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046603.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046588.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Knower School, Дмитрий Смирнов | Курс игровой граф�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045619.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045346.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044897.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044790.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ Videosmile, Дмитрий Кузнецов | Супер Illustrator (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044779.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ Timesavervfx, Александр Ежов | Живые фото - Анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044667.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ Saharovigor, Анна Маратканова | Горный пейзаж с до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044409.jpg" />
 </div>
 
 
@@ -339,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044370.jpg" />
 </div>
 
 
@@ -367,7 +419,7 @@ Breezzly, Анастасия Свеженцева | Веб-дизайн и ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044276.jpg" />
 </div>
 
 
@@ -395,7 +447,7 @@ CGBoost Academy, Martin Klekner | Пусковая площадка програ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044272.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ The Gnomon Workshop, Daniel Zeni | Создание модели в Zbrush то�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044266.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Udemy, Creativity Unleashed | Blender Character Creation Megacourse: Beginner to
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044181.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ SideFX, Nikola Damjanov | TheComplete A-Z Terrain Handbook:  ND edition (2022) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044111.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ CG Boost, Kevin Ramirez | Master Grease Pencil in Blender (2022) PCRec [AD] [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044105.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ FlippedNormals | Unreal Engine 5 - How to Create Professional Cinematics (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044099.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Stepik, Evgen Marfel | Веб-дизайн в Figma 2023 (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044095.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Udemy, Vince Petrelli | Unreal Engine 5: One Course Solution For Material (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043989.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ Stepik, Evgen Marfel | Создание UI KIT в FIGMA. Делаем и про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043873.jpg" />
 </div>
 
 
@@ -641,7 +693,7 @@ Art-Kustova-school, Анастасия Кустова | Акварельный �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043211.jpg" />
 </div>
 
 
@@ -654,59 +706,6 @@ Art-Kustova-school, Анастасия Кустова | Акварельный �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7584526DC11978CA083AE15480F9A3F1CD3C195A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436739   (1043022) от 01.01.2021
-
-Michael Pavlovich | Zbrush for Ideation. Unit 04. Creation Technics. Forms (2018) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это четвёртый курс большой серии Zbrush для Воображения.
-Он будет посвящен работе с формамиПроизводство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 03:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0AC80F8E8B628E352E9033A0892A873CD43309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436730   (1042977) от 01.01.2021
-
-Michael Pavlovich | Zbrush for Ideation Unit 01 The Basics (2018) PCRec [En, Ru]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаэль Павлович представляет вашему вниманию первую часть фундаментальной серии видео-курсов "Zbrush для Воображения". Эта часть называется "Основы", в нее входят 55 видео-уроков общей длительностью более 6 часов.Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 06:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863711751D95DA2E57720734F782F588F2549057
 ```
 
 https://mybot314.ru/tekegram_catalog/

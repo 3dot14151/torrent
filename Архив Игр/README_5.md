@@ -6,7 +6,7 @@ King's Bounty: Warriors of the North [Ru] (Repack/1.3.1.6250u1/1DLC) 2012 | Feni
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977092.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sanctum [Ru/En] (Repack/1.5.22889/11 DLC) 2011 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974445.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 [Ru/Multi34] (RePac
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974438.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Republique Remastered (2015) [Ru/En] (5.2.2) Repack xatab [Episodes 1-4]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974094.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973331.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973246.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Stranglehold [Ru/En/Multi6] (L) 2007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973194.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Carrier Command: Gaea Mission [Ru/En/Multi8] (Steam-Rip/1.3.0014) 2012 | R.G. Ga
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973097.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Legendary / Легендарный [Ru] (L) 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973095.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Medal of Honor: Warfighter [PS3] [Ru] [Repack] 2012 | R.G. Inferno
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973038.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Aliens: Colonial Marines [En/Multi6] (L/1.0) 2013 | FAIRLIGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971771.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ The Cave [En/Ru] (L/Update2) 2013 l RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971590.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Oxenfree (2016) [En] License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971489.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ The Cave [Ru/En] (RePack/1.0/Update2) 2013 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969369.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ The Cave [Ru/En] (Lossless Repack/1.0.2) 2013 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968150.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ The Cave [Ru/En] (Lossless Repack/1.0/Update2) 2013 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968093.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Ni no Kuni: Wrath Of The White Witch [PS3] [PAL] [En] [Repack] 2013 | R.G. Infer
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968079.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Impire [En] (RePack/1.0.1.1) 2013 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967167.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Crysis 3 [PS3] [USA] [En] [4.31]  (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967111.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Codename Panzers: Cold War [En] (L) 2009 | PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967110.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Loki: Heroes of Mythology [Ru/En] (L/1.0.6.0) 2007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967047.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Crysis 3: Hunter Edition [Ru/En/Multi3] (Origin-Rip/1.0.0.1) 2013 | R.G. GameWor
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967044.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.4/DLC) Repack R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966802.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ The Deadly Tower of Monsters (2016) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966247.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.0.2026) Repack Other s [Part 2]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966022.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Dusk (2018) [Ru/Multi] (1.5.321/dlc) License GOG [Intruder Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965891.jpg" />
 </div>
 
 

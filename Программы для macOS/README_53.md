@@ -1,3 +1,56 @@
+###  Публикация: 1394050   (765443) от 03.07.2020
+
+Orion Label And Print Studio 2.60 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orion Label And Print Studio - это простое в использовании приложение в сфере дизайна. Быстрое создание и печать персонализированных этикеток, визитных карточек, поздравительных открыток, листовок, PDF-книг и многого другого. Все действия по созданию проекта сводятся к простому «перетаскиванию» выбранных эскизов на открытое окно ПО.Тип издания: macOS SoftwareРелиз состоялся: 01.07.2020Разработчик: Aidaluu Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F86C7F23C08423ED4195D09165FDBD14E424DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279480   (765399) от 30.01.2019
+
+Aeon Timeline 2 v2.3.16 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aeon Timeline: программный инструмент для создания временных событий.
+Есть множество профессий, в работе которых требуется точное соблюдение временных интервалов. Писатель, журналист, ученый объединены исследованием истории или временных последовательностей, которые необходимо заранее выстроить в один ряд, в несколько слоев, связать с людьми и их возрастом, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2019Разработчик: Aeon TimelineПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB245866D54E5B7A2EDC93F3190D4AC75AEE2A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279615   (765326) от 30.01.2019
 
 TunesKit iPhone Data Recovery 2.2.0 [Multi]
@@ -6,7 +59,7 @@ TunesKit iPhone Data Recovery 2.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765326.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ DxO Photo Software Suite (02.07.2020) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765185.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Lingon X 4.3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764616.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Smart Player 1.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764536.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Joyoshare Screen Recorder 2.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764467.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ iNet Network Scanner 2.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764463.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ CrazyTalk Animator 3 v3.31.3514.2 Pipeline [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764221.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ iPasscode Unlocker 1.1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764044.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ App Uninstaller 4.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763985.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ Cathode 2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763974.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ PhpStorm 2017.3.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763897.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763864.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ Tyme2 v1.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763132.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ Movavi Screen Capture Studio 5 v5.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762988.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ Media Inspector 2.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762940.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ E-Book Viewer 5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762839.jpg" />
 </div>
 
 
@@ -440,7 +493,7 @@ Aquarium 4K - Live Wallpaper 1.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761275.jpg" />
 </div>
 
 
@@ -466,7 +519,7 @@ Share Bucket 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761112.jpg" />
 </div>
 
 
@@ -495,7 +548,7 @@ El Capitan Cache Cleaner 10.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760806.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ The Archive Browser 1.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760804.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ Downie 2.3.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760797.jpg" />
 </div>
 
 
@@ -576,7 +629,7 @@ NetWorker 5.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760543.jpg" />
 </div>
 
 
@@ -602,7 +655,7 @@ Waterfox 56.2.7.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760533.jpg" />
 </div>
 
 
@@ -628,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759876.jpg" />
 </div>
 
 
@@ -639,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6813CB074BDACC7872C3CAD80442BF31393A26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215225   (759366) от 25.03.2018
-
-JetBrains PyCharm Professional 2017.3.4 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759366.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyCharm - интегрированная среда разработки для языка программирования Python. Предоставляет средства для анализа кода, графический отладчик, инструмент для запуска юнит-тестов и поддержка веб-разработки на Django. PyCharm разработана чешской компанией JetBrains на основе IntelliJ IDEA.PyCharm работает под операционными системами Windows, macOS и Linux.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2018Разработчик: JetBrainsПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05927A01B8A243368D1E8DF15619812B5BF438A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017903   (759094) от 18.05.2016
-
-Sparkle 2.0.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sparkle создана специально для веб-дизайна и строительства веб-сайтов и даёт полный визуальный контроль над всем.
-
-Если вы когда-нибудь занимались ручным кодированием веб-сайтов, вы потратили много часов, чтобы выяснить, как вы могли бы выровнять элементы страницы так же, как вы хотели, или выяснить, почему некоторые браузеры не отображают содержимое. Все это является (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 мая 2016Разработчик: River SRLПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Итальянский, Немецкий и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8443A2135D3CBE3C84AC6C4D4E4B25048A01E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

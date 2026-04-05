@@ -1,3 +1,134 @@
+###  Публикация: 501710   (258514) от 26.05.2012
+
+Рыбалка с Сэмом / Fishing with Sam (2009) [H.264/720p-LQ] HDTVRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ловля рыбы на Северном полюсе может стать целым испытанием. Некоторые в этом деле более удачливы чем другие. Те, кого удача обходит стороной, нуждаются в другом подходе к ловле рыбы. Здесь придётся поработать головой...Жанр: Короткометражная анимацияРежиссер: Atle Solberg BlaksethПерсонажи: Белый медведь, тюлень и три пингвинаПеревод: Без слов / НемойПродолжительность: 00:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D40B18AF88948D8431F94752B55F7449BA6848B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501819   (258502) от 26.05.2012
+
+Счастливый час / Cafe allonge (2009) [H.264] HDTVRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Янник находился в кафе, когда вошла молодая красивая девушка и села за соседним столиком. Влюбившись с первого взгляда, Яннику захотелось произвести впечатление на Сесиль. Одержимый нахлынувшими чувствами, он представляет разные способы знакомства с ней, весело смешивая фантазии и реальность. Придётся проявить находчивость, чтобы добиться расположение красотки.Жанр: короткометражный анимационный фильм (для взрослых)Режиссер: Максим ПаккалеПерсонажи: посетители кафеПеревод: Без слов / НемойПродолжительность: 00:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C52E1841F7EFF97037C6292A9691E5A24FFF49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501127   (258273) от 25.05.2012
+
+Момо / Momo alla conquista del tempo (2001) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая сиротка Момо нашла кров в развалинах старого амфитеатра, где обрела новый дом и новых друзей. Но однажды она почувствовала, что вокруг нее что-то изменилось. В городе появились могущественные «Серые лорды», живущие за счет времени, украденного ими у других людей.
+Только Момо понимает опасность, и только она может что-то сделать: ни у кого из ее друзей уже (   Читать дальше...   )Жанр: мультфильм, семейныйРежиссер: Энцо Д'АлоПеревод: Многоголосый закадровыйПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A781F7E4993EE850742EFCBA2173BA289091DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500654   (258176) от 24.05.2012
+
+Тор: Легенда викингов / Hetjur Valhallar - Por / Legends of Valhalla: Thor (2011) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самоуверенный подросток, в арсенале которого находятся магическое оружие присоединяется к борьбе против злой королевы и ее армии гигантов.Производство: Германия, Исландия, ИрландияЖанр: Комедия, Приключения, Семейный, МультфильмРежиссер: Оускар Йоунассон, Тоби Генкель, Гуннар КарлссонАктеры: Джастин Грегг, Пол Тайлак, Николя Кохлан, Лиз Ллойд, Алан Стэнфорд, Эммет Скэнлэн, Дж. Дрю Лукас, Мэри Мюррэй, Леса Турман, Гари ХецлерПеревод: ДублированныйПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BAF1B092CE4048F5575E49C8A86F974852292C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837872   (257909) от 19.11.2025
+
+Пятачок (1977) WEBRip  [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257909.jpg" />
+</div>
+
+
+###  Подробнее
+
+У всех детей Пятачок ассоциируется с маленьким розовым поросенком из мультфильма о Винни-Пухе. Однако на сей раз речь пойдет не о том пятачке. Этот мультфильм о барсучонке, который беззаботно играл на улице. Неожиданно его взгляд упал на что-то блестящее. Блестящий предмет оказался монеткой, достоинством 5 копеек или иными словами пятачок. Барсучонок подумал, что (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Юрий ПрытковАктеры: Людмила Гнилова, Зинаида Нарышкина, Вячеслав Невинный, Мария ВиноградоваСубтитры: отсутствуютПродолжительность: 00:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A236C3EB45CC384CF4A0B52A67EF1AD7D9F0BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837599   (257738) от 18.11.2025
 
 Лига Супер-пупер кроликов / Super Duper Bunny League (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-13 из 13) русский (ARC TV) (по заказу Nickelodeon), украинский (Студия 1+1)
@@ -6,7 +137,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257738.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257730.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257723.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257559.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257558.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257557.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257556.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257544.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257543.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257324.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257254.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257016.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256698.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256658.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256653.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256586.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256534.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256406.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256398.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256178.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256101.jpg" />
 </div>
 
 
@@ -538,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AEA06DC87134CCBAD844D55AF85DA311DE5E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499291   (256067) от 20.05.2012
-
-Ящерица! / Calango! (2007) [H.264/720p-LQ] WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голодная ящерица решает, что кузнечик будет ее следующая еда ... но все не так просто, как она думает.Жанр: короткометражный анимационный фильмПерсонажи: Ящерица и кузнечикПеревод: Без слов / НемойПродолжительность: 00:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D578D320B8EEA50EA77491E5D94A441BFA884C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527394   (255946) от 13.11.2025
-
-Доставка / Посылка / Delivery (2005)   [720p] [H.264]WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее… Развитие промышленности достигло своего пика, вместе с гигантскими облаками дыма, извергаемыми из тысяч труб многочисленных заводов и фабрик. Дышать всё труднее и труднее, но люди приспособились и к такому образу жизни. На окраине такой фабрики живёт человек, который ещё помнит, как выглядят цветы… Более того, он даже пытается растить цветок у себя на балконе. (   Читать дальше...   )Жанр: КороткометражкаРежиссер: Тилл Новак / Till NowakПеревод: Не требуетсяПродолжительность: 00:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A93A1386A845318655DA4E1C1B0E00A90F38EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837041   (255891) от 14.11.2025
-
-Морси (2018-2021) WEB-DLRip [H.264/720p-LQ] (серии 1-6 из 6)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решительная, отважная и деятельная морская свинка Морси попадает в мягкую и интеллигентную семью. Личным примером она меняет взгляды, привычки и жизненную позицию окружающих, а также учится и меняется сама, проникаясь духом гуманности, сочувствия и сострадания.Производство: Россия / студия М.И.Р.Жанр: мультфильм, детский, приключенияРежиссер: Илья Березницкас, Борис КоршуновАктеры: Ирина Пегова, Диомид Виноградов, Константин Раскатов, Эдуард Радзюкевич, Ольга ШороховаПродолжительность: ~ 00:13:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997AFCC47917C90420AF2B36ECC476925E3E8BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498853   (255713) от 19.05.2012
-
-Остров / A Ilha (2009) [H.264/720p-LQ] WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255713.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Остров" - это история о мальчике  который не успел перейти дорогу и попал на "остров безопасности" в большом мегаполисеЖанр: короткометражный анимационный фильмПерсонажи: мальчикПеревод: Без слов / НемойПродолжительность: 00:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435D0ADEF13174E0404B090CDF6BE14B98790545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733456   (255689) от 12.11.2025
-
-Как кошечка и собачка мыли пол / Jak pejsek s kocickou myli podlahu (1950) VHSRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255689.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сказке Йозефa Чапека.
-Однажды песик и кошка устроили генеральную уборку, надо помыть полы, а щетка вся вытерлась. И решили они мыть пол собачкой, а вытереть кошкой.Жанр: Детский, Рисованная анимация, КомедияРежиссер: Эдуард ХофманПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B887B114F68698A06421E637B2497A4FC4C2CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

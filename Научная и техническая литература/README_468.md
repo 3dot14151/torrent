@@ -1,136 +1,3 @@
-###  Публикация: 961618   (298789) от 02.12.2015
-
-А. П. Казанцев, В. С. Матковский | Справочник по инфекционным болезням (1986) [DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298789.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике описано 90 инфекционных болезней: эпидемиология, этиология, патогенез, клиника, диагностика, осложнения, лечение, прогноз, профилактика. В 3-е издание (2-е вышло в 1979 г.) дополнительно включены кампилобактериоз, легионеллез, лимфоцитарный хориоменингит, лихорадки Ласса и Марбург, ротавирусное заболевание, новые методы диагностики И терапии.
-Для врачей (   Читать дальше...   )Жанр: Медицина, Инфекционные болезниФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A02470A00E20788992075D653D9D9016D31F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184686   (298777) от 18.11.2017
-
-Г. Пророков (сост.) | The Question. Будущее (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена вопросам по теме будущего и технологий, на которые в течение года отвечали эксперты проекта The Question. В XXI веке нам кажется, что мы живем в будущем из научной фантастики: нас окружают роботы, сенсорные экраны и виртуальная реальность. Технологии развиваются с невероятной скоростью – и от этого появляется все больше вопросов. Этично ли экспериментировать (   Читать дальше...   )Жанр: НаучпопФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7E02F52373F729D280F4C9F9C709334A70E3A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961609   (298713) от 02.12.2015
-
-П. А. Леус и др. | Заболевания зубов и полости рта (2002) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются анатомо-физиологическое строение зубов, челюстей, слизистой оболочки полости рта; клинические проявления заболеваний твердых тканей зуба и периодонта, методы их лечения; премедикация и обезболивание; профилактика стоматологических заболеваний; удаление и протезирование зубов.
-Первое издание вышло в 1998 г.
-Для учащихся медицинских училищ.Жанр: Медицина, СтоматологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D40F46F30D47CD9326E600C502D8375DA24D12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961611   (298709) от 02.12.2015
-
-В. В. Квашук | Атлас клинической анатомии головы и шеи (2002) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атлас включает 109 схематических рисунков. Каждый термин дан на русском, латинском языках в соответствии с Международной анатомической номенклатурой. Предназначен для студентов медицинских колледжей, обучаемых по специальности «стоматология». Может быть полезен для студентов стоматологических факультетов медицинских институтов и практикующих врачей.Жанр: Учебная литература, Анатомия, ФизиологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2A13BDD6AA141E50BD59086E731CEA9C0C9F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184131   (298699) от 18.11.2017
-
-А. Е. Пашерстник, И. Д. Левин | Принудительный труд и рабство в странах капитала (1952) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298699.jpg" />
-</div>
-
-
-###  Подробнее
-
-В работе рассказано об использовании принудительного труда в капиталистических странах и их колониях в первые послевоенные годы, о расовой дискриминации в сфере труда, о борьбе господствующих классов стран американо-английского блока за сохранение различных форм рабского труда.Жанр: История, политология, экономика, правоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE3854506FBC2FCE055263D7139B8CC88D7418E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184630   (298696) от 18.11.2017
 
 И.Н. Мизинина (сост.) | 36 стратагем. Сокровенная книга по военной тактике (2016) [PDF, EPUB]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298696.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298689.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298603.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298549.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298377.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298376.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297737.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297669.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297485.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297439.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297434.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297298.jpg" />
 </div>
 
 
@@ -460,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297294.jpg" />
 </div>
 
 
@@ -486,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297017.jpg" />
 </div>
 
 
@@ -512,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296970.jpg" />
 </div>
 
 
@@ -538,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296969.jpg" />
 </div>
 
 
@@ -567,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296963.jpg" />
 </div>
 
 
@@ -593,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296960.jpg" />
 </div>
 
 
@@ -619,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296957.jpg" />
 </div>
 
 
@@ -647,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296952.jpg" />
 </div>
 
 
@@ -673,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296783.jpg" />
 </div>
 
 
@@ -684,6 +551,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E143B02E19D1D7B2D73366176F09A2A6A574A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185033   (296760) от 19.11.2017
+
+Александр Мясников | Энциклопедия доктора Мясникова о самом главном [3 тома] (2015-2017) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не застрахован от болезней. Плохая экология, стрессы на работе, несбалансированное питание могут привести к развитию разных заболеваний. Многие недуги легче предотвратить, чем лечить, но часто мы не знаем, как это сделать.
+Представленные книги – кладезь знаний по медицине, описанных простым и понятным языком. Они подскажут, какие симптомы должны заставить обратиться (   Читать дальше...   )Жанр: Здоровье, Медицина, Энциклопедии, Диагностика заболеванийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61539002A077A2880806199CB2A5DB34D51F5D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961516   (296710) от 03.12.2015
+
+Л. М. Воронина, В. Н. Пенькова (ред.) | Ангола. Справочная карта (1983) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание содержит подробную справочную карту Анголы с административным делением (масштаб 1:2 500 000) и указатель географических названий. На основном листе есть три врезки: экономическая карта (масштаб 1:7 500 000), климатическая карта (масштаб 1:15 000 000) и карта народов (масштаб 1:15 000 000).Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BDDC944C21CD857B47401F18B380CA355717E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334277   (296577) от 28.10.2019
+
+В.А. Державина | Английский язык. Времена глаголов (2019) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296577.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассматриваются английские времена групп Simple, Perfect и Continuous. Большое внимание уделено сравнению употребления времен, так как именно выбор временной формы часто вызывает трудности у изучающего английский язык.
+
+Сопоставляется употребление Present Simple и Present Continuous, Past Simple и Past Continuous, Present Perfect и Present Perfect Continuous, (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE78326D8E1B942B7540A68091EC9FEDC3B2449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962035   (296299) от 03.12.2015
+
+Книжная серия | Мир Математики [45 книг + 2 Спецвыпуска] (2014) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальная и занимательная коллекция, которая поможет ответить на самые каверзные вопросы математики сопровождающие нас изо дня в день, хотя мы об этом можем даже не догадываться. Увлекательное путешествие через вселенную математики, во время которого вы познакомитесь с ее самыми интересными сторонами, а также с великими мыслителями, которые заложили для нее фундамент. (   Читать дальше...   )Формат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D49DCFDA6459AC92D2EEB932CA528882404C2FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424121   (295310) от 15.11.2020
+
+Н.М. Попов | Измерения в электрических сетях 0,4...10 кВ (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295310.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассмотрено распределение электроэнергии от электростанций до потребителей, приведены приборы и методы для измерений электрических и неэлектрических величин в системах электроснабжения, приводится принцип работы и подключение приборов напрямую и к трансформаторам тока и напряжения, методика измерений в электрических сетях в эксплуатационных условиях, системы (   Читать дальше...   )Жанр: Электротехника, измеренияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9A2F25B7D0FBA64E41164C85BE6143C13F228F
 ```
 
 https://mybot314.ru/tekegram_catalog/

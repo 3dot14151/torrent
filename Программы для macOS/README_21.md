@@ -1,3 +1,60 @@
+###  Публикация: 982126   (949528) от 02.02.2016
+
+Wondershare Filmora 6.9.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare Filmora - программа для редактирования видео.
+В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах.
+
+После того как ваше видео (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 февраля 2016Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A248C359C5541BBCE43311A5FFDB1918AEF58260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362495   (949348) от 23.02.2020
+
+Disk Drill Media Recovery 3.8.953 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill Media Recovery - это самое простое и удобное приложение по восстановлению данных для Мака.
+
+Начиная с версии 2.x/3.x можно получить свои данные обратно с любого бинарного образа диска. Поддерживаются следующие форматы диска: DMG, ISO, IMG. Восстановить данные легко, как обычно, всего за 3 простых шага: №1 создать образ диска (используя Disk Utility, например); (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Justin JohnsonПоддерживаемая ОС: macOS 10.8.5 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A2A1EE01FC1E09AB13A71FA849A075C841044D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090097   (949174) от 05.01.2017
 
 Stationery - Templates for Mail 4.0 [En]
@@ -6,7 +63,7 @@ Stationery - Templates for Mail 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949174.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ TokenLock 4.71 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949159.jpg" />
 </div>
 
 
@@ -61,7 +118,7 @@ LensFlare Studio 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948282.jpg" />
 </div>
 
 
@@ -90,7 +147,7 @@ ProCommander 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948266.jpg" />
 </div>
 
 
@@ -119,7 +176,7 @@ MacAppBlocker 2.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948143.jpg" />
 </div>
 
 
@@ -148,7 +205,7 @@ Share Tunes 2: Share your taste in music 2.1.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947695.jpg" />
 </div>
 
 
@@ -176,7 +233,7 @@ SimpleMind 1.15.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947303.jpg" />
 </div>
 
 
@@ -204,7 +261,7 @@ Calendar 366 Plus 1.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946912.jpg" />
 </div>
 
 
@@ -233,7 +290,7 @@ DriveDx 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946832.jpg" />
 </div>
 
 
@@ -259,7 +316,7 @@ Suite for iBooks Author 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946804.jpg" />
 </div>
 
 
@@ -287,7 +344,7 @@ Word Count Popup 2.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946633.jpg" />
 </div>
 
 
@@ -315,7 +372,7 @@ Display Maestro 3 v3.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946628.jpg" />
 </div>
 
 
@@ -343,7 +400,7 @@ Overlay 3.60 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946627.jpg" />
 </div>
 
 
@@ -370,7 +427,7 @@ Patina 1.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946582.jpg" />
 </div>
 
 
@@ -398,7 +455,7 @@ MacPilot 11 v11.0.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946566.jpg" />
 </div>
 
 
@@ -425,7 +482,7 @@ Toontrack Superior Drummer 3 v3.1.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946455.jpg" />
 </div>
 
 
@@ -451,7 +508,7 @@ Maxon Cinema 4D Studio R21.207 (build RB303831) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946306.jpg" />
 </div>
 
 
@@ -477,7 +534,7 @@ deepClock 1.11.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945855.jpg" />
 </div>
 
 
@@ -505,7 +562,7 @@ WaterMarker 2 v2.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945408.jpg" />
 </div>
 
 
@@ -533,7 +590,7 @@ Get Backup Pro 3 v3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945379.jpg" />
 </div>
 
 
@@ -559,7 +616,7 @@ Aiseesoft Mac PDF to Image Converter 3.1.50 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945336.jpg" />
 </div>
 
 
@@ -585,7 +642,7 @@ Aiseesoft iPhone Ringtone Maker 7.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945247.jpg" />
 </div>
 
 
@@ -611,7 +668,7 @@ DVDFab All-In-one 11.0.7.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945063.jpg" />
 </div>
 
 
@@ -637,7 +694,7 @@ Calcbot 1.0.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944700.jpg" />
 </div>
 
 
@@ -651,59 +708,6 @@ Calcbot является отличной заменой стандартног�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F7E8B44BBB9DA6D9E00DC334AB265A83AE274C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091296   (944370) от 08.01.2017
-
-Aiseesoft PDF Converter-PDF to TEXT/EPUB and more 3.3.19 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft PDF Converter Pro - мощный PDF конвертер для Mac.
-Aiseesoft PDF Converte for Mac - Конвертер PDF в Text, Word, Excel, EPUB, HTML и другие форматы. Поддержка сохранения в TIFF, JPEG, PNG, GIF, BMP, TGA, PPM, JPEG2000 и другие форматы. Передача готовых файлов на мобильное устройство. Настройка параметров. Пакетный режим работы. Предварительный просмотр в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 января 2017Разработчик: RayShare Co., LtdПоддерживаемая ОС: 10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79480E0249F30C177F4896F336D2F0B90AF4E89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363209   (943900) от 27.02.2020
-
-Affinity Photo 1.8.0 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149824095A184AAB4EAC846D86AE6D8C25107C48
 ```
 
 https://mybot314.ru/tekegram_catalog/

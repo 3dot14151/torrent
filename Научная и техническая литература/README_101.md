@@ -1,133 +1,3 @@
-###  Публикация: 1366752   (920292) от 13.03.2020
-
-Ольга Мясникова | Энциклопедия долголетия Ольги Мясниковой (2019) [PDF, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920292.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой уникальной книге врач, геронтолог и необычайно мудрая женщина Ольга Мясникова делится своими секретами счастливой и здоровой жизни. Советами, которые будут полезны всем дамам в возрасте. Вы узнаете, как правильно следить за самочувствием после выхода на пенсию. Научитесь жить в гармонии с собой и окружающими. Перестанете бояться пробовать что-то новое. И сможете (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99C0CA3FC01892A885E1F086E3A9503BF45D169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366791   (920291) от 13.03.2020
-
-Э.Л. Сирота (сост.) | Мозг. Для тех, кто хочет всё успеть (2019) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мозг живого существа, человеческое сознание… Несмотря на все научные открытия в этой области, остается великое множество загадок даже там, где дело касается животных. А уж если речь идет о человеке, простор для дальнейших исследований невообразимо велик. Нейробиология – одна из самых молодых и стремительно развивающихся наук. За несколько десятилетий благодаря ей (   Читать дальше...   )Жанр: Научно-популярная литература, НейробиологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4D88BE2980874979B62783C5C9A25C09FC8B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490151   (920208) от 19.08.2021
-
-Ян Кимаковский | Повышенный холестерин. Профилактика и лечение астеросклероза (2021) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы держите в руках данную книгу, значит для Вас или кого-то из Ваших близких тема повышенного уровня холестерина и тема профилактики (а быть может уже и лечения) атеросклероза является актуальной и насущной. Что в наше время вовсе не удивительно. Высокая всемирная распространённость сердечно-сосудистых заболеваний заставила многих специалистов говорить об «эпидемии» (   Читать дальше...   )Жанр: МедицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA747CBBF1AAB0711C368878ED141CD066DBEF3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490109   (920170) от 19.08.2021
-
-Елизавета Кукуленко, Григорий Мастридер | Сленг Бэнг! Путеводитель по английскому сленгу (2021) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете, чем шерсть собаки помогает от похмелья? Какие слова нужны, чтобы обсудить экологические проблемы с ровесниками Греты Тунберг? Что общего между обсуждением крупной сделки и спортивного матча? Эта книга не только познакомит вас с лексикой современных инстаграм-блогеров и героев любимых сериалов, но и поможет разобраться, какие социальные и исторические процессы (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516D705732171BCA035D08CF2D8E41C96AA56FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988103   (919943) от 20.02.2016
-
-Роберт Грин | 48 законов власти (2014) [FB2, PDF, DOCX]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Власть —это продуманная борьба с обстоятельствами, которые нам неподвластны, это способность превращать невзгоды в преимущества.Для чего нужна власть? Для того чтобы обрести уверенность и утвердиться в собственном достоинстве. И еще хотя бы для того, чтобы сжать реальность в кулак и изменить ее согласно своей воле. Дерзко? Нисколько. Потому что речь идет об успехе. (   Читать дальше...   )Жанр: Бизнес, Психология, ПублицистикаФормат: FB2, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F8C6F196067B308109B3062641A471133228C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289307   (919865) от 30.01.2011
 
 В.В.Лебедев | Старинные рецепты русских целителей [2005] [DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919865.jpg" />
 </div>
 
 
@@ -163,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919761.jpg" />
 </div>
 
 
@@ -190,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919627.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919342.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919323.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919212.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918998.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918994.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918955.jpg" />
 </div>
 
 
@@ -374,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_918948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_918948.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918925.jpg" />
 </div>
 
 
@@ -426,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918896.jpg" />
 </div>
 
 
@@ -452,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918891.jpg" />
 </div>
 
 
@@ -479,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918797.jpg" />
 </div>
 
 
@@ -505,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918761.jpg" />
 </div>
 
 
@@ -531,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918198.jpg" />
 </div>
 
 
@@ -558,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917611.jpg" />
 </div>
 
 
@@ -586,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917544.jpg" />
 </div>
 
 
@@ -612,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917415.jpg" />
 </div>
 
 
@@ -638,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917407.jpg" />
 </div>
 
 
@@ -664,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917321.jpg" />
 </div>
 
 
@@ -675,6 +545,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E4C89A36D5F30DAA8783AD72DF1783BB1625E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367489   (917242) от 15.03.2020
+
+А. Ангаров и др. | Хрестоматия по государственному устройству СССР (1928) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая хрестоматия, составленная группой слушателей правового отделения Института Красной Профессуры, содержит в себе материал не только для изучения государственного строя Советского Союза и РСФСР, но и для ознакомления с учением Маркса и Ленина о государстве и диктатуре пролетариата. В первую вводную часть хрестоматии вошли отрывки из „Происхождения семьи, частной (   Читать дальше...   )Жанр: История, политология, публицистика, экономика, социология, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA796DAACCDF2050C9C24C27030FE8E59FBAE597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367425   (917234) от 15.03.2020
+
+Казимир Валишевский | Павел I (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека проекта «История Российского государства» – это рекомендованные Борисом Акуниным лучшие памятники исторической литературы, в которых отражена биография нашей страны от самых ее истоков.
+
+Павел I, самый неоднозначный российский самодержец, фигура оклеветанная и трагическая, взошел на трон только в 42 года и царствовал всего пять лет. Его правление, бурное (   Читать дальше...   )Жанр: Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB840D30E9B8B545DF91B6C85AA3578B61B3CA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367327   (917229) от 15.03.2020
+
+С.С. Бакулевская и др. | Основы автоматизированного проектирования. Элективный курс (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элективный курс «Основы автоматизированного проектирования» содержит материалы по истории проектирования, системам автоматизированного проектирования, области их применения и значения для развития инженерной деятельности и экономики страны. В нем рассмотрены основные принципы построения чертежей и трехмерных моделей в отечественной САПР "T-FLEX САD". Курс (   Читать дальше...   )Жанр: Электроника, компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FD6111DECAFC9FF5559717F19D8DC7CC84FA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096330   (917167) от 25.01.2017
+
+Каспар Хендерсон | Книга о самых невообразимых животных. Бестиарий XXI века (2015) [EPUB, FB2, MOBI]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальные животные бывают причудливее самых невероятных фантазий и завораживают нас не меньше, чем иллюстрации средневекового бестиария. Эта мысль побудила Каспара Хендерсона написать преисполненную нежности и тревоги о нашей планете книгу. Чем больше мы изучаем природу, тем более поразительные открытия делаем. Живущего почти в кипятке краба йети ученые обнаружили (   Читать дальше...   )Жанр: Образовательная литература, научно-популярная литератураФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC864DB0A8A99A46C6A32DDB2059E50F884CE81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367222   (917105) от 15.03.2020
+
+Андрей Сазонов | Фильтруй! Как работают наши печень и почки (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Печень и почки выполняют в нашем организме роль естественных фильтров, основное – печень разрушает яды нашего организма, почки выводят из него продукты этого разрушения. Ни об одном другом органе не создано столько мифов, сколько о печени или почках. Чего стоит одна только уринотерапия, великая и ужасная! Этому шарлатанско-мифическому методу лечения будет посвящена (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицинеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCC67DE8F2600A403C4337DAE5BB97212E87CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

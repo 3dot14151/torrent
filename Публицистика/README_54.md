@@ -1,3 +1,29 @@
+###  Публикация: 1411287   (429378) от 24.09.2020
+
+Книжная серия | Финансовые хроники профессора Катасонова [13 книг] (2017-2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг «Финансовые хроники профессора Катасонова» – не просто любимое чтение читателя-патриота России, но и сильнодействующее средство против промывки мозгов средствами массовой дезинформации, служащих «хозяевам денег». Если вы экономист, предприниматель или просто человек, которому интересно знать, что на самом деле происходит в мировой экономике и финансах (   Читать дальше...   )Жанр: Мировая экономика, Политология, Геополитика, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2E79481FD9F975287FFD139BAD29EB48672B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946110   (428963) от 12.10.2015
 
 Ричард Уотсон | Файлы будущего: история следующих 50 лет (2011) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428963.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427327.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427250.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427145.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426301.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426227.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426226.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426110.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426100.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424432.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424419.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423933.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423899.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422846.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422539.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422507.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422254.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420703.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420521.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420445.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420440.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420436.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420260.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419728.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419721.jpg" />
 </div>
 
 
@@ -667,32 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9117DDE396254A1A6488B9E7514D8E72B6F1559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166920   (419717) от 19.09.2017
-
-Р. де Жувенель | Интернационал предателей (1949) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419717.jpg" />
-</div>
-
-
-###  Подробнее
-
-О той борьбе против черных сил старого мира, которую пришлось выдержать странам народной демократии, рассказывает в своей книге «Интернационал предателей» прогрессивный французский писатель Рено де Жувенель. Его книга вышла в Париже двумя изданиями. Она привлекла к себе широкое внимание демократической общественности. Само выражение «интернационал предателей» — применительно (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1997ED857D8566588C35B7A7CFCB24B8585410
 ```
 
 https://mybot314.ru/tekegram_catalog/

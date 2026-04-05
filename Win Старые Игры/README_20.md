@@ -1,3 +1,55 @@
+###  Публикация: 573250   (380580) от 10.11.2012
+
+CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще один киберпанковый хит от издателей System Shock. Cybermage - уникальный экшен с RPG элементами и тяжелой, захватывающей aтмосферой киберпанка и фэнтези. Графика в игре очень хороша для своего времени и не уступает своему собрату по цеху System Shock. К сожалению, в своё время игра не была популярна из-за своих высоких системных требований, несовершенства движка и сложного геймплея. Игра написана и стилизована под комиксы D. W. Bradley и прорисована с душой. Для 1995 года графика просто шикарная. Действие происходит в 2044 году. Миром правят могущественные корпорации и группы повстанцев. Корпорации, столкнувшись с бунтовщиками и внутренними спорами, начинают работу над имплантами для создания "людей-гибридов". Вы просыпаетесь в биогенетическом инкубаторе в странном костюме с самоцветом, который имплантирован на шлем. Этот самоцвет - Темносвет или Светотень (как вам удобнее); камень с волшебными свойствами. Под звуки выстрелов вы выбираетесь из инкубатора, чтобы узнать что происходит и кто Вы такой (   Читать дальше...   )Тип издания: RePackЖанр: 3D Action\Sci-fi\CyberpunkЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657BF5453AC125391F0B642CC46FFA0A525F1D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251585   (377689) от 29.10.2010
+
+Wings of Honour / Крылья отваги [Ru] (P) 2003
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377689.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Крылья Отваги" - представитель благородного жанра симуляторов. Первая Мировая - время небесных аристократов и рыцарей. Война в воздухе ведется исключительно на ближних дистанциях, когда ты видишь лицо врага. В игре представлены настоящие копии самолетов тех времен. На таких летали Манфред фон Рихтхофен (Красный Барон) и кавалер высшей американской награды Эдди Рикенбеккер. Взмывай в небо вместе с лучшими асами Первой Мировой!Тип издания: ПираткаЖанр: Arcade / Simulator (Flight Combat) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164418   (376909) от 12.10.2018
 
 Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
@@ -6,7 +58,7 @@ Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376909.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376753.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Teenagent (1994) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376124.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375360.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Knight Rider: The Game / Рыцарь дорог (2003) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375189.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370345.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru/En] (Rip/1.02a) 2006 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369712.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Myth Anthology (1997-2001) [Ru/En] (1.5/1.8/1.3.1/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368243.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Blade & Sword 2 [Ru] (RePack) 2005 l IGALLARDOI
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367371.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Resident Evil 2 Seamless HD Project (1998) [En] (1.0) Repack/Mod Andriel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365096.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364030.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru/En] (1.4.3) Repack R.G. Catal
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363389.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362861.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Crime Cities (2000) [En/Pl] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362563.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362431.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360775.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Reah: Face the Unknown (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360260.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358687.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ eXoDOS Collection (2019) [En] (4.0) Repack eXo
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358371.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Far Cry - Ёкарный Бабай (2019) [Ru/En] (1.0) Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358158.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355219.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354097.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351712.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350489.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:221BF8288B8939DE4C9D53497BB50E9C291CC6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179333   (348497) от 31.10.2017
-
-Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятное приключение начинается. Предыдущие попытки раскрыть секреты загадочной и давно заброшенной планеты Аргилис не увенчались успехом. Команды исследователей докладывали о необычайных находках, а после этого таинственно исчезали. В своих путанных сообщениях они говорили о мире, в котором по воздуху бесцельно плывут покинутые экипажами живые корабли - все, (   Читать дальше...   )Тип издания: RepackРазработчик: Detalion и LK AvalonЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Польский и другиеЯзык интерфейса: Русский, Английский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB4778A9E7E03213123A5F5C1D0AC7BA23D4A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179336   (348489) от 31.10.2017
-
-Final DOOM (1994) [En] (1.9) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Doom - сборник из двух любительских IWAD-файлов к компьютерной игре Doom II: Hell on Earth, по 32 уровня каждый: TNT: Evilution от Team TNT и The Plutonia Experiment от братьев Касали. Уровни распространялись как официальный продукт id Software. Множество фактов намекают на любительское прошлое игры: новых монстров нет, выходы на секретный уровень находятся (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8BE565B607FCB3B100FD821A361FE07FD21898
 ```
 
 https://mybot314.ru/tekegram_catalog/

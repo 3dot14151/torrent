@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778591.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778218.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777574.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776809.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776398.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776300.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776073.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775994.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775952.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774005.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772292.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771558.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771433.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770142.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769274.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766021.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765780.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764022.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764018.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761950.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757365.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755112.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753441.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749929.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749607.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749381.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 519486   (636687) от 06.07.2012
+
+Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 2007 | X-pack
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историки Второй мировой войны называют атаку на Перл-Харбор самой увесистой и хлёсткой пощёчиной, которую когда-либо получали вооружённые силы США. Японским лётчикам удалось застать противника врасплох: последовавший разгром военно-морской базы американцев спровоцировал затяжное и упорное противостояние на Тихом океане. Бывшие союзники, США и Япония бились с невероятным ожесточением, широко применяя флот, пехоту и в особенности авиацию. «В особенности», потому что самолёты палубного базирования одинаково хорошо подходили и для борьбы с наземными силами, и для поражения морских целей, и, разумеется, для достижения превосходства в воздухе.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Simulator (Flight Combat) / 3DЯзык озвучки: n/aЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFD68132CB100A6D48F3C04E14AA1AD98827B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484316   (636585) от 06.07.2012
+
+Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игровой процесс в R6 исключил все, что в Red Storm посчитали несерьезным. По аккуратно смоделированным уровням передвигались оживленные с помощью motion capture спецназовцы. Необходимые двери поддавались вскрытию, заложники — освобождению, террористы — умерщвлению. Сами спецназовцы не умели даже прыгать, и в этом не было никакого самодурства разработчиков — как вы вообще себе представляете прыжки в столь серьезных операциях? Простовата графика? Право, самое ли время отравлять свою тактическую схему лишними деталями! Будучи все же одним из первых тактических шутеров, R6 держал баланс между варгеймом и шутером от первого лица, сохраняя аутентичность в обеих своих половинках.Тип издания: RePackЖанр: Тактический шутер от первого лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293562   (635080) от 04.04.2019
 
 Aquaria (2007) [En] (1.1.1) License GOG
@@ -6,7 +58,7 @@ Aquaria (2007) [En] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635080.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Outcast [Ru/En] (Repack/1.0.46.7) 1999 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628443.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622147.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Massive Assault (2003) [En/Fr] (1.2.204) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613296.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613187.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613012.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612547.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612536.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612458.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612060.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610894.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609065.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608865.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606650.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603996.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603517.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603323.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603258.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Metal Fatigue (2000) [En] (1.04hf) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599635.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597717.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596713.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594754.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594106.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593054.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56436AB164FE7B580B20384653E625A59A95E629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300704   (592683) от 07.05.2019
-
-Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02) Repack xatab
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борьба между Братством NOD и силами GDI продолжается! Непримиримая война за тиберий вспыхнула с новой силой, а в центре событий оказался сам Кейн — харизматичный лидер бунтарей. Command & Conquer 3 Ярость Кейна раскрывает историю самого главного преступника планеты.Тип издания: RepackРазработчик: BreakAway Limited, EA Los AngelesЖанр: 3D, StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C7A4B3B2703062FAD4A7D80DE5F80AA8F7C741A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300894   (587821) от 08.05.2019
-
-Command & Conquer 3: Tiberium Wars (2007) [Ru] (1.09) Repack xatab
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Command & Conquer 3: Tiberium Wars — компьютерная игра в жанре «стратегия в реальном времени», разработанная компанией Electronic Arts Los Angeles для ОС Windows и игровой приставки Xbox 360, долгожданное пополнение в линейке игр серии Command & Conquer.Тип издания: RepackРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
 ```
 
 https://mybot314.ru/tekegram_catalog/

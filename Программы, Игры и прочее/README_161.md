@@ -1,3 +1,109 @@
+###  Публикация: 1766667   (33588) от 20.12.2024
+
+Fallout Shelter 1.21.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fallout Shelter дарит вам возможность управлять высокотехнологичным подземным убежищем от «Волт-Тек». Постройте лучшее убежище, сделайте его обитателей счастливыми, защитите их от опасностей пустоши.Тип издания: Mod (Unlimited Money)Релиз состоялся: 4 дек. 2024 г.Разработчик: Bethesda Softworks LLCПоддерживаемая ОС: Android 7.0+Жанр: СимуляторЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D624FF0A2E7CD5D3D2A9F73B9FEAA605A897E86A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766679   (33581) от 20.12.2024
+
+Mountains of Madness 8.6.161 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chronicle of Innsmouth: Mountains of Madness - это графическое приключение в стиле Лавкрафта. Черпая вдохновение, места и персонажей из конкретных историй Г.П. Лавкрафта, такие как «Тень над Иннсмутом» и «Горы безумия», эта детективная история погружает вас в захватывающее расследование ужасающей тайны, которая приведет вас в такие знаковые места, как Иннсмут, Аркхем (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 14 окт. 2024 г.Разработчик: AtomicHorde S.r.l.Поддерживаемая ОС: Android 5.1+Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8145385E181223512B57F05306CADEF51DD781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766664   (33578) от 20.12.2024
+
+Exploding Kittens® 2 v0.0.19 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая карточная игра с друзьями снова на ура! В EXPLODING KITTENS® 2 есть все: настраиваемые аватары, забавные смайлики, множество режимов онлайн-игры, а также множество причудливого юмора и изящной анимации. Вы и ваши друзья не готовы к такому уровню ХАОСА!
+Кроме того, в официальной игре EXPLODING KITTENS® 2 есть самая востребованная механика из всех… карта Nope! (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 21 нояб. 2024 г.Разработчик: Marmalade Game StudioПоддерживаемая ОС: Android 6.0+ (arm64-v8a)Жанр: НастольнаяЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4162756F075882E5160A9E9FA5DD91001573CAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658981   (33508) от 21.12.2024
+
+Beat Find / Распознавание музыки v1.6.51 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобное и функциональное приложение для распознавания музыки с возможностью создания красивой визуализации спектра прослушиваемой композиции. Хранит историю запросов. В случае наличия распознанной композиции в базах сервисов потоковой музыки выдаются ссылки на Deezer / Spotify / YouTube.
+С приложением идентификатора песни Beatfind вы можете исследовать песни альбома, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.12.2024Разработчик: Beatfind Music RecognitionПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEBFF8854EBE26F89D089942C8F131C5CB9E35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766970   (33494) от 21.12.2024
 
 Яндекс.Погода v24.12.21 Mod by vadj [Ru/Multi]
@@ -6,7 +112,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33494.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ DREDGE v1.5.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33482.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33481.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33466.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33461.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33410.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33405.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Bendy and the Ink Machine v1.0.840 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33284.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ A Kindling Forest v1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33257.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ ARK: Ultimate Mobile Edition 1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33204.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ Woolly Boy and the Circus 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33156.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33098.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ Homo Machina v1.6.38 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33078.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ Castlevania: SotN v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33076.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ The Grinch 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33056.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ Universe For Sale 1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33046.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ Not Another Weekend v1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33020.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ DYSMANTLE v1.4.0.03 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32968.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ X Downloader & Video Player v2.1.25 Premium Mod by PlatinumMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32941.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32925.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32910.jpg" />
 </div>
 
 
@@ -564,7 +670,7 @@ Unforeseen Incidents v1.0.90 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32844.jpg" />
 </div>
 
 
@@ -575,115 +681,6 @@ Unforeseen Incidents - это интерактивная детективная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769255   (32808) от 27.12.2024
-
-Электробезопасность. Тесты v3.1 Mod by 0x7d [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:
-- II группа по электробезопасности до и выше 1000 В
-- III группа по электробезопасности до и выше 1000 В
-- IV группа по электробезопасности до и выше 1000 В(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 26.12.2024Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC4CDDDD6C51C6C0CEF19E2A55903551A02E4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769324   (32717) от 28.12.2024
-
-Young Detective: The Mutation v1.2.22 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой детектив: Мутация - это напряженная игра-головоломка, в которой игроки берут на себя роль отважного молодого детектива. Ваша миссия - проникнуть в темный и жуткий дом серийного убийцы, чтобы раскрыть правду об ужасных убийствах и секретах, связанных с темным, потусторонним царством. Игра предлагает захватывающий опыт, сочетающий в себе детективную работу, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 24 дек. 2024 г.Разработчик: BamgruПоддерживаемая ОС: Android 6.0+Жанр: PuzzleЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7C5D6636B15A12B02BB32ED9139ADB5C8FEF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769588   (32615) от 29.12.2024
-
-TikTok Private Plus (PayBack Edition) v37.9.16 Mod by TikTok Updates + Plugin Update [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32615.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом Моде можно выкладывать видео для РФ.
-TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 28.12.2024Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4987C79B1B6622C24FD3F41678275E6B68C6EFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769608   (32597) от 29.12.2024
-
-Рунические формулы v6.3.1 Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древние знаки, которые подарили скандинавские Боги, способны не только предсказывать будущее или заглядывать в прошлое, но также, исцелять, помогать и разрушать. Для каждого из действий существует своя формулировка, отчасти уникальная. В этом приложении вы найдете наиболее известные и не только рунические формулы, которые помогут вам исполнить задуманное.
-Используйте (   Читать дальше...   )Тип издания: FullРелиз состоялся: 28.12.2024Разработчик: EvansirПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F1B62DFDA9F643F1D4F49A69B922A58EDC8D51
 ```
 
 https://mybot314.ru/tekegram_catalog/

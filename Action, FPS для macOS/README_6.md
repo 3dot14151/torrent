@@ -6,7 +6,7 @@ Brothers in Arms: Hell’s Highway v1.0 (2008) [Ru] [macOS Cider]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274028.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273169.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TerraTech v.1.0.1 (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270813.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Call of Duty: Black Ops III v.98.0.0.0.0 (2020) [Multi/Ru] [macOS Native game] D
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255069.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fury Unleashed v.1.9.1.0 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254770.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dead Age 2 v1.42 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254620.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SUNLESS SKIES v2.0.4.fcf0af7a [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249553.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Dead Cells v.1.24.4 DLC (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247264.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Ziggurat 2 v16.02.2022.11.04.32.87 (2021) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245539.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ DEX v.6.0.0.0 (2015) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233288.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Doom 3 & Resurrection of Evil & Mods v1.3.1 (2004-2005) [Ru] [macOS Cider]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228479.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Alekhine's Gun (2016) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215945.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ I Am Alive (2012) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215659.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Portal v1.7.4.5010 (2007) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215171.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Victory At Sea Pacific v1.12.0 (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210971.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ SUPERHOT: MIND CONTROL DELETE v.1.0.21.l1.1.35  (2020) [Multi/Ru] [macOS Native 
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202245.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Streets of Rage 4 v.08g.r18137 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200748.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ One Step From Eden v.1.8.2 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199835.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ No Man's Sky v4.25 (2023) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197505.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ DUSK  Intruder Edition v1.8.1 DLC (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187253.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Hollow Knight v.1.5.78.11833.50885 [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185628.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Resident Evil Village v.1.0.0 (2022) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184040.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Dome Keeper v.3.0.1 (2022) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176412.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174315.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Half-Life 2 & Episode 1 & Episode 2 v1.7.4.5010 (2004-2007) [En/Ru] [macOS Nativ
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173876.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Quake II (Quake 2) - The Reckoning, Ground Zero (1997) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154899.jpg" />
 </div>
 
 

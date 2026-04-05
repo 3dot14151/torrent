@@ -1,136 +1,3 @@
-###  Публикация: 1742028   (47391) от 09.08.2024
-
-А. Кучинский | Тюремная энциклопедия (1998) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47391.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой Энциклопедии сделана попытка информировать читателя о том, что его ждет, если он, к примеру, не стерпит кабацкого оскорбления и ответит на него по большому счету. Придется немного посидеть – вот и предлагаем вам ознакомиться с подробностями быта и основополагающими принципами тюремно-зоновского бытия.
-Читателю предлагается антология знаменитых побегов, которые (   Читать дальше...   )Жанр: монографияИздательство: интернет-издание, опубликованное самостоятельно без указания выходных данныхФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1C300D5BA555EE84B4EF9C45F0842040CA29FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741983   (47384) от 09.08.2024
-
-В.Ф. Машевский (ред.) | Руководство по подрывным работам (1968) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47384.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даны общие сведения о взрывчатых веществах, способах и средствах взрывания, рассмотрены примеры использования взрывных работ в инженерных целях и меры предосторожности при взрывных работах.
-В своё время была засекречена. Выносить с библиотек военных учреждений и военных учебных заведений категорически запрещалось. Книга полностью повествует о практической (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Военное издательство Министерства Обороны СССРФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BEE7D4B001F61DF67A4219C9FC50D9BF9F6C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742060   (47372) от 09.08.2024
-
-А.П. Двинин, И.А. Романченко | Современная психодиагностика (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психодиагностика рассматривается в учебно-практическом руководстве как неотделимая часть решения многих проблем и вопросов гуманитарного содержания, связанных с развитием личности, организацией поведения, обеспечением межиндивидуальных взаимодействий, профилактикой сбоев (ошибок, нарушений дисциплины, конфликтов) в учебной и трудовой деятельности, позволяющая дать (   Читать дальше...   )Жанр: Учебное пособиеИздательство: СПб.: «Речь»Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EAB78320E557460C615C6071E60F756F0D446F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742287   (47250) от 10.08.2024
-
-Джозеф Малдер, Даниэль де Ла Фей и др. (составители) | Символы и эмблемы (1705) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это уникальное антикварное издание является одной из первых гербовых книг, заказанной Петром Великим в России на восьми языках. Есть мнение, что это переработанное издание Devises et emblèmes anciennes et modernes Даниэля де Ла Фейля, в которое добавлены анонимные русские переводы пословиц и латинский указатель. Добавлен гравированный иллюстрированный титульный (   Читать дальше...   )Жанр: Словари, энциклопедииЯзык: церковнославянский, латинский и пр. европейскиеИздательство: Amstelaedami: Apud Henricum WetsteniumФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FB2618E54349AC6390C973DAD8769107E0C88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742227   (47243) от 10.08.2024
-
-П.И. Кафаров (Архимандрит Палладий), П.С. Попов (составители) | Китайско-русский словарь [2 книги] (1888) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китайско-русский словарь, составленный бывшим начальником Пекинской духовной миссии архимандритом Палладием и старшим драгоманом Императорской дипломатической миссии в Пекине П.С. Поповым.
-Архимандрит Палладий (в миру П. И. Кафаров) — русский синолог, более 30 лет посвятивший изучению китайской культуры и философии. Одним из главных его достижений является прекрасный (   Читать дальше...   )Жанр: СловариЯзык: Русский, китайскийИздательство: Пекин: Типография Тунъ-Вень-ГуаньФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A914838F4999B9F3F3909FEA52FFC857D50B6754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738318   (47183) от 11.08.2024
 
 Книжная серия | Учимся рисовать аниме и мангу [18 книг] (2020-2024) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47183.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47133.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47085.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47032.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47027.jpg" />
 </div>
 
 
@@ -270,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46962.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46951.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46875.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46855.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46835.jpg" />
 </div>
 
 
@@ -402,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46819.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46709.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46588.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46318.jpg" />
 </div>
 
 
@@ -507,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46305.jpg" />
 </div>
 
 
@@ -533,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46189.jpg" />
 </div>
 
 
@@ -562,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46160.jpg" />
 </div>
 
 
@@ -588,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46113.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46111.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46052.jpg" />
 </div>
 
 
@@ -669,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46034.jpg" />
 </div>
 
 
@@ -681,6 +548,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12378801A2A3583A01BEB616C2DB7F4D5D7477F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743983   (46025) от 22.08.2024
+
+Я.И. Перельман | Собрание сочинений [180 книг] (1916-2024) [PDF, DJVU, FB2, EPUB] [Обновляемая]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перельман Яков Исидорович — русский и советский математик, физик, журналист и педагог. Член Русского общества любителей мироведения, популяризатор точных наук, основоположник жанра занимательной науки, автор понятия «научно-фантастическое».
+
+Библиография Перельмана насчитывает 47 научно-популярных, 40 научно-познавательных книг, 18 школьных учебников и учебных пособий.Жанр: Научно-популярныеИздательство: РазныеФормат: PDF, FB2, DJVU, EPUBКачество: Необработанный скан, Обработанный скан, OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89518D1CCA81921DCC7D5B6B779F15AF60CBA5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744477   (46007) от 22.08.2024
+
+Александр Сушанский | Большая книга о еде, несущей здоровье. Теория системного питания (2024) [EPUB, PDF, RTF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 50 лет автор книги — Александр Сушанский, доктор медицинских наук, специалист по питанию — восстанавливает нормальные отношения своих пациентов с едой и пищеварением. В процессе работы автор создал уникальную систему — теорию системного питания. Она ответит на главнейший вопрос о еде, который мы задаем себе каждый день: как и что есть, чтобы быть здоровым. (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: АСТФормат: EPUB, PDF, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795DA06290ADAC0763C32C8BE5CD72F6C1789CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744468   (46003) от 22.08.2024
+
+Максим Винарский | Мертвый лев. Посмертная биография Дарвина и его идей (2024) [EPUB, FB2, MOBI, RTF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Дарвина входит во все списки самых знаменитых ученых всех времен и народов, кто бы их ни составлял. Это человек, который раз и навсегда изменил представление человечества о природе, о жизни на Земле и о самом себе. Однако имя гениального исследователя, провидца и революционера в науке, продолжает тревожить умы, возбуждать гнев и ненависть, и даже сейчас, спустя (   Читать дальше...   )Жанр: НаучпопИздательство: Альпина нон-фикшнФормат: EPUB, FB2, MOBI, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17423FD0A4406BCA36805548342F44A504E4E5BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744904   (45922) от 23.08.2024
+
+Владимир Демченко | Здоровая спина. 10 эффективных комплексов упражнений (2024) [FB2, PDF, RTF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас хоть раз сталкивался с болью в спине. И, к сожалению, в 70% случаев лечение назначается неправильно или оно просто неэффективно. Но на самом деле боль – это не всегда про грыжи или неполадки с позвоночником. Во многих случаях вы можете помочь себе самостоятельно.
+ В этой книге собраны эффективные комплексы упражнений для профилактики и лечения распространенных (   Читать дальше...   )Жанр: МедицинаИздательство: АСТФормат: FB2, PDF, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FBB18B48EE66DA377AF078F748F4A2506A0A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744930   (45912) от 23.08.2024
+
+А. Ю. Шишонин | Победа над гипертонией (2022) [DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Шишонин - кандидат медицинских наук, руководитель и главный врач Клиники доктора Шишонина, автор ряда уникальных запатентованных оздоровительных методик в кардиологии, ортопедии и онкологии, которые на практике доказали свою эффективность.
+Уникальные методики доктора Шишонина используются для безлекарственного оздоровления пациентов с гипертонической болезнью, (   Читать дальше...   )Жанр: МедицинаИздательство: ПорталФормат: DJVUКачество: Обработанный скан, OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A93AF6964DFD615BE1DFAF56162493E1589DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

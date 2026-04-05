@@ -1,134 +1,3 @@
-###  Публикация: 1348986   (139164) от 30.12.2019
-
-Эндрю Лумис | Искусство иллюстрации (2015) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139164.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлено то, что, по моему опыту, является основой и фундаментом иллюстрации. Насколько мне известно, до меня никто не предпринимал попыток систематизировать и изложить эти основы. Поэтому я решил собрать все столь необходимые познания, черпая их из собственного опыта работы на поприще создания иллюстраций. Я постараюсь ясно изложить основные принципы, (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F055E34442DAE51FF50A185BC9FCA94C6A39DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970619   (139150) от 31.12.2015
-
-Ф. Бэкон | Сочинения [2 тома] (1971-1972) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том включает одно из основных произведений выдающегося английского материалиста, основоположника «индуктивного метода» в изучении рациональных наук, Фрэнсиса Бэкона (1561 - 1626) — «О достоинстве и приумножении наук», в котором он пропагандирует научное знание, разрабатывает классификацию наук и их методологию, критикует суеверии и схоластический способ мышления. (   Читать дальше...   )Жанр: История, философияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8966BF70CB742F130273C610A435A824E6608F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272968   (139141) от 30.12.2018
-
-Дугал Диксон | После человека. Зоология будущего (2017) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139141.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Едва увидев эту книгу, я пожалел, что не написал ее сам…
-Это изумительная, красиво поданная идея. Ее автор поставил перед собой интригующую задачу: рассмотреть эволюцию на нашей собственной планете в будущем, основываясь на тех видах, которые существуют сегодня. Книгу не только интересно читать – она обладает реальной научной ценностью. Животные на ее страницах (   Читать дальше...   )Жанр: Научно-популярная литература, ЗоологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB230029C8C5AD12256055993F93F57BC923B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970682   (139128) от 31.12.2015
-
-М. Вебер | Избранные произведения (1990) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой сборник работ по социологии одного из ведущих западных социологов XIX–XX вв. М. Вебера (1864–1920), оказавшего и оказывающего значительное влияние на ее развитие. В работах, вошедших в сборник, нашли отражение его идеи о связи социологии и истории, о «понимающей социологии», концепция «идеальных типов» и др. М. Вебера нередко называют на (   Читать дальше...   )Жанр: Философия, Обществознание, социологияПеревод: П. П. Гайденко, А. Ф. Филиппов, М. И. ЛевинФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AFF37B2E5EC48C9B3F8B15DF892A50923308E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970530   (139120) от 31.12.2015
-
-Дж. Р. Ландер | Войны Роз (2013) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот уже почти полвека книга известного специалиста по средневековой политической истории Англии проф. Дж. Ландера «Войны Роз» пользуется неизменным успехом. За это время она десятки раз переиздавалась в Великобритании, а теперь и у русскоязычного читателя впервые появилась возможность с ней познакомиться. Она стала первой из целой череды одноименных книг, написанных (   Читать дальше...   )Жанр: ИсторияПеревод: А. А. КралинаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CB85BA3053412E06C0F9BAD31AC4E43E2BC098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970583   (139103) от 31.12.2015
 
 Мераб Мамардашвили | Формы и содержание мышления (2011) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139103.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139098.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139091.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139089.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139043.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139031.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139028.jpg" />
 </div>
 
 
@@ -320,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138959.jpg" />
 </div>
 
 
@@ -346,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138897.jpg" />
 </div>
 
 
@@ -372,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138868.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138831.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138796.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138747.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138697.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138689.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138662.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138652.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138421.jpg" />
 </div>
 
 
@@ -609,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138223.jpg" />
 </div>
 
 
@@ -638,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138213.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138125.jpg" />
 </div>
 
 
@@ -675,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA25C281F136DAD4F15AA8F9D0441FC9307BE5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970476   (138020) от 31.12.2015
+
+Стивен Вайнберг | Объясняя мир. Истоки современной науки (2016) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга одного из самых известных ученых современности, нобелевского лауреата по физике, доктора философии Стивена Вайнберга – захватывающая и энциклопедически полная история науки. Это фундаментальный труд о том, как рождались и развивались современные научные знания, двигаясь от простого коллекционирования фактов к точным методам познания окружающего мира. Один из (   Читать дальше...   )Жанр: История естественных наукФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD30127B5461BA9705742DF059BE70D724C0240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679374   (137831) от 25.11.2023
+
+Г.В. Лисичкин и др. | Химия поверхности неорганических наночастиц (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137831.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге систематически изложены основные аспекты химии поверхности неорганических наночастиц - металлов, оксидов, галогенидов, полупроводников, наноалмаза, графена, углеродных нанотрубок. Описаны особенности строения поверхности наночастиц, их реакционная способность, синтез привитых поверхностных соединений. Рассмотрены как уже известные, так и перспективные области (   Читать дальше...   )Жанр: Химия, нанотехнологииИздательство: ТехносфераФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E892589B89A6A542CC0DCA72C44370E75E57F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349250   (137759) от 31.12.2019
+
+Роксана Мухарямова | Доказательная медицина. Чек-лист здорового человека (2020) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — своеобразный путеводитель в медицинском информационном океане. В поисках ответов на самые разные вопросы мы обращались к научным исследованиям, докторам и ведущим организациям. Книга даст читателю направление мысли в поиске той самой точки опоры в медицинских вопросах: что такое доказательная медицина, какая профилактика заболеваний необходима, как каждый (   Читать дальше...   )Жанр: Здоровье, МедицинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059F512D36CB15592844C27A7535BCBFBDD7E31B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349192   (137709) от 31.12.2019
+
+Юлия Дубинина | Адвокат для дилетантов. Гид по праву (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юлия Дубинина – адвокат с 17-летним стажем, профессиональный медиатор, эксперт на TV, популярный блогер, член Ассоциации Юристов России.
+Платить за коммунальные услуги меньше и сменить управляющую компанию? Избавиться от навязанных банком страховок по кредитам и увидеть подводные камни в ипотечном договоре? Найти доходы бывшего супруга, которые он так тщательно прячет, (   Читать дальше...   )Жанр: Юриспруденция, Гражданское право, Жилищное правоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23972438106F4AF2A2DC1051C45379421CDC0572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601471   (137441) от 31.12.2022
+
+И.М.Низамов | Задачи по физике с техническим содержанием (1980) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит физические задачи с техническим содержанием по всем темам программы курса физики VI-VII классов, соответствующие различным сферам производства.
+Использование в учебном процессе задач такого вида способствует ознакомлению учащихся с принципом устройства и действия механизмов и машин, передачи и преобразования энергии, технологии промышленного и сельскохозяйственного (   Читать дальше...   )Жанр: физика, задачникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3867BD9814F0EA6AB046A3A1DDE09868F2A2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

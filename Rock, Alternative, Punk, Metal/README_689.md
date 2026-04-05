@@ -1,3 +1,32 @@
+###  Публикация: 1576251   (368483) от 13.09.2022
+
+Wine From Tears - I'm Fine (2022) [FLAC|Lossless|image + .cue] <Melodic Death, Gothic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Whales Swim Up (00:06:00)
+02 - Cotard's Delusion (00:06:19)
+03 - The Point of No Return (00:06:56)
+04 - No Future (00:07:56)(   Читать дальше...   )Жанр: Melodic Death, Gothic Doom MetalПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232BBD5B66E4FEE7E8351A79B6F67CE038DE118A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576140   (368482) от 13.09.2022
 
 Bandolier Kings - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +35,7 @@ Bandolier Kings - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368482.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Super Vintage - 2 Albums (2020-2022) [MP3|320 Kbps] <Classic Hard Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368480.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sui Caedere - Threne (2009) [FLAC|Lossless|tracks + .cue] <Acoustic, Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368438.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Chris Norman - Rediscovered Love Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368390.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Amon Amarth - The Great Heathen Army (2022) [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368378.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Throwdown - Haymaker (2003) [FLAC|Lossless|tracks + .cue] <Metalcore, Hardcore P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368311.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Light Of Darkness - Light Of Darkness (1971 | 1992) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368301.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ High on Fire - Electric Messiah (2018) [FLAC|Lossless|tracks + .cue] <Stoner Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368296.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ As I Lay Dying - Awakened (2012) [FLAC|Lossless]<Christian Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_368177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_368177.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368163.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ DragonForce - Extreme Power Metal (2019) [FLAC|Lossless|tracks + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368160.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368061.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368050.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Deform - Средства массовой деформации (2019) [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368015.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ The Stranglers - Aural Sculpture (1984) [FLAC|Lossless]<Punk, Post-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367897.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367880.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ XURL - Deity (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367836.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ My Skin Is Multicam - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367832.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Cirkus - The Fruits of the Unveil (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367831.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Legacy Pilots - Con Brio (2018) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367829.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Tanzilit - 4 Albums (2008-2020) [MP3|320 Kbps] <Radical Hardcore Punk, Deathcore
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367825.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367822.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Hawkestrel - Pioneers of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367820.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Schwarzer Engel - Kult Der Krahe (2018) Limitеd Еditiоn [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367818.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ AlleHackbar - Play It Fucking Loud (2015) [MP3|320 кб/с]<Hard Rock, Glam Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367765.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ AlleHackbar - Play It Fucking Loud (2015) [MP3|320 кб/с]<Hard Rock, Glam Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75491CF07268A501EE6961782A7619F08FD3CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950630   (367750) от 27.10.2015
-
-Бригадный Подряд - Новый сезон (2015) [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Телефон
-02. Бубен
-03. Новый сезон
-04. Пёс(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D248AD6E91F83F09EAD983A8A1F8F9FDA699B4EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

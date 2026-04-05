@@ -6,7 +6,7 @@ Metallica - Freeze 'Em All (2013) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825380.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825214.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824119.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823883.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823474.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823394.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823382.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822920.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822506.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ ZZ Top - Live at Bonnaroo (2014) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821686.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Blue Man Group - How to Be a Megastar 2.0! (2008) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821492.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820493.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820414.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The War Of The Worlds - The New Generation (2013) BDRip [H.264/1080p] [EN / RU S
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820411.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Wax Audio (видеография) (2004-2007) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819998.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819982.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819938.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819255.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818820.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ The ABBA Story - The Winner Takes It All (1999) TVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818229.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) Blu-
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818151.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Masters Of The Country Blues: / Son House & Bukka White - 1960 (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817957.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817256.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Kylie Minogue - Kiss Me Once (Live at the Sse Hydro) (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816775.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816702.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Shania Twain - Still The One: Live From Vegas (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816624.jpg" />
 </div>
 
 

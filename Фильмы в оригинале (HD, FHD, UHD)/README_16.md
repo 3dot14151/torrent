@@ -1,3 +1,29 @@
+###  Публикация: 1202536   (789705) от 29.01.2018
+
+Роман Израэл, Esq. / Roman J. Israel, Esq.  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789705.jpg" />
+</div>
+
+
+###  Подробнее
+
+История опытного адвоката с твёрдой хваткой, Романа Дж. Израэля, на которого свалилось управление крупной фирмой после того, как его босса настиг сердечный приступ. Оказавшись у власти, Израэль узнаёт о тайных делах своей компании, противоречащих его профессиональным и моральным принципам.Производство: США / Bron Studios, Creative Wealth Media Finance, Cross Creek Pictures, Culture China - Image Nation Abu Dhabi Fund, Escape Artists, Imagenation Abu Dhabi FZ, LStar Capital, MACRO, Topic StudiosЖанр: драма, криминалРежиссер: Дэн ГилройАктеры: Дензел Вашингтон, Колин Фаррелл, Кармен Эджого, Линда Граватт, Аманда Уоррен, Хьюго Армстронг, Сэм Гилрой, Тони Плана, Дерон Хортон, Амари Читом, Винс Сефалу, Тарина ПаунсиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3BBDF0A942583D413DF4FECEFB4B99D1ECB076B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202653   (789480) от 30.01.2018
 
 Субурбикон / Suburbicon  (2017) BDRip [H.264/1080p] [EN / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789480.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789400.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789355.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789332.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789330.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788935.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788767.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788559.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788479.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787974.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787810.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787479.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786290.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786266.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786064.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786057.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786032.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785894.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784582.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784565.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784541.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784002.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784001.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783742.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783719.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C8A22A87A109BACCF777542C509B0743303D718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390266   (783305) от 14.06.2020
-
-Пятеро одной крови / Da 5 Bloods (2020) WEB-DL [H.264/1080p-LQ] [EN / RU, EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Four African-American vets battle the forces of man and nature when they return to Vietnam seeking the remains of their fallen Squad Leader and the gold fortune he helped them hide.Производство: США / 40 Acres & A Mule Filmworks, Rahway Road ProductionsЖанр: Драма, военныйРежиссер: Spike LeeАктеры: Делрой Линдо, Джонатан Мэйджерс, Кларк Питерс, Норм Льюис, Исайя Уитлок мл., Мелани Тьерри, Пол Уолтер Хаузер, Яспер Пяякконен, Джонни Нгуйен, Й. ЛанПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: Russian (Full), English (SDH), Arabic, Czech, Danish, German, Greek, Spanish, European Spanish, Finnish, French, Hebrew, Hungarian, Indonesian, Italian, Japanese, Korean, Norwegian, Dutch, Polish, Portuguese, Brazilian Portuguese, Romanian, Swedish, Thai, Turkish, Vietnamese, Simplified Chinese, Traditional ChineseПродолжительность: 02:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F69F93E6E50A6EDA62D353FF590F7F9720F73FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

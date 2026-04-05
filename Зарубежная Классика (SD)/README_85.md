@@ -1,3 +1,55 @@
+###  Публикация: 1254347   (353580) от 22.10.2018
+
+Девушка на мотоцикле / The Girl on a Motorcycle (1968) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очаровательная девушка по имени Ребекка одна едет через всю Европу на своем мотоцикле. Проезжая разные города и встречая новых людей, она вспоминает свою прошлую любовь и мечтает о будущей, т. к. едет к своему новому возлюбленному. Но не так все просто у нее на душе, да и длинная дорога полна неожиданностей.Производство: Великобритания, Франция / Adel Productions, Ares Production, Mid-Atlantic Film (Holdings) Ltd., SNCЖанр: МелодрамаРежиссер: Джек КардиффАктеры: Ален Делон, Марианна Фэйтфулл, Роджер Маттон, Мариус Горинг, Катрин Журдан, Жан Ледюк, Жак Марен, Андре Маранн, Бари Йонсон, Арнольд ДаймондПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AAC50A9C02540325E5C27C2BB5F94654157984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178818   (353449) от 29.10.2017
+
+Марни / Marnie (1964) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героиня фильма Марни Эдгар устраивается на работу в различные фирмы под чужим именем и, проработав некоторое время, исчезает с деньгами компаний, не оставляя никаких следов. Она неуловима, так как постоянно меняет не только имена, но и внешность. Марк Ратлэнд, деловой партнер одной из бывших жертв Марни, разоблачает ее, когда она устраивается к нему на работу. Но (   Читать дальше...   )Производство: США / Alfred J. Hitchcock Productions, Geoffrey Stanley, Universal PicturesЖанр: Триллер, Драма, Мелодрама, Криминал, ДетективРежиссер: Альфред ХичкокАктеры: Типпи Хедрен, Мартин Габел, Шон Коннери, Луиз Лэтэм, Дайан Бэйкер, Алан Напье, Боб Суини, Милтон Зельцер, Генри Бекман, Эдит Эвансон, Мэриетт Хартли, Брюс ДернПеревод: Дублированный, многоголосый закадровыйСубтитры: Русские (полные, форсированные), английские (полные, SDH)Продолжительность: 02:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0992BD2F43990D8ED52FBFCF3D2053B01962187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177141   (353444) от 29.10.2017
 
 Последний закат / The Last Sunset (1961) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353444.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353249.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352830.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352585.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352049.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352019.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351858.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351562.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351098.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351089.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351006.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350362.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349618.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349510.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348756.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347875.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347809.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347664.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347659.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347412.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346680.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345258.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345006.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344638.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB4AFF9D7C7A43210AE8180F3CD3364C5B411DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951778   (344268) от 06.11.2015
-
-Дуэль на Миссисипи / Duel on the Mississippi (1955) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в 19-ом веке, в дельте реки Миссисипи штата Луизиана. Речные пираты под предводительством Хьюго Марата совершают набеги на плантации сахарного тростника и воруют урожай у местных плантаторов. Андре Тулейн, сын обанкротившегося по вине пиратов землевладельца, пытается объединить фермеров в борьбе против грабителей.Производство: США / Clover ProductionsЖанр: Приключения, Драма, МелодрамаРежиссер: Уильям КаслАктеры: Лекс Баркер, Патриция Медина, Уоррен Стивенс, Крэйг Стивенс, Джон Денер, Иэн Кит, Крис Алькайде, Джон Мэнсфилд, Селия Ловски, Луис МэриллПеревод: Одноголосый закадровый (Andi999)Язык субтитров: РусскийПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBF458D1F82CC188CB69EF4FF5E86824325A330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951537   (344057) от 06.11.2015
-
-Сыграй это снова, Сэм / Play It Again, Sam (1972) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344057.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сыграй ещё раз, Сэм»  — кинокомедия режиссёра Герберта Росса, снятая в 1972 году по мотивам одноимённого бродвейского спектакля Вуди Аллена.
-Незадачливого кинокритика Алана Феликса после двухлетнего брака бросает жена. Алан впадает в депрессию, на нервной почве его начинают посещать призраки Хамфри Богарта, исполнителя главной роли «Касабланки», и его бывшая жена (   Читать дальше...   )Производство: CША (Paramount Pictures, Rollins-Joffe Productions)Жанр: Комедия, МелодрамаРежиссер: Херберт РоссАктеры: Вуди Аллен, Дайэн Китон, Тони Робертс, Джерри Лэйси, Сьюзан Энспак, Дженнифер Солт, Джой Бэнг и др.Перевод: Двуголосый закадровыйПродолжительность: 01:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2A4E9431C7BD61BE65B63812A851B35204D38D
 ```
 
 https://mybot314.ru/tekegram_catalog/

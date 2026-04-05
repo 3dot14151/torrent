@@ -6,7 +6,7 @@ Caro Emerald - Emerald Island (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Neo-swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809127.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sarah Vaughan - Duke Ellington Songbook , Vol. 1,2 (1980) /2000 - Галакти
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808620.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Buddy Tate Meets Abdullah Ibrahim - The Legendary 1977 Encounters (1996) Chiaros
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808434.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Art Farmer - Listen to Art Farmer and the Orchestra (1962) Remaster, 2002, Unive
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808363.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Leo Wright - Blues Shout (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808362.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Joanne Brackeen - Aft (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808361.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Art Farmer - Homecoming (1971/1972) Remaster, 2006, Sony Music[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808359.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Ray Bryant Trio - Little Susie (1959/1960) Remaster, 2014, Sony Music[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808358.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Miles Davis - Miles Davis Featuring John Coltrane (2005) 4CD [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808294.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jeffery Smith - Down Here Below (1999) Verve Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808281.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Miles Davis - Filles de Kilimanjaro 1968 (1990) Sony Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808277.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Phil Woods, Gene Quill, Jackie McLean, John Jenkins, Hal McKusick - Bird Feather
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808243.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Quarantine Doom Jazz vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808140.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Miles Okazaki - Figurations (2012) [FLAC|Lossless|tracks + .cue] <Modern Jazz, G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807603.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Michel Petrucciani - Promenade With Duke (1994) Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807601.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Chet Baker - The Gold Collection: Classic Performances (1955, 1963) 2CD, 1999, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807596.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ David Sanborn - Hideaway (1980) Remaster, 1987, Warner Bros. Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807495.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dean Martin - The Real... Dean Martin (2014) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807227.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tina Brooks - The Waiting Game (1961) 2002, Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806375.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gary Burton - Tennessee Firebird (1966) Remaster, 2014, Sony Music[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806212.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Duke Ellington - Duke's Mood (1956) 2002, Rockin' Chair [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806082.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sonny Stitt - Stitt Goes Latin (1963) Remaster, 2011, Roost [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806080.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Chet Baker - Baby Breeze (1965) 2002, Universal [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806076.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ John Pizzarelli with The George Shearing Quintet - The Rare Delight of You (2002
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806061.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sadao Watanabe - Go Straight Ahead 'n Make A Left (1997) Verve Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804622.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dado Moroni & Tom Harrell - Humanity (2007) Abeat Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804559.jpg" />
 </div>
 
 

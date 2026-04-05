@@ -1,3 +1,119 @@
+###  Публикация: 1753082   (41166) от 07.10.2024
+
+Moby - quiet home: remixes (DJ Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ache for (915 alt remix Mixed) [00:06:13]
+02. feelings come undone (june 2 remix Mixed) [00:03:53]
+03. medusa (808 remix Mixed) [00:04:35]
+04. sweet moon (remix1 Mixed) [00:04:36](   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FFA49EC598ECBE54FF2C292F49797AFAA8E918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821194   (41017) от 01.10.2025
+
+VA - Slow Down Sessions: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - Andiamo (4:42)
+02. Gary B - Rainy Day in the City (1:51)
+03. Ljay - Let Me Chill (3:58)
+04. Supira - Beautiful You (5:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E37DF3C1A9044D7E0945F2B9A4B4D246C2F4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821229   (40957) от 01.10.2025
+
+VA - Poolside Grooves Chillout Hits Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40957.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. The Echo of Koenigssee - Slow-Melt Whisperz (4:29)
+• 02. Von Gauss - Neon Wind Down (4:11)
+• 03. Sigrun II - Meadow Mindset (4:16)
+• 04. Quadra Montres - Barefoot Bliss (4:28)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, DowntempoПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D0C27199E4D2046DF0B0B74EC4D3F55B94D33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754329   (40873) от 09.10.2024
+
+Our Graves - System Overload (2024) [MP3|320 Kbps] <EBM, Industrial, Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System Overload (4:39)
+02. Precious Lies (3:57)
+03. We Want It All (4:37)
+04. Faceless (4:54)(   Читать дальше...   )Жанр: EBM, Industrial, Dark ElectroПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A6FF0A44BCD9A0B85A1B00575459659667FC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754230   (40872) от 09.10.2024
 
 VA -  Dance to Trance Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA -  Dance to Trance Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40872.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Shadowrunner - The Stranger (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40869.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Pet Shop Boys - Album Collection (1986-1996) 1st UK Press [APE|Lossless|image + 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40581.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Lounge Empire (25 Afterwork Anthems) Vol 1 (2024) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40531.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Lounge Empire (25 Afterwork Anthems), Vol 2 (2024) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40530.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bassnectar (Lorin Ashton) - No Colors (2024) [FLAC 16/44.1|Lossless|WEB-DL|track
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40495.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Armada Electronic Elements - ADE 2024 (2024) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40473.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Fashion Show Best Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40288.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Ibiza Closing 2024 (Chillout & Lounge Music) (2024) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40257.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Anjunabeats presents Progressive House 01 (DJ Mix) (2024) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40170.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - FSOE ADE Compilation (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40169.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Mo
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40163.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Fever Ray - Live at Troxy (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40160.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Paris La Nuit, Vol 1 (A Premium Lounge Collection) (2024) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40094.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Uplifting Only Top 15: October 2024 (Extended Mixes) (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40093.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Lusa - The Colour Of Space (2024) [MP3|320 Kbps] <Electronic, Synthpop, Pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40090.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Rufus Du Sol - Inhale / Exhale (2024) [MP3|320 Kbps] <Electronic, Breaks, House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40056.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Armin van Buuren - A State Of Trance 1195 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39968.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Arab Music by Dust & Grooves (2024) 19CD [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39779.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Jaycee Madoxx x DJ Zkydriver x Plastik Bass - Smells Like Teen Spirit (2023) [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39758.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Armin van Buuren - A State Of Trance 1195 (Ade Special) (2024) [MP3|192 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39754.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Giobbi - Dotr (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39752.jpg" />
 </div>
 
 
@@ -627,120 +743,6 @@ Giobbi - Dotr (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E17FB22858BAC24BE8DC36254008E26A26D65FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756393   (39751) от 20.10.2024
-
-VA - Alaloom (2024) [MP3|320 Kbps] <Dark PsyTrance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biophotons - Shifting Trajectories
-02. Atomas - Melting Cream
-03. Freakplanet - Spiraldriver
-04. Antonymous - Sequence Break(   Читать дальше...   )Жанр: Dark PsyTranceПродолжительность: 03:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE92A76E946556A34A0A2C0974917A7C8F43E79B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756206   (39748) от 20.10.2024
-
-Bassnectar (Lorin Ashton) - 13 Albums (2009-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat, Dubstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For Some Action feat. xXOXx (Locoqueen Remix) [00:03:12]
-02. Aion (Original Version) [00:03:38]
-03. The Strength (Bassnectar Remix) [00:03:45]
-04. That Different feat. Rye Rye (WCLF Remix) [00:04:15](   Читать дальше...   )Жанр: Electronic, Breakbeat, DubstepПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD37E382089B0C1AA3DAF6F3C44625A8BFD0B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756337   (39746) от 20.10.2024
-
-Ott - Hiraeth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Dub, Techno, PsyChill>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Door In The Back Of The Wardrobe
-02. Muggy BoneheadsЖанр: Tech House, Dub, Techno, PsyChillПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE6DB3BCB124D9DA7925D28628FA7FE2D069294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756228   (39743) от 20.10.2024
-
-High Contrast - Restoration (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Remember Me
-03. Be No Rain
-04. Lord(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8E670ADBBDA9CB0A5643E5E5CBD722066640DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

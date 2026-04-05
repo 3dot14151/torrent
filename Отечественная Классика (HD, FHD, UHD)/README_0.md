@@ -1,3 +1,55 @@
+###  Публикация: 1854327   (1057191) от 17.02.2026
+
+Черный принц (1973) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник Зорин, знакомый зрителям по фильму «Возвращение «Святого Луки», расследует очередное преступление. Неизвестными совершено дерзкое ограбление. На этот раз из ценнейшей коллекции похищен уникальный бриллиант «Черный принц». Этот камень стоит баснословную сумму денег...Производство: СССР / МосфильмЖанр: ДетективРежиссер: Анатолий БобровскийАктеры: Всеволод Санаев, Николай Гриценко, Тамара Сёмина, Раиса Куркина, Владимир Носик, Александр Калягин, Павел Панков, Геннадий Корольков, Игорь Кашинцев, Дмитрий МасановСубтитры: русскиеПродолжительность: 01:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CB91E2999BEC0C1F6E9158FB0C87F8086A7C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853909   (1057022) от 15.02.2026
+
+Дайте жалобную книгу (1965) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ресторан «Одуванчик» пользовался дурной славой. В нем было грязно, готовили мерзко, персонал норовил нахамить. Журналисту Никитину и его друзьям удается помочь директору ресторана превратить «Одуванчик» в образцовое молодежное кафе...Производство: СССР / Киностудия «Мосфильм», Второе творческое объединениеЖанр: комедияРежиссер: Эльдар РязановАктеры: Лариса Голубкина, Олег Борисов, Анатолий Кузнецов, Алексей Сафонов, Анатолий Папанов, Николай Крючков, Рина Зелёная, Юрий Никулин, Георгий Вицин, Евгений МоргуновСубтитры: РусскиеПродолжительность: 01:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3452EFF426AAE2D70AB310DF19D18C8F28FFC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852415   (1056041) от 07.02.2026
 
 Даурия (1971) WEB-DLRip [H.264/720p] (2 серии)
@@ -6,7 +58,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056041.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055640.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055297.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055288.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055007.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054828.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053706.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053675.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053421.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053391.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053390.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051288.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049693.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049281.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049239.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048762.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045779.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045710.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045136.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044346.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043980.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042759.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042685.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042684.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50086EBBB85FBCB626416581469A4014580CD3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437303   (1042226) от 04.01.2021
-
-Подкидыш (1939) WEBRip [H.264/1080p-LQ] [Цветная версия] [RU / EN Sub] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мама поехала снимать дачу на лето, оставив маленькую Наташу под присмотром старшего брата Юры. Юра строго-настрого приказал Наташе спать до двух часов. Тут раздался звонок в дверь, и к брату пришли в гости одноклассники - Нина и Алёша. Они настолько увлеклись обсуждением своих пионерских поручений, что не заметили, как Наташа, немного поплакав, оделась, ушла из квартиры (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Драма, комедияРежиссер: Татьяна ЛукашевичАктеры: Вероника Лебедева, Фаина Раневская, Петр Репнин, Ростислав Плятт, Рина Зеленая, Ольга Жизнева, Татьяна Барышева, Дмитрий Глухов, Федор Одиноков, Николай ЮдинСубтитры: Английские (HardSub)Продолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EEA6E214986372A08D616B355683FC49072C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430258   (1042176) от 04.01.2021
-
-За спичками (1979) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042176.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доме Ихалайнена кончились спички и невозможно развести огонь для приготовления так любимого финнами кофе. Потом случайная встреча с приятелем, и как следствие того, нарушение данного двадцать лет назад зарока не брать в рот спиртного. Затем неожиданное свидание в городе Юсси Ватанена со своей старой подружкой…Производство: СССР, Финляндия / Мосфильм, Suomi-FilmiЖанр: Комедия, приключения, историяРежиссер: Леонид Гайдай, Ристо ОркоАктеры: Евгений Леонов, Вячеслав Невинный, Рита Полстер, Ритва Валкама, Георгий Вицин, Галина Польских, Кауко Хеловирта, Лео Ластумаки, Пекка Аутиовуори, Леонид КуравлевЯзык озвучки: Русский, ФинскийСубтитры: ОтсутствуютПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453E149A311525FD8344BD89F4E178A3D22F3771
 ```
 
 https://mybot314.ru/tekegram_catalog/

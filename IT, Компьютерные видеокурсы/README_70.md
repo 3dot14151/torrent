@@ -1,31 +1,3 @@
-###  Публикация: 584820   (305082) от 05.12.2012
-
-Lynda.com | Building Templates in Word - Работаем с шаблонами в Word [2012] [EN] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305082.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе, Mariann Siegert показывает как использовать на полную мощь возможности шаблонов Microsoft Word, а также использовать их для более эффективного документооборота. Курс не только посвящен основам использования и применения шаблонов, но и показывает, как создавать шаблоны c пользовательскими свойствами, макросами, элементами управления содержимым, блоками и стилями. Также Вы узнаете, как копировать стили, макросы, и автотекст между шаблонами; изменять шаблон по умолчанию и многое другое.
-Файлы упражнений прилагаются к курсу.
-Дополнительная информация на офсайте.Жанр: Word 2007, 2010Продолжительность: 01:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2253109B449E7B9CEC7392F6752BA88BC5550CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183129   (304764) от 15.11.2017
 
 Павел Тарасов | Интенсив. Основы программирования (2017) PCRec [H.264/1080p-LQ]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304764.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304522.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ LiveClasses, Дмитрий Ларионов | Работа с MacOS: Полез
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303892.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ ITVDN | C# Стартовый на примерах из GTA 5 (2016) PCRec [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303803.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ Skillbox | Управление digital-проектами (2017) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301533.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ Udemy, Dr. Ryan Ahmed и др. | Программирование на Python 3.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299085.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298262.jpg" />
 </div>
 
 
@@ -224,7 +196,7 @@ Udemy, Evgenii Puzakov | Check Point Sandblast Course (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297340.jpg" />
 </div>
 
 
@@ -251,7 +223,7 @@ Udemy, Samuel Hinton | Python для статистического анализ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297331.jpg" />
 </div>
 
 
@@ -279,7 +251,7 @@ Udemy, 365 Careers Team | Statistics for Data Science and Business Analysis (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297330.jpg" />
 </div>
 
 
@@ -308,7 +280,7 @@ Udemy, Imtiaz Ahmad | Master SQL For Data Science (2020) PCRec [En / En, Pl, Ro 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297329.jpg" />
 </div>
 
 
@@ -334,7 +306,7 @@ Udemy, Денис Пугачев | Docker Swarm на практике (2020) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297186.jpg" />
 </div>
 
 
@@ -361,7 +333,7 @@ Udemy, Валерий Жданов | Как создать сайт на Node JS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297064.jpg" />
 </div>
 
 
@@ -390,7 +362,7 @@ Udemy, Alexandr Tyurin | Интерактивная веб-анимация 2020
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297063.jpg" />
 </div>
 
 
@@ -416,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291198.jpg" />
 </div>
 
 
@@ -444,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290698.jpg" />
 </div>
 
 
@@ -472,7 +444,7 @@ ITVDN | SharePoint Администрирование (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287382.jpg" />
 </div>
 
 
@@ -498,7 +470,7 @@ Udemy | HTML5, CSS3, FlexBox верстка сайтов с нуля. Курс 2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286905.jpg" />
 </div>
 
 
@@ -526,7 +498,7 @@ Lynda.com | HTML5: File API in Depth (2011) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285659.jpg" />
 </div>
 
 
@@ -554,7 +526,7 @@ Lynda.com | HTML5: Drag and Drop in Depth (2011) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285648.jpg" />
 </div>
 
 
@@ -583,7 +555,7 @@ Lynda.com | Techniques and Concepts of Big Data (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285492.jpg" />
 </div>
 
 
@@ -611,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283486.jpg" />
 </div>
 
 
@@ -640,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283369.jpg" />
 </div>
 
 
@@ -666,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282269.jpg" />
 </div>
 
 
@@ -692,7 +664,7 @@ jsexpert | Фундаментальный Node.js (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281794.jpg" />
 </div>
 
 
@@ -705,6 +677,32 @@ jsexpert | Фундаментальный Node.js (2018) PCRec [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FDCCA6B30B4172B3C54DF329235C6E4CEF4D832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336131   (281779) от 05.11.2019
+
+Владилен Минин | React JS с Нуля до Профи. Полное руководство (2019) PCRec [H.264/720p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281779.jpg" />
+</div>
+
+
+###  Подробнее
+
+При правильном использовании инструкций и приемов из курса, вы на наглядных примерах с полного нуля научитесь создавать динамические, реактивные, полностью адаптивные SPA-приложения и веб-сайты на библиотеке React.js.Производство: UdemyЖанр: Программирование, JavaScript, React.js, ReduxПродолжительность: 39:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C9E00807A4CE288F7600F65FF09659189A91A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

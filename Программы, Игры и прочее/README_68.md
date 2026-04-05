@@ -1,3 +1,107 @@
+###  Публикация: 931361   (511552) от 26.08.2015
+
+Петька и ВИЧ 2: Судный день v1.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петька и ВИЧ 2: Судный день - шел 1917 год. Раненый  и утомленный командир Чапаев пытается с трудом перебраться через реку Урал, в то время как пуля настигает его почти в конце реки. Ну вот и все кажется, спасения уже нету. Но внезапно откуда-то появляется странный луч из космоса и доставляет Василия Ивановича на корабль инопланетян. После невероятных опытов, тело (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 19 августа 2015 г.Разработчик: BUKA DevelopmentПоддерживаемая ОС: Android 2.3.3+Жанр: Приключения/ГоловоломкиЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8C3735BBA0475A6286A4B0EB6DCB3B49846C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562290   (511480) от 08.07.2022
+
+Flat Equalizer - Bass Booster 4.2.8 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flat Equalizer - Bass Booster - это приложение для улучшения звука вашего Android устройства с 10-и полосным эквалайзером. Flat Equalizer - Bass Booster позволяет Вам настроить уровни звуковых эффектов и амплитудно-частотную характеристику выходного сигнала для лучшего звучания Вашего устройства. Так же есть дополнительные эффекты - Усиление басов для подчеркивания (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.06.2022Разработчик: jAppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3680978A009BED3B5508EC89886DFAD1B85C884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562351   (511454) от 08.07.2022
+
+Weather Radar Live Tracker PRO v1.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите мощную и простую в использовании метеорологическую радиолокационную станцию ​​прямо на вашем смартфоне! Нужны ли вам радиолокационные карты, предупреждения о погоде, отслеживание штормов или просто проверка прогноза погоды. Приложение Weather Radar Live Tracker PRO - это полная версия Weather Radar для просмотра и мониторинга погоды в реальном (   Читать дальше...   )Тип издания: Paid (Куплено в Google Play)Релиз состоялся: 08.07.2022Разработчик: Grillar TechПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C84E5766D5AD978C40330E84EEAF1B4AE320C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562129   (511446) от 08.07.2022
+
+Pulsar Music Player Pro 1.11.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pulsar - прекрасный представитель своего класса: достаточно легкий, чтобы не быть обузой смартфону и при этом достаточно функциональный, чтобы радовать своего пользователя. Предусмотрена систематизация фонотеки по массе параметров (жанр, исполнитель, альбом и т.д.), имеется встроенный эквалайзер, усилитель басов. Предусмотрены поиск по различным параметрам, автозагрузка (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 05.07.22Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04140814C9B5C9E0D323784E3104B0E1DA5CC51C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562298   (511441) от 08.07.2022
 
 Эквалайзер FX: Усилитель звука 3.8.3.2 Mod by srajawwal09 [Ru/Multi]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511441.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510623.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ CCSWE App Manager (SAMSUNG) 6.2.0 Mod by Giacomino [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508953.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508943.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Multi Parallel - Multiple Accounts & App Clone 1.6.30.1025 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508936.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508881.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Zoetropic - движущееся фото 2.1.20 Mod by LunaDev [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508880.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Litchi for DJI Drones 4.22.1-g Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508874.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508871.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508807.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ LockMyPix - Шифратор для фото 5.2.3.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508057.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ Edge Gestures 1.10.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507988.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ Volume Panel Pro 21.19 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507976.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ Deliveries - Трекинг Посылок 5.7.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507908.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ PixaMotion - аниматор фото и редактор-синемаграф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507898.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ Lara Croft GO 1.0.48285 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507813.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ Streets Of Rage 2x Remake 1.4 Beta [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507680.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ Termux 0.118 Mod by Идите Лесом + Plugins [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507047.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Parallel Space - Multi Accounts 4.0.9177 Mod by derrin, KirIif', GuanYinLite [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507043.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ NetShare Pro 1.99 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507037.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ Lite RSS Pro 2.5.2 Mod by solokot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506212.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ AppSales: Скидки и распродажи приложений 12.0 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506211.jpg" />
 </div>
 
 
@@ -568,113 +672,6 @@ AppSales: Скидки и распродажи приложений - ещё о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9FB8E5F2E567C3DB5B403929ED288757A82A63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933380   (505120) от 02.09.2015
-
-Disney Color and Play v1.4 [En]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Color and Play — это мир творчества и захватывающих приключений в компании любимых героев: доктора Плюшевой, друзей из Клуба Микки Мауса, персонажей анимационных фильмов «Холодное сердце», «Город героев», «Головоломка» и «Королевские питомцы».
-
-Создавайте и раскрашивайте собственные миры Disney — и смотрите, как картинки оживают у вас на глазах, превращаясь (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 20 апреля 2015Разработчик: Disney Publishing WorldwideПоддерживаемая ОС: Android 4.1+Жанр: Детские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C0EC0E64D6D0F49E65EFB1F42A663AD9E70A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914374   (505059) от 02.09.2015
-
-Волшебная ферма v2.7.4 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебная ферма / Fairy Farm - Великолепная ферма на анроид, которая пришла к нам из социальных сетей из Одноклассников и Вконтакте. Главное преимущество игры – она не требует интернет. И это, пожалуй, очень сильно выделяет игру среди всех подобных. В игре собрано 150 различных растений для посадки, и около ста милых зверушек для выращивания. Также из различных трав (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28 августа 2015 г.Разработчик: Game Garden™Поддерживаемая ОС: Android 2.3.3+Жанр: ДетскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E7DCE736FEC608B5811C8CA1F2FD739F5E5F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933394   (505001) от 02.09.2015
-
-Женские приложения на Андроид
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задумывались с чем лучше одеть вот эту вашу красивую бирюзовую кофточку? С чем она будет выглядеть эффектнее: с черными джинсами или вашей новой кораллового цвета юбкой? А когда подбираете одежду, думаете ли вы над тем, как лучше подчеркнуть достоинства вашей фигуры и скрыть недостатки?
-Если да - то наше приложение создано для вас, для женщин, которые (   Читать дальше...   )Разработчик: m.and.developerЯзык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0F4BB514AB4A1D25D10F62BF8399E885240A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563505   (504462) от 14.07.2022
-
-Opera GX: Браузер для геймеров 1.5.9 Mod by The_Sem100Dan4ik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная геймерская версия браузера Opera. В ней реализованы уникальные функции, такие как ограничение использования ресурсов ЦП, оперативной памяти и сетевого трафика, помогающие играть и просматривать веб-страницы с максимальным удобством. Уникальный дизайн Opera GX вдохновлен играми и игровым железом. Браузер выполнен в том же стиле, что и браузер (   Читать дальше...   )Тип издания: Lite-ModРелиз состоялся: 21.05.2022Разработчик: OperaЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BC8CF0BFE28B1CA1543BAEBCB9A80E02E3D82B
 ```
 
 https://mybot314.ru/tekegram_catalog/

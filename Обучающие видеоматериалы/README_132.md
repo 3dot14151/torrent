@@ -1,3 +1,31 @@
+###  Публикация: 357772   (584860) от 03.07.2011
+
+Б.К.С. Айенгар | Мастер-класс в Москве [2009] DVDRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о семинаре Б.К.С. Айенгара (Апрель 2009 г.) (Айенгара Йога). Самый известный йогин нашего времени - 90-летний гуру Шри Айенгар посетил Москву по приглашению Йога-журнала и провел мастер-классы для нескольких тысяч российских учеников йоги.
+С 23 по 26 апреля прошла очередная конференция Yoga Journal. На этот раз она была полностью посвящена одному человеку – Б.К.С. Айенгару
+На 9 DVD - подробный отчет о пребывании Учителя в Москве, более 20 часов теории и практики йоги Айенгара - из первых рук. Уникальный фильм включает в себя приветственное слово Гуруджи, 4 мастер-класса под его руководством, 4 класса пранаямы с Фаеком Бирия, Манусо Маносом и Патчи Лизарди, сессию вопросов и ответов, репортажи о приеме в посольстве Индии и визите Айенгара в московские центры йоги, видеоотчеты о пресс-конференции Гуруджи и посвященном ему йога-шоу.Жанр: ЙогаПродолжительность: 12:30:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553097   (584644) от 23.05.2022
 
 Udemy, Wenliang Du | Cryptography: A Hands-on Approach (2022) WEB-DL [EN / EN Sub]
@@ -6,7 +34,7 @@ Udemy, Wenliang Du | Cryptography: A Hands-on Approach (2022) WEB-DL [EN / EN Su
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584644.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584502.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Expert Trader | Обучение трейдингу (2014) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584159.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583890.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ Geekbrains | Основы программирования (2014) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583536.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ Lynda | 3ds Max 2015 Базовый тренинг/ 3ds Max 2015 Essential Train
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583533.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ ProfiT | Мой первый сайт за 2 недели (2015) WEBRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583112.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ CGcircuit, Andy Van Straten | Skinning with nCloth Part II (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582809.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ Digital Tutors | Основы компьютерной графики/ Learn the
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582623.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582167.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ CG Elves, Camille Kleinman | Hoods & Hats Workshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581812.jpg" />
 </div>
 
 
@@ -305,7 +333,7 @@ Cryptoinside, Иван Шашков | Биткоин профи (2022) WEB-DL [A
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581717.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581235.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ CG Cookie, Tim Von Rueden | Piero - Animated Character Concept (Concept Art Cour
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580867.jpg" />
 </div>
 
 
@@ -389,7 +417,7 @@ SF Education | Инвестиционный аналитик (2020) WEB-DL [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580780.jpg" />
 </div>
 
 
@@ -415,7 +443,7 @@ Udemy.com | Infinite Skills | Написание безопасного PHP-ко
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580759.jpg" />
 </div>
 
 
@@ -442,7 +470,7 @@ Profileschool | Photoshop - Curves. Работа с кривыми (2013) [PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580235.jpg" />
 </div>
 
 
@@ -468,7 +496,7 @@ ProfiT | JavaScript с самого начала (2016) WEBRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580148.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ Oleg Lav | Создание образа системы — Acronis True Image (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579797.jpg" />
 </div>
 
 
@@ -520,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579724.jpg" />
 </div>
 
 
@@ -551,7 +579,7 @@ Udemy.com | Hacking School & IT Security Academy | Практический вз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579694.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ Corey Barker | KelbyTraining - Photoshop CS5 Down and Dirty Tricks [2010] DVDRip
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579653.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ beachbody | Beachbody Power 90 In-Home Boot Camp (Tony Horton) (2 диска) [2
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579634.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ SDG TRADE | Старт на NYSE (2016) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579181.jpg" />
 </div>
 
 
@@ -666,7 +694,7 @@ World Of Level Design | UE4 How To Create Custom Decals (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578796.jpg" />
 </div>
 
 
@@ -677,32 +705,6 @@ World Of Level Design | UE4 How To Create Custom Decals (2015) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67C6D4537BC218BA36A88C0E17D98A17891B36BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553975   (578701) от 29.05.2022
-
-Figma.center, Владимир Чернышов | Дизайн генератор. Комплект Figma, для создания прототипов и крутых дизайн макетов Landing Page (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект с множеством разделов для быстрого создания прототипов и крутых дизайн макетов Landing Page в Figma. Скорость создания дизайна лендингов возрастает в 2-5 раз. Хочу отметить, что это не очередной затасканный комплект от школо-бизнесменов. Автор сего комплекта профессиональный дизайнер. Его шаблоны приняли в такие широкоизвестные стоки как themeforest.net (   Читать дальше...   )Производство: Figma.centerЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:08:11Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0DE15B999A31ED41F58D9E2A8D82F3E4CC6767
 ```
 
 https://mybot314.ru/tekegram_catalog/

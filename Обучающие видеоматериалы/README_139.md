@@ -1,3 +1,32 @@
+###  Публикация: 932824   (507820) от 30.08.2015
+
+Дарья Черненко | Заморозка. Готовим впрок (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь правильно замораживать, хранить и размораживать продукты.
+Вы научитесь правильно замораживать, хранить и размораживать готовые блюда.
+Вы сможете существенно сэкономить, замораживая на зиму ягоды, зелень, овощи и фрукты.
+У вас в холодильнике ВСЕГДА будет готовая ДОМАШНЯЯ еда.(   Читать дальше...   )Жанр: КулинарияПродолжительность: 07:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23B8C2E7B468BE0327BDE5EEB05DC9C8A2B955D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933140   (506935) от 31.08.2015
 
 Дэвид Бизли | Конкурентность в Питоне с нуля. Вживую. (2015) HDTV
@@ -6,7 +35,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506935.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ CGMA, Kevin Griffith | Stylized 3D Asset Creation for Games (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506883.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ Archicad-Master | Проектирование и визуализация в Sk
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506878.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Sycra, Sycra Yasin | Composition for Artists (2013) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506106.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ HOP&SCOTCH | Английский: Базовый уровень (2022) WEB-DL [
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505877.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ Rebelway, Saber Jlassi, Urban Bradesko | Introduction To Houdini For 3D Artists 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505143.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505056.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ teachshop | Kompas 3D V11 [Обучающий видео курс] (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504426.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ HOP&SCOTCH | Английский: Средний Уровень (2022) WEB-DL [
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504134.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ HOP&SCOTCH | Английский: Высокий Уровень (2022) WEB-DL [
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504132.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ Tuts+ | PSD to HTML: Flat Design Build  (2014) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504013.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ Slurm (Слёрм), Владимир Гурьянов | Prometheus (2022) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503173.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ LearnVisualStudio.net | Visual C Sharp 2010 Express Edition for Absolute Beginne
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502012.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501927.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501914.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Geekbrains | 1С-Битрикс. Управление сайтом (2015) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501908.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501898.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ HTML Academy | Подборка видеокурсов по вёрстке и р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501173.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ ItGid, Александр Лущенко | PHP Stage 2 (2019) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500272.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ WebCademy | JavaScript разработчик: Уровень Developer (2020) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500257.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500255.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Rebelway, Saber Jlassi | Advanced Compositing Using COPs in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499504.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ Wingfox, Sarah Petruzzi | Photorealistic Character Creation (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499271.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ Yudaev School, Никита Юдаев | Дизайн c WOW-эффектом. Т
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499264.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498956.jpg" />
 </div>
 
 
@@ -671,34 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A4CE7CDD1B8D8062F355F8F27394FAE11A9D521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935617   (498177) от 09.09.2015
-
-Ольга Меньшикова | Стильная фотосессия (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные секреты создания стильных фотосессий и анализ работ известных западных фотографов, стильной фотографии.
-
-На курсе поэтапно раскрываются основные секреты каждого шага фотосессии от разработки концепции, раскадровки, кастинга, света и композиции до роли цвета, линии и фактуры в кадре. Принципы построения фотосессии от концепции до раскадровки и воплощения. (   Читать дальше...   )Жанр: ФотоПродолжительность: 4:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A0565AE4DA1A3B34014B5D206DA8DF1E866B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

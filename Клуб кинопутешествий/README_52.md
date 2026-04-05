@@ -6,7 +6,7 @@ RTG. Прогулка по Геленджику (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230672.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229159.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228823.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227759.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227673.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227594.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225401.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223798.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222070.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221248.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221041.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220971.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220847.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220772.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220438.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218856.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218502.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218390.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218306.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215597.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214340.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Discovery. Долгий путь вокруг Земли / Long Way Round (2004)
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213891.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213618.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213613.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ RTG. Прогулка по Петропавловску-Камчатскому (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212082.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211991.jpg" />
 </div>
 
 

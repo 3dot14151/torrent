@@ -6,7 +6,7 @@ VA - Friends List Vol. 4 (2022) [AAC|~311 Kbps] <Deep House, Tech House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641106.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lamuzgueule - Iceberg Club: Supplement Caramel (Reedition) (2022) [AAC|~321 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641103.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Candy Girls (Indie Hearts Voices) (2022) [AAC|~320 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641098.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chillhop Guitar - Chill Fantasy (2022) [AAC|~311 Kbps] <Chill Out, Smooth Jazz, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641093.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641086.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640986.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Сделано в СССР. Выпуск 8 (2010) [AAC|~331 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640970.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Сделано в СССР. Выпуск 7 (2010) [AAC|~353 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640965.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Сделано в СССР. Выпуск 5 (2008) [AAC|~311 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640962.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Сделано в СССР. Выпуск 6 (2008) [AAC|~340 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640959.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640924.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640919.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640883.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Сделано в СССР. Выпуск 10 (2010) [AAC|~330 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640866.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640831.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640817.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640789.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640767.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Сделано в СССР. Выпуск 3 (2007) [AAC|~349 Kbps] <Pop, Roc
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640761.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640758.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Сделано в СССР. Выпуск 2 (2007) [AAC|~349 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640755.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640721.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640658.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640641.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639835.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639577.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1128754   (725768) от 26.04.2017
-
-Елена Конова, Галина Поллак | Алгоритмы и программы. Язык C++. Учебное пособие (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725768.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: При изложении материала авторы используют методику обучения от алгоритмов к программам, поэтому вначале излагаются сведения об алгоритмах с примерами реализации типовых алгоритмов. Изучение основ языка программирования С++ опирается на полученные знания. Примеры можно решать в любой среде разработчика, поддерживающей язык С++, но авторами примеры отлажены (   Читать дальше...   )Жанр: Языки и системы программированияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1678493B024A9C0E29741275ED260057732CECE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023168   (723843) от 05.06.2016
-
-Журнал | Программные продукты и системы №2 (114) (2016) [PDF] [Ru, En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723843.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Программные продукты и системы" - международное научно-практическое приложение к международному журналу "Проблемы теории и практики управления". Журнал способствует обобщению и распространению опыта разработки и применения вычислительной техники и программных средств, знакомит читателей с работами ученых и специалистов России и зарубежных стран, (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0D7D31AEC6873D32C79ACFAC884F9EF2AF96D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790256   (723694) от 26.05.2014
-
-Андерс Хейлсберг и др. | Язык программирования C#. 4-е издание (2012) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами - четвертое издание главной книги по языку C#, написанной легендой программирования - Андерсом Хейлсбергом, архитектором C#, Delphi и Turbo Pascal, совместно с другими специалистами, входившими в группу разработчиков C# компании Microsoft. Издание является наиболее полным описанием языка и самым авторитетным источником информации по этой теме, построенным (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA11774DA71C2D8651576873CE17EFE1B5EA98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023351   (721609) от 06.06.2016
 
 Рето Майер | Android 4. Программирование приложений для планшетных компьютеров и смартфонов (2013) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721609.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721126.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720519.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718377.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718002.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716605.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716271.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714508.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ Mark Moeykens | Combine Mastery in SwiftUI (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714471.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ Greg Sidelnikov | CSS Visual Dictionary (2018) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714463.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ Vincent Ngo и др. | Data Structures & Algorithms in Dart (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714462.jpg" />
 </div>
 
 
@@ -383,7 +305,7 @@ Greg Sidelnikov | JavaScript Grammar (2019) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714461.jpg" />
 </div>
 
 
@@ -409,7 +331,7 @@ Alex Edwards | Let's Go Further! Advanced patterns for building APIs and web app
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714460.jpg" />
 </div>
 
 
@@ -437,7 +359,7 @@ Shruti Balasa | Complete Guide to CSS Flex and Grid [2 книги] (2021) [Pure 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714398.jpg" />
 </div>
 
 
@@ -466,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713925.jpg" />
 </div>
 
 
@@ -493,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712917.jpg" />
 </div>
 
 
@@ -519,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710750.jpg" />
 </div>
 
 
@@ -545,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710229.jpg" />
 </div>
 
 
@@ -571,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710219.jpg" />
 </div>
 
 
@@ -597,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710152.jpg" />
 </div>
 
 
@@ -624,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706384.jpg" />
 </div>
 
 
@@ -651,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706240.jpg" />
 </div>
 
 
@@ -677,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706235.jpg" />
 </div>
 
 
@@ -691,6 +613,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03B839CE886B562B89CAC1DC573C5CA158FFEF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402079   (702990) от 13.08.2020
+
+Михалис Цукалос | Golang для профи. Работа с сетью, многопоточность, структуры данных и машинное обучение с Go [2-е издание] (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам уже знакомы основы языка Go? В таком случае эта книга для вас. Михалис Цукалос продемонстрирует возможности языка, даст понятные и простые объяснения, приведет примеры и предложит эффективные паттерны программирования.
+Изучая нюансы Go, вы освоите типы и структуры данных языка, а также работу с пакетами, конкурентность, сетевое программирование, устройство компиляторов, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F812F6C750D6FC71516EA6A5B4593A8D7E9BA956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025792   (701440) от 16.06.2016
+
+Майк МакГрат | Программирование на Java для начинающих (2016) [PDF]
+
+>>След.
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Программирование на Java для начинающих" является исчерпывающим руководством для того, чтобы научиться программировать на языке Java.
+Познакомившись с основами языка, вы научитесь использовать основные возможности Java, необходимые для изучения операторов, операций обработки данных, импорта, создания интерфейсов и изготовления апплетов с использованием (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831E5FC0248CB406E296740F295895D9B677AAD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025793   (701426) от 16.06.2016
+
+Майк МакГрат | Программирование на Python для начинающих (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Программирование на Python для начинающих" является исчерпывающим руководством для того, чтобы научиться программировать на языке Python.
+В этой книге с помощью примеров программ и иллюстраций, показывающих результаты работы кода, разбираются все ключевые аспекты языка. Установив свободно распространяемый интерпретатор Python, вы с первого же дня (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677B5B098E2849599EB29EC4FC651586BC464475
 ```
 
 https://mybot314.ru/tekegram_catalog/

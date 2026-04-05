@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789378.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789178.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788838.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Witcher 3: Wild Hunt concert (Film Music Festival 2016) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787918.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Billy Idol - VH1 Storytellers (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787647.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786951.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Joe Dassin - a Toi... Live A L'Olympia '77 (2005) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786628.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785917.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785766.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785728.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Labyrinth - Return to Live (2016/(2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785301.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785271.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785261.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784913.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784828.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784276.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Sarah Brightman: Harem - A Desert Fantasy (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784183.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ David Gilmour: Remember That Night (2007) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784175.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Music maestro. Brahms, The complete live and music of the great composers (1992)
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783488.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783335.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783038.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Whitesnake - The Purple Tour '2015 (2018) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782911.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782900.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782853.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782609.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Yello-Live in Berlin '2016 (2017) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781165.jpg" />
 </div>
 
 

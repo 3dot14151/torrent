@@ -1,3 +1,55 @@
+###  Публикация: 1231778   (386913) от 07.10.2018
+
+Battlevoid: Harbinger (2016) [Ru/Multi] (2.0.6) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battlevoid: Harbinger – это сложная игра в жанре космической научной фантастики, в которой смешаны разные жанры: «рогалик» (roguelike), походовая звездная стратегия и космические битвы в реальном времени. Вы – юный командир, которому поручено проникнуть в тыл врага, отправившись в далекие неизведанные галактики, и вы понятия не имеете, что вас ждет после прыжка через (   Читать дальше...   )Тип издания: LicenseРазработчик: Bugbyte LtdЖанр: Strategy, Simulator, IndieЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C3D1151D55B816B0AD15F5ED87F34F3568732C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174312   (386543) от 14.10.2017
+
+Dungeons 3 (2017) [Ru/En] (1.2) Repack Covfefe
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наконец-то Лорду Подземелья удалось объединить под своим началом все силы тьмы и основать империю зла. Пришло время сделать следующий шаг – расширить границы своих владений! Лорд Подземелья переманил на свою сторону жрицу темных эльфов, Талию, сделав ее своим главным помощником. Ничто не может помешать теперь властелину темного царства управлять операцией по завоеванию (   Читать дальше...   )Тип издания: RepackРазработчик: Realmforge StudiosЖанр: Strategy (God Sim, Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CB2C52A5B3CFA4FE232DD2F7E0DCA4F2E9BAE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067679   (386243) от 29.10.2016
 
 Stronghold Legends (2009) [Ru/Multi] (1.3) License PROPHET [Steam Edition]
@@ -6,7 +58,7 @@ Stronghold Legends (2009) [Ru/Multi] (1.3) License PROPHET [Steam Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386243.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dungeons 3 (2017) [En] (1.2.1/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384680.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Overland (2019) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384505.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.2.1/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384046.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Conan Unconquered (2019) [Ru/Multi] (1.143 build 703634) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382627.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Stronghold HD (2012) [Ru/Multi] (1.3) License PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381806.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802.28549/dlc) Repack R.G. Меха�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378921.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376753.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Endless Legend (2014) [Ru/Multi] (1.6.10 S3/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372242.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Overland (2019) [Ru/Multi] (840) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369005.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Myth Anthology (1997-2001) [Ru/En] (1.5/1.8/1.3.1/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368243.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Gears Tactics (2020) [Ru/Multi] (1.0/dlc) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366840.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Age of Empires III (3): Definitive Edition (2020) [Ru/Multi] (1.0/dlc) License C
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366836.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362431.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Imperial Glory [En/Ru] (RePack/1.1) 2005 | R.G. Origami
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362172.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Age of Wonders Anthology (1999-2014) [Ru/En] Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360587.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Rise Of Nations Anthology [En/Ru] (Repack) 2003 - 2006 | R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359462.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355219.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.0.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352710.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Stronghold: Crusader II (2014) [Ru] (1.0.22365/upd17/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333192.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Earth 2150. Moon Project / Земля 2150. Дети Селены (L) [Ru] (2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_332792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_332792.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Supreme Ruler 2020 (2008) [Multi] (2.0.0.1/dlc) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320247.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316394.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305729.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D045925FFB408E2503F8CCFB2E8781FBB03F676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183838   (304768) от 15.11.2017
-
-Polaris Sector (2016) [Ru/En/Spa] (1.06с/dlc) License CODEX
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра представляет из себя полномасштабную космическую 4X-стратегия, с акцентом на космических кораблях и космических сражениях. Существует интересная экономическая часть, хорошо развитая политика, уникальная система науки и т.д. Вы начинаете игру, выбрав форму галактики, количество звезд (это может быть пара десятков или сотен), расы, условия победы и прочее.Тип издания: LicenseРазработчик: SoftWarWareЖанр: Grand Strategy, Turn-BasedЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2CD42F2FBA644FC2C2D6DC9485173C0E774A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332848   (302572) от 25.10.2019
-
-Close Combat: The Bloody First (2019) [Multi] (1.00.02) License GOG
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Close Combat: The Bloody First - это новая игра в популярной серии Close Combat, впервые использующая движок 3D Archon. Благодаря движку, Close Combat: The Bloody First теперь сочетает классический тактический геймплей Close Combat с битвами, которые ведутся в самых разных трехмерных ландшафтах, включая скалистые гребни, узкие долины и плотные деревни. Переход на (   Читать дальше...   )Тип издания: LicenseРазработчик: Slitherine Ltd.Жанр: Стратегия, В реальном времени, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ИспанскийЯзык интерфейса: Английский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9AA5A288240A7E9F1BCCDBA593512B8DEDAC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

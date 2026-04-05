@@ -1,134 +1,3 @@
-###  Публикация: 1596014   (173956) от 08.12.2022
-
-Н.С. Фролова | Тектонофизика. Дополнительные главы (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конспект лекций по курсу "Тектонофизика".Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDED8ACB6C692A5D404B9C9E4F4F889879B9DC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596186   (173944) от 08.12.2022
-
-С.А. Спектор | Электрические измерения физических величин. Методы измерений (1987) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены методы измерений и физические основы построения средств электрических измерений физических величин, а также вопросы общей теории измерений, метрологического обеспечения и коррекции погрешностей измерений. Приводятся характеристики современных средств измерений.
-Для студентов вузов по курсу "Методы измерений физических величин". Может быть полезно (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBEFF9ED9B5877669ACE27788CB6BE45445DA174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596032   (173895) от 08.12.2022
-
-Д.Ю. Нечипуренко | Экспериментальные методы в биофизике (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конспект лекций по курсу "Экспериментальные методы в биофизике".Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98215475FE446E6B7B48191383B8695E0F26928A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194064   (173835) от 23.12.2017
-
-Сергей Парновский | Как работает Вселенная: Введение в современную космологию (2018) [PDF, FB2, RTF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена космологии – науке, недавно отпраздновавшей свое столетие. Она объясняет, почему мы уверены, что у Вселенной есть начало, где и когда произошел Большой взрыв, что означает разбегание галактик, как образовалось все, что нас окружает, от атомов до галактик, каково будущее Вселенной, существуют ли миры с другими физическими законами, что такое черные (   Читать дальше...   )Жанр: Научно-популярная литература, КосмологияФормат: PDF, FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C258575453015007FDCFF0A687C37AD0F67D061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596044   (173805) от 08.12.2022
-
-Н.В. Кленов | Современные экспериментальные исследования основ квантовой механики (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конспект содержит 12 лекций по современным экспериментальным исследованиям основ квантовой механикиЖанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F3E419CB2EBDFAFEFE59B7F5CF9DC65339CF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827098   (173804) от 20.10.2025
 
 Д.В. Карпов | Теория графов (2022) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173804.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173755.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173695.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173678.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173660.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173602.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173600.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173598.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173594.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173589.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173581.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173469.jpg" />
 </div>
 
 
@@ -452,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173314.jpg" />
 </div>
 
 
@@ -478,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173129.jpg" />
 </div>
 
 
@@ -504,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172935.jpg" />
 </div>
 
 
@@ -530,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172916.jpg" />
 </div>
 
 
@@ -556,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172850.jpg" />
 </div>
 
 
@@ -582,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172816.jpg" />
 </div>
 
 
@@ -608,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172796.jpg" />
 </div>
 
 
@@ -634,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172752.jpg" />
 </div>
 
 
@@ -660,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172574.jpg" />
 </div>
 
 
@@ -671,6 +540,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5532B61AAD761A2E46CDE969734FB7904D55A32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670196   (172299) от 19.10.2023
+
+И.И. Ляшко (ред.) | Математическое обеспечение сложного эксперимента (1982 - 1990) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг по математическому обеспечению сложного эксперимента.Жанр: МатематикаИздательство: Наукова думкаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACD8E3E2067101E66AB09611B6D2D980AB81F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670093   (172288) от 19.10.2023
+
+М.Х. Карапетьянц, С.И. Дракин | Строение вещества (1978) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172288.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются современные представления о строении атомов, молекул и кристаллических тел и природе химической связи. Книга состоит из четырех частей: строение атома, периодический закон и его связь со строением атома, структура молекул и химическая связь, строение вещества в конденсированном состоянии.Настоящий курс предшествует курсу химии и способствует повышению (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1870601E142D6C327B7DC2AD42B0A53B3F6D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670234   (172244) от 19.10.2023
+
+Ю.М. Березанский, Г.Ф. Ус, З.П. Шефтель | Функциональный анализ (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основы функционального анализа и теории операторов: теория меры и интеграла, нормированные пространства и функционалы и операторы в них, спектральная теория самосопряженных операторов в гильбертовых пространствах (включая неограниченные операторы и теорию разложений по обобщенным собственным векторам), элементы теории обобщенных функций как конечного, так (   Читать дальше...   )Жанр: МатематикаИздательство: Выща школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ECF15F6C420DE2EA9020BA7739EB4B51AA71068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670346   (172039) от 20.10.2023
+
+Светлана Гурьянова | В начале было кофе. Лингвомифы, речевые «ошибки» и другие поводы поломать копья в спорах о русском языке (2023) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана Гурьянова, филолог, преподаватель русского языка и автор блога istoki_slova, в своей книге развенчивает главные мифы о русском языке и выводит на чистую воду всех, кто придумывает о нем небылицы. А еще дает множество контраргументов, которые усмирят даже самых яростных граммар-наци!Жанр: Научно-популярная литература, Русский язык, ЯзыкознаниеИздательство: Бомбора, ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31385BBE0F6A85B875566DC52C5F7AF40251229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670663   (171872) от 21.10.2023
+
+Ф.Р. Гантмахер | Теория матриц (1988) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена матричному исчислению. В ней наряду с собственно теорией матриц содержится изложение ряда математических проблем, решение которых достигается применением развитой матричной техники. Большое внимание уделяется вопросам интегрирования и проблеме устойчивости систем дифференциальных уравнений. Для студентов старших курсов и аспирантов (математиков, механиков, (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60F4C2A75298D0890B48D429E28795EBB1B9987
 ```
 
 https://mybot314.ru/tekegram_catalog/

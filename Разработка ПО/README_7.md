@@ -6,7 +6,7 @@ EditPlus 6.0.0 build 0632 + EditPlus 6.0.0 patch 0669 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27337.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2022 Community 17.13.2 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26295.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JetBrains dotUltimate 2024.1.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25138.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Resource Tuner Business | Personal 2.25 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20885.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Microsoft .NET 9.0.6 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14973.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Araxis Merge Pro 2025.1 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8683.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.50 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8109.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ JetBrains PhpStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7550.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7540.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ JetBrains DataGrip 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7518.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ JetBrains CLion 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7494.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ JetBrains PyCharm Professional 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7364.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ JetBrains Rider 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7326.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Jetbrains WebStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7320.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ JetBrains GoLand 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7302.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ JetBrains RustRover 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7290.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ JetBrains DataSpell 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7277.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ JetBrains RubyMine 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7268.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3378.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Microsoft Visual Studio 2022 Professional 17.14.15 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2330.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Open Server Panel 6.4.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1511.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.16 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1183.jpg" />
 </div>
 
 
@@ -584,32 +584,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820779   (115) от 29.09.2025
-
-Microsoft  Visual C++ Runtimes AIO v0.101.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E463479ABA0AA8CECF537201EA70F613983F199C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820904   (68) от 29.09.2025
 
 Microsoft Visual C++ 2015-2022(2026) Redistributable 14.50.35615.0 [Ru]
@@ -618,7 +592,7 @@ Microsoft Visual C++ 2015-2022(2026) Redistributable 14.50.35615.0 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68.jpg" />
 </div>
 
 

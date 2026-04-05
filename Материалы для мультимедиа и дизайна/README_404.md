@@ -1,3 +1,504 @@
+###  Публикация: 1801780   (14771) от 13.06.2025
+
+3D сцены - Fab - Taiga Biome Environment ( Boreal Forest , Winter Forest , Tundra Biome ) [UASSET, UMAP]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свои виртуальные миры в безмятежную зимнюю страну чудес с Taiga Biome Environment , необыкновенным набором листвы и ресурсов от Entroverse Labs. Эта тщательно созданная коллекция передает суровое очарование северных лесов, дополненное морозным ландшафтом, природными элементами и уютными структурами. Независимо от того, создаете ли вы захватывающий зимний (   Читать дальше...   )Формат: UASSET, UMAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D431E1C79ADFCFB011ACC302899096D7BDE71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801776   (14766) от 13.06.2025
+
+Шаблон администратора - UI8 - Looky - E-commerce mobile UI Kit [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Looky — это элегантный и всеобъемлющий UI Kit, разработанный для мобильных приложений электронной коммерции в сфере моды. Создаете ли вы платформу для бутика одежды, онлайн-маркетплейсов моды или персонализированных покупок. Looky дает вам преимущество.
+
+С более чем 30 прекрасно созданными экранами Looky включает в себя все, что вам нужно: от регистрации, обнаружения (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E11B5A20AEB0B5897E55470CA13C75B93A0104A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801828   (14739) от 13.06.2025
+
+Шрифты - Liubov Volkova - Behance - Dispater - 224982027 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей, вдохновленный мрачной средневековой эстетикой и ломбардскими заглавными буквами. Его длинные, похожие на хвост заглавные буквы и характерные удлиненные элементы в виде букв T, F, L и G, заканчивающиеся крупными каплевидными формами, создают извилистый, причудливый и сюрреалистичный узор.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B4ED65489C1642FDD95153BB09CF8725E6D88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802417   (14428) от 16.06.2025
+
+Растровый клипарт - Creative Market - 20 Isolated Paper Rips, Torn Ripped - 284727841 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот пакет текстур рваной бумаги поможет вам добавить реалистичный эффект вашим фотографиям и дизайнам! Можно использовать в коллажах, титрах, выносках и т. д.Формат: PNGРазрешение файлов: 4500x4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8945B43F5AA5C6FF9C5A7AA07D2E4E4681DE1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802433   (14332) от 17.06.2025
+
+Шрифты - Ilya Kolobov - Behance - BIM Font 2025 - 227057175 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6DADB77BCF1231E52753B3EC85DE426E40EEC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802567   (14310) от 17.06.2025
+
+Фоны - themefire - Envato - Marble in Gold and White Texture Backgrounds - WPENZK6 [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор фонов под белый мрамор с золотыми прожилками.Формат: JPG, PNGРазрешение файлов: 5000 x 3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889EA1E1E0AA520582A77C7A46CBAAF45A9E96CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802524   (14308) от 17.06.2025
+
+Текстуры - Chroma Supply - Transcend: Glimmering Paint Textures [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 11 текстур мерцающей краски ручной работы на черном фоне.Формат: PNGРазрешение файлов: 3864x6400 - 6000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A226339D8144DEF7953A1026C2D32DC286D28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802428   (14292) от 17.06.2025
+
+Шрифты - Anna Kovalenko - Behance - Kavun display font - 176314043 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3599EF2754D513C97040C62990BD99AF41A342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802435   (14291) от 17.06.2025
+
+Шрифты - Alexandra Zarekoy - Behance - Teplo Font - 227989947 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей, бесплатен для любого типа пользования. Вдохновлён формой старых советских радиаторов и имеет характер славянской вязи. Отсюда и название — горящая костром нить культурной традиции встретилась с тёплым ощущением пост-советской ностальгии и щедрых на тепло зимних батарей.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366139946E5DBB3473F586FD37D5D543284838D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802425   (14289) от 17.06.2025
+
+Шрифты - Anna Kovalenko - Behance - Karkas cyrillic font - Mod By He Rez AD - 227836985 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей 2 стиля.
+Материал раздаётся с официальной документацией.
+В файле AKKarkas-Regular - Mod By He Rez AD скорректировано отображение надстрочных элементов.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3A6FA101CACA92B525FC99F64CAFB9D4BD0774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802706   (14202) от 18.06.2025
+
+Текстуры - Veila - Metal Flow - Envato - Liquid Metal Background Textures - 6XM23SU [JPG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Металлические текстуры в трех цветовых вариациях.
+Материал раздаётся с официальной документацией.Формат: JPG, PSDРазрешение файлов: 4500 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13DAFD1F4B5B080F92C7775D967F17D994D253A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802587   (14197) от 18.06.2025
+
+Фоны - kaleriia - Envato - Black Hair Backgrounds - HRJZC2F [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14197.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 фонов с чёрными волосами.Формат: JPGРазрешение файлов: 5000 x 3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C695FCBA0110DE7685A685D280B2CDD9C2EEDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802591   (14196) от 18.06.2025
+
+Текстуры - CCpreset - Envato - 20 Chrome Texture HQ - 4WJFJAH [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14196.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 текстур стилизованных под хром.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC156E2B66D007D91E5E2D75244C925C167986A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802574   (14194) от 18.06.2025
+
+Шрифты - Vadovastd - Envato - Libertas Sans Serif Font - Mod By He Rez AD - R4MSE8F [TTF, OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.
+Добавлена от "He Rez AD" кириллица молдавская, скорректирована украинская кириллица; им же добавлены некоторые глифы.Формат: TTF, OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65EE42FDEC730A3B7FB6CE52CDCA71DCC5459501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802628   (14193) от 18.06.2025
+
+Текстуры - CCpreset - Envato - 20 Cotton Fabric Texture HQ - 388QTLZ [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор текстур в стиле хлопковой ткани разных цветов.Формат: JPGРазрешение файлов: 6300 x 4200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5AE2865BC1DCFB60D22219506401713B227B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802572   (14192) от 18.06.2025
+
+Шрифты - Vadovastd - Envato - Ecliptica - Cyrillic Sans Serif Font - 8WKMDHA [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей без засечек с четкой геометрической структурой и эстетикой, вдохновленной технологиями.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF23D8E64BB806C14372164751383CC235230989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802588   (14191) от 18.06.2025
+
+Оверлеи - PartikusiDesign - Envato - 10 Fire Particle Overlay Textures - PJY3AEM [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор наложений с огненными частицами.Формат: JPG, PNGРазрешение файлов: 6000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1348BFFE75224CAEE96B860F660AD646EF094C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802590   (14190) от 18.06.2025
+
+Фоны - NassyArt - Envato - 30 Neon Futuristic Gradient Backgrounds - JZCJ8GM [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14190.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 неоновых футуристических градиентных фонов.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4668F348019BC84CDA6A2BA1A4129A86C9C9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802589   (14184) от 18.06.2025
+
+Фоны - MindNor - Envato - Black Rock Textured Hexagon Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор чёрных фонов с шестиугольниками.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8B1C69DE23A3D6802579290C3AFD0A3F1D8CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802585   (14117) от 19.06.2025
 
 Кисти - Resource Boy - 200+ Crayon Photoshop Brushes [ABR]
@@ -6,7 +507,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14117.jpg" />
 </div>
 
 
@@ -32,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14096.jpg" />
 </div>
 
 
@@ -58,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14094.jpg" />
 </div>
 
 
@@ -84,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14088.jpg" />
 </div>
 
 
@@ -110,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14080.jpg" />
 </div>
 
 
@@ -136,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13997.jpg" />
 </div>
 
 
@@ -162,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13995.jpg" />
 </div>
 
 
@@ -173,504 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70AFE5B04FF0E9C1FBBC8F6FEB0D77669F0B48F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802873   (13992) от 20.06.2025
-
-Фоны - FreezeronMedia - Envato - Marble Stone Backgrounds - 8QDU5MP [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор фонов под мрамор.Формат: JPGРазрешение файлов: 5000 x 3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B78E798C3B061A1819D66F50DED08FB5E053D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802875   (13981) от 20.06.2025
-
-Фоны - kaleriia - Envato - Old Wood Backgrounds - VFX6QZ9 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13981.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 фонов старого дерева.Формат: JPGРазрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D066FB830EA9CDE68BC8650089F34AA634AC036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803118   (13901) от 21.06.2025
-
-Пресеты - OverlayFX - Hue Shift Unique Colors - Colorhythm LUTs [CUBE, 3DL, ICC, CSP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13901.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора:
-"Коллекция Hue Shift Unique Colors – Colorhythm LUTs от Overlayfx предлагает инновационный подход к цветокоррекции с его уникальными сдвигами оттенков и яркими цветами.
-Доступные в различных форматах, включая CUBE, 3DL, ICC и CSP, эти LUT совместимы с большинством из ведущих программных обеспечений для редактирования. Разработанные для творческих (   Читать дальше...   )Формат: CUBE, 3DL, ICC, CSP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F93F79DE4E424CC8D5C7D10D1526638CE2B1AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803315   (13805) от 22.06.2025
-
-Футажи - Envijon - Still Frames [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пленочные подложки и рамки, которые сделают ваши видео уникальными. Вдохновленные 8-мм и 16-мм пленкой, бордюры имеют широкий спектр стилей и форм краев. Для каждого проекта найдется свой вариант.Формат: MOVРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7CCC80ADFACD444C4C1DE3375E4BCCED9FD9D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803568   (13701) от 23.06.2025
-
-Звуковые библиотеки - Epic Stock Media - Sci-fi Shooter - Game Genre and Film Production Sound Effects Kit [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перенесите свой отряд в темный научно-фантастический мир, кишащий существами и неизвестными чудесами технологий будущего. Испытайте захватывающую футуристическую войну в стиле FPS и Sci-fi Shooter игр и фильмов. Это легко с Sci-fi Shooter – Game Genre and Film Production Sound Effects Kit. Кэш оружия SFX, наполненный интенсивностью, которая вам нужна, чтобы звучать (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5667497BED228D844A829DB8260EA907EB232E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803555   (13671) от 23.06.2025
-
-Пресеты (Color Grades) - FilterGrade - Miesner Media Carnival Power Grades [DPX, DRX]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый первый пакет Power Grade, использующий функцию «Resolve FX» Davinci Resolve 12.5. 100 Carnival Style Grade полностью совместимы с Davinci Resolve 12.5 Lite и Davinci Resolve 12.5 Studio! Разработано и протестировано в штаб-квартире Miesner Media, чтобы гарантировать максимальное дерзкое совершенство!Формат: DPX, DRX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1A91C3297ECCC6A1A90B00B5F92DA4195EFF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803569   (13669) от 23.06.2025
-
-Шрифты - Eric_Burntilldead - Envato - Malevice Inkbleed - AT2H7UX [TTF, OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с поддержкой кириллицы, с гладкими закругленными краями и эффектным эффектом чернильного отблеска. Этот шрифт с 9 различными значениями толщины от тонкого до черного позволяет легко создавать смелые и яркие дизайны. Эффект чернильных пятен придает винтажный и классический оттенок, сохраняя при этом свежесть и уникальность.Формат: TTF, OTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165AD4B3095C61127FBDDD971C50E0000AF54E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803436   (13666) от 23.06.2025
-
-Шрифты - Alexander Pravdin - Behance - Bezier Sans - 147898999 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный для персонального пользования шрифт с кириллицей в пяти вариациях.
-Материал раздаётся с официальной документацией.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E178B79962F213F380C56A831E538785BE1817C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803439   (13665) от 23.06.2025
-
-Шрифты - Alexander Pravdin - Behance - SONGER - 62260557 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатное для персонального пользования акцидентное семейство с кириллицей низкоконтрастных "монолайн" шрифтов, с овальными формами и прямыми окончаниями терминалов в 15 вариациях. Символы закрыты и имеют расширенные внутрибуквенные просветы. Вторичные элементы, вроде пунктуации и диакритики намеренно подчеркнуты. В контурах присутствует умеренная оптическая (   Читать дальше...   )Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE860CE25620324F2E79B0F53F513F29DD422A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803440   (13664) от 23.06.2025
-
-Шрифты - Alexander Pravdin - Behance - Comic Helvetic - 86895479 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт в трёх вариациях, содержит расширенные символы латиницы и кириллицы. Проект, вдохновленный шрифтами "Comic Sans" и "Helvetica".Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432DA97C62A96F38C1FD918F1639853E552DF331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803573   (13610) от 24.06.2025
-
-Оверлеи - Vecteezy - 10,000 Cinematic Photo Overlays Bundle - 38285725 [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите каждую фотографию в шедевр с помощью 10 000 оверлеев, подобранных для того, чтобы поднять ваши проекты на новую высоту.Формат: JPG, PNGРазрешение файлов: 1600x1000 - 5944x3963
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA17CC4AC864995048AD0223BA510E4B4758675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803712   (13583) от 24.06.2025
-
-Дополнения - Blender Addons Bundle 6 June 2025 [BLEND]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет дополнений Blender на 6 июня 2025 г.Формат: BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B149F820A003A192856A4FD98BDEE2E2CE4F30C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803720   (13578) от 24.06.2025
-
-Фоны - Envato - Retro Flare Polaroid Light Effect Backgrounds - AEUGUDK [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Retro Flare передает очарование аналогового несовершенства и кинематографической ностальгии. Эта коллекция из 9 текстурированных фонов обеспечивает светящиеся блики, мягкое боке и винтажные ожоги пленки на фоне шероховатых темных поверхностей. Царапины, шум и световые полосы привносят подлинную энергию старой школы в современные композиции. Идеально подходит для (   Читать дальше...   )Формат: JPGРазрешение файлов: 6400x4400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A099F5146FD5BFAED4F52C082AC247C49697A48B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803574   (13577) от 24.06.2025
-
-Шрифты - Sentavio - Envato - Ronald Gunfire Serif Font Family - UQMZEGL [OTF, EOT, SVG, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей, с засечками.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43E1F9D97AC0865017F84F775EEE2B3DC712025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803578   (13575) от 24.06.2025
-
-Шрифты - Sentavio - Envato - Skyrox Font - AC42EQ8 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей, создает современную футуристическую атмосферу и стиль в стиле хай-тек.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D9D035D9748EE2005C411E30EEBF4462D815A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803580   (13567) от 24.06.2025
-
-Шрифты - MadeDeduk - Envato - Mongka Display Font - XHRXAV9 [OTF, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей, способен воплотить в жизнь любую творческую идею на самом высоком уровне. В сочетании с лигатурами и специальными альтернативными глифами вы сможете создавать множество макетов и композиций. Mongka привносит нотку роскоши и индивидуальную типографику в логотипы, веб-сайты, цитаты из социальных сетей, свадебный брендинг и многое другое.Формат: OTF, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E0B026226F59AD4EAB0F8D160B85E39FE12AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803581   (13565) от 24.06.2025
-
-Шрифты - Vadovastd - Envato - Rafory Neutral Grotesk Cyrillic - F5NPMK6 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нейтральный гротескный шрифт с кириллицей, который отличается четкостью, изяществом и сдержанностью, сочетающий формальную простоту и характер, позволяющий выделиться.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D454528A17A26B29CFB8834E694C617D6EF3400E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803570   (13564) от 24.06.2025
-
-Шрифты - authentypestudio - Envato - Sigma Boy - N3V6YPH [TTF, OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративный шрифт с поддержкой кириллицы.
-Материал раздаётся с официальной документацией.Формат: TTF, OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE031879D197ED9EECCA8F167B0F7C285F3633DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803575   (13563) от 24.06.2025
-
-Шрифты - Sentavio - CYGUN Variable Font - Envato - DHS9366 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей 18 стилей, создает современную футуристическую атмосферу и стиль хай-тек.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8BCE55775B7EC83FC2FF3A088C8533D40D0B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

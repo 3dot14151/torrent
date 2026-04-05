@@ -1,3 +1,61 @@
+###  Публикация: 1275495   (790475) от 11.01.2019
+
+Marnie - Strange Words and Weird Wars (2017) [MP3|320 Kbps] <Electronic, Synthpop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alphabet Block (4:23)
+02. Bloom (2:58)
+03. G.I.R.L.S (3:58)
+04. Electric Youth (3:25)(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectroПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B94A2C7EBAF7ADC19EF62B389B5F080DADA676F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275403   (790472) от 11.01.2019
+
+Above & Beyond - Group Therapy 300 Live from Hong Kong - Deep Set (2018) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Group Therapy Intro (Abgt300wd) (00:32)
+02. Dee Montero – Headspace (Abgt300wd) feat. Meliha (05:58)
+03. Ben Böhmer & Koelle – Almost Home (Abgt300wd) (04:59)
+04. Antic – Turncoat (Abgt300wd) (05:14)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A4C9B8FF6CE56818949D7133E4C40F10D37E44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202197   (790455) от 28.01.2018
 
 VA - Peaceful Piano (2017) Decca [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Contemporary, Classical>
@@ -6,7 +64,7 @@ VA - Peaceful Piano (2017) Decca [FLAC|Lossless|WEB-DL|tracks] <Modern Classical
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790455.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ D.M.T. Records - 23 Releases (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790424.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [MP3|320 Kbps]
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790339.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [MP3|320 Kbps] <Ch
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790328.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - The Flatline Compilation 1 & 2 (1998-1999) Flatline Records [FLAC|Lossless|
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790123.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Zandoz Corp. - Personal Apocalypse (2013) Signifier [Lossless|WEB-DL|tracks]<Rhy
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790026.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Gerard Hanson (Convextion, E.R.P., Time Light Curve, T/O/L) - Discography 33 Rel
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790018.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Uplift Underground (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789950.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Pessimist - Pessimist (2017) Blackest Ever Black [FLAC|Lossless|tracks+.cue] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789949.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Progressive Trance Selections Vol.02 (2018) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789946.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Dreamline 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789941.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Richard Bone - Nibiru Drones From The 12Th Planet (2018) [MP3|320 Kbps] <Ambient
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789932.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Hed Kandi Ibiza (2016) [FLAC|Lossless|tracks] <Deep House, Disco, Tropical 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789928.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Ahmed Romel - Orchestrance 218 (2018) [MP3|320 Kbps] <Trance,Uplifting Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789926.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - EDM Workout (2019) [MP3|320 Kbps] <Progressive House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789903.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Cigar Lounge Series: A Premium Collection Of Chill-Out & Lounge Sounds - 5 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789895.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Sextape 50 Chansons Pour le Sexe (2009) [FLAC|Lossless|tracks] <Electronic,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789885.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Winter Collective 01 (2018) [MP3|320 Kbps] <Progressive House, Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789775.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789651.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789543.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789542.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789541.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ AeTopus - TotemTotum (2018) [MP3|320 Kbps] <Ambient, New Age>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789539.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789538.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EF8C76A06A2214B5597FC9FD12B829ED2BD48DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202644   (789537) от 30.01.2018
-
-VA - Klubb Classics Chapter 1 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Boozywoozy  -  Live Is Music (Original Mix)  6:37
-02.  DJ Disco  -  Get Up (Original Mix)  6:51
-03.  Da Techno Bohemian  -  Bangin' Bass (Bangin' Bass Mix)  7:01
-04.  Klubbheads  -  Turn Up The Bass (Original Mix)  6:50(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3F8643FB1C1FE746EDECD5F117D7F69EC97886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202628   (789536) от 30.01.2018
-
-VA - Base Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & Betsie Larkin  -  Unite (Original Mix)  4:04
-02.  Bigtopo & Omar Diaz  -  Gallow (Original Mix)  3:45
-03.  Ruslan Radriges presents Mantra & Lucid Blue  -  Take Me Higher (Club Mix)  3:51
-04.  Feel  -  The Nutcracker (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EE680D7D4C24478776D13F91EBEE5064B148CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

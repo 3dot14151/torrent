@@ -6,7 +6,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974507.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974474.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974467.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974459.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974401.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974113.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wallpapers - Обои с военной техникой [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973500.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wallpapers - Обои HD: Сборник №2 [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973333.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973267.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Wallpapers - Весна красна [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972263.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972110.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972101.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971959.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971925.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971859.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971766.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971722.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970892.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970889.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Wallpapers - Cars - Aston Martin HD [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970782.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Wallpapers - Космос HD №2 [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970773.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970766.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970685.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wallpapers - Wallpapers от FedExe ® [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970683.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Wallpapers - Космос HD [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970681.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970680.jpg" />
 </div>
 
 

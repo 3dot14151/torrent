@@ -6,7 +6,7 @@ R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (0.8.1.6) Repack Let'
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054296.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054175.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ StarRupture (2026) [Ru/Multi] (0.1.1 112941-S/dlc) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053920.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LORT (2026) [Ru/Multi] (0.5.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053913.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ My Winter Car (2025) [Ru/Multi] (build 21360632) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053494.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Overthrown (2024) [Ru/Multi] (b19669165) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053286.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DDoD (2026) [Multi] (СL-42080) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051553.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Stationeers (2017) [Ru/Multi] (0.2.5919.26060) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051461.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Typhon: Bot vs Bot (2025) [En] (0.1.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050218.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049659.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ DeadPoly (2022) [En] (0.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049603.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ He is Coming (2025) [Ru/Multi] (0.8.33) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049439.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Star Birds (2025) [Ru/Multi] (0.1.1b) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049390.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Project Zomboid (2013) [Ru/Multi] (42.13.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049119.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Whiskerwood (2025) [Ru/Multi] (0.6.157.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048501.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.62EA) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047646.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Call to Arms: Panzer Elite (2025) [En] (0.04.02/dlc) Repack Let'sРlay [Supporte
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046885.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DYSMANTLE (2020) [Ru] (0.6.5.15) Unofficial KASaLEX [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038925.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sons Of The Forest (2023) [Ru/Multi] (32361) Repack Chovka [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035244.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ My Summer Car (2016) [En] (22.02.23) Repack Nouhelgod [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031740.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Valheim (2021) [Ru/Multi] (0.145.6) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029844.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Medieval Dynasty (2020) [Ru/Multi] (0.3.1.4) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029830.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Grounded (2020) [Ru/Multi] (0.7.1.2935) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028260.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.8.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027432.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DYSMANTLE (2020) [En] (0.6.9.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026831.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Outer Colony (2017) [En] (0.5.53) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006444.jpg" />
 </div>
 
 

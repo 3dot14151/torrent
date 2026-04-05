@@ -1,81 +1,3 @@
-###  Публикация: 1751002   (42764) от 22.09.2024
-
-Huseyin Babal | gRPC Microservices in Go (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга научит вас создавать готовые к производству микросервисы с помощью Go и gRPC. В нем вы научитесь создавать эффективные API на Go, использовать gRPC для сетевого взаимодействия, а также развертываться в облаке и Kubernetes. Полезные примеры, в том числе полное веб-приложение для электронной коммерции, облегчают понимание каждой концепции. Вы также получите представление (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A307F8546003AD7BB4D515BBBE07444F8BDAFD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752044   (42141) от 28.09.2024
-
-Мара Бос | Rust. Атомарности и блокировки (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга позволяет программистам получить четкое представление о низкоуровневой конкурентности и ее реализации. Даны основы конкурентности в Rust. Раскрыты понятия об атомарности и упорядочении памяти. Рассмотрены практические аспекты создания своих собственных каналов, своего собственного типа Arc и своих собственных блокировок. Дано представление о внуrренней "кухне" (   Читать дальше...   )Жанр: ПрограмированиеПеревод: Н. ВильчинскийИздательство: O'ReillyФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF014144F7349B3D5B3306B12CEB150425DBAF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753996   (41060) от 08.10.2024
-
-Matt Neuburg | iOS 15 Programming Fundamentals with Swift (2021) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Move into iOS development by getting a firm grasp of its fundamentals, including the Xcode 13 IDE, Cocoa Touch, and the latest version of Apple's acclaimed programming language, Swift 5.5. With this thoroughly updated guide, you'll learn the Swift language, understand Apple's Xcode development tools, and discover the Cocoa framework.Жанр: Программирование, Swift, iOSЯзык: АнглийскийИздательство: O'Reilly Media, Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645F812A674867689329E60584232BBC5828C992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754008   (41056) от 08.10.2024
 
 Kodeco Team, Shai Mishali, Florent Pillet, Marin Todorov | Combine: Asynchronous Programming With Swift (2023) [PDF] [EN]
@@ -84,7 +6,7 @@ Kodeco Team, Shai Mishali, Florent Pillet, Marin Todorov | Combine: Asynchronous
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41056.jpg" />
 </div>
 
 
@@ -113,7 +35,7 @@ Stepik, Александр Чумилин | Основы этичного хак
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40634.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40631.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39233.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38563.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38456.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ Morten Barklund | React in Depth (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37813.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37268.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36709.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36389.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34951.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34229.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34109.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ Daria Orlova, Esra Kadah, Jaime Blasco | Flutter Design Patterns and Best Practi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33570.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33539.jpg" />
 </div>
 
 
@@ -487,7 +409,7 @@ Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33385.jpg" />
 </div>
 
 
@@ -513,7 +435,7 @@ Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33374.jpg" />
 </div>
 
 
@@ -539,7 +461,7 @@ Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33369.jpg" />
 </div>
 
 
@@ -565,7 +487,7 @@ Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33365.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33363.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33361.jpg" />
 </div>
 
 
@@ -643,7 +565,7 @@ Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33360.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33356.jpg" />
 </div>
 
 
@@ -680,6 +602,84 @@ Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63821D6109044805E1FD8F5ADF58B181B0746D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767606   (33355) от 22.12.2024
+
+Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расширьте свой набор инструментов C++ быстро и эффективно с помощью этого передового ресурса. В обновленном шестом издании книги ветеран программирования и разработчик Марк Грегуар представляет еще один том, который поднимает планку для руководств по продвинутому программированию. Охватывая основные новые изменения, содержащиеся в новом стандарте C++ под кодовым (   Читать дальше...   )Жанр: Программирование, С++, C++23Язык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BA8B6398A9B1F74216CB4BFCDBF502419E8127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767581   (33333) от 22.12.2024
+
+Jakub Narębski | Mastering Git, 2nd Edition (2024) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга познакомит вас с последней версией Git, ее возможностями и передовыми методами ветвления, помогая освоить сложные сценарии разработки. Добавлена новая глава о решении проблем при управлении большими репозиториями, в которой представлены бесценные стратегии эффективного контроля версий с помощью Git. Книга выходит за рамки основ и подробно рассматривает архитектуру, (   Читать дальше...   )Жанр: Компьютерная литература, программированиеЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561B1A31508A10C98148C6653883E15F48B8FFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767625   (33205) от 24.12.2024
+
+Alexey Soshin | Kotlin Design Patterns and Best Practices (3rd Edition) (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третье издание соответствует обновлениям Kotlin, начиная с версии 1.6, и предлагает глубокое понимание таких тем, как структурированный параллелизм и контекстные приемники. Книга начинается со знакомства с основным синтаксисом Kotlin и значением паттернов проектирования, охватывая классические креативные, структурные и поведенческие паттерны. Затем в книге рассматриваются (   Читать дальше...   )Жанр: Программирование, KotlinЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C7B94629C4E2FB809B631FDB6E3DD71834D9B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

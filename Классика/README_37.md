@@ -1,3 +1,29 @@
+###  Публикация: 576393   (362707) от 17.11.2012
+
+Прокофьев - The Five Piano Concertos; Nos. 1, 2, 3, 4, 5: op. 10, 16, 26, 53, 55: Ashkenazi, Previn, LSO (1997) [MP3|320]<Classical, Concerto, Instrumental>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все 5 фортепианных концертов Прокофьева в исполнении пианиста Владимира Ашкенази и Лондонского симфонического оркестра под управлением дирижёра Андре Превена.1 01-03Жанр: Classical, Concerto, InstrumentalПродолжительность: 02:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DE99DCCD1E7D978EF6A5EEA48081C2FD1149BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950260   (362490) от 29.10.2015
 
 Amira Willighagen - Amira (2014) [FLAC|Lossless]<Classical, Opera>
@@ -6,7 +32,7 @@ Amira Willighagen - Amira (2014) [FLAC|Lossless]<Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362490.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Beethoven - Complete Symphonies, Ouvertures (Bohm - Wiener Philharmoniker) (1995
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362425.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Arturo Benedetti Michelangeli - Beethoven: Piano Sonata No.32, Op.111  (1965) 19
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361533.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Giuseppe Verdi - Un Ballo in Maschera: Herbert von Karajan, Vienna Philharmonic 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360368.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Christophorus Colum
 >>Концерты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359054.jpg" />
 </div>
 
 
@@ -149,7 +175,7 @@ Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Don Quijote de la M
 >>Концерты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358926.jpg" />
 </div>
 
 
@@ -178,7 +204,7 @@ Franz Liszt - Grandes Etudes Pour le Piano (2004) [DST64 2.0 5.0 1 bit/2822,4 к
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357734.jpg" />
 </div>
 
 
@@ -213,7 +239,7 @@ Beethoven - Triple Concerto & Archduke Trio - Storioni Trio Jan Willem de Vriend
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357651.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Lindsey Stirling - Lindsey Stirling (2012) [FLAC|Lossless]<Electronic / Instrume
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354623.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ SLAVA - OTTIMO best of SLAVA (1999) [FLAC|Lossless|tracks + .cue] <Classical, Vo
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354309.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ Christian Cannabich - Contemporaries of Mozart Symphonies Matthias Bammert & Lon
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350428.jpg" />
 </div>
 
 
@@ -341,7 +367,7 @@ Armel Dupas - Broderies (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350154.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Joep Beving - Conatus (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Neo-Cl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349862.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Jordi Savall, Hesperion XXI - BAL·KAN Miel et Sang - Honey and Blood [3CD] (201
 >>Концерты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349840.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ RIOPY - Tree of Light (2019) Warner Classics [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349605.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ W.G. Still - Symphony No.1; Duke Ellington - The River Suite (Neeme Jrvi & Detro
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349423.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Ludwig van Beethoven - Berliner Philharmoniker conductor Herbert von Karajan (19
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348889.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ Haydn - Complete Music for Solo Keyboard (Ronald Brautigam)  (15CDs) (2008) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348555.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ Barbara Hendricks & VA - Ave Maria (1994) [FLAC|Lossless]<Classical, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347813.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Lindsey Stirling - Artemis (2019) [FLAC|Lossless|image + .cue] <Instrumental, Cl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347540.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ VA - The Acoustics Collection. Guitar (2002) [MP3|320 кб/с]<Classical, Instru
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347493.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Cord Garben / Arturo Benedetti Michelangeli - Mozart: Klavierkonzerte Nos. 13 & 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347392.jpg" />
 </div>
 
 
@@ -672,7 +698,7 @@ Andrea Bocelli - Cinema (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop, Classical 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346485.jpg" />
 </div>
 
 
@@ -701,7 +727,7 @@ Chiharu Naruse - Kenneth A. Kuhn: Piano Works (2018) [FLAC|Lossless|WEB-DL|track
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345358.jpg" />
 </div>
 
 
@@ -730,7 +756,7 @@ Gustav Mahler - Symphony No. 10, completion by Rudolf Barshai - Vladimir Ashkena
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345217.jpg" />
 </div>
 
 
@@ -744,33 +770,6 @@ Gustav Mahler - Symphony No. 10, completion by Rudolf Barshai - Vladimir Ashkena
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D4480890664E43FD182571EA6FA098C0E6463F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579594   (345002) от 24.11.2012
-
-Mozart - The Authorised Recordings: Sviatoslav Richter (1994) 2CD [FLAC|Lossless]<Classical, Classical Period, Sonata, Fantasy>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Classical Period, Sonata, FantasyПродолжительность: 01:07:53 - CD1
-01:10:31 - CD2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B59C666DCB67788F2C7D94A9D808E7323BD0B2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

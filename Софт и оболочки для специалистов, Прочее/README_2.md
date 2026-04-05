@@ -1,3 +1,137 @@
+###  Публикация: 1853086   (1056234) от 11.02.2026
+
+Siemens Solid Edge 2026.2510 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Solid Edge – наиболее полнофункциональная гибридная 2D/3D САПР, использующая синхронную технологию для ускорения процесса проектирования и редактирования, а также расширенной поддержки повторного использования импортированной геометрии. Solid Edge является ключевым компонентом портфеля решений Velocity Series™ и отличается превосходными инструментами для моделирования (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0C007E37E5484D2184A6C5F17AC5F2E8EEDCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852923   (1056176) от 10.02.2026
+
+JetBrains GoLand 2025.3.2 (x64-arm64) Repack by IDE`a [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056176.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
+
+IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC9C600C441C84CCA5671D9048B4178AAF8D636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852259   (1055824) от 07.02.2026
+
+Siemens Simcenter Amesim 2404 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amesim предлагает инженерам интегрированную платформу моделирования для точного прогнозирования междисциплинарных характеристик интеллектуальных систем. Amesim позволяет моделировать, имитировать и анализировать системы управления в различных областях, а также предоставляет возможности моделирования объектов для интеграции с проектированием систем управления, помогая (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1EA58DD218AB5542C8C75FAFE38FD78190E5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852095   (1055714) от 05.02.2026
+
+ESI SimulationX 4.1.1.63427 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055714.jpg" />
+</div>
+
+
+###  Подробнее
+
+SimulationX разработан инженерами для инженеров, с постоянным стремлением к совершенствованию. Мы досконально знаем рутину работы инженеров и понимаем требования рынка благодаря нашему опыту работы с клиентами из разных областей. Более быстрые и короткие циклы разработки, а также более качественные и надежные продукты — вот их главный приоритет, для чего у нас есть (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483DD6BFD6C94894007637F86C09B0A0902450BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852147   (1055664) от 07.02.2026
+
+Open Server Panel 6.5.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Open Server Panel — это портативная программная среда, созданная специально для веб-разработчиков с учётом их рекомендаций и пожеланий.
+
+Наш программный пакет включает в себя тщательно подобранный набор серверного программного обеспечения, а также удобную в использовании утилиту с широкими возможностями для администрирования и настройки всех доступных компонентов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F81FC5F46F58F4592312DAA4BE9D1F52144B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852173   (1055656) от 06.02.2026
 
 ADB AppControl 1.8.6 Extended + portable by GPFault [Multi/Ru]
@@ -6,7 +140,7 @@ ADB AppControl 1.8.6 Extended + portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055656.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ DS DYMOLA 2023x Refresh 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055499.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2026.02.05 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055489.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ JetBrains PyCharm Professional 2025.3.2.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055267.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ JetBrains Rider 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055266.jpg" />
 </div>
 
 
@@ -137,7 +271,7 @@ JetBrains DataSpell 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055265.jpg" />
 </div>
 
 
@@ -163,7 +297,7 @@ Cisco Packet Tracer 9.0.0.0810 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055021.jpg" />
 </div>
 
 
@@ -189,7 +323,7 @@ VirtualBox 7.2.6 Build 172322 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054450.jpg" />
 </div>
 
 
@@ -215,7 +349,7 @@ JetBrains CLion 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054409.jpg" />
 </div>
 
 
@@ -241,7 +375,7 @@ FontViewOK 9.21 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053855.jpg" />
 </div>
 
 
@@ -267,7 +401,7 @@ WinToUSB Technician 10.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053716.jpg" />
 </div>
 
 
@@ -293,7 +427,7 @@ Microsoft Visual Studio 2022 Professional 17.14.25 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053525.jpg" />
 </div>
 
 
@@ -319,7 +453,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.25 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053442.jpg" />
 </div>
 
 
@@ -345,7 +479,7 @@ Microsoft Visual Studio 2026 Enterprise 18.2.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053428.jpg" />
 </div>
 
 
@@ -371,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052506.jpg" />
 </div>
 
 
@@ -397,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052496.jpg" />
 </div>
 
 
@@ -424,7 +558,7 @@ Microsoft Visual Studio 2026 Enterprise 18.2.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052482.jpg" />
 </div>
 
 
@@ -450,7 +584,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.24 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052480.jpg" />
 </div>
 
 
@@ -476,7 +610,7 @@ Microsoft Visual Studio 2026 Professional 18.2.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052479.jpg" />
 </div>
 
 
@@ -502,7 +636,7 @@ JetBrains RustRover 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052390.jpg" />
 </div>
 
 
@@ -529,7 +663,7 @@ JetBrains RubyMine 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052321.jpg" />
 </div>
 
 
@@ -541,137 +675,6 @@ RubyMine — умная и удобная интегрированная сре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A22AB4A3351F050802078AB76556EFE84EF8E838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847775   (1052319) от 14.01.2026
-
-JetBrains PyCharm Professional 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052319.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C90ADC763644450227F30FA29F234D1916A505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847374   (1052085) от 18.01.2026
-
-WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469C2374F8296D4961096C19FDDD0B5D652C7C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847383   (1052034) от 12.01.2026
-
-WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB81F26B6F867080502EC292DF390733C82AC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847258   (1051915) от 11.01.2026
-
-JetBrains DataGrip 2025.3.3 (x64-arm64) Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051915.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains DataGrip - это инновационное программное обеспечение, специально разработанное для работы с различными базами данных, включая Oracle, SQL Server, MySQL, Sybase, HyperSQL, DB2, SQLite и многие другие. Оно представляет собой полноценный пакет инструментов, который обеспечивает удобство и эффективность при работе с данными.
-Одной из ключевых особенностей является (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C8B9E69982F6C92E3620A5DD10F2888E9BAA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847260   (1051914) от 11.01.2026
-
-Jetbrains WebStorm 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051914.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60689DEE2779BFB2696140F5E406AA14B0BCE6D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

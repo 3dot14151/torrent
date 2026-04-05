@@ -1,3 +1,56 @@
+###  Публикация: 1429651   (176017) от 07.12.2020
+
+Валерий Медведев | Сделайте весёлое лицо (1970) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F3B54CD6E297386CBA4EE04D5809F7ACB0ABE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466195   (175685) от 07.12.2020
+
+Наталия  Дубровская | Большая книга аппликаций из природных материалов (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир природы наполнен многообразием красок и совершенством форм. И этот мир находится рядом с нами. Надо только увидеть неповторимость каждого листочка на ветке, игру красок в ажурных крылышках бабочки, причудливые узоры морских раковин.
+Эта книга адресована как взрослым, так и детям. С ее помощью вы научитесь создавать необычные аппликации из камней и ракушек, семян (   Читать дальше...   )Жанр: Поделки своими рукамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A94D5011EED4D1CCC0A13F8FA38CF4AAD1FE390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255312   (175629) от 07.12.2020
 
 Л. Маврина | Машинки. Наклей, дорисуй, раскрась (2007) [PDF]
@@ -6,7 +59,7 @@
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175629.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175619.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175595.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175558.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175554.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175551.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175537.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175523.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175520.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175504.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Disney | Раскраски для детей от Disney (2010) [Сборник
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175444.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175436.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175400.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175339.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175300.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175170.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175050.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175041.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174987.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174965.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174917.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174910.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174811.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174750.jpg" />
 </div>
 
 
@@ -627,64 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B3A48A44A3312E9D47140712B999A8816B2948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609245   (174682) от 08.12.2020
-
-Настольная игра | Сталкер. Last Wish 2.2 (2012) [JPG, DOC]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настольная игра «Сталкер: Последнее желание» является продолжением настольной игры «Сталкер: 1 уровень Кордон».
-Цель проекта.
-Продолжить играть в любимую игру «Сталкер. Тени Чернобыля» в семейном кругу и с друзьями, только уже в настольном варианте.
-Цель игры.(   Читать дальше...   )Жанр: Настольная играЯзык интерфейса: русскийФормат: JPG, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC74B6D0FAA478AA354BA755153307FA0AF2979F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430309   (174496) от 09.12.2020
-
-Шарлотта Гросстет, Винсент Вильмено | Почему так? Энциклопедия ответов на сложные вопросы (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дети часто задают трудные вопросы, на которые даже взрослым не так-то просто ответить.
-Почему нужно работать?
-Показывают ли правду по телевизору?
-Зачем просить прощения?(   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураПеревод: Бадма ГахаевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E450E9FDB911A833A21DB326F389EF761CF18B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,137 +1,3 @@
-###  Публикация: 1576173   (235408) от 13.09.2022
-
-Leigh Neville | The SAS 1983–2014 (2016) [EPUB, PDF] [Elite #211] [EN]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235408.jpg" />
-</div>
-
-
-###  Подробнее
-
-211-я книга серии Elite издательства Osprey посвящена SAS, одному из лучших подразделений специального назначения в мире. На примере 22-го полка SAS, в просторечии ‘the Regiment’, книга проливает свет на причастность SAS к беспорядкам в Северной Ирландии, на их операции в Ираке и Афганистане. Миссии SAS разнообразны: борьба с терроризмом дома и за рубежом; контрпартизанская (   Читать дальше...   )Жанр: Военная история, военное делоФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815B8C8EF8D6D9C5CDE024D3F60979609ED53ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586341   (229647) от 08.12.2012
-
-Л.А.Федоров | Химическое вооружение - война с собственным народом. Том I [2009] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229647.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге на основе архивных данных впервые обобщены материалы о создании в Советском Союзе химического 
-оружия против людей, растительности и животных и об истории масштабной и тайной подготовки Советского 
-Союза к наступательной химической войне против неизвестного противника. Описаны трагические моменты 
-истории образовавшегося в стране могучего военно-химического комплекса.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4F20256358BE41B840619B285339FC196470B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587059   (227095) от 09.12.2012
-
-Николай Черкашин | Чрезвычайные происшествия на советском флоте [2010] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227095.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного писателя-мариниста, лауреата Всероссийской литературной премии им. Александра Невского Николая Черкашина собраны наиболее характерные факты чрезвычайных происшествий, случавшихся на советском Военно-морском флоте в годы Холодной войны. Автор анализирует причины нештатных ситуаций, рассказывает о мужестве и героизме моряков в экстремальной обстановке.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EA6D16990F16C86FBCEC984F3AFA0778F6E68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 271523   (225901) от 11.12.2018
-
-Эдуард Шарапов | Судоплатов против Канариса. [2004] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Эдуарда Шарапова "Судоплатов против Канариса" раскрывает некоторые тайны в деятельности советских спецслужб, и, конечно, судьбы разведчиков, часто трагические. Книга основана на ранее недоступных архивных материалах НКВД-МВД 30-40-х годов и очень любопытна для тех, кто предпочитает достоверные документы безудержной фантазии.
-Подробно описаны блестяще (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE37B724F99846BD376BC260D1D0CAA5AF46B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618888   (225747) от 11.12.2018
-
-П.А. Судоплатов, А.П.Судоплатов | Ас разведки Павел Судоплатов [1996-2003] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка из пяти книг рассказывает о деятельности талантливого разведчика-нелегала Павла Анатольевича Судоплатова, человека с нелегкой судьбой, который несмотя на его громадные заслуги перед Родиной в 1953 году был арестован и 15 лет провел в заключении как "ближайший пособник Берии". Три книги являются воспоминаниями самого разведчика, а две написаны его (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4EAD5E02FFD59C0ADE40CB056F6DC17DB9897C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424967   (225546) от 18.11.2020
 
 А. Митрофанов | Корабли и история [4 книги] (2018) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225546.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224112.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224055.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223047.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220950.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220403.jpg" />
 </div>
 
 
@@ -297,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219114.jpg" />
 </div>
 
 
@@ -323,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218309.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216594.jpg" />
 </div>
 
 
@@ -377,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216351.jpg" />
 </div>
 
 
@@ -403,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216336.jpg" />
 </div>
 
 
@@ -429,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215312.jpg" />
 </div>
 
 
@@ -455,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215253.jpg" />
 </div>
 
 
@@ -483,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214343.jpg" />
 </div>
 
 
@@ -511,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213616.jpg" />
 </div>
 
 
@@ -540,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212853.jpg" />
 </div>
 
 
@@ -569,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211063.jpg" />
 </div>
 
 
@@ -596,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210493.jpg" />
 </div>
 
 
@@ -622,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209902.jpg" />
 </div>
 
 
@@ -650,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209165.jpg" />
 </div>
 
 
@@ -676,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208369.jpg" />
 </div>
 
 
@@ -687,6 +553,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DE4307A865E6FD15ADBF035918A041BCDEE8E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400896   (206874) от 08.08.2023
+
+Susan Southard | Nagasaki: Life After Nuclear War / Нагасаки: жизнь после атомной войны (2015) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206874.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 августа 1945 года, через три дня после атомной бомбардировки Хиросимы, Соединенные Штаты сбросили вторую атомную бомбу на Нагасаки, небольшой портовый город на самом южном острове Японии. По оценкам, 74 000 человек погибли в течение первых пяти месяцев, а еще 75 000 получили ранения. Опубликованная в честь семидесятой годовщины бомбардировки, книга переносит читателей (   Читать дальше...   )Жанр: История, Военная историяЯзык: АнглийскийИздательство: VikingФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA15B02948BA4A023C9FAC130D517C53A3439A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654068   (205959) от 19.08.2023
+
+В.Н. Шунков | Ракетное оружие (1-е изд.) (2001) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, иллюстрированная фотографиями и схемами, содержит сведения о ракетном оружии, использовавшемся во 2-й мировой войне, а также о современном ракетном оружии сухопутных войск различных стран мира.
+Для широкого круга читателей, интересующихся развитием военной техники.
+
+Представлено 1-е изданиеЖанр: военная техника, энциклопедияИздательство: "Попурри", МинскФормат: DJVU, PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BA03C2CAEA1E2638A99EBF45C922C1F7616198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607698   (203479) от 27.01.2023
+
+У. Цзы, Сунь Цзы и др. | Искусство войны и кодекс самурая (2023) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эту книгу по праву можно назвать энциклопедией восточной военной философии. Вошедшие в нее тексты четко и ясно регламентируют жизнь человека, вставшего на путь воина. Как жить и умирать? Как вести себя, чтобы сохранять честь и достоинство в любой ситуации? Как побеждать? Ответы на все эти вопросы, сокрыты в книге.
+Древний китайский трактат «Искусство войны», написанный (   Читать дальше...   )Жанр: Древневосточная литература, ФилософияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58DFFE5D11001FA91A38AF2AE3F8357FF52E0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615359   (202195) от 26.02.2023
+
+А.В. Митяев | Книга будущих командиров [2-е изд.] (2012) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель, историк и солдат Анатолий Митяев в своей самой известной книге рассказывает о великих битвах и тактике знаменитых полководцев, о героических подвигах и уникальном военном оружии всех эпох и народов. Подрастающие историки и командиры совершат увлекательное путешествие во времени, побывают на полях сражений, узнают замыслы военачальников и попытаются понять, (   Читать дальше...   )Жанр: военная история, научно-популярнаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF10F48FAD656FF3D9FD96317B9EAA32456E5FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616693   (201663) от 07.03.2023
+
+Сергеев Николай | Колокол Люцифера (2023) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокращенный вариант книги о пропаганде войны в гитлеровской Германии в период с 1938 года по 1945 год.
+Предназначена для широкого круга читателей.
+Книга была впервые опубликована в 1999 году.Жанр: История, политологияФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C522D00BD13701A4E5B93BCD7C4F4B297FE6D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

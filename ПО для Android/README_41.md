@@ -1,3 +1,107 @@
+###  Публикация: 1383035   (814940) от 13.05.2020
+
+Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астродокс Астрология — программа нового поколения, основанная на самых современных на настоящий момент эфемеридах NASA DE436 (от 2017 года). Приложение совсем новое — от 2018 года. Оно создано астрологами для астрологов с учетом всех особенностей практической работы в области астрологии. Интерфейс продуман для быстрой работы одной рукой на смартфоне и планшете. Наш (   Читать дальше...   )Тип издания: Пиратка (открыта подписка Platinum)Релиз состоялся: 08.02.2019Разработчик: Astrodox TeamПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C802984288FCAD8EBE1FA9F037A0B59ADACEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504138   (813988) от 22.10.2021
+
+Shortcut Maker Pro v3.9 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shortcut Maker - это приложение позволяющее создавать быстрые ярлыки на разные действия. При помощи Shortcut Maker можно создать любой ярлык на вашем рабочем столе Android. Просто выберите функцию и нажмите "Create" для быстрого доступа. Вы также можете использовать это приложение для запуска actvity из любого установленного у вас приложения.Тип издания: Mod (Unlocked)Релиз состоялся: 28.06.2021Разработчик: Rushikesh KamewarПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404DBF108339E65993C016BA51D9952BCA1EAB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504605   (811530) от 23.10.2021
+
+Яндекс.АОН v21.24 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Определитель номера от Яндекса расскажет, кто звонит, и защитит от мошенников. Определитель подскажет, кто вам звонит, если входящего номера нет в контактах вашего телефона. Неизвестные номера сравниваются с базой данных, которая регулярно обновляется, в том числе с помощью отзывов пользователей приложения. База скачивается на устройство при первом включении определителя. (   Читать дальше...   )Тип издания: Пиратка (Mod)Релиз состоялся: 25.03.2021Разработчик: ООО ЯНДЕКСПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20FF21750F3E6F17D588EB68FCD655A8AE66711D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463408   (809478) от 24.10.2021
+
+Pure Tuber (ex. Vanced Tuber) v3.1.8.101 + Mod [Ru/Multi] (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиент YouTube на основе NewPipe с возможностью синхронизации Google аккаунта. Это означает, что весь функционал NewPipe так же присутствует и здесь, плюс добавлена возможность входа и синхронизации с вашим Google аккаунтом. Pure Tuber - Tube без рекламы и бесплатное Advanced Premium поможет вам смотреть миллионы музыки и tube-видео. Наслаждайтесь неограниченным (   Читать дальше...   )Тип издания: Free + ModРелиз состоялся: 23.10.2021Разработчик: Vanced TeamПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C1363C37C06B4A683A9600612AACEC8CA9C1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126961   (807430) от 17.05.2020
 
 Pocket Sense v1.0.16 Pro [Ru/En]
@@ -6,7 +110,7 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807430.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Pilzlexikon 2 PRO 1.0.17 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804173.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802363.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801025.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800746.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799979.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798925.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ TouchRetouch v4.4.16 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797171.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797083.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796504.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Android 12 Clock Widgets v7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795376.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Yi Pro - Yi Action Camera 3.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794400.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ PingTools Network Utilities 3.68 [Ru/Multi] - утилита для провер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793206.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Footej Camera 2 Premium 2020.5.6 [Ru/Multi] - Приложение камеры
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793110.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Analog Clock Constructor-7 v4.44 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792622.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792345.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ UFO VPN 2.3.10 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791757.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Personal Vault PRO 3.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791258.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Bliss - Icon Pack 1.3.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791248.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Frequency generator / Генератор частоты 4.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791211.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ AndFTP Pro 4.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790662.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790629.jpg" />
 </div>
 
 
@@ -567,113 +671,6 @@ Math Wiki предоставляет многочисленные упражне
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:129C3BD0C2CD6400DB2F1480EA423D619EA48F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025601   (790229) от 28.01.2018
-
-MyTreeNotes - Записная книжка v6.6 [Ru/Multi] - функциональная записная книжка (блокнот) с защитой
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записная книжка (блокнот) хранит заметки в древовидном виде (иерархическая структура) с неограниченной вложенностью. Что позволяет организовать заметки по темам, как вам это удобно. В любую заметку, не затрагивая текущие данные, можно добавить подчиненные заметки для более детального представления информации.Тип издания: Пиратка (Реклама удалена, гугл драйв рабочий)Релиз состоялся: 26.01.2018Разработчик: iPRG TeamПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEACA91600C9C796876A4D201D2980B8A44794A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388093   (790078) от 04.06.2020
-
-Mazetools Soniface 2.51 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Mazetools Soniface предоставит возможность создавать уникальные музыкальные композиции в непривычной для вас форме. Для того что-бы понять логику составление музыки возможно придётся  посмотреть туториал.Тип издания: Premium+Релиз состоялся: 4.06.2020Разработчик: Ectoplastic UGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E258315281F3439DB093A3198E7975CAC8AE648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196956   (789682) от 29.01.2018
-
-LOL!TV v3.0.1 [Ru] - Торрент ТВ для Android, ваше онлайн телевидение по технологии P2P
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торрент ТВ для Android на LOL!TV - ваше онлайн телевидение по технологии P2P. Смотрите любимые телеканалы в любом месте на Вашем смартфоне, планшете, android tv box. Большой список телеканалов бесплатно и без ограничений. Для просмотра телеканалов по технологии P2P, необходимо наличие на Вашем устройстве движка Ace Stream Media.
-Возможности:
-- Большое количество (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28.01.2018Разработчик: LOL!TVПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05B5B65754F818B2C62B3E1835544A9EC29E1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510816   (789562) от 19.11.2021
-
-3D Анатомический атлас человека. Human Anatomy Atlas 2021: Complete 3D Human Body v2021.2.27 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789562.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Human Anatomy Atlas - атлас анатомии человека представляет 3D-модели, которые помогают понять как выглядит и работает человеческое тело, и включает определения на уровне учебников. Выпущен для использования в качестве справочника вместо учебника по анатомии или для создания виртуальных лабораторных опытов.
-Содержит более 10 000 анатомических моделей с описаниями. (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 17 марта 2021 г.Разработчик: Visible BodyПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский, Французский, Китайский, Немецкий, Итальянский, Японский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B166D600ED9B6DF8450520FF7BFD9A1A2F14A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

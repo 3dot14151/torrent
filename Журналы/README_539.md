@@ -1,3 +1,133 @@
+###  Публикация: 1680414   (134328) от 29.11.2023
+
+Журнал | Бизнес журнал №3 (51) (март 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134328.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бизнес журнал» - деловое издание, рассчитанное на управляющих и собственников фирм, частных предпринимателей и топ-менеджеров. На его страницах бизнесмены могут свободно обмениваться опытом друг с другом, задавать самые каверзные вопросы и популяризировать собственные деловые и управленческие практики, повышать эффективность своих финансовых и маркетинговых инструментов (   Читать дальше...   )Жанр: БизнесИздательство: ООО "РЕГИОНАЛЬНЫЕ НОВОСТИ"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B30430A86DE92B8B4B0F4858AE459ED77AD3791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680398   (134327) от 29.11.2023
+
+Журнал | Бизнес журнал №12-01 (декабрь 2022-январь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134327.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бизнес журнал» - деловое издание, рассчитанное на управляющих и собственников фирм, частных предпринимателей и топ-менеджеров. На его страницах бизнесмены могут свободно обмениваться опытом друг с другом, задавать самые каверзные вопросы и популяризировать собственные деловые и управленческие практики, повышать эффективность своих финансовых и маркетинговых инструментов (   Читать дальше...   )Жанр: БизнесИздательство: ООО "РЕГИОНАЛЬНЫЕ НОВОСТИ"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DA02790CBA59328DBB9E4977846C924322A7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680352   (134278) от 29.11.2023
+
+Журнал | Инженерные системы №2 (2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134278.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Инженерные системы» - научно-технический журнал. В журнале печатаются материалы в области отопления, вентиляции, кондиционирования воздуха, газоснабжения, водоотведения, энергосбережения, энергоаудита, автоматизации систем и защиты окружающей среды. Читательская аудитория: специалисты в области инженерных систем в строительстве — проектировщики, монтажники, специалисты (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АС СЗ Центр АВОКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DB09BF0983055F943E27477BCB4D77336CB41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680350   (134265) от 29.11.2023
+
+Журнал | Инженерные системы №1 (2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134265.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Инженерные системы» - научно-технический журнал. В журнале печатаются материалы в области отопления, вентиляции, кондиционирования воздуха, газоснабжения, водоотведения, энергосбережения, энергоаудита, автоматизации систем и защиты окружающей среды. Читательская аудитория: специалисты в области инженерных систем в строительстве — проектировщики, монтажники, специалисты (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АС СЗ Центр АВОКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D144B2DFFA75A2C3C5B2E1E4010DC97B0E666B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680353   (134263) от 29.11.2023
+
+Журнал | Инженерные системы №3 (2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134263.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Инженерные системы» - научно-технический журнал. В журнале печатаются материалы в области отопления, вентиляции, кондиционирования воздуха, газоснабжения, водоотведения, энергосбережения, энергоаудита, автоматизации систем и защиты окружающей среды. Читательская аудитория: специалисты в области инженерных систем в строительстве — проектировщики, монтажники, специалисты (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АС СЗ Центр АВОКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9E299037BEC020DA9314463A85286C44B00440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680356   (134253) от 29.11.2023
 
 Журнал | Инженерные системы №4 (2023) [PDF]
@@ -6,7 +136,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134253.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134220.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134198.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134189.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134180.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134168.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134147.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134067.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134016.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133978.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133968.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133945.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133941.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133940.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133934.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133903.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133865.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133850.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133806.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133799.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133753.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ PhotoCASA - красочный иллюстрированный журнал о 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F385C0C8CDCA746C84093B3D46506A0AFAE89C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594754   (133752) от 26.12.2012
-
-Журнал | АиФ. Дача. Спецвыпуск №22 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как необычно, дешево и просто украсить дачный участок своими руками? В данном спецвыпуске вы найдете много свежих идей, "изюминок", оригинальных находок, которыми с вами делятся народные умельцы и дизайнеры-профессионалы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49029B900EA2792200C1B18DD296E0AAD919B94A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594550   (133684) от 26.12.2012
-
-Подборка журналов | Вязаная одежда для солидных дам [2011...2012] [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модели вязаной одежды для пышных дам: жакеты, жилеты, пуловеры, болеро, жилеты, пальто, а также аксессуары – для работы и отдыха, загородных прогулок и вечерних мероприятий.Формат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E2412C2118CD4ACEB58CEAF007C3D422E41560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594533   (133682) от 26.12.2012
-
-Журнал | Мой уютный дом №1 [январь 2013] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133682.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лиза. Мой уютный дом» - журнал для тех, кто высоко ценит комфорт, хочет сделать свой дом красивым, находится в постоянном поиске свежих идей и решений. Оборудование дома и квартиры, практические советы по оформлению гостиной, спальни, кухни, ванной и детской комнат. Модные тенденции в дизайне интерьера. Эксклюзивные репортажи. Мебельные новинки. Интересные решения для небольших жилых помещений.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF53D599E13A2EB5BAF7079F91676E3382B0FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594498   (133680) от 26.12.2012
-
-Журнал | Русские танки №60 [2012] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133680.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Русские танки" - журнал посвящен самым знаменитым моделям отечественного танкостроения с 1930-х годов до наших дней. В каждом номере - исторический журнал в сопровождении масштабной модели из металла: танки, самоходные установки, бронетехника. Увлекательные исторические тексты с многочисленными фотографиями и иллюстрациями, посвященные каждой модели и эпохе, в которую она создавалась.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29882D47DE4CB41F5C1D89D71C119434327BDF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594730   (133660) от 26.12.2012
-
-Журнал | Windows 7 Help & Advice №1 [январь 2013] [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание известно как "Windows. The Official Magazine"- официальный журнал Windows. Журнал для пользователей ОС Windows XP, Vista и 7. Вся тематика журнала направлена на работу с этой ОС. Программное направление - работа с различными штатными средствами Win7 (в первую очередь). Обзор новых функций Windows 8. Приводятся обзоры ПО, игр.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69BA0495D249300E771FEB02DEBE9EE08C58DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

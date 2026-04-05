@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1863076   (1063789) от 
+
+Robert Plant - Dreamland (2002) [FLAC|Lossless|tracks + .cue] <Hard Rock, Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funny in My Mind (I Believe I'm Fixin' to Die) [0:04:45.05]
+02. Morning Dew [0:04:26.09]
+03. One More Cup of Coffee [0:04:03.72]
+04. Last Time I Saw Her [0:04:41.28](   Читать дальше...   )Жанр: Hard Rock, Pop Rock, Folk RockПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4DF163FB6D6FADF070ED3B94D495791851FB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862843   (1063542) от 
+
+Rainbow - Rarities (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple of the King (Bolivian Mono Mix)
+02. Man on the Silver Mountain (Mono Edit)
+03. Man on the Silver Mountain (Stereo Edit)
+04. Tarot Woman (Rough Mix)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E115871EA6B31E7960A9347B31A34A9EB7F9CDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862361   (1063187) от 
+
+White Skies - Shouting At The Hurricane (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If This Is It (Get Ready)
+02. 88 Crash
+03. Money To Burn
+04. I Can't Make This Alone(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C570B910CE9EC1E9A7BBED0F5542AF73522BEE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862426   (1063145) от 
+
+Night Ranger - Greatest Hits (1989) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подобно таким AOR-рок-группам, как Styx, Journey и REO Speedwagon, Night Ranger обрушивали на слушателя мощный шквал электрогитарного звучания - заслуга Jeff Watson'а и Brad Gillis'а, а также могли похвастаться харизматичным и энергичным фронтменом в лице Jack Blades'а. Поскольку студийные альбомы группы содержали лишь небольшую долю по-настоящему сильного материала, (   Читать дальше...   )01. (You Can Still) Rock in America (4:15)
+02. Sing Me Away (4:09)
+03. Goodbye (4:19)
+04. When You Close Your Eyes (4:18)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99B7F6B804082F607C490E731F325A8EDA1981E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 31828   (1062521) от 
 
 Bachman-Turner Overdrive - BTO's Greatest - 1986 (1996), FLAC
@@ -7,7 +123,7 @@ Bachman-Turner Overdrive - BTO's Greatest - 1986 (1996), FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062521.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ Axel Rudi Pell - Ghost Town (2026) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062054.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ Blind Revolution - Far From The Sun (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061440.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ Gotthard - More Stereo Crush (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061217.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ Bad Marriage - Match Made In Hell (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060894.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ Phil Vincent - Thirst Trap (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060639.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Def Leppard - The Las Vegas Residency Set List (2026) Live [FLAC|Lossless|WEB-DL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060388.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ Michael Monroe - Outerstellar (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060359.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ Lesbian Bed Death - Satan's Cellar (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060343.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Glorious Bankrobbers - Intruder (2026) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058856.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ Black Swan - Paralyzed (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058734.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ Keys - Infinity Parabellum (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057819.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ Austen Starr - I Am The Enemy (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056612.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Temple Balls - Temple Balls (2026) [APE|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056469.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ Magnum Jack - Distant Hi-Ways (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056263.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ Supralunar - Dead Come To Dance (2026) [FLAC|Lossless|WEB-DL|tracks] <Modern Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055821.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Uriah Heep - Demons And Wizards (1972) 2XCD, Japanese Edition, SHM-CD, Remastere
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054904.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ Uriah Heep - Salisbury (1971) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054700.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Uriah Heep - Look At Yourself (1971) 2XCD, Japanese Edition, SHM-CD, Remastered,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054663.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ WildHard - Love N' Lies (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054498.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Helix - Scrap Metal (2026) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053923.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ Mezcaleros - No Way Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053693.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ Mezcaleros - No Way Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79AF010894AC41138CA1DC5A749D8D0191AAA968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847343   (1052112) от 11.01.2026
-
-Bullet - Kickstarter (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kickstarter (2:55)
-02.  Caught in the action (2:57)
-03.  Open Fire (3:34)
-04.  Keep Rolling (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A26CA7A2B2B97A994A52928058B392F9B727F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846243   (1051248) от 06.01.2026
-
-Harlan Cage - The Best Of Harlan Cage (2004) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Arena rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Mama Said
-02. Two Ships in the Night
-03. No Sunday Bride
-04. Can't Tame the Raven(   Читать дальше...   )Жанр: Melodic Hard Rock, Arena rockПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0625D8C5539CF34C1BD168B74CC01F49CD1B4603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845370   (1050705) от 31.12.2025
-
-Graham Bonnet Band - Lost In Hollywood Again (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Of The World
-02. All Night Long
-03. Love's No Friend
-04. Making Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C89A1AF833D7B562B07B6288DF240A6E38968F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843001   (1049015) от 17.12.2025
-
-Autumn's Child - Melody Lane (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Boulevard
-02. Pray For The King
-03. Fight To Love Again
-04. Singalong(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BF53FE03A5F5D0C398B9ACCE47C27A60139FC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1219575   (711917) от 15.04.2018
+
+Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossless|Vinyl|tracks] <Techno, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting Things Started (06:01)
+ 02. Tribal Days Part II (08:49)
+ 03. Tribal Days Part III (09:06)
+ 04. The Vibe (05:03)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219692   (711916) от 15.04.2018
+
+Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End (08:14)
+02. New Morning (07:49)
+03. The End (Mollono.Bass Remix) (07:52)
+04. New Morning (The Micronaut Remix) (06:24)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A593CD95BF51604E9A470B4BE258423EEC455CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219664   (711906) от 15.04.2018
 
 Henry Saiz & Band - Human (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Downtempo, Nu-Disco, House>
@@ -6,7 +64,7 @@ Henry Saiz & Band - Human (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Downte
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711906.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Inside Treatment - Underneath My Purple Shades (1991) [MP3|320 Kbps] <EBM, Elect
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711338.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Foreign Sequence - Thousand Frustrations (2018) Concrete Collage [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711329.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Cultivated Bimbo - Tunes From a High Wire (1992) [MP3|320 Kbps] <EBM, Industrial
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711322.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ God Module - The Unsound Remixes (2020) [MP3|320 Kbps] <EBM, Aggrotech, Dark Ele
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711300.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Scapa Flow - Chased By Sunset (1991) [MP3|320 Kbps] <EBM, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711292.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Toolroom Miami 2019 (3 CD) (2019) [MP3|320 Kbps] <House, Tech House, Techno
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711290.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711191.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711184.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711155.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Ost+Front - Dein Helfer In Der Not (2020) 3xCD [FLAC|Lossless|image + .cue] <Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711151.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Delpano Shock - Wired (2020) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711014.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Extreme Sports Music, Vol. 7 (2020) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710972.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Vintage Culture B2B Meca - Live D-Edge Sao Paulo, Brazil (2022-02-17) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710943.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Moon Frog - Standing On Ceremony (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710814.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - 5 Years Auditive (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710796.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Takkra - Technicolor Talk (2017) [MP3|320 Kbps] <Ambient, Psychill>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710791.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Disco Dance Rimini 2017 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710785.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Chillout May 2017: Top 10 Spring Relaxing Chill Out and Lounge Music  [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710783.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Psy Moon Trance Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710671.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Dive - Underneath (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Darkwave, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710656.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Best Of Progressive House Vol.03 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710394.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Electric for Life - Ibiza (Mixed by Gareth Emery) (2016) [MP3|320 кб/с] 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710110.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ joergmueller - Discography 4 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks+.
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709960.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ joergmueller - Discography 4 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AD328B91C67CBE09D25C5B6DD2892E539DE01C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 147117   (709253) от 12.06.2010
-
-The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro/Big BeatПродолжительность: 00:59:09
-01. Setting Sun & Chemical Beats (San Fransico '96) (14:56)
-02. The Sunshine Underground (Woodstock '99) (9:15)
-03. The Private Psychedelic Reel (Open Air Field Festival '02) (17:36)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329403   (709213) от 29.04.2011
-
-London Elektricity - Yikes (2011) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elektricity Will Keep Me Warm
-02. Meteorites (ft. Elsa Esmeralda)
-03. Had a Little Fight
-04. The Plan That Cannot Fail(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1006806   (825480) от 13.04.2016
+
+Осторожно, мошенники! Смертельная рента (2016.04.12) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9EDC2A5204987A83227C41EF60B60476234949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007023   (825478) от 13.04.2016
+
+Нереальные аферисты. Купля-продажа авто (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825478.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой серии программы телеканала Москва24 "Нереальные аферисты" пойдет рассказ о том, как мошенники наживаются на рынке продажи автомобилей. Как ухитряются продать угнанный автомобиль намного дороже реальной стоимости? Какие ноу-хау используют сегодня в Москве "авто-преступники"?Производство: Москва 24Жанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FA500F13BA5B831FEEF983CFEB1916A94B5B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006833   (825405) от 13.04.2016
+
+Вечерний Ургант (2016.04.12) SATRip (cезон 9, выпуск 49)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B89CDE551F63AC5562FAB9B7B6E74A685C7BC10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007031   (825170) от 13.04.2016
+
+Танцы. Битва сезонов (2016.04.09) WEB-DLRip [H.264/720p-LQ] (Выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825170.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта в 19:30 на телеканале ТНТ стартует новое шоу – «ТАНЦЫ. Битва сезонов». Лучшие участники двух сезонов самого масштабного танцевального проекта страны встретятся лицом к лицу на одной сцене. Мы все так давно этого ждали! Борьба развернется за приз в 3 000 000 рублей и звание – «Лучший из лучших танцоров страны». Наставники шоу Егор Дружинин и Мигель сформируют (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EDF78905DBC47C337CC20BE007F37A930D9C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502909   (825140) от 16.10.2021
+
+Своя игра (16.10.2021) WEBRip [H.264/1080p] (выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0820D9449ACBC11A5CC5A4F0E4D05893C8BC9837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502920   (825132) от 16.10.2021
+
+Своя игра (16.10.2021) WEBRip [H.264/1080p] (выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2073DC22361C6DB74EB47FDB2EED0BF4EF879298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502803   (825042) от 16.10.2021
 
 Живая еда с Сергеем Малозёмовым (16.10.2021) SATRip
@@ -6,7 +162,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825042.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825030.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825026.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825002.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824869.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824867.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824865.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824860.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824859.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824848.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824846.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824771.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824769.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824756.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824749.jpg" />
 </div>
 
 
@@ -401,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824748.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824680.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824676.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824649.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824598.jpg" />
 </div>
 
 
@@ -519,169 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6FAB2358300573040C3CE4511069082CF447A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380884   (824596) от 08.05.2020
-
-Прогулки по Дрездену, Германия / Dresden, Deutschland (2019) CamRip [H.264/1080p] [PR]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражный фильм по основным достопримечательностям Дрездена в Германии.
-//
-Ein Kurzfilm über die Hauptattraktionen der Stadt Dresden in Deutschland.Производство: Германия, РоссияЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C091C183ECE78412B345314B267BE832010AE8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381310   (824592) от 08.05.2020
-
-Прогулки по Кисловодску (видеоэкскурсия) / Walks in Kislovodsk (2017) CamRip [H.264/1080p] [PR]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражная видеоэкскурсия «Прогулки по Кисловодску» даёт возможность зрителю увидеть красивые места, которые можно посетить в городе Кисловодске.Производство: Россия, КисловодскЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A683B199C22F909C86E181828C6066BD270F54C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116193   (824577) от 19.03.2017
-
-Орел и решка. Перезагрузка (2017.03.19) WEB-DL [H.264/1080p-LQ] (сезон 14: Бангкок)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2F965E2E1EC77483CF6DAF715728E96D73E2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116183   (824572) от 19.03.2017
-
-Орел и решка. Рай и ад (2017.03.19) WEB-DL [H.264/1080p-LQ] (сезон 13: Райская Камбоджа)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824572.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
-В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F78F37E63ABEB16ADA67E41413F6FB487895498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116194   (824570) от 19.03.2017
-
-Танцуют все! (2017.03.19) SATRip (сезон 1, выпуск 1)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824570.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" стартует новый суперпроект "Танцуют все!"
-Лучшие танцевальные коллективы со всей страны начинают танцевальный марафон. Они выйдут на сцену, чтобы удивить и поразить зрителей и доказать всей стране, что они настоящие профессионалы! Мы увидим танцы, которые волнуют весь мир, танцы, которые хотят танцевать все!
-Каждую неделю (   Читать дальше...   )Телекомпания: РоссияЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F4E20BA02F7D6DC7574F21B2FA471D7FEED15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380905   (824480) от 08.05.2020
-
-Эрмитаж, Санкт-Петербург / The Hermitage, St. Petersburg (2020) CamRip [H.264/1080p] [PR]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культурный центр России - Санкт-Петербург, основанный в 1703 году Петром Великим, пользуется огромной популярностью у туристов со всего мира.
-Город Санкт-Петербург представляет собой удивительное сочетание культур и традиций России и Европы. В городе насчитывается более 250 музеев.
-Второй по величине музей изобразительного и декоративно-прикладного искусства в мире (   Читать дальше...   )Производство: Россия, Санкт-ПетербургЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: АнглийскиеПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA42466C18EC3B19435D9697E677F46DAE96043
 ```
 
 https://mybot314.ru/tekegram_catalog/

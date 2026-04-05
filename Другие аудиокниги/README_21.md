@@ -1,3 +1,55 @@
+###  Публикация: 1041653   (580466) от 11.08.2016
+
+Василий Ливанов | Путь из детства. Эхо одного тире. [Книга1] (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами первая книга воспоминаний Василия Борисовича Ливанова. Это удивительный, особой формации человек. Все, кто уже имел счастье прочитать этот текст в рукописи или же удостоились чести слышать отрывки от самого автора признавались, что это невероятная книга, событие в нашей литературе. Мы завидуем вам, дорогой читатель, которому только предстоит совершить (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 04:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9561DA9C5B35407F6CF93F66D7EB2E2DC24D79FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150641   (577555) от 16.07.2017
+
+Дэн Миллмэн | Путь мирного воина (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Путь мирного воина" стала одной из самых любимых духовных саг нашего времени. Этот "народный" бестселлер, изданный более чем на двадцати языках тиражом в миллионы экземпляров, принес вдохновение мужчинам и женщинам всех возрастов во всем мире. Эта ставшая классической история, рассказанная с теплотой и юмором, обращена к мирному воину внутри (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 09:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABFF2A2407ADBF254C972C063E8B6321C512139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042782   (574610) от 15.08.2016
 
 Кристин Ханна | Всё ради любви (2016) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574610.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574585.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572827.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568820.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568362.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568183.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567458.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567301.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567107.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567078.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566934.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565470.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565461.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564175.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563979.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563456.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562147.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561683.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559817.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559553.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559106.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558045.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557012.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556881.jpg" />
 </div>
 
 
@@ -621,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC27581198E4AC48A02B47F06FBE0AC4BC8D3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305943   (554826) от 10.06.2019
-
-Сергей Чекмаев и др. | Литературный аудиопроект «Глубина» [выпуск 16] (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!
-_____________________________________________Жанр: Рассказы, разноеПродолжительность: 05:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C681D2B33924EE00DB0556699816034D154544E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308173   (554138) от 13.06.2019
-
-Юлиан Семенов | Неизвестный Юлиан Семенов. Возвращаясь к Штирлицу (2019) [MP3, Сергей Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов и новелл Юлиана Семёнова поведает о различных событиях отечественной истории ХХ века. В центре внимания автора - Максим Исаев (Штирлиц) и герои Гражданской войны в России, а также участники послевоенных событий. Перо мастера создает яркие образы белых генералов и казачьих атаманов, советских  разведчиков и простых людей.Жанр: Современная прозаПродолжительность: 15:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B69082590C14303AD0ED4652D4057486E2A7030
 ```
 
 https://mybot314.ru/tekegram_catalog/

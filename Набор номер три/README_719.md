@@ -1,3 +1,214 @@
+###  Публикация: 1819356   (1551) от 22.09.2025
+
+Победителем «Интервидения» стал певец из Вьетнама Дык Фук
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1551.jpg" />
+</div>
+
+
+###  Подробнее
+
+За победу в Международном музыкальном конкурсе вьетнамскому артисту полагается хрустальный кубок и 30 миллионов рублей.Напомним, что в «Интервидении» приняли участие представители 23 стран. Россию на конкурсе представлял певец Ярослав Дронов (Shaman). После своего выступления он попросил членов жюри его не оценивать. Дронов сказал, что по законам гостеприимства он (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790009   (1549) от 22.09.2025
+
+Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нико Вакацуки закончила свое шестилетнее обучение ведьм и возвращается в город одна. Как новая ведьма, она должна выбрать себе спутника. Однако, в отличие от других ведьм, она хочет выбрать неживотного спутника. Нет лучшего спутника, чем Морихито «Мои» Отоги — ее друг детства, который оказался огром. Морихито категорически против того, чтобы быть ее слугой, но он (   Читать дальше...   )Производство: студия Bibury Animation Studios / バイブリーアニメーションスタジオЖанр: комедияРежиссер: Икэхата ХиросиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805586   (1548) от 22.09.2025
+
+Gachiakuta | Гачиакута [2025, TV, 11 из 24 эп.] WEBRip 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1548.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Если в любимые вещи мы вкладываем частичку своей души, то что происходит с ненужными вещами, которые отправляются на помойку?»
+
+Там, где живёт Рудо, мусор скидывают в бездну, которая начинается сразу за пределами города. Туда же сбрасывают и преступников, а тех, кто был с ними связан, отселяют в трущобы. Именно там обитал Рудо, заклеймённый как сын убийцы, пока (   Читать дальше...   )Производство: студия Bones Film / ボンズフィルムЖанр: приключeния, фэнтeзиРежиссер: Суганума ФумихикоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADA3106E99478DC0E2DAAD01D0A7800C92EAEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800579   (1398) от 23.09.2025
+
+Hell is Us (2025) [Ru/Multi] (1.4.22.43941/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hell is Us - это приключенческий экшен от третьего лица, в котором напряженные бои сочетаются с увлекательными исследованиями. Изучайте полуоткрытый мир, ищите ответы на свои вопросы и знакомьтесь с таинственными созданиями. Из всего, что есть на земле, больше всего на ад похожа война. Ведь в нашем мире обитает худший из демонов - человек. Раскройте тайны своего (   Читать дальше...   )Тип издания: RepackРазработчик: Rogue FactorЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22DC96429EE29DACF8083AB9839082343D08AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761567   (1390) от 23.09.2025
+
+S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack seleZen [Ultimate Edition]
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чернобыльская Зона Отчуждения существенно изменилась после второго взрыва в 2006 году. Жестокие мутанты, смертоносные аномалии и враждующие фракции сделали Зону местом, где очень тяжело выжить. Тем не менее артефакты невероятной ценности привлекали в Зону многих людей, называемых сталкерами. Они проникали в Зону на свой страх и риск, стремясь разбогатеть на этом (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, УкраинскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9529278670827669AB95719D27CC29D039BED8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819359   (1374) от 23.09.2025
+
+В Госдуме заявили о массовой стелсфляции в магазинах
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россияне стали жертвой двойной тактики производителей — «шринкфляции» и «скимпфляции», которые вместе формируют феномен «стелсфляции», заявил РИА Новости вице-спикер Госдумы Борис Чернышов (ЛДПР) со ссылкой на исследование, проведенное его командой.Отмечается, что «скимпфляцией» принято называть явление, когда производитель заменяет дорогие ингредиенты на более бюджетные, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819687   (1256) от 24.09.2025
+
+Хакеры  SKIDROW сделали сенсационное заявление о взломе антипиратской защиты Denuvo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа SKIDROW сообщила о том, что им удалось взломать Tourist Bus Simulator, которая была защищена Denuvo.В отличии от стандартных взломов Denuvo, которые не удаляют саму защиту из игры, а лишь обходят её, SKIDROW утверждают, что выполнили полное удаление защиты из EXE-файла игры, что "было чертовски сложной задачей".
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812424   (1247) от 24.09.2025
+
+Чужой: Земля / Alien: Earth (2025) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) NoNameStudio
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный космический корабль терпит крушение на Земле. Молодая женщина и разношёрстная группа военных совершают судьбоносное открытие и сталкиваются с главной угрозой для планеты.Производство: Великобритания, США, Таиланд / 20th Television, 26 Keys Productions, Brandywine ProductionsЖанр: ужасы, фантастикаРежиссер: Дана Гонсалес, Угла Хёйксдоуттир, Ноа ХоулиАктеры: Сидни Чендлер, Алекс Лоутер, Эсси Дэвис, Сэмюэл Бленкин, Бабу Сизей, Адарш Гурав, Эрана Джеймс, Джонатан Аджайи, Дэвид Рисдаль, Дьем Камилль ГбогуПеревод: Одноголосый любительский (NoNameStudio)Язык озвучки: РусскийСубтитры: отсутсвуютПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D6023E35EAEF4C74E4BED92C21DA11120B9FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777227   (1246) от 24.09.2025
 
 Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.1/dlc) Repack SE7EN [Gold Edition]
@@ -6,7 +217,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.1/dlc) Repack SE7EN [Gol
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1246.jpg" />
 </div>
 
 
@@ -32,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1245.jpg" />
 </div>
 
 
@@ -50,32 +261,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819663   (1185) от 24.09.2025
-
-Первое достижение: 1000 релизов от mikos74
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1185.jpg" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от mikos74 Дорогие друзья и гости клуба...Закончились летние каникулы и отпуска, релизёры возвращаются к суровым трудовым будням. А что может скрасить тяжёлую рабочую неделю - так это создание пары-тройки классных релиза.Ну а сегодня, наш виновник торжества, впервые попадает в эту рубрику. Прошу любить и жаловать: специалист по классическому (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819565   (1109) от 25.09.2025
 
 Фантастическая четвёрка: Первые шаги / The Fantastic Four: First Steps (2025) WEB-DL [H.264/1080p]
@@ -84,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1109.jpg" />
 </div>
 
 
@@ -110,7 +295,7 @@ The X-Com Files: Transdimesional Express (1994-2025) [Ru/En] (3.9.1b) Repack/Mod
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1108.jpg" />
 </div>
 
 
@@ -136,7 +321,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1107.jpg" />
 </div>
 
 
@@ -162,7 +347,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack Deceptic
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1106.jpg" />
 </div>
 
 
@@ -188,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1105.jpg" />
 </div>
 
 
@@ -214,7 +399,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.2s/dlc) Repack SE7EN
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1104.jpg" />
 </div>
 
 
@@ -240,7 +425,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00.577453 HF1/dlc) Repack alexalsp
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1103.jpg" />
 </div>
 
 
@@ -266,7 +451,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1102.jpg" />
 </div>
 
 
@@ -292,7 +477,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) License GOG [Ul
 >>32
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1101.jpg" />
 </div>
 
 
@@ -318,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>15
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1100.jpg" />
 </div>
 
 
@@ -345,7 +530,7 @@ Google признал: Белый дом диктовал, кого блокир
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1060.jpg" />
 </div>
 
 
@@ -372,7 +557,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Let'sР
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_931.jpg" />
 </div>
 
 
@@ -398,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_927.jpg" />
 </div>
 
 
@@ -424,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_925.jpg" />
 </div>
 
 
@@ -450,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_924.jpg" />
 </div>
 
 
@@ -476,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_921.jpg" />
 </div>
 
 
@@ -487,189 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819878   (904) от 26.09.2025
-
-Россия получила полный цифровой суверенитет
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский сегмент интернета, несмотря на давление и санкции, демонстрирует опережающий рост, Россия вошла в тройку стран, обладающих полным цифровым суверенитетом, сообщил первый заместитель руководителя администрации президента РФ Сергей Кириенко."Неожиданно мы задумались о том, что стран, которые обладают всей полнотой такого цифровой суверенитета, в мире (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820066   (866) от 26.09.2025
-
-Internet Download Manager 6.42 Build 47 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819994   (736) от 27.09.2025
-
-Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинальном образе Windows_10_Pro_edition_22h2_x64 для оптимального и комфортного пользования. Цель проекта — улучшить скорость реагирования, производительность и конфиденциальность Windows. Идеально подходит для повседневного домашнего пользования, игр, графического дизайна и работы тяжёлого характера.
-Удалены, отключены или заблокированы (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B18925852D7EE198DC26865A199E5928E4DA3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812153   (726) от 27.09.2025
-
-Чужой: Земля / Alien: Earth (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-8 из 8) HDrezka, Jaskier, TVShows, LostFilm, WStudio, Кубик в Кубе, Red Head Sound, HATE Studio, Сербин,  ...
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочный космический корабль терпит крушение на Земле. Молодая женщина и разношёрстная группа военных совершают судьбоносное открытие и сталкиваются с главной угрозой для планеты.Производство: Великобритания, США, Таиланд / 20th Television, 26 Keys Productions, FX ProductionsЖанр: ужасы, фантастикаРежиссер: Дана Гонсалес, Угла Хёйксдоуттир, Ноа ХоулиАктеры: Сидни Чендлер, Алекс Лоутер, Эсси Дэвис, Сэмюэл Бленкин, Бабу Сизей, Адарш Гурав, Эрана Джеймс, Джонатан Аджайи, Дэвид Рисдаль, Дьем Камилль ГбогуПеревод: Дублированный (Red Head Sound, HATE Studio), Многоголосый (HDrezka, Jaskier, TVShows, LostFilm, WStudio, LE-Production), Двухголосый (Кубик в Кубе, Viruse Project), Авторский (Ю. Сербин)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~01:03:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CC2156856C865CD62B4BE5E9884D4B16637B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633238   (722) от 27.09.2025
-
-Wartales (2021) [Ru/Multi] (1.0.43355/dlc) License GOG [The Mercenaries Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wartales - ролевое приключение в открытом мире, предлагающее возглавить свою команду наемников, чтобы отправиться на поиски сокровищ. События развиваются в средневековом фэнтезийном мире. Требуется путешествовать континентами, нанимать сопартийцев, исследовать древние гробницы и собирать награды. Сюжет начинается с падения великой Империи Эдоран. Королевство охватила (   Читать дальше...   )Тип издания: LicenseРазработчик: Shiro GamesЖанр: Ролевая игра, ПошаговаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04329D79F92EC2A4D57975CECE2C0CE2809FFB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761609   (721) от 27.09.2025
-
-S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6.0/dlc) Repack Let'sРlay [Ultimate Edition]
-
->>3
->>26
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чернобыльская Зона Отчуждения существенно изменилась после второго взрыва в 2006 году. Жестокие мутанты, смертоносные аномалии и враждующие фракции сделали Зону местом, где очень тяжело выжить. Тем не менее артефакты невероятной ценности привлекали в Зону многих людей, называемых сталкерами. Они проникали в Зону на свой страх и риск, стремясь разбогатеть на этом (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, УкраинскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E97C86C6BCAAAABFBEF7C8B53FAFB92B83B893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266202   (720) от 27.09.2025
-
-X4: Foundations (2018) [Ru/En] (8.00 HotFix 1/dlc) License GOG [Community of Planets Collector's Edition]
-
->>3
->>18
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_720.jpg" />
-</div>
-
-
-###  Подробнее
-
-X4: Foundations - долгожданное продолжение успешной серии игр X, представляет собой самую сложную и продвинутую симуляцию вселенной в серии. Управляйте любым кораблём, исследуйте космос или руководите империей; Торгуйте, Сражайтесь, Стройте и Думайте, во время Ваших приключениях в бескрайнем космосе.Тип издания: LicenseРазработчик: EgosoftЖанр: Симулятор, Экшны, ФантаcтикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7E986CF7BF45A186814BFA9DB26D316ED16A61
 ```
 
 https://mybot314.ru/tekegram_catalog/

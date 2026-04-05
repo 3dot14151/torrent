@@ -1,3 +1,61 @@
+###  Публикация: 1030810   (670238) от 02.07.2016
+
+DJ AFFecta - МиксоПляс выпуск №1 (2016) [MP3|320 Kbps] <Dance Pop, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) Tiлsto & Don Diablo ft. Thomas Troelsen - Chemicals (Original Mix) Musical Freedom
+2) Madcon Feat. Ray Dalton-Don't Worry (Mikis Remix)
+3) Imany-Don't Be So Shy (Freaky DJs & DJ Andrew Butler Remix)
+4) Icona Pop-Emergency (Hot Loud & Lis Remix)(   Читать дальше...   )Жанр: Dance Pop, HouseПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B716F865450C846DB5A04C15C5857CE6D31FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291492   (670030) от 24.03.2019
+
+DJ Mixx - Everybody Dance (Free Ends Guest Mix) (2014) unmixed [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Paige - Crush (David Morales Club Mix) (1998)
+02. Mya - Movin' On (Ralphi's Vox Club) (1998)
+03. Deep Dish Pres. Prana - The Dream (Sharam's Deep Dish Dreamscape) (1994)
+04. Fire Island Feat. Mark Anthoni - If You Should Need A Friend (Fire Island Club Mix) (1995)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB55291BCC39E891D16CAFC7005BAF4C0D0D8F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223968   (669875) от 07.05.2018
 
 VA - Deep House Collection Vol.168 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -6,7 +64,7 @@ VA - Deep House Collection Vol.168 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669875.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Progressive Electro House: 99 DJ Remix (2018) [MP3|320 Kbps] <Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669769.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Deep House Collection Vol.169 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669768.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Club Dance Ambience Vol.145 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669370.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Club Dance Ambience Vol.146 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669368.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Electro House Rarty. Volume. №2 (2017) [MP3|320 Kbps] <Club House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669305.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Chillout Hits Vol.8 (2017) [MP3|320 Kbps] <Chillout , Chillstep , Chill Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669135.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Winter Lounge (2CD) (2022) [MP3|320 Kbps] <Lounge, Downtempo, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668969.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Dj ruS - Radioshow summer june 2016 Vol.1 (2016) [MP3|192 Kbps] <House, Dance Po
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668780.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Ibiza Beach Answer Commission [Gravitation Sound] (2016) [MP3|245-320 Kbps]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668776.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Club Dance Ambience vol.76 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668772.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - TOP 100 Club (June) (2016) [MP3|320 Kbps] <House, Electro House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668597.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Relax to House Vol.1 (2016) [MP3|320 Kbps] <House, Deep House, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668580.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Deep House Decipherments 008 (2018) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668176.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VA - Interstellar Techno Mix (2018) [MP3|320 Kbps] <Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668175.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Trance Attack 3.0 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667998.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Eupforia: May Original Trance Party (2017) [MP3|320 Kbps] <Trance, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667940.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Molecular Bond: Tech House Music (2018) [MP3|320 Kbps] <Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667231.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Eye In The Sky: Music For Dreams (2018) [MP3|320 Kbps] <Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667183.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Finest Electro House Music (2018) [MP3|320 Kbps] <Club, Dance, Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667182.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Psychedelic Chill Bass (2018) [MP3|256 Kbps] <DnB, Dubstep, Experimental>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667174.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Psybreaks [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Psybreaks>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666784.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Elite Session Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666063.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Velociraptor: Tech House Party (2017) [MP3|320 Kbps] <Tech House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665713.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Velociraptor: Tech House Party (2017) [MP3|320 Kbps] <Tech House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDB522CB410F3112C653ECB246ED5C01F6086AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137932   (665661) от 28.05.2017
-
-VA - Parametric Algorithm: Psy Trance Edition (2017) [MP3|206-320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seakohya & Awwen - Funky Ride 7:23
-002. Eat Static & Chris Rich - Program Your Brain 6:03
-003. Diksha - Deep State 8:24
-004. Mystical Fields - Live to Exist 7:54(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 07:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DC08E5A653D1C0B22195D07D09A799C37839D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137894   (665658) от 28.05.2017
-
-VA - Emotional Uplifting Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665658.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aurosonic - Heaven (Progressive Mix) 8:32
-002. Alex Numark - When The Night Comes (Original Mix) 6:36
-003. Illitheas - Alive (Original Mix) 7:32
-004. Ana Criado - Still There's You (Original Mix) 6:38(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD78E0C0DC3F783F66C2074A4B57DA356C1B2D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1279806   (764536) от 31.01.2019
+
+Smart Player 1.0.1 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкое воспроизведение видео и управление библиотекой на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2019Разработчик: ShedWorxПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFCA155FC52021DF1CC0803CBC7C5FD2A7F5947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017236   (762940) от 16.05.2016
 
 Media Inspector 2.0.1 [En]
@@ -6,7 +32,7 @@ Media Inspector 2.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762940.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Downie 2.3.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760797.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ TunesKit M4V Converter 5.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748286.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Equilibrium 1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745299.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ iFFmpeg 6.1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745226.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Tipard Blu-ray Player for Mac 6.2.30 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743855.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ TurnTable 4.0.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743771.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ MovieSherlock 6.3.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742356.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ WinX DVD Ripper for Mac 6.6.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739129.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ NCH Switch Plus 9.45 [De]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739121.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ VideoSolo DVD Copy 1.0.18 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738797.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ VideoSolo Video Cutter 1.0.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738796.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ VideoSolo Blu-ray Player 1.1.22 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738783.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Sidify Spotify Music Converter Pro for Mac 2.3.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738734.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Sidify Apple Music Converter 3.5.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738693.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ YTD Video Downloader PRO 4.16.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737793.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Nuclear 0.6.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736289.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ MediaHuman Youtube Downloader 3.9.9.41 (build 2807) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734770.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ TunesKit iBook Copy 2.1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732070.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ Xilisoft Audio Converter Pro 6.5.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724195.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ VLC media player for Mac 3.0.11.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722544.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ IINA 1.0.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718798.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ Movavi Video Converter 22 Premium 22.3.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718357.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ MKVtools 3.7.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717306.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ Soda Player 1.4.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716361.jpg" />
 </div>
 
 
@@ -661,34 +687,6 @@ Soda Player - обычный, казалось-бы, плеер, в которо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01691CEB7CE0039A20BAC3C6629979581303F969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286236   (714815) от 01.03.2019
-
-SoundMate for SoundCloud 3.3.3 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714815.jpg" />
-</div>
-
-
-###  Подробнее
-
-SoundMate — отдельный клиент для всем прекрасно известного сервиса SoundCloud. Приложение имеет предельно простой интерфейс, который является копией веб-интерфейса сервиса. В связи с этим пользоваться клиентом предельно просто. Для кого-то удобней пользоваться SoundCloud в браузере, но десктопный клиент, мне показался удобней.
-
-Для справки: SoundCloud – музыкальная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2019Разработчик: Deng GaoПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C0EA23CF7B056649099D6CACB8D6832EF0436A
 ```
 
 https://mybot314.ru/tekegram_catalog/

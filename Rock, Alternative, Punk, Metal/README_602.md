@@ -1,3 +1,32 @@
+###  Публикация: 1058286   (470829) от 30.09.2016
+
+Eric Clapton - Live in San Diego (with Special Guest JJ Cale) (2016) Live [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell the Truth
+02. Key to the Highway
+03. Got To Get Better in a Little While
+04. Little Wing(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F309CE75F58CAD64553B0337698D9CCDF73E1581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 239960   (470744) от 26.09.2010
 
 The Beatles - Golden Beatles (2002) [MP3|320 kbps]<Rock>
@@ -6,7 +35,7 @@ The Beatles - Golden Beatles (2002) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470744.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ Zero People - Прекрасная жизнь (2016) [MP3|320 Kbps] <Alternative
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470708.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Zakk Sabbath - Vertigo (2020) [MP3|320 Kbps] <Heavy, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470679.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Epica - The Holographic Principle (2016) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470613.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Poets Of The Fall - Clearview (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470565.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Accuracy - Absolut 100% (1996) [FLAC|Lossless|image + .cue] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470321.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Sky Fault - Sky Fault (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Hard Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470313.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ H.E.A.T - Force Majeure (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470194.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Amatory - Книга мертвых (2006) Reissue, 15th Anniversary Edition, 20
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470191.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Blind Guardian Twilight Orchestra - Legacy Of The Dark Lands (2019) 2xCD [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470186.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Simple Plan - Get Your Heart On (2012) [MP3|320 кб/с]<Pop-Punk / Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469750.jpg" />
 </div>
 
 
@@ -337,7 +366,7 @@ VA - Kuschelrock Vol.32 (2018) [MP3|320 Kbps] <Pop, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469695.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ Paul McCartney - Egypt Station (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469676.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ VA - Rock Legends (2017) [MP3|320 Kbps] <Blues, Gospel, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469562.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ Dream Theater - Dream Theater (2013) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469496.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ Miasthenia - Supremacia Ancestral (2008) [FLAC|image +.cue]<Pagan Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469422.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ Midwinter - Between Wisdom And Lunacy (2006) [FLAC|image +.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469421.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Bifrost - The Wildest Fire (1996) [APE|image +.cue]<Pagan / Thrash / Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469356.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Love Lies Bleeding - Clinamen (2006) [FLAC|image +.cue]<Atmospheric Black Metal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469342.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Love Lies Bleeding - S.I.N. (2001) [FLAC|image +.cue]<Atmospheric Black Metal / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469332.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ Love Lies Bleeding - Behold My Vain Sacrifice (2000) [FLAC|image +.cue]<Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469329.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ Tash Sultana - Notion (2016) EP [MP3|320 Kbps] <Psychedelic rock, alternative ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469274.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Elton John - Rocket Man: Number Ones (2007) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469267.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Steve Vai - The Story Of Light (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469234.jpg" />
 </div>
 
 
@@ -729,7 +758,7 @@ Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469163.jpg" />
 </div>
 
 
@@ -743,34 +772,6 @@ Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:564705FE98B83A77987F1B3965E39F01E7B5948F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939750   (469149) от 24.09.2015
-
-Peter Hammill - Nadir's Big Chance (1975) Remastered, Reissue /2006, Virgin, Charisma/ [FLAC|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третье рождение Van Der Graaf Generator предвосхитившее нашествие панка.
-Во вступлении к диску Хэммилл дает объяснение, кто такой Рикки Надир, характеризуя его как альтер эго, оборотную сторону личности музыканта.
-"Я сидел в комнате ожидания, когда я понемногу стал осознавать, что я не один - или, по крайней мере, не единственен. Это длилось всего один миг, (   Читать дальше...   )Жанр: RockПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AA14E75B003EF81A4DF3D0467D2A46C63EE36A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1489859   (922325) от 18.08.2021
+
+Серия Кубков NASCAR 2021. Этап 24. Индианаполис. Гонка / NASCAR Cup Series 2021. Verizon 200 at the Brickyard  (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Александр Коган, Никита Дмитриев)Субтитры: ОтсутствуютПродолжительность: 04:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB44AF50761C3272F1EFDCA6C6F162C4E3514A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489858   (922269) от 18.08.2021
+
+Серия Индикар. Сезон 2021. Этап 12. Индианаполис. Гонка / NTT Indycar Series 2021. Round 12. BIG Machine Spiked Coolers Grand Prix. Race (14.08.2021) (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Индикар — главная серия гонок на машинах с открытыми колёсами в Северной Америке. Чемпионат был создан под именем Indy Racing League владельцем Индианаполис Мотор Спидвей Тони Джорджем, как более дешёвая и полностью американская альтернатива серии CART. Чемпионат проводится с 1996 года.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Фёдор Бакулов)Субтитры: ОтсутствуютПродолжительность: 02:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D5F23ABC5D6F4013E2E2088A9B897F7A00289B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489856   (922265) от 18.08.2021
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Австрия / MotoGP 2021. Austrian GP (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира в классе MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E4ACCB0C3374651DA362545A325180A1401F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489857   (922258) от 18.08.2021
 
 Кубок мира по электробайкам MotoE 2021. Этап 5. Гран-При Австрии / FIM Enel MotoE World Cup 2021. Rd 4. Austrian GP (2021) WEB-DL [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922258.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922257.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919012.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912381.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912379.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912363.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910692.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MotoGP. Этап 12. Гран-при Великобритании. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904012.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902378.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902372.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902357.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900782.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886746.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882374.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ MotoGP. Этап 13. Гран-при Арагона. Гонка (12.09.2021) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880723.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880719.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ MotoGP. Этап 13. Гран-при Арагона. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880711.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880607.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874223.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ WRC. Чемпионат мира по ралли. Обзоры / World Rally Cha
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872326.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ MotoGP. Этап 14. Гран-при Сан-Марино. Квалификаци
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871408.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ MotoGP. Этап 14. Гран-при Сан-Марино. Гонка (19.09.2021
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867865.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859635.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9265462A083B22BD0B922A146A6A7E3D23626E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498369   (858055) от 26.09.2021
-
-Формула-2. Сезон 2021. 6-й Этап. Гран-при России. Гонка 3 (26.09.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858055.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 сентября 2021, воскресенье. 11:20 МСК. Этап 6, Сочи Автодром, Россия. Третья гонка (28 кругов)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531E124A4EB1F8BC345832B9BDF815EB23BB586F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499747   (846180) от 03.10.2021
-
-MotoGP. Этап 15. Гран-при США. Квалификация (02.10.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846180.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 октября 2021, суббота. 22:10 МСК. Этап 15, Гран-при США. Остин, КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C45060AB859510ECDA23C61F865B5F0257265F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500013   (844436) от 04.10.2021
-
-MotoGP. Этап 15. Гран-при США. Гонка (03.10.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844436.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 октября 2021, воскресенье. 22:00 МСК. Этап 15, Гран-при США. Остин, Гонка (20 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7E07197449DBDADF8D8C795F690FDFA17517B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

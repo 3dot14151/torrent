@@ -1,3 +1,29 @@
+###  Публикация: 1096843   (917201) от 25.01.2017
+
+В Южной Корее начата разработка сверхскоростного поезда, способного двигаться со скоростью, близкой к скорости звука
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имеется достаточно большой шанс того, что в не очень отдаленном будущем в Южной Корее появится наземный железнодорожный транспорт, способный развивать скорость, близкую к скорости звука. Такой сверхскоростной поезд разрабатывается сейчас в государственном железнодорожном научно-исследовательском институте (Korea Railroad Research Institute, KRRI) по заказу правительства (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096693   (916888) от 25.01.2017
 
 NVIDIA GeForce Desktop 378.49 WHQL + For Notebooks [Multi/Ru]
@@ -6,7 +32,7 @@ NVIDIA GeForce Desktop 378.49 WHQL + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916888.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Image Uploader 1.3.2 build 4510 alpha + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916638.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916635.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Photo Studio PRO v2.5.6.6 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916543.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ USB Disk Security 6.0.0.126 Eng/Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916421.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916407.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916402.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916335.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Virtual Audio Cable 4.10 RePack [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915927.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Aliens vs. Predator [Ru/En] (RePack/2.27/DLC) 2010 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915923.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Cent Browser 2.3.7.50 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915120.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Max Payne (2001) [Ru] (1.05) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914990.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Doom 3 (2004) [Ru/En] (1.3.1/dlc) Repack R.G. Механики [Gold Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914989.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914960.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914775.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914773.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель (2011) [Ru/En] (1.1.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914563.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914553.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Cumulative Update KB3216755 for Windows 10 Final [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913542.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913375.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Windows 10 Pro 1909 b18363.720 x64 by SanLex (edition 2020-03-16) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913325.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Windows 7 Ultimate SP1 x64 3in1 OEM March 2020 by Generation2 (Multi-7/Ru)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913316.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913312.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ TeamViewer 15.3.8497 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913304.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ TeamViewer - удобная в использовании программа д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE9486E1CFBC68060BB5EF14F5F86872A7FA05E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989659   (913253) от 24.02.2016
-
-Индия приступила к сооружению собственного датчика гравитационных волн, который в 2025 году станет частью глобальной LIGO-сети
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавнее громкое открытие, связанное с обнаружением и регистрацией гравитационных волн, имеет гораздо большее значение, нежели очередное подтверждение достоверности Теории относительности Альберта Эйнштейна. Это открытие является первым прямым наблюдением, доказывающим существование черных дыр, кроме этого, гравитационные обсерватории наподобие LIGO становятся еще (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

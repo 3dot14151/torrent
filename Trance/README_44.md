@@ -1,3 +1,59 @@
+###  Публикация: 1624870   (245013) от 07.04.2023
+
+VA - 10 Years (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vito Von Gert - 10 Years (Continuous DJ Mix) [01:19:06]
+02. Moonnight & Margo Lane - I Run Away (Original Mix) [4:29]
+03. Roman Sand - Terra Nova (Original Mix) [7:51]
+04. Roman Sand - Gaia (Original Mix) [7:11](   Читать дальше...   )Жанр: TranceПродолжительность: 06:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E8F75B82FCBA1E42F93752BAE17D0B7DF7BE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631374   (244955) от 05.05.2023
+
+Sunny Lax - Crystals (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244955.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sunny Lax - Crystals (Continuous Mix) [01:10:38]Жанр: Trance, Progressive, ElectronicПродолжительность: 03:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAE951D58CDD983016E10E7E48D30B0CD4A030D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608908   (244951) от 03.02.2023
 
 VA - Ultima Audio: Essentials 2022 (Mixed by Alex John) (2023) [MP3|320 Kbps] <Trance>
@@ -6,7 +62,7 @@ VA - Ultima Audio: Essentials 2022 (Mixed by Alex John) (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244951.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ VA - The Sound of 2023 Mix 1: Hong Kong (2023) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244898.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ VA - Top 5 April 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244827.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ VA - Trance Anthems Vol. 18 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244824.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ VA - 10 Years Of Suanda Music - Mixed by Roman Messer (2023) [MP3|320 Kbps] <Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244731.jpg" />
 </div>
 
 
@@ -151,7 +207,7 @@ VA - Underground Heroes Of Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244156.jpg" />
 </div>
 
 
@@ -180,7 +236,7 @@ VA - 25 Years Technoclub Compilation (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243990.jpg" />
 </div>
 
 
@@ -209,7 +265,7 @@ VA - Katty Heath - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243984.jpg" />
 </div>
 
 
@@ -238,7 +294,7 @@ VA - Keep It Trance Vol. 09 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243982.jpg" />
 </div>
 
 
@@ -267,7 +323,7 @@ VA - Silent Shore Trance: Winter (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243595.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ Armin van Buuren - Feel Again (2023) [MP3|320 Kbps] <Trance, Progressive, Electr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243591.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2016) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243587.jpg" />
 </div>
 
 
@@ -354,7 +410,7 @@ VA - Global Trance Masters Vol. 5 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243556.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ VA - Nothing But... Trancetopia, Vol. 03 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242310.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ VA - Trance Spring (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241726.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ VA - Uplifting Only Top 15: April 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241497.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ VA - Black Hole Trance Music 03-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241367.jpg" />
 </div>
 
 
@@ -499,7 +555,7 @@ VA - Keep It Trance Vol. 11 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241015.jpg" />
 </div>
 
 
@@ -528,7 +584,7 @@ VA - Trance On The Beach 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240961.jpg" />
 </div>
 
 
@@ -557,7 +613,7 @@ VA - Spirit of Trance, Vol. 1 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240936.jpg" />
 </div>
 
 
@@ -586,7 +642,7 @@ VA - Black Hole Trance Music 04-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240789.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ VA - Future Vocal Trance Vol. 1 (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240773.jpg" />
 </div>
 
 
@@ -644,7 +700,7 @@ VA - The Best Of Scorchin' Vol. 1 (Mixed By Super8 & Tab) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240109.jpg" />
 </div>
 
 
@@ -673,7 +729,7 @@ VA - Clubbers Culture: Car Audio Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240072.jpg" />
 </div>
 
 
@@ -687,64 +743,6 @@ VA - Clubbers Culture: Car Audio Trance (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8952E231B242E8817DAC7D3F88B04618E0FAD63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635219   (239709) от 26.05.2023
-
-VA - Silent Shore Trance - Essential Classics Vol. 2 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ReOrder & JayCan - Sunset On Biana Beach (Original Mix) [7:59]
-02. Estigma & Irena Love - Cinnamon Sunday (ReOrder Sunrise Mix) [7:33]
-03. Dave Deen - Footprints (Original Mix) [7:00]
-04. Norland - Cloudwalking (Original Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A0BAD6D6F6E30765DA6779D4025AFC74B1F780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635336   (239693) от 26.05.2023
-
-VA - Levitated - Trance Essentials Vol. 2 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Belg - Hammamet (Original Mix) [6:32]
-02. Derek Palmer - Sands Of Time (Mhammed El Alami Remix) [7:06]
-03. Blue5even - Island Paradise (Beatsole Remix) [7:48]
-04. Bernis - Constellation (Original Mix) [7:14](   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D52A3BC4570692BBE20680F9BBDA152567CEAD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 496005   (252397) от 13.05.2012
+
+Журнал | Между нами, мамочками №4 [2012] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252397.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Между нами, мамочками» — ежемесячный интерактивный журнал «от читателей и для читателей». Он дает возможность молодым и опытным мамам обмениваться знаниями в области ухода и воспитания детей, задавать вопросы и помогать друг другу полезными советами. Кроме того, на страницах журнала родители имеют возможность получить консультации высококвалифицированных специалистов — врачей, педагогов, психологов и т. д. — которые ответят на их вопросы касательно детских болезней и способов их лечения, а также профессиональных советов по уходу и воспитанию крохи.2012      Формат: PDF    
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CB4FDA4C33A192F43A87E97E21EBBDD32F3072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496003   (252390) от 13.05.2012
+
+Журнал | Между нами, мамочками №5 [2012] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252390.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Между нами, мамочками» — ежемесячный интерактивный журнал «от читателей и для читателей». Он дает возможность молодым и опытным мамам обмениваться знаниями в области ухода и воспитания детей, задавать вопросы и помогать друг другу полезными советами. Кроме того, на страницах журнала родители имеют возможность получить консультации высококвалифицированных специалистов — врачей, педагогов, психологов и т. д. — которые ответят на их вопросы касательно детских болезней и способов их лечения, а также профессиональных советов по уходу и воспитанию крохи.2012      Формат: PDF    
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A85A20D1E3C89BFD325FE5994BB84EF507FCDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495787   (251589) от 12.05.2012
 
 Джованни Чиварди | Рисунок. Пейзаж: методы, техника, композиция (2002) [DJVU]
@@ -6,7 +58,7 @@
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251589.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251580.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251574.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251535.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251496.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251313.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251274.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251220.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251011.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250453.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249930.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249870.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249587.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249527.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249514.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249382.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249268.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249205.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248948.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248936.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248915.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248602.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248591.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248578.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95F56DE4136AF6B463A5C15D2C3329D17B1690BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834300   (248565) от 03.11.2025
-
-Ксения Напольская | Вся анатомия за 6 часов. Биология ЕГЭ (2023) WEB-DL [RU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вебинарпод названием "Вся анатомия за 6 часов" — это популярный образовательный материал, который ведет преподаватель Ксения Напольская. Этот материал, представляет собой интенсивный разбор основных тем анатомии человека, необходимых для успешной сдачи Единого государственного экзамена по биологии.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255431C9008CD86A696CCCEE970D29D652753D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492787   (248341) от 06.05.2012
-
-О.Л. Голубева | Основы композиции [2004] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248341.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге системно изложены теоретические основы композиции, а также впервые предложена методика практического обучения ее основам. Издание содержит более 100 иллюстраций. Для учащихся средних и высших художественных учебных заведений, а также для всех, кто занимается творческой деятельностью в области изобразительного искусства.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD525E94BC6269F682F5973EF468341C4FCE1BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

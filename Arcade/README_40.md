@@ -6,7 +6,7 @@ Street Fighter V 2017 (2016) [Ru/Multi] (2.0/dlc) Repack Other s [Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151042.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150113.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149935.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FlashBack 2 (2023) [Multi] (1.00) Scene FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148400.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Grand Theft Auto Mission Pack: London 1969 & 1961 (1999) [Ru/Multi] (1.0) Lossle
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148086.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Grand Theft Auto (1997) [Ru/Multi] (1.0) Lossless Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147991.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Grand Theft Auto 2 / GTA 2: Беспредел (1999) [Ru/Multi] (11.44) Lossles
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147874.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Death's Gambit (2018) [Multi] (1.2) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146369.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146187.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145572.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144983.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143018.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NotGTAV (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142159.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Livelock (2016) [Ru/En] (1.0.25218) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141656.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141252.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Alien Shooter 2: Reloaded (2009) [Ru/En] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141180.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sine Mora [En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141131.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.0.3) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140995.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140031.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138605.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138479.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The King of Fighters XIV (2017) [En/Ja] (1.25) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138446.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137588.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137256.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137205.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137066.jpg" />
 </div>
 
 

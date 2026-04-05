@@ -6,7 +6,7 @@ BBC: Жизнь / Life (2009) BDRip [H.264/1080p] (серии 10 из 10)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002133.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: История Шотландии с Нейлом Оливером. Пос�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998883.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998877.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC: История Шотландии с Нейлом Оливером. Мол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998507.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BBC: История хирургии. Обретение лица [4 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998023.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997425.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Discovery: Красота змей / The Beauty Of Snakes (2003/2008) BDRip [720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996121.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996000.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995813.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Discovery. Пятёрка лучших / Discovery. World's TOP 5 (1-6 выпу�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993401.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993374.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992975.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991782.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Discovery: Как это сделано? Сезон 13 / How it's made? Season 1
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989236.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989023.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988476.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988016.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987707.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987402.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC: Сокровища Древней Греции / Treasures of Ancient Greec
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987160.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Viasat History: Как климат изменил ход истории / How C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987147.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986865.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Discovery: Выживание в засуху / Surviving The Drought (2008) Blu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984348.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984340.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Discovery: Смертельный улов / Deadliest Catch (2011) SATRip (Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983583.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982027.jpg" />
 </div>
 
 

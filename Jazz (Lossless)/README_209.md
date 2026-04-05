@@ -6,7 +6,7 @@ Camille Thurman - Inside The Moment (2017) Chesky Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349342.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Al Di Meola - The Grande Passion (2000) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_348199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348199.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ Ellis Marsalis - Whistle Stop (1994) Columbia [WavPack|Lossless|image + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348161.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Tubby Hayes Quartet - Grits, Beans and Greens: The Lost Fontana Sessions (1969) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348013.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Dave Pike - Jazz For The Jet Set (1965) Remaster, 2001, Warner[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347945.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Eric Reed - A Light In Darkness (2017) WJ3 Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347938.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Portico Quartet - Memory Streams (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347859.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Barb Jungr - Shelter From The Storm (2016) Linn Records[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347795.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Jeff Hamilton Trio - Live From San Pedro (2018) Capri Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347781.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Beegie Adair & Monica Ramey - Some Enchanted Christmas (2018) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347776.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Sandro Roy - Souvenir De Paris (2018) Skip Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347613.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - The Liberty of Jazz (1958, 1963) 2005, SoLyd Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347114.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Bril Brothers (Братья Бриль) - Immersion (2000) /Landy Star/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347098.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Sadao Watanabe - Pamoja (1975) /2015, Universal/[FLAC|tracks+.cue]<Post-Bop, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347095.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Enrico Rava Quartet with Gianluca Petrella - Wild Dance (2015) /ECM/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346977.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1955) 1989, Blue Note [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346944.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol.1 (1953) 1989, Blue Note [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346942.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Don Ellis - A Simplex One (1960) 2002, Past Perfect [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345933.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Bajka - Escape From Wonderland (2010) [FLAC|Lossless]<Nu Jazz, Electronic>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_345898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345898.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Steve Turre - Rhythm Within (1995) Verve Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345748.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Papik - Rhythm Of Life (2009) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345556.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Scott Bradlee's Postmodern Jukebox - Learn To Floss in 3 Easy Steps (2018) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345484.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Mildred Bailey - Mrs. Swing (1929 - 1942) 2003, 4CD, Proper Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344822.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Al Cohn - Rifftide (1987) /2015, Timeless Records/[FLAC|tracks+.cue]<Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344800.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Azar Lawrence - Summer Solstice (1975) /2014, Universal/[FLAC|tracks+.cue]<Afro-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344790.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Denzal Sinclaire - I Found Love (2000) /Emarcy/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344786.jpg" />
 </div>
 
 

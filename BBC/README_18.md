@@ -6,7 +6,7 @@ BBC. Horizon: Питание, голодание и долголетие / Eat, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513263.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Do You See What I Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512272.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511439.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Грязные города. Революционный Париж [час�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510458.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. В краю муссонов: Засуха / Wonders of the Monsoon: The Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510039.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Империя Смерти / Empair of Death (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504684.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Грязные города. Индустриальный Нью-Йорк [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504589.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Мир природы: Полярные медведи и гризли на
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504534.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504113.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC. Горизонт. 10 вещей, которые мы должны знат�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504037.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTV [H.264/108
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503207.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503205.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC: Еда будущего / Tomorrow's Food (2015) HDTVRip [H.264/720p-LQ] (3
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494200.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC:Стюарты в изгнании / BBC:The Stuarts in Exile (2015) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494199.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Неизвестные викинги. Под парусами дракка
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493759.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC: Вся правда о красоте / The Truth About Looking Good (2018)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492522.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492513.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492288.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490599.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490175.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487736.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ BBC. Лицо человека (4-х серийный) / The Human Face (2001) D
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487455.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487449.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ BBC: Нюрнбергский процесс. Нацистские престу�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483770.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BBC. Секс по интернету. Безопасно? / Websex: What's the 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481276.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480771.jpg" />
 </div>
 
 

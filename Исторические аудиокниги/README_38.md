@@ -1,56 +1,3 @@
-###  Публикация: 443283   (162868) от 03.11.2023
-
-Артур Конан Дойль | Родни Стоун (2005) [MP3, Владимир Ровинский]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артур Конан Дойл (1859–1930) – знаменитый английский писатель.
-Действие повести или короткого романа знаменитого английского писателя сэра Артура Конан Дойля происходит в Англии начала XIX века. Сам автор считал «Родни Стоуна» романом о боксе, на самом же деле, несмотря на то, что в книге есть описания и боксерских поединков, и конных состязаний – это изображение (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: БиблиофоникаПродолжительность: 11:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A6A790A9281810A6430CF467345176764C6F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376508   (162847) от 03.11.2023
-
-Генри Райдер Хаггард | Братья (2006) [MP3, Денис Кулютников]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творчество английского романиста Генри Райдера Хаггарда (1856–1925) широко известно у нас по переводам романов «Копи царя Соломона» и «Дочь Монтесумы», однако два этих произведения – лишь малая часть богатого творческого наследия автора. В историко–приключенческом романе «Братья» слушателя ждет встреча со средневековыми рыцарями и их прекрасными дамами. Завораживающая (   Читать дальше...   )Жанр: Историко–приключенческий романПродолжительность: 13:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF110ECCF9565478F3E29DF96642FCE5AFE7823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 423493   (162839) от 03.11.2023
 
 Генри Райдер Хаггард | Клеопатра (2011) [MP3, Вячеслав Герасимов]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162839.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162764.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162742.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162349.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162071.jpg" />
 </div>
 
 
@@ -193,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162039.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162013.jpg" />
 </div>
 
 
@@ -247,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161941.jpg" />
 </div>
 
 
@@ -275,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161879.jpg" />
 </div>
 
 
@@ -303,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160627.jpg" />
 </div>
 
 
@@ -330,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160515.jpg" />
 </div>
 
 
@@ -356,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160498.jpg" />
 </div>
 
 
@@ -382,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160357.jpg" />
 </div>
 
 
@@ -409,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160276.jpg" />
 </div>
 
 
@@ -437,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160272.jpg" />
 </div>
 
 
@@ -464,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160270.jpg" />
 </div>
 
 
@@ -491,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160261.jpg" />
 </div>
 
 
@@ -519,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160251.jpg" />
 </div>
 
 
@@ -546,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160155.jpg" />
 </div>
 
 
@@ -575,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160045.jpg" />
 </div>
 
 
@@ -602,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159644.jpg" />
 </div>
 
 
@@ -628,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159104.jpg" />
 </div>
 
 
@@ -656,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157482.jpg" />
 </div>
 
 
@@ -682,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157459.jpg" />
 </div>
 
 
@@ -693,6 +640,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6196690F49239DD9C4C81EBDF0F71060E0C247BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270513   (157196) от 19.12.2018
+
+Павло Загребельный | Роксолана (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видный украинский романист Павло Загребельный, лауреат Государственной премии СССР и Государственной премии УССР имени Т. Г. Шевченко, в своем новом романе "Роксолана" повествует об удивительной судьбе украинской девушки Настасьи Лисовской, угнанной в XVI веке с Украины и проданной на стамбульском невольничьем рынке в рабство.
+Обладая блестящим умом, необыкновенной (   Читать дальше...   )Жанр: Исторический романПродолжительность: 40:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73140A6EEB6A386A37998E6A3103054140AA34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346674   (156586) от 20.12.2019
+
+Дмитрий Пучков Goblin, Клим Жуков | Древняя Русь. От Рюрика до Батыя (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из самых обсуждаемых и спорных периодов российской истории. Клим Жуков, военный историк-медиевист и исторический реконструктор, освещает важнейшие события в формировании Древнерусского государства, от основания Киевской Руси до монгольского нашествия: собирание русских земель, преодоление княжеских распрей и феодальной раздробленности – не (   Читать дальше...   )Жанр: История РоссииПродолжительность: 06:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13477D4A7074FD31FB5E8F449A5C0F315EA2DACE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1360082   (898462) от 01.09.2021
+
+Unruly Heroes (2019) [Ru/Multi] (1.3) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Священный свиток, оберегавший гармонию нашего мира, разорван, и ветер унес его кусочки. Теперь странные и ужасные создания сеют в мире смуту и хаос. Лишь четыре невероятных и совершенно непохожих героя могут остановить зло: мудрый Сюаньцзан, бесстрашная обезьяна Укун, жадная свинья Бацзе и чувствительный грубиян Ша Сэн. По пути на запад они пройдут по фантастическим (   Читать дальше...   )Тип издания: LicenseРазработчик: Magic Design StudiosЖанр: Adventure, Action, Platform, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA515BA229F63E786B26C2AF8E683BCAC6B6696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062400   (898426) от 01.09.2021
+
+Shovel Knight: Treasure Trove (2014) [Ru/Multi] (4.1a/dlc) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898426.jpg" />
+</div>
+
+
+###  Подробнее
+
+hovel Knight: Treasure Trove - это полноценное и завершенное издание Shovel Knight, классической приключенческой игры с невероятным геймплеем, оригинальными персонажами и графикой в стиле старых 8-битных хитов! Вам предстоит вооружиться лопатным клинком и бегать, прыгать и сражаться в роли Лопатного рыцаря, стараясь спасти любимую! Сокрушите гнусных рыцарей Ордена (   Читать дальше...   )Тип издания: LicenseРазработчик: Yacht Club GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6988F2D5E9DA53026542372A0052B248E330FF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065389   (893300) от 04.09.2021
 
 Magicmaker (2014) [En] (1.0.17) License GOG
@@ -6,7 +58,7 @@ Magicmaker (2014) [En] (1.0.17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893300.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Timespinner (2018) [Ru/Multi] (1.033) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891985.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Olija (2021) [Ru/Multi] (2-1-2021) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891978.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dance Magic (2016) [En] (1.0) License POSTMORTEM
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890747.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Wuppo (2016) [En] (1.2.8/dlc) License GOG [Definitive Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_889711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_889711.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Golf Club Wasteland (2021) [Ru/Multi] (7298022) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885546.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ BloodRayne Betrayal: Fresh Bites (2021) [Multi] (0.95) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885321.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cobalt (2016) [Multi] (133b Gold) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883911.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879146.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Flynn: Son of Crimson (2021) [Ru/Multi] (1.01b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874220.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Knights of Pen & Paper (2014) [Multi] (1.0/dlc) License GOG [+1 Deluxier Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872636.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Hidden Folks / Скрытые Люди (2017) [Ru/Multi] (1.02) Repack John2s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872476.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Zombotron (2019) [Ru/Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867746.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Move or Die (2016) [Ru/Multi] (7.0.3 Hotfix) Repack VseTop
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862029.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Hollow Knight (2017) [En] (1.0.0.6) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861900.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Actraiser Renaissance (2021) [Multi] (7413691) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855710.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Hoa (2021) [Ru/Multi] (1.05) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853986.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Axiom Verge (2015) [Ru/Multi] (1.31) Repack ARMENIAC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850052.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Aeon Drive (2021) [Ru/Multi] (1.2.03.1825) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849264.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Amygdala (2015) [En] (1.0/15.07.16) Repack Defuser222
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848488.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Deadbolt (2016) [En] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846196.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Samudra (2021) [En] (7439019) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845715.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ ABRACA - Imagic Games (2016) [Multi] (1.0) License PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842701.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ MineCraft mcstav (2011) [Ru] (1.6.4) Unofficial mcstavteam [ServerClient]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841454.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ Minecraft (от англ. Minecraft — букв. «Шахтёрское рем�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:269FFB46C997C8F1022B5E6ECAE70F039EB12732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065128   (841108) от 09.03.2017
-
-Conga Master (2016) [Multi] (1.0) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцпол заполняется, цепочка становится все длиннее... Присоединяйся, пора станцевать конга! Двигай своими виртуальными бедрами в увлекательной и веселой игре Conga Master и выстрой самую длинную цепочку из танцоров конга. Здесь не нужно особого таланта — конга доступна всем! Играть в Conga Master легче легкого: веди своего танцора по танцполу, по пути добавляя новых (   Читать дальше...   )Тип издания: LicenseРазработчик: UndercodersЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39FA193E45A2AA59448C0151442DC8AFED53293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004597   (837621) от 06.04.2016
-
-Toby: The Secret Mine (2015) [En] (1.0) License TiNYiSO
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837621.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приключенческом двухмерном платформере Toby: The Sicret Mine вам предстоит управлять маленьким персонажем Тоби, отправившемся на поиски своих друзей по следу похитителя. История развивается в маленькой деревушке, где происходят жуткие события. Всех её жителей, кроме вашего героя, похитило злое чудовище. Теперь вам нужно спешить спасти тех, кто ещё остался жив.Тип издания: LicenseРазработчик: Lukas NavratilЖанр: Adventure, Indie, PlatformerЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184A21C37D2322224FC28804651F66FFCA1B218C
 ```
 
 https://mybot314.ru/tekegram_catalog/

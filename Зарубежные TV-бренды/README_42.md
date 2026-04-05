@@ -6,7 +6,7 @@ NGW: Выживание в Серенгети / Surviving the Serengeti (2015) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717522.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Африканская суперзмея / Africa's super snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717513.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Переменчивые животные. Подростковые кош�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717511.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Горизонт - Как убить человека / Horizon - How to Ki
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717475.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NGW: Дикая природа Дальнего Востока / Wild Far East (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717408.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NGW: Переменчивые животные. Брачные игры / Moody 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717391.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery: Как сконструировать человека / Discovery: H
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717357.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NGW: Город выдр / Otter town (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717307.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NGW: Супер-белки / Super Squirrel (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717304.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NGW: Дикие маленькие кошки / Wild little cats (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717302.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716719.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716707.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716619.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC: Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716431.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716351.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NG: 1989: Год, сотворивший современный мир / 1989: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716274.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716226.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery. Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715866.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG: Самые страшные стихийные бедствия: Торна�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715815.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NGW: Кровавые соперники: гиппопотамы против л
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715732.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NGW: Самые опасные животные. Безумные акулы / W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715726.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ History Channel. Войны Юрского периода / Jurassic Fight Club 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715456.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ PBS. Секреты меча викингов / Secrets of the Viking Sword (201
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715422.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714665.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714399.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Discovery. Что скрывает Солнце / The Dark Side of the Sun (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713937.jpg" />
 </div>
 
 

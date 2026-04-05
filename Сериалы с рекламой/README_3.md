@@ -1,3 +1,55 @@
+###  Публикация: 1265603   (1012341) от 06.06.2021
+
+Приберись получше / Уборка со страстью / Ildan Ddeugeobge Chungsohara / Clean With Passion For Now (2018) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) SoftBox [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парень с боязнью микробов влюбляется в неряшливую девушку, и теперь ему придётся преодолеть свой страх.Производство: Южная Корея / Drama House, JTBC Studios, Oh! Brothers ProductionЖанр: мелодрама, комедияРежиссер: Но Джон-чханАктеры: Ким Ю-джон, Юн Гюн-сан, Сон Джэ-рим, Ли До-хён, Ю Сон, Ким Вон-хэ, Мин До-хи, Ко Гон-хан, Хак Чин, Чха Ин-хаПеревод: Двуголосый любительский - SoftBoxЯзык озвучки: русскийПродолжительность: ~01:15:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A29C95C4F224B9AAA970D0891368CE6480BFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262376   (1011891) от 09.06.2021
+
+Рада вашей смерти / Буду счастлива, если вы умрёте / Jookeodo Joa / Happy If You Died (2018) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) SoftBox [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Босс офисной работницы Ли Ру-да заносчив и груб с подчинёнными, он считает, что всегда прав, и, естественно, никто из сотрудников его не любит. Однажды, 7 ноября, негодяй так доводит девушку, что она в сердцах желает, чтобы ненавистного начальника наконец-то сбил грузовик. На следующий день она узнаёт, что это произошло на самом деле, и более того — на дворе всё (   Читать дальше...   )Производство: Южная Корея / Korean Broadcasting System (KBS)Жанр: мелодрама, фэнтези, комедияРежиссер: Ли Ын-джинАктеры: Кан Джи-хван, Пэк Чин-хи, Кон Мён, Рю Хён-гён, Ин Гё-джин, Чон Мин-а, Ли Бён-джун, Пак Соль-ми, Ким Мин-джэ, Чо Хан-чхоль и др.Перевод: Двуголосый любительский - SoftBoxЯзык озвучки: русскийПродолжительность: ~01:00:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6A7DF76D9E0B598B836506CCD418F97BBD6689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238240   (1010538) от 17.06.2021
 
 Хранитель / Усмиритель душ / Стражи / Zhen hun / Guardian (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-40 из 40) RusFilm [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010538.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010403.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010379.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008501.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008500.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007640.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007412.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007391.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006196.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002884.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002619.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001664.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001658.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001207.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001200.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001194.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000930.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000922.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000914.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988877.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988818.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988755.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988741.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987615.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7469757DDC5068F0DA70F7B8BA77E384475029D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354619   (986734) от 23.01.2020
-
-Открытое море / Alta Mar (2019) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-8 из 8) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986734.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1940 году из Европы в Южную Америку отправляется трансатлантический лайнер, который везет счастливых людей, бегущих от войны в новый дивный мир. Среди пассажиров две сестры Каролина и Ева, а также офицер Николас Сала, оказавшийся не в том месте и не в то время.
-Через какое-то время на борту появляется труп неизвестного пассажира, которого не было в списке, более (   Читать дальше...   )Производство: ИспанияЖанр: драма, криминал, детективРежиссер: Лино Эскалера, Мануэль Гомес Перейра, Карлос СедесАктеры: Ивана Бакеро, Джон Кортахарена, Алехандра Ониэва, Элой Асорин, Чики Фернандес, Тамар Новас, Даниэль Лунд, Наталия Родригес, Игнасио Монтес, Бегонья Варгас и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: Русские, английские, испанскиеПродолжительность: ~00:40:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFA524D0EF8219C578055D640B5B53845D94A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343019   (986732) от 23.01.2020
-
-Дом с прислугой / Servant (2019) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои драмы «Дом с прислугой» — пара из Филадельфии. У супругов Тёрнер случилась страшная беда — они потеряли трёхмесячного малыша и их брак оказывается под угрозой, а в дом проникает таинственная и зловещая сила. Дороти никак не может оправиться от трагедии, поэтому продолжает нянчить куклу и даже нанимает для этих целей няню, девушку по имени Лиенн. А та, как будто, (   Читать дальше...   )Производство: США / Blinding Edge Pictures, Escape ArtistsЖанр: ужасы, триллер, драмаРежиссер: М. Найт Шьямалан, Дэниэл Сакхайм, Лиза БрюльманнАктеры: Лорен Эмброуз, Тоби Кеббелл, Нелл Тайгер Фри, Руперт Гринт, Филлип Джеймс Браннон, Джеффри Моуэри и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:37:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D414AF7B93DAAD4CEC41AE2E0EE1B39201C57E
 ```
 
 https://mybot314.ru/tekegram_catalog/

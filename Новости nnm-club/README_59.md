@@ -1,3 +1,29 @@
+###  Публикация: 1110608   (851387) от 03.03.2017
+
+Пассажиры / Passengers (2016) BDRemux [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический корабль с 5,000 пассажиров на борту, погруженных на время полета в искусственный сон, держит курс на планету, которая станет для них новым домом. Всё идет по плану, но из-за сбоя системы двое пассажиров неожиданно просыпаются и понимают, что до конечного пункта путешествия — 90 лет пути, и им суждено остаток жизни провести вдвоем в роскошных интерьерах (   Читать дальше...   )Производство: США, Columbia Pictures, Company Films, LStar Capital, Original FilmЖанр: Драма, Мелодрама, Приключения, ФантастикаРежиссер: Мортен ТильдумАктеры: Дженнифер Лоуренс, Крис Прэтт, Майкл Шин, Лоуренс Фишборн, Энди Гарсиа, Винс Фостер, Кара Мишель Уайлдер, Конор Брофи, Джули Серда, Аврора ПерриноПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB40DFF9FD049122A50AFF85F5908D12CA1050F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377561   (851002) от 22.04.2020
 
 Comodo Internet Security Premium 12.2.2.7036 [Multi/Ru]
@@ -6,7 +32,7 @@ Comodo Internet Security Premium 12.2.2.7036 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851002.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850989.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_850746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_850746.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850672.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Microsoft Office 2016-2021 LTSC Professional Plus / Standard + Visio + Project 1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850669.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850667.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849936.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Movavi Video Editor 11.4.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849933.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Bat! Professional 7.4.16 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849676.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849675.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ OTUS | Framework Laravel (2020) PCRec [H.264] (части 1-2) [Обновляе
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849349.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Outward (2019) [Ru/Multi] (1.3.7c/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849042.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848903.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848659.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Avid Media Composer 8.3.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848633.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848311.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ SOMA (2015) [Ru/Multi] (1.10) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848110.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848090.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848086.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Daum PotPlayer 1.7.661 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847953.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847771.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Windows 8.1 SevenMod RUS-ENG x86 -10in1- Activated v2 (AIO)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847752.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Ubuntu 20.04 Focal Fossa LTS [amd64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847540.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847530.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846715.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1B889113119C9139C9D7F84D9A70F12DD31ACA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761574   (846690) от 27.03.2014
-
-Холодное сердце / Frozen (2013) BDRip [1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда древнее предсказание сбывается и королевство погружается в объятия вечной зимы, трое бесстрашных героев — принцесса Анна, отважный Кристофф и его верный олень Свен — отправляются в горы, чтобы найти сестру Анны, Эльзу, которая может снять со страны леденящее заклятие. По пути их ждет множество увлекательных сюрпризов и захватывающих приключений: встреча с мистическими (   Читать дальше...   )Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, мюзикл, фэнтези, комедия, мелодрама, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиАктеры: Кристен Белл, Идина Мензел, Джонатан Грофф, Джош Гад, Сантино Фонтана, Алан Тьюдик, Киаран Хайндс, Крис Уильямс, Стивен Дж. Андерсон, Майа УилсонПеревод: Дублированный (CЕE)Язык субтитров: Русский (CЕE), Русский (нотабеноид) , АнглийскийПродолжительность: 01:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB0368AAC518A05F4C9CF0E16C85426FF8CBE57
 ```
 
 https://mybot314.ru/tekegram_catalog/

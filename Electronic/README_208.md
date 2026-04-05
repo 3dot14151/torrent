@@ -1,3 +1,119 @@
+###  Публикация: 1290762   (674335) от 22.03.2019
+
+VA - Trance Nation (2019) [MP3|320 Kbps] <Trance, Electronic, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alt & J - Emotion
+02. LekSin - Angels & Demons
+03. Simon Moon pres. JP Project - Madness (Arrakeen Arraknophobic Remix)
+04. Tecnomind - Non Stop Dreaming (Radio Edit)(   Читать дальше...   )Жанр: Trance, Electronic, ProgressiveПродолжительность: 04:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBD82EC6D67E63A1F4EEB7B678C63C25A5EC00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290849   (674330) от 22.03.2019
+
+VA - Relax Time (2019) [MP3|320 Kbps] <Downtempo, Meditation, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Is A Film - Back To The Start (Original Mix)
+02. Yoga & Meditacion - Rising Star (Yoga & Zen Meditation Version)
+03. Ressonnimo - Sol Naciente (Yoga & Meditation Version)
+04. Cinematic Meditation - Enough For Happiness (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Meditation, ElectronicaПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A590473AE6EAF8C5ADBAEB203ED31F42971324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030092   (674268) от 30.06.2016
+
+All4tonic - Laika Messages (2016) [MP3|160 Kbps] <Electronic, Ambient, Dub>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomnia
+02. Laika Messages
+03. Megamedicine
+04. Red Button(   Читать дальше...   )Жанр: Electronic, Ambient, Dub, EDMПродолжительность: 00:20:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E08ABA9D4BA37D31EFC9D5B1312B2C0B8687C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290979   (674080) от 22.03.2019
+
+Autumn - Synthesize (2011) LP, Compilation [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Say You Hello (5:32)
+02. The Third Autumn (4:33)
+03. Night In June (4:38)
+04. Viginaigre (4:10)(   Читать дальше...   )Жанр: Electro, Synth-pop, MinimalПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF56BB7EA10E31462AB7F8DB6A7960E06B0AB331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290615   (674073) от 22.03.2019
 
 Flume - Hi This Is Flume (2019) Mixtape [MP3|320 Kbps] <Electronic, Hip-Hop>
@@ -6,7 +122,7 @@ Flume - Hi This Is Flume (2019) Mixtape [MP3|320 Kbps] <Electronic, Hip-Hop>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674073.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ The Future Sound Of London - My Kingdom (Re-Imagined) (2018) FSOLDigital [FLAC|L
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673419.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Club Sounds Vol.85 (2018) [MP3|320 Kbps] <Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673305.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Deep House Hits: Ibiza 2018 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673301.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Scarpa Mykonos 2017  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673246.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Ibiza Opening 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673236.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Danger - July 2013 (2014) EP [MP3|320 Kbps] <Electronic, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673234.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Best Of Chillout Vol.03 (2017) [MP3|320 Kbps] <Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673134.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Danger - 09/14 2007 (2007) EP [MP3|320 Kbps] <Electronic, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673121.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Johnny de City - Live @ Epic Club Prague, Czech Republic (2022-03-04) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672785.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Hugo Kant - OUT OF TIME (2017) [FLAC|Lossless|tracks] <Downtempo, Trip-Hop, Inst
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672648.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ VA - Dance Essentials Vol.10 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672468.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ VA - Mind the Gap #137 (2019) Gonzo Circus [FLAC|Lossless|tracks + .cue] <Electr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672463.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ VA - Songspire Records In Miami (2019) [MP3|320 Kbps] <House, Deep House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672459.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_672457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_672457.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672412.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - London Relax Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Elec
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672340.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Relax Your Mind - Electronic Chillout (2019) [MP3|320 Kbps] <Balearic, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672333.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ VA - Cafe del Mar ChillWave 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672326.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Night Sky (aka Afternova) - Visions (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672290.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Live @ Trancemission Heartbeat, A2 Arena Saint Petersburg, Russia 2019-02-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672233.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Deep Conception Vol.17 (2019) [MP3|320 Kbps] <Minimal, Tech House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672141.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Deep Conception Vol.17 (2019) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1AEF8D8B7B4AF27E1B713E8263A75038C7039F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223685   (671651) от 06.05.2018
-
-Martin Schulte - Depth Of Soul (2008) Lantern [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big City Street (06:21)
- 02. Countryside (07:20)
- 03. Glitchtech (05:37)
- 04. Forest (06:00)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9ABF9BF9891819B142711BA4461B6FD54C45AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223639   (671419) от 06.05.2018
-
-VA - Best Of Uplifting Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Allen feat. Sue McLaren - Old Flame (Extended Mix) 6:43
-02. Hazem Beltagui feat. Sarah Russell - When Our Story Has To End (Stargazers Extended Mix) 6:23
-03. Alan Morris & Enzo feat. Jess Morgan - Tapestry Of Us (Extended Mix) 6:30
-04. F.G. Noise & Patrick Dreama - Kepler (Extended Mix) 7:34(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38C39ED9F7ED2D7AFDEF8EA5361E70C8762C795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136855   (671149) от 24.05.2017
-
-VA - Space Love (2017) [MP3|320 Kbps] <Balearic, Downtempo, Psychill>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Convergent Evolution - Crescent (Unusual Cosmic Process Ambient Remix) 08:07
-02. Astronaut Ape - First Meeting 08:00
-03. Aedem - Numb 07:03
-04. Youginia - Life 03:48(   Читать дальше...   )Жанр: Balearic, Downtempo, PsychillПродолжительность: 01:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82246D789BA012A8D31342CDD4812FFDD67548C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136884   (671142) от 24.05.2017
-
-Aly & Fila - Future Sound Of Egypt 497 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marymoon & Martin Roth - Ahead of Time (Original Mix)
-02. Yotto - Wilderness Girl (Original Mix)
-03. Danito & Athina - City Lights (Stereo Underground Remix)
-04. Stoneface & Terminal - North Cape (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CF2B61D68C585639E0C6422275862CAE604C55
 ```
 
 https://mybot314.ru/tekegram_catalog/

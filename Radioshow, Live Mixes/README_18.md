@@ -1,3 +1,61 @@
+###  Публикация: 1643121   (231775) от 01.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1127 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Gareth Emery feat. Sarah de Warren - Vertigo
+02.	Ferry Corsten - Mind Trip
+03.	Progressive Pick: Laura van Dam feat. Chris Howard - True Colors
+04.	Shouse & David Guetta - Live Without Love (Armin van Buuren Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841E9FC53412AD98CBC527960D536B4CF6401134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648040   (230911) от 22.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1130 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Ilan Bluestone & Oliver Smith - Blue Eagle (ANJUNABEATS)
+02.	Sean Tyas & DIM3NSION - Arise ASOT (ARMADA)
+03.	Chris Schweizer ft. Sarah Howells - Company (Progressive Mix) ASOT (ARMADA)
+04.	Little Foot - Dakota (SONGSPIRE)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6B9B053A523A3FDD388482B590DE187A39C4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649537   (229130) от 28.07.2023
 
 VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +64,7 @@ VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229130.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tiesto - Club Life 001-350 (2007 - 2013) [MP3|128-320 kbps]<Trance, House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227912.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Cosmic Gate - Cosmic Gate In Concert (The Classics) (2020-10-17) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225569.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Markus Schulz – Global DJ Broadcast (World Tour, SQL Miami) (2018) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225217.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Ori Uplift & Tycoos - Uplifting Only 304 (2018) [MP3|320 Kbps] <Trance, Voc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225208.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ ARTBAT - Tomorrowland Friendship Mix (2020-11-19) [MP3|320 Kbps] <Techno, Progre
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222662.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Markus Schulz -Global DJ Broadcast  - World Tour Montreal (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218794.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Ori Uplift & Phoenix - Uplifting Only 356 (2019) [MP3|320 Kbps] <Trance, Up
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218757.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ DJ Sinatra - Deep n Funky Show #5 Guest Mix by Guido P on KISS FM 2.0 (2015) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214077.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Armin Van Buuren - A State Of Trance Episode 845 (TOP 50 Special) (2017) [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213903.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - BBC Radio One: Essential Mix (2022) [MP3|~245 Kbps (V0)] <House, Techno, Dr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207933.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Rencontre Nocturne - Nuit Sombre (01-31) (2019-2023) [MP3|320 Kbps] <Electro Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202236.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Galaxy Waves - 80's Synthwave Chillwave 2023 - Retro Electro Wave Special part 2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201411.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Armin van Buuren - A State Of Trance 1248 (ADE Special) (2025) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199915.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Ori Uplift - Uplifting Only Episode 663 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193405.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Ed Rush & Optical - Classic Essential Mix 1999 (Rebroadcast 03.09.2023) [MP3|287
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190617.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Cosmic Gate - Live @ Tomorrowland Store Rooftop Ibiza, Spain (2025-09-16) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186356.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186267.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Matisse & Sadko & Third ≡ Party & DubVision - Tomorrowland Friendship Mix (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185705.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ MORTEN - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184853.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ James Hype - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182494.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Lane 8 - Fall 2023 Mixtape (2023-09-20) [MP3|320 Kbps] <Progressive House, Melod
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182376.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Armin van Buuren - Live @ Ushuaïa Ibiza, Spain (2023-09-24) [MP3|320 Kbps] <Mai
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182334.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178357.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D29CE51E04E2BE542BE7B4D70DA8582D4A65202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667281   (177014) от 08.10.2023
-
-Claptone - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Order - Blue Monday w/Claptone ft. Man Parrish - Flashdance
-02. Yolanda Be Cool ft. Jonjon - Segunda
-03. Eminem vs. Afrojack - Without Me vs. Chain Gang (Claptone Edit)
-04. The Chemical Brothers - Galvanize (clavette Reboot)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB2E81D97DE16681B572A97614154B449F48475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667854   (175376) от 10.10.2023
-
-Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Brazil (2023-04-29) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Rateuke - Oudara (Club Mix)
-02. ID - ID
-03. Shiba San & Nautik - Drop That Shhh
-04. ID - ID(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 04:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
 ```
 
 https://mybot314.ru/tekegram_catalog/

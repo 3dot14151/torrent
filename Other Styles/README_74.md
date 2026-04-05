@@ -1,3 +1,64 @@
+###  Публикация: 1139662   (659194) от 03.06.2017
+
+David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassical, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Repercussions
+02. Magdalena
+03. Valhalla
+04. Delia(   Читать дальше...   )Жанр: Classical, Neoclassical, New AgeПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA13E5DF9B0AC2AE8217469433FD3E361B01735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514324   (659118) от 23.06.2012
+
+Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Post-Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 1st And The Last (06:07)
+02. Scars (17:26)
+03. Boo (04:00)
+04. Tunnel Visions (09:05)
+05. Fisherman (14:40)
+06. Monogamy (09:41)
+07. Like The Thread Of A Spider (05:04)2009-2010Жанр: Avant-garde, Free Jazz, Post-Rock, ExperimentalПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514537   (658151) от 24.06.2012
 
 Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
@@ -6,7 +67,7 @@ Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_658151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658151.jpg" />
 </div>
 
 
@@ -41,7 +102,7 @@ Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658112.jpg" />
 </div>
 
 
@@ -70,7 +131,7 @@ Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658038.jpg" />
 </div>
 
 
@@ -99,7 +160,7 @@ Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657968.jpg" />
 </div>
 
 
@@ -134,7 +195,7 @@ VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Gu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657745.jpg" />
 </div>
 
 
@@ -169,7 +230,7 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) [FLA
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657375.jpg" />
 </div>
 
 
@@ -198,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656816.jpg" />
 </div>
 
 
@@ -229,7 +290,7 @@ Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (20
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656621.jpg" />
 </div>
 
 
@@ -264,7 +325,7 @@ VA - Latino Fitness Club 2018 (3CD) (2018) [MP3|320 Kbps] <Pop, Latin-Dance, Reg
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655655.jpg" />
 </div>
 
 
@@ -296,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655328.jpg" />
 </div>
 
 
@@ -331,7 +392,7 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unof
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655102.jpg" />
 </div>
 
 
@@ -360,7 +421,7 @@ Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electron
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654772.jpg" />
 </div>
 
 
@@ -389,7 +450,7 @@ Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654770.jpg" />
 </div>
 
 
@@ -418,7 +479,7 @@ Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654768.jpg" />
 </div>
 
 
@@ -447,7 +508,7 @@ Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Ep
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654712.jpg" />
 </div>
 
 
@@ -476,7 +537,7 @@ Don Williams - The Best of Don Williams (2003) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654680.jpg" />
 </div>
 
 
@@ -511,7 +572,7 @@ William Joseph - Be Still (2012) [MP3|320 кб/с]<Contemporary Instrumental, Ne
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654412.jpg" />
 </div>
 
 
@@ -546,7 +607,7 @@ VA - Life Force: Natural Meditation, Total Relaxing, Anxiety Free Life (2017) [M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653945.jpg" />
 </div>
 
 
@@ -575,7 +636,7 @@ Chris Snelling, Jonathan Sarlat - Peaceful Classical Music Playlist: 14 Relaxing
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653856.jpg" />
 </div>
 
 
@@ -604,7 +665,7 @@ Joseph L Young - Every Moment (2018) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653785.jpg" />
 </div>
 
 
@@ -633,7 +694,7 @@ Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651997.jpg" />
 </div>
 
 
@@ -662,7 +723,7 @@ Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651807.jpg" />
 </div>
 
 
@@ -691,7 +752,7 @@ Llewellyn - Angel Sleep: Music for Blissful Sleep (2014) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651789.jpg" />
 </div>
 
 
@@ -717,7 +778,7 @@ Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651656.jpg" />
 </div>
 
 
@@ -731,64 +792,6 @@ Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C59A7BC80F898597C3A961311F21C4C04DCF83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031092   (651481) от 04.07.2016
-
-VA - Jam On Guitars (2009) [FLAC|Lossless|image + .cue] <Instrumental rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Took The Words Right Outta My Mouth 4:56 Michael Lee Firkins
-02. Free In The Park 4:35 Steve Morse
-03. Scorch 7:14 Alex Skolnick Trio
-04. Dance To The Music 4:32 The Clinton Administration(   Читать дальше...   )Жанр: Instrumental rockПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD891BCF5EC98C4A886CB99441B4827CF56ADBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031467   (651480) от 04.07.2016
-
-Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домашних животных (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet the Pets (02:38)
-02. Katie's Leaving (00:56)
-03. Meet Duke (03:37)
-04. Fetch Me a Stick (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166D8140ABCFF48DFE3CAD61D506491529DD283F
 ```
 
 https://mybot314.ru/tekegram_catalog/

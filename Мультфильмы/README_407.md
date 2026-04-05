@@ -1,3 +1,135 @@
+###  Публикация: 1765606   (34299) от 13.12.2024
+
+Незнайка на Луне (1997-1999) DVDRip (серии 1-12 из 12)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незнайка находит на улице камень и считает, что этот камень упал с Луны. Он отдаёт его Знайке. На следующий день Знайка заметил, что при действии на камень магнитного поля камень создаёт невесомость. Знайка принял решение сделать ракету и полететь вместе с остальными коротышками на Луну, предварительно устроив спор с астрономом Стекляшкиным, о том, есть ли на Луне (   Читать дальше...   )Производство: Россия / FAF EntertainmentЖанр: мультфильм, фантастика, фэнтези, комедия, приключенияРежиссер: Юрий Бутырин, Александр Люткевич, Андрей ИгнатенкоАктеры: Венера Рахимова, Кристина Орбакайте, Светлана Степченко, Алексей Борзунов, Клара Румянова, Александр Леньков, Ирина Бякова, Артем Карапетян, Михаил Кононов, Светлана Харлап и др.Продолжительность: ~ 00:12:44 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C5493652AB63E9BC4A83F0E07C2ECE28F5CFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765456   (34284) от 13.12.2024
+
+13 карт (2024) WEB-DL [H.264/1080p] (сезон 1, серия 1-9 из 9)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комичная история о том, как разные архетипы уживаются под одной крышей. Фёдор, как и всякий подросток, хотел лёгкой жизни, чтобы все скучные обязанности вроде уборки и учебы за него делали другие. Желание сбылось, и в его распоряжении оказалось 8 клонов, призванных из магической колоды карт. Только Фёдор не ожидал, что каждая карта — уникальная личность с собственными (   Читать дальше...   )Производство: Россия / Phoenix Animation StudioЖанр: рисованная анимацияРежиссер: Ваня ТейлАктеры: Вячеслав Никитин, Асет Бейсембаев, Эдуард Айзатуллин, Кирилл Цаповский, Данил Михайлов, Левон Мамулов, Иван Яшин, Иван Шухин, Денис Губайдуллин, Пётр ИващенкоПродолжительность: ~00:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9CF00250921E89749BA6824EEA476675AC3168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335520   (34149) от 15.12.2024
+
+Звероферма (Скотный двор) / Animal Farm (1954) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные поднимают восстание против владельца фермы, побеждают и начинают строить светлое коммунистическое будущее. Ну а дальше оказывается, что некоторые животные равнее, чем остальные…
+
+Фильм по одноименной книге Дж.Оруэла, рассчитанной на взрослую аудиторию. Но литературная метафора совсем не то, что метафора в кино и мультипликации. Когда читаешь «Скотный двор», (   Читать дальше...   )Производство: Великобритания, США / Halas & Batchelor, Central Intelligence Agency (CIA)Жанр: Рисованая анимация, Семейный, ДетскийРежиссер: Джой Батчелор, Джон ХаласПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE32134F6D25286A34A08CF3C65190F9DBC71A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765951   (34098) от 15.12.2024
+
+Большие гонки / / Flaklypa Grand Prix / Pinchcliffe Grand Prix (1975) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ремонтник-изобретатель Теодор Римспоук узнаёт, что его бывший помощник Рудольф Гор-Слайми стал чемпионом автомобильных гонок только благодаря машине, построенной на основе изобретения Теодора, то решает восстановить справедливость. С помощью двух надежных ассистентов он создает новый мощный автомобиль и бросает вызов Рудольфу в самом удивительном и захватывающем (   Читать дальше...   )Производство: Норвегия / Caprino Filmcenter a/sЖанр: кукольныйРежиссер: Иво КаприноАктеры: Венке Фосс, Пер Теодор Хаген, , Лейф Джастер, Хенки Кольстад, , Рольф Жюст Нильсен, Хэльге Рейсс, Фрэнк Роберт, Кари СимонсенПеревод: Двуголосый профессиональныйЯзык озвучки: русский, норвежский, английскийСубтитры: русские, норвежские, английскиеПродолжительность: 01:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA5CA26B1AC2546C845FB2356F2B8EC346CABDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766102   (33964) от 16.12.2024
+
+По щучьему велению (1970) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят на основе спектакля Калининского театра кукол по пьесе Елизаветы Тараховской, сюжетом которой послужила русская народная сказка «По щучьему веленью».Производство: СССР / ТО "Экран"Жанр: кукольный, короткометражка, мультфильмРежиссер: Владимир Пекарь, Владимир ПоповАктеры: Анатолий Кубацкий, Зинаида НарышкинаСубтитры: отсутствуютПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA9C356701000D3D29953B7A1E81F5DC6C0CE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766110   (33961) от 16.12.2024
 
 Путаница (1982) [H.264/1080p] [35mm Film Scan]
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33961.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33957.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33894.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33851.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33808.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33738.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33686.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33612.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33596.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33550.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33521.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33504.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33492.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33488.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33484.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33468.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33383.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33352.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33329.jpg" />
 </div>
 
 
@@ -501,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33272.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33151.jpg" />
 </div>
 
 
@@ -539,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0F5BB34F4283D8B567EB5952C6DAF5AD866066A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768115   (33125) от 24.12.2024
-
-Верное средство (1982) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все медведи зимой должны спать, но у медвежонка никак не получается заснуть, всё отвлекается и отвлекается. Тётушка куропатка советует ему считать до ста, но и это не помогает. Тогда на помощь медвежонку приходит лесной оркестр в составе зайчонка, белочки, мышки и бобра...Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Юрий ПрытковАктеры: Тамара Дмитриева, Зинаида Нарышкина, Клара Румянова, Мария ВиноградоваСубтитры: отсутствуютПродолжительность: 00:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB9BF860ADF6117A6D1EFB1D13E5CEB66EE928B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768650   (33055) от 25.12.2024
-
-Чебурашка. Секрет праздника (2020) WEB-DLRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Празднование Нового года для Чебурашки и Гены оказывается под угрозой, когда бесследно исчезает главный атрибут праздника — новогодняя ёлка.Производство: Россия / СоюзмультфильмЖанр: короткометражка, мультфильм, детскийРежиссер: Дарина ШмидтАктеры: Анжелика Варум, Леонид Ярмольник, Диомид ВиноградовСубтитры: отсутствуютПродолжительность: 00:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7004D06493E3E7DA71DBCEC8AB865DD5C5CBC0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591605   (33003) от 26.12.2024
-
-Полярный экспресс / The Polar Express (2004) [1080p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной детской книги о необыкновенном путешествии маленького мальчика на волшебном поезде «Полярный экспресс» на Северный полюс к Санта-Клаусу в канун Рождества…Жанр: Детский, Приключения, Фэнтези, Семейный.Режиссер: Роберт ЗемекисВ ролях: Том Хэнкс, Майкл Джитер, Нона Гей, Питер Сколари, Эдди Дизен, Лесли Хартер Земекис, Чарльз Флайшер, Джош Эли, Марк Мендонка, Роландас ХендриксСубтитры: Русские, украинские, английские.Формат: MKVПродолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB03DABE793B10A67D1C90C0EE3BE53E2FCF5753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598352   (32964) от 26.12.2024
-
-Секретная служба Санта-Клауса / Arthur Christmas (2011) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм приоткрывает завесу тайны над тем, каким образом Санта-Клаусу удается развезти подарки всем детям на Земле всего за одну ночьПроизводство: Великобритания, США / Aardman Animations, Columbia Pictures, Sony Pictures AnimationЖанр: мультфильм, комедия, семейный, приключения, фэнтезиРежиссер: Сара Смит, Бэрри КукПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full), английские (full, SDH)Продолжительность: 01:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDCB0232D78D9FFBF9468DC78751249BDE4BC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768801   (32917) от 26.12.2024
-
-Все собаки празднуют Рождество / An All Dogs Christmas Carol (1998) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождество — особый праздник, провести который лучше всего в кругу семьи и друзей. Вот и собираются Чарли, Итчи, Саша, Карфейс и прочая собачья компания, чтобы разделить на всех праздничное веселье. Все складывалось прекрасно перед началом рождественской вечеринки в кафе «Блошиный Укус».
-Великолепные подарки, блестящая мишура и даже солидная сумма пожертвований для (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer AnimationЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Пол Сабелла, Гэри СельваджоАктеры: Эрнест Боргнайн, Дом ДеЛуис, Шина Истон, Тейлор Эмерсон, Биби Нойуэрт, Чарльз Нельсон Рейли, Стивен Уэбер, Карлос Алазраки, Бет Андерсон, Ди Брэдли Бейкер и другиеПеревод: Дублированный, профессиональный многоголосый, авторскийЯзык озвучки: русский, английский, украинскийСубтитры: русские, английскиеПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D54BB091C4559814823A45B07DBA1F8FD7D353
 ```
 
 https://mybot314.ru/tekegram_catalog/

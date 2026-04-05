@@ -6,7 +6,7 @@ Trio Hein Van Der Gaag - To The Point (1986) 2016, Solid Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654989.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Alexander Fisher (Александр Фишер) - Three Question Marks (2005) A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654987.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Harry Allen - The King (1962) 2008, Nagel-Heyer [FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654986.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bob Alberti Quartet Featuring Harry Allen - Everything I Love (1998) Dolphin Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654984.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Isao Suzuki & Sunao Wada - Now's The Time (1974) 2014, Three Blind Mice [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654868.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Diana Krall - Wallflower: The Complete Sessions (2014) Universal [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654778.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ David Gilmore - Transitions (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654762.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Jazz Women (1999) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654672.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Women of Jazz (2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654654.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Bill Evans Trio Featuring Scott La Faro - Sunday At The Village Vanguard (1997) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654574.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Art Blakey And The Jazz Messengers - Moanin' (1999) [FLAC|Lossless]<Jazz, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654507.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ray Charles and Cleo Laine - Porgy & Bess (1990) [FLAC|Lossless]<Jazz, Stage & S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654498.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lester Young - The President Plays (2008) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654466.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Harry Allen - Here's To Zoot (2001) Novus J [FLAC|Lossless|image + .cue] <Mainst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654021.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Harry Allen - Once Upon A Summertime (1999) Novus J [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654019.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ann Hampton Callaway - Slow (2004) Shanachie [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653993.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Harry Allen Quartet - For The King Of Swing (2009) Swing Bros. [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653984.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lou Donaldson - Blue Breakbeats (1963 - 1970) 1998, Blue Note [APE|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653931.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ John Di Martino's Romantic Jazz Trio - Chopin Jazz (2010) Venus Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653862.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Me Outside Pt. 2 (2018) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653759.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Milt Jackson - Wizard Of The Vibes (1998) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653560.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Al Cohn, Bill Perkins, Richie Kamuca - The Brothers! (2011) [FLAC|tracks+.cue]<M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653549.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Renato Sellani - Chopin (2010) [FLAC|Lossless]<Jazz, Cool, Piano Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653548.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Don Byas Quartet - The Complete (1946-1954) 3 CD Remastered /2011, Solid Jazz Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653546.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Larry Coryell - Heavy Feel (2015) [FLAC|Lossless]<Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653461.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ Milton Nascimento - Anima (1982) /1988, Philips/ [FLAC|tracks+.cue]<World Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653458.jpg" />
 </div>
 
 

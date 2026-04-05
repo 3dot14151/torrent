@@ -1,3 +1,29 @@
+###  Публикация: 517308   (649294) от 30.06.2012
+
+Соединяя континенты. Парадоксы природы [часть 3] / Wild Connection. Nature's Erector Set (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть серий этого сериала посвящены двум уникальным регионам планеты, находящимся в разных концах света, но имеющим одну общую черту. Они являются связующими звеньями между крупными континентами и отличаются невероятно богатым природным разнообразием, отчего и именуются «биологическими мостами». На карте это регион Центральной Америки и Пиренейский полуостров. В течение миллионов лет Северная и Южная Америки существовали как два независимых друг от друга континента с различной флорой и фауной. Но высокая вулканическая активность привела к образованию отрезка суши между этими двумя мирами, куда устремились биологические виды как с Севера (такие как ягуар, тапир), так и с Юга (например, обезьяны). На сегодняшний день горы и тропические леса Центральной Америки - огромное природное богатство. Зрителю удастся увидеть этот потрясающий регион и с высоты птичьего полета, и у самой земли. Невероятное зрелище, которое особо стоит отметить - это сезон кладки яиц у черепах, когда эти рептилии тысячами выползают на побережье (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1196DE5318D213008EC19D38D55010C96E973E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517812   (647793) от 01.07.2012
 
 В лосином краю / In the Land of the Moose (2010) HDTVRip
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647793.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647618.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Nat Geo Wild: Мафия кобр / Cobra Mafia (2014) HDTVRip [H.264/720p]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647140.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Nat Geo Wild: Дикая Колумбия / Wild Colombia [серии 1-3 из 3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647139.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647128.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645844.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644985.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643052.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639690.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638932.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Viasat Nature: Подземный мир саванны / Six Feet under the Sav
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637202.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637190.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636874.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636419.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ NG: Жизнь среди больших кошек / Living with Big Cats (2007
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635617.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ BBC. Мир природы. Бабочки / Natural World. Butterflies (2010) H
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635420.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635174.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634982.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634978.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633226.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633136.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631416.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628513.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627562.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627439.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD2895517166675C8334B0B62E27B5D23F0C0D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521627   (626747) от 11.07.2012
-
-Nat Geo Wild: Созданные убивать: Большая белая акула / Build For The Kill: Great White Sharks (2011) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый документальный сериал от National Geographic расскажет Вам, как животные эволюционировали в хитрых и жестоких убийц. Мы станем свидетелями, как из слепых и беспомощных они вырастают в сильных и беспощадных хищников.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26907CC18DAD3F142F7FF0F924E23ED6859F51AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

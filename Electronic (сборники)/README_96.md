@@ -1,3 +1,61 @@
+###  Публикация: 1140940   (653937) от 08.06.2017
+
+VA - Beatport Top 100 Big Room May (2017) [MP3|320 Kbps] <House, Trance, Big Room>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653937.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Axwell Ingrosso - How Do You Feel Right Now (Extended Mix) 04:14
+002. Blasterjaxx - Savage (Extended Mix) 04:06
+003. Laidback Luke, Tania Zygar, Florian Picasso - With Me feat. Tania Zygar (Extended Mix) 03:59
+004. Dzeko - Fluxland 2017 (Club Mix) 03:38(   Читать дальше...   )Жанр: House, Trance, Big RoomПродолжительность: 07:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11AEAEEAAE8973976BA30BBA200E349027462C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140935   (653934) от 08.06.2017
+
+VA - Beatport Top 100 Drum & Bass May (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653934.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tantrum Desire - Gravitate 04:47
+002. Drumsound & Bassline Smith - The Odyssey (VIP) 04:36
+003. Bungle - Cocooned 06:19
+004. Mind Vortex - Future Fold VIP 05:04(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E168A1210C518ED0F83EDC510E6965AE90310212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140927   (653840) от 08.06.2017
 
 VA - Beatport Top 100 Downloads May (2017) [MP3|320 Kbps] <Electro, Deep House, Indie, Nu Disco>
@@ -6,7 +64,7 @@ VA - Beatport Top 100 Downloads May (2017) [MP3|320 Kbps] <Electro, Deep House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653840.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Step Into This: Drum And Bass Session (2018) [MP3|256-320 Kbps] <Drum and B
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653773.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - A State Of Vocal Trance Volume 01 - 50 (2012-2015) [MP3|320 кб/с]<Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652783.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Ultimate Dance House (2019) [MP3|320 Kbps] <Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652658.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Record Super Chart 579 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652655.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Bass Buffalo (2019) [MP3|320 Kbps] <Drum And Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652654.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - 50 Top The Running Tracks - Workout Hits June (2017) [MP3|320 Kbps] <Tropic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652452.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Private House Soulhouse Mix (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652324.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Euphoric Emotions Vol.36 (26.06.2012) [MP3|320 кб/с]<Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652279.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ VA - Finding Around Happiness 006 (2016) [MP3|320 Kbps] <Trance, Melodic, Stadiu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652174.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Timur Mingazov - MBS Mix #26 (Spring Song / Trance Mar`16) (2016) [MP3|320 Kbps]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652173.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|32
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652171.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652170.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ A.S.T - The Planet Of Music CD 4 - Mix By A (2016) [MP3|320 Kbps] <Future House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652163.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ VA - Miracle Summer Base Resistance (2016) [MP3|320 Kbps] <House, Electro House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652013.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ VA - Hot Melody Trance - Day In The Air (2016) [MP3|320 Kbps] <Trance, Melodic, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652012.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ VA - Emotional Day And Trance Beyond (2016) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652006.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ VA - Sleepy Hollow 2 Remasters Deep House (2016) [MP3|320 Kbps] <House, Minimal 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652001.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651943.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651804.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651802.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ VA - Uplifting Trance Free Producer (2016) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651792.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ VA - Acoustic Chill Playlist 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Aco
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651740.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651668.jpg" />
 </div>
 
 
@@ -696,64 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C75E5C861B216A9507086B227FEE8A40488B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905371   (651457) от 05.06.2015
-
-VA - Extra Trance (episode 2) (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ramin Djawadi - Game of Thrones Theme (Armin van Buuren Remix) (06:50)
-002. Vertruda - Night Zone (Original mix) (04:28)
-003. Van Yorge & Matt'de Loure feat. Angel Falls - Azul (Original Mix) (05:36)
-004. Andy Moor, Somna, Amy Kirkpatrick - One Thing About You  (Chris Metcalfe Remix) (07:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B1997D7BC4760ABF477D6D7EFB1A04BCDAA6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291995   (650693) от 27.03.2019
-
-VA - Options Remake Of Tracks March -C- (2019) [MP3|320 Kbps] <Tropical, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judah - In And Out Of My Life
-02. Mir Omar - Beyond
-03. Kaspar Tasane - Sweet Promises (Original Mix)
-04. Shemsu & Sione (Sp) - White Line (Original Mix)(   Читать дальше...   )Жанр: Tropical, Progressive, Future HouseПродолжительность: 06:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FDDF87AE471D52E51F174C5D0311D04C674B09
 ```
 
 https://mybot314.ru/tekegram_catalog/

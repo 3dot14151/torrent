@@ -1,3 +1,135 @@
+###  Публикация: 996503   (878424) от 14.03.2016
+
+Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призрак в Доспехах: Новый Фильм [2015, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878424.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания жестокой Мировой Войны в Японии наука сделала резкий скачок вверх и начала развиваться не по дням, а по часам, давая человечеству выбор продолжать жить и ослаблять страдания с помощью современной кибернетики. Все человечество связано с помощью системы умов и личностей, известных как «Призраки». Самой большой угрозой цивилизации являются кибер-террористы, (   Читать дальше...   )Производство: ЯпонияЖанр: Киберпанк, Фантастика, БоевикРежиссер: Кисэ КадзутикаЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 01:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908A0C10483D7281EA7A9082EFA8A80CE75F8FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996718   (878414) от 14.03.2016
+
+Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призрак в Доспехах: Новый Фильм [2015, Movie] BDrip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878414.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания жестокой Мировой Войны в Японии наука сделала резкий скачок вверх и начала развиваться не по дням, а по часам, давая человечеству выбор продолжать жить и ослаблять страдания с помощью современной кибернетики. Все человечество связано с помощью системы умов и личностей, известных как «Призраки». Самой большой угрозой цивилизации являются кибер-террористы, (   Читать дальше...   )Производство: ЯпонияЖанр: Киберпанк, Фантастика, БоевикРежиссер: Кисэ КадзутикаЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 01:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8687C6EA3F806AFBFE565909E4616FA0DB9416AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871905   (876898) от 23.02.2015
+
+Mangaka-san to Assistant-san to The Animation / The Comic Artist and His Assistants / Мангака и все-все-все [2014, TV, 12 ep + 6 sp] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876898.jpg" />
+</div>
+
+
+###  Подробнее
+
+22-летний Юки Айто – талантливый художник, умеренный извращенец и закоренелый фетишист, душой навеки оставшийся в золотом детстве. Именно поэтому его манга «Кафе «Смущение» нашла свою аудиторию и завоевала популярность, а автору выделили персонального редактора, симпатичную и волевую Михари Отосуну. Конечно же, творческой личности чужды понятия о сроках и графиках, но Михари знает Юки со школы и в курсе, как стимулировать его либ… то есть, личную работоспособность!
+
+Основная помощница Айто, 19-летняя Сахото (   Читать дальше...   )Жанр: комедия, эттиРежиссер: Фурута ТакэсиПеревод: GMC (01-03), LookerA (04-12, sp)Формат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFD24B25FF0363ECB29085E5D9941F0104ABB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959294   (876771) от 15.03.2016
+
+Hacka Doll The Animation / Цифровые куклы [2015, TV, 13] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сфера услуг давно превратилась из незначительного сектора экономики в доминирующий – это известно всем. И это значит, что чуть ли не каждое научное открытие, каждый технический прорыв оценивается, в первую очередь, в свете востребованности у покупателей. Итак, встречайте: последнее слово техники в сфере услуг, революционное изобретение, покорившее весь мир! Искусственный (   Читать дальше...   )Производство: Япония, Creators in PackЖанр: КомедияРежиссер: Гэсо ИкуоСубтитры: Надписи, отключаемые (Встроенные)Продолжительность: 13 серий по 10 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4F5C38E55039BD9E01C1E66C6204127B7DBB69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374006   (876217) от 08.04.2020
+
+Видоизменённый углерод: Восстановленный | Altered Carbon: Resleeved [2020, Web, 1 эп.] WEB-DLRip 576p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший боец сопротивления, а ныне наёмник Такэси Ковач, помещён в новое тело на планете Латимер. Его услуги понадобились боссу якудза, чтобы защищать от нападений ниндзя девушку-татуировщицу, которая работает на клан Мидзуно. Задача Ковача — охранять подопечную до церемонии посвящения нового босса.Производство: Япония, США / Anima, NetFlixЖанр: приключения, фантастикаРежиссер: Такэру Накадзима, Ёсиюки ОкадаПеревод: Многоголосый любительский (AlexFilm)Субтитры: Русские (Forced, Full |«Netflix»|, английские (Forced, Full), японские (Forced, Full, SDH)Продолжительность: 01:14:46Реклама: отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01474E36BB1C7F15714C847BCDD2BE5E7E91B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373992   (876200) от 08.04.2020
 
 Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
@@ -6,7 +138,7 @@ Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876200.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ Initial D Final Stage / Инициал Ди Финальная стадия [201
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875186.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ Boku no Hero Academia (2019) / My Hero Academia Season 4 / Моя геройск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874017.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ Shin Gekijouban Initial D / New Initial D / Новый Инициал Ди [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873473.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ Fairy Tail / Сказка о Хвосте феи [2011, OVA, 6] DVDrip 480p raw 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872246.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ Asura / Асура (2012) BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871292.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870225.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869261.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869215.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фрукт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867755.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ Kokoro Connect / Единение сердец [2014, TV, 12 ep + 4 sp] BDRip Hi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865974.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ Code Geass Hangyaku no Lelouch R2 / Code Geass: Lelouch of the Rebellion R2 / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865969.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ Kono Subarashii Sekai ni Shukufuku wo! / Этот замечательный м�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865513.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865072.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ Majutsushi Orphen / Sorcerous Stabber Orphen / Волшебник-воин Ор�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863662.jpg" />
 </div>
 
 
@@ -401,7 +533,7 @@ Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863274.jpg" />
 </div>
 
 
@@ -427,7 +559,7 @@ Akira | Акира [1988, MV] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863221.jpg" />
 </div>
 
 
@@ -453,7 +585,7 @@ Youjo Senki | Saga of Tanya the Evil | Военная Хроника Мален�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859730.jpg" />
 </div>
 
 
@@ -480,7 +612,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859225.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859224.jpg" />
 </div>
 
 
@@ -534,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855700.jpg" />
 </div>
 
 
@@ -545,137 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C342E796A96141C4A168FB2126618A7795DD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753368   (853967) от 23.03.2014
-
-Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2004, MV] BDrip 1080p Hi10P raw + eng + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятилетиями Тиёко Фудзивара была выдающейся актрисой, снимавшейся в фильмах различных жанров. Однажды ее высокогорную виллу посетили продюсер и хроникер, работающие над историей жизни и карьеры Тиёко. Они принесли с собой маленький старый ключик, открывший многие тайны ее воспоминаний...Жанр: драма, история, романтика, приключенияРежиссер: Кон СатосиПродолжительность: 87 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FF5005D0B423CBB237AC924344521EC400C410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976405   (853519) от 28.03.2016
-
-Divine Gate / Божественные врата [2016, TV, 12] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впоследствии открытия Божественных врат, мир людей, небеса и преисподняя стали едины, начав эпоху хаоса и влеча за собой мир, где людские желания зарождают опасные конфликты...
-Для восстановления порядка был сформирован Всемирный совет, благодаря чему порядок был успешно восстановлен, а врата стали лишь легендой. И вот, спустя несколько лет, мир снова нуждается в (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: Фантастика, Экшен, ФентезиРежиссер: Абэ НориюкиПродолжительность: 12 серий по 15 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1D89BBDE86DB68A074F6EA8A3C17201A9A2833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377239   (852763) от 21.04.2020
-
-Bishoujo Senshi Sailor Moon S | Красавица-Воин Сейлор Мун Эс [TV-3] [1994, TV, 38 ep] BDRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир наконец спасён, и теперь нужно приложить все силы к учёбе, ведь девочки теперь в выпускном классе! Но не тут-то было: появляется новый сильный враг, создающий демонов, которые отбирают чистые сердца у людей в поисках трёх талисманов, что призовут Священный Грааль с огромной силой для своих корыстных целей. Чтобы помешать им, являются незнакомцы Сейлор Воины — (   Читать дальше...   )Производство: Toei AnimationЖанр: Приключения, Комедия, Махо-СёдзёРежиссер: Икухара КунихикоОзвучка: Многоголосая закадроваяСубтитры: ОтсутствуютПродолжительность: 38 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8EF9F41BE655B025E2B063090BA1CA9167BA849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377241   (852757) от 21.04.2020
-
-Bishoujo Senshi Sailor Moon Super S: Black Dream Hole | Красавица-Воин Сейлор Мун Супер Эс: Черная Дыра Снов [1995, Movie + 2 Specials] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детям всего мира грозит опасность. Королева Бадиана и ее феи похищают малышей, чтобы питать их энергией «Черная дыра снов», которая может поглотить Землю. Справятся ли воины в матросках с таким опасным врагом, учитывая, что Сейлор Чиби Мун тоже угодила в ловушку фей.Производство: Toei AnimationЖанр: Приключения, Комедия, Махо-СёдзёРежиссер: Сибата ХирокиОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: Movie
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829D676744199CCBE604EC5E1C10A039BCB3E761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377242   (852756) от 21.04.2020
-
-Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Сейлор Мун Эс: Снежная Принцесса Кагуя [1994, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор астронавтики Какэру Озоро спасает Луну из-под колес машины. Луна очень благодарна ученому и понимает, что влюбилась в него. Тем временем на Токио обрушивается метель, и на людей нападают демоны, которые ищут кристалл Снежной принцессы Кагуя. Этот самый кристалл находится у профессора Какэру. Камень оказывает негативное влияние на Какэру, и он ссорится со (   Читать дальше...   )Производство: Toei AnimationЖанр: Приключения, Комедия, Махо-СёдзёРежиссер: Сибата ХирокиОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5FE432617619567A4A95C22441D7AF3A596AAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

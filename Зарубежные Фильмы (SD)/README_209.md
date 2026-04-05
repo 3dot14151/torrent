@@ -1,55 +1,3 @@
-###  Публикация: 1207848   (780146) от 20.02.2018
-
-Три билборда на границе Эббинга, Миссури / Three Billboards Outside Ebbing, Missouri (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя несколько месяцев после убийства дочери Милдред Хейс преступники так и не найдены. Отчаявшаяся женщина решается на смелый шаг, арендуя на въезде в город три биллборда с посланием к авторитетному главе полиции Уильяму Уиллоуби. Когда в ситуацию оказывается втянут еще и заместитель шерифа, инфантильный маменькин сынок со склонностью к насилию, офицер Диксон, (   Читать дальше...   )Производство: Великобритания, США / Blueprint PicturesЖанр: Драма, криминалРежиссер: Мартин МакДонаАктеры: Фрэнсис МакДорманд, Вуди Харрельсон, Сэм Рокуэлл, Джон Хоукс, Питер Динклэйдж, Калеб Лэндри Джонс, Лукас Хеджес, Эбби Корниш, Керри Кондон, Даррел Бритт-Гибсон ...Перевод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные), английские (полные, SDH, SDH цветные)Продолжительность: 01:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAF8C007CF36A5643BFAAB77090BC9D296EE1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207876   (780142) от 20.02.2018
-
-Афера доктора Нока / Knock (2017) BDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780142.jpg" />
-</div>
-
-
-###  Подробнее
-
-1950-е. Карманник и авантюрист Нок, скрываясь от «коллег» в небольшом французском городке Сен-Морис, притворяется лицензированным врачом. Он придумал хитрый, но простой план, как не остаться без средств к существованию: лечить здоровых людей от несуществующих у них болезней. Нок — мастер в искусстве манипуляции и соблазнения — почти достиг желанной цели, если бы (   Читать дальше...   )Производство: Франция, Бельгия / Canal+Жанр: комедияРежиссер: Лоррэйн ЛевиАктеры: Омар Си, Алекс Лутс, Ана Жирардо, Сабин Азема, Паскаль Элбе, Одри Дана, Мишель Вюйермоз, Кристиан Эк, Элен Венсан, Андреа ФерреольПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D69C4EC57B9D88B2C3CAB9D0C0B68FC459FDF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208025   (780140) от 20.02.2018
 
 Афера доктора Нока / Knock (2017) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780140.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780079.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780025.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780006.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779948.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779901.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779877.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779873.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779854.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779839.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779836.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779835.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779833.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779829.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779787.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779758.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779750.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779737.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779727.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779716.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779713.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779711.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779703.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779700.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:517E4C160845F784689BD03947BAC74306884F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208836   (779641) от 24.02.2018
+
+Опасный квартал / The Son of No One (2011) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — молодой полицейский, приписанный к участку в районе, где в основном проживает рабочий класс. Герой вырос в этом районе, и теперь, когда он вернулся сюда стражем закона, на поверхности оказался некий секрет, который может уничтожить как семью копа, так и его самого.Производство: СШАЖанр: Триллер, Драма, КриминалРежиссер: Дито МонтиельАктеры: Ченнинг Татум, Аль Пачино, Трэйси Морган, Кэти Холмс, Рэй Лиотта, Жюльетт Бинош, Джеймс Рэнсон, Брайан Гилберт, Джейк ЧерриПеревод: Дублированный (Blu-ray RUS)Субтитры: русские (форсированные, полные)Продолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A37C91A977B9BCE3CECD917785C178F0748C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208757   (779624) от 24.02.2018
+
+Опасный квартал / The Son of No One (2011) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — молодой полицейский, приписанный к участку в районе, где в основном проживает рабочий класс. Герой вырос в этом районе, и теперь, когда он вернулся сюда стражем закона, на поверхности оказался некий секрет, который может уничтожить как семью копа, так и его самого.Производство: СШАЖанр: Триллер, Драма, КриминалРежиссер: Дито МонтиельАктеры: Ченнинг Татум, Аль Пачино, Трэйси Морган, Кэти Холмс, Рэй Лиотта, Жюльетт Бинош, Джеймс Рэнсон, Брайан Гилберт, Джейк ЧерриПеревод: Дублированный (Blu-ray RUS)Субтитры: русские (форсированные, полные), английские (полные)Продолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7836A3D753C9E0F8CCE19C700621B1A562D9B216
 ```
 
 https://mybot314.ru/tekegram_catalog/

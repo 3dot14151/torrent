@@ -1,205 +1,3 @@
-###  Публикация: 471096   (83458) от 21.03.2012
-
-VA - Звёзды царской эстрады (приложение к книге) (2011) [MP3|320 кб/с]<Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я милого узнаю по походке - Ю.С.Морфесси
-02. Я слушаю тебя... - Ю.С.Морфесси
-03. Чубчик - Ю.С.Морфесси
-04. Грусть и тоска безысходная - М.И.Вавич
-05. Ехали цыгане - Ю.С.Морфесси
-06. Замело тебя снегом, Россия! - Н.В.Плевицкая
-07. Гори, гори, моя звезда - В.А.Сабинин
-08. Опьянела - А.Д.Вяльцева
-09. Гай-да тройка - Р.М.Раисова
-10. Как цветок душистый - М.А.ЭмскаяЖанр: RetroПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470395   (83313) от 20.03.2012
-
-Ottawan - Greates Hits (2007) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're OK (3:29)
-02. D.I.S.C.O. (3:21)
-03. Hands Up (Give Me Your Heart) (3:33)
-04. Crazy Music (3:36)
-05. Shalala-Song (3:45)
-06. Comme Aux U.S.A. (4:57)
-07. A.I.E. Is My Song (3:34)
-08. Shubidube Love (2:54)
-09. Doudou Rumba (3:39)
-10. Hello Rio (4:31)(   Читать дальше...   )2007Жанр: DiscoПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470295   (83163) от 19.03.2012
-
-Bananarama - 15 альбомов + 8 синглов (1983 - 2010) [MP3|320 kbps]<Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Don't Live Here (Radio Mix) (3:40)
-02. Every Shade Of Blue 2010 (4:09)Жанр: Disco, PopПродолжительность: 00:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F66B88E6FF79974C93D8A2AB96A61570763461A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469932   (82905) от 18.03.2012
-
-VA - Диско 80-х - Кумиры восьмидесятых. Выпуск русский (2012) [MP3|256 kbps]<Pop | Disco>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82905.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ариэль - В Краю Магнолий
-002. В. Маркин - Сиреневый Туман
-003. А. Серов - Мадонна
-004. Братья Радченко - Домик Окнами В Сад
-005. Каролина - Диско-Бар
-006. Павел Смеян - Ветер Перемен
-007. А. Герман - Последняя Встреча
-008. В. Усланов - Рисую Ночь
-009. Песняры - Вологда
-010. Лимонадный Джо - Стой, Кто Идет!(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156D6DE166917317C9978A3468DEBCE63D5C0D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469953   (82899) от 18.03.2012
-
-VA - Вокально-Инструментальные Ансамбли СССР (2012) [MP3|320 kbps]<Pop | Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виа Ялла - Канатоходцы
-02. Виа Ариэль - Тишина
-03. Эдита Пьеха - Семейный Альбом
-04. Тынис Мяги - Детектив
-05. Виа Поющие Гитары - Люди Встречаются
-06. Виа Цветы - Честно Говоря
-07. Виа Ариэль - На Острове Буяне
-08. Виа Земляне - Трава У Дома
-09. Виа Песняры - Вологда
-10. Виа Пламя - Краснотал(   Читать дальше...   )2012Жанр: Pop | РетроПродолжительность: 04:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A7594A5B37755FA64F8271D0B8EA93C1B77919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469571   (82798) от 18.03.2012
-
-Revolver - Let Go (2012) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let's Get Together
-2. The Letter
-3. When You're Away
-4. Losing You
-5. Wind Song
-6. Still
-7. Cassavetes
-8. 49 States
-9. Parallel Lives
-10. Brothers(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7722A880658689E686CBF9B0DB36DC054167230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469356   (82752) от 17.03.2012
 
 VA - Русская Дискотека 80-90х (2012) [MP3|320 кб/с]<Pop, Dance>
@@ -208,7 +6,7 @@ VA - Русская Дискотека 80-90х (2012) [MP3|320 кб/с]<Pop, Dan
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82752.jpg" />
 </div>
 
 
@@ -243,7 +41,7 @@ Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82711.jpg" />
 </div>
 
 
@@ -271,7 +69,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82692.jpg" />
 </div>
 
 
@@ -306,7 +104,7 @@ ABBA - Gold: Greatest Hits (1993) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82564.jpg" />
 </div>
 
 
@@ -341,7 +139,7 @@ Bad Boys Blue - All The Best (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82318.jpg" />
 </div>
 
 
@@ -376,7 +174,7 @@ Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82049.jpg" />
 </div>
 
 
@@ -411,7 +209,7 @@ VA - Московские окна: Песни на все времена (1995)
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82022.jpg" />
 </div>
 
 
@@ -446,7 +244,7 @@ Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81805.jpg" />
 </div>
 
 
@@ -481,7 +279,7 @@ Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81727.jpg" />
 </div>
 
 
@@ -509,7 +307,7 @@ Pino D'Angio - The Best Of (2CD) 2011 (ZYX Records ZYX 5469) [FLAC|Lossless]<Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81478.jpg" />
 </div>
 
 
@@ -544,7 +342,7 @@ Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81450.jpg" />
 </div>
 
 
@@ -578,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81425.jpg" />
 </div>
 
 
@@ -613,7 +411,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81386.jpg" />
 </div>
 
 
@@ -639,7 +437,7 @@ Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81385.jpg" />
 </div>
 
 
@@ -674,7 +472,7 @@ VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81194.jpg" />
 </div>
 
 
@@ -709,7 +507,7 @@ Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81043.jpg" />
 </div>
 
 
@@ -744,7 +542,7 @@ Sabrina - Golden. Disco. Hits (2003) [MP3|320 кб/с]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81038.jpg" />
 </div>
 
 
@@ -779,7 +577,7 @@ Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81030.jpg" />
 </div>
 
 
@@ -814,7 +612,7 @@ Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80961.jpg" />
 </div>
 
 
@@ -849,7 +647,7 @@ ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80695.jpg" />
 </div>
 
 
@@ -869,6 +667,198 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0689E137817D4648BBCB1F122EF11CD6BFAD868F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463145   (80509) от 06.03.2012
+
+София Ротару - Лучшее (2008) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80509.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Продолжительность:01:17:17
+01. Я Тебя По - Прежнему Люблю (4:12)
+02. Один На Свете (3:51)
+03. Я Же Его Любила (4:20)
+04. Небо Это Я (3:56)
+05. Я Назову Планету... (4:12)
+06. Туман (3:05)
+07. Белый Танец (3:58)
+08. Не Люби 08 (3:47)(   Читать дальше...   )2008Жанр: PopПродолжительность: 02:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F813B87C3AFCB67DA4AC7665DEB96DF5DD748A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462123   (80282) от 05.03.2012
+
+Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1986-2010Жанр: PopПродолжительность: 00:48:52
+
+01. Oui mais... non
+02. Moi je veux...
+03. Bleu noir
+04. N'aie plus d'amertume
+05. Toi l'amour
+06. Lonely Lisa
+07. M'effondre
+08. Light Me Up(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462513   (80156) от 05.03.2012
+
+Stevie Wonder - World Ballads Collection (1999) [MP3|320 кб/с]<Pop, Soul, Jazz, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Isn't She Lovely (03m 30s)
+02 Ebony And Ivory (with Paul McCartney) (03m 42s)
+03 For Your Love (05m 03s)
+04 I Believe (04m 53s)
+05 I Just Call To Say I Love You (06m 18s)
+06 Lately (04m 08s)
+07 My Cherie Amour (02m 53s)
+08 Looking For Another Pure Love (04m 43s)
+09 My Love (with Julio Iglesias) (05m 34s)
+10 Overjoyed (03m 44s)(   Читать дальше...   )1999Жанр: Pop, Soul, Jazz, FunkПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1795F1C457E6C6908D6BD807F342B96C400FD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461198   (79641) от 02.03.2012
+
+George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patience
+02. Amazing
+03. John And Elvis Are Dead
+04. Cars And Trains
+05. Round Here
+06. Shoot The Dog
+07. My Mother Had A Brother
+08. Flowless (Go To The City)
+09. American Angel
+10. Precious Box(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460183   (79634) от 02.03.2012
+
+Tarkan - Лучшие песни (2008) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459427   (79191) от 29.02.2012
+
+Валерий Меладзе - Сэра (1995) [APE|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

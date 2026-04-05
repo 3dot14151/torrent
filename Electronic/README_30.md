@@ -1,3 +1,61 @@
+###  Публикация: 1448650   (1030699) от 18.02.2021
+
+LAU - Believer (Deluxe Album) (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stunning (3:20)
+02. We Had Magic (3:21)
+03. True (4:02)
+04. Believer (3:19)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A134E499D61CA20DDFC49A18C5A571DB36C8B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448899   (1030481) от 19.02.2021
+
+VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - The 10th Life (Original Mix)
+02. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix)
+03. Jens Lonnberg - Red Skies (Radio Edit)
+04. Chris Turner - Phat Giraffe (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B390EB7D3A9E365BE5068240001D66E2DF678A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448893   (1030475) от 19.02.2021
 
 VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030475.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ AK & Dario Lessing - All You Need Is Time (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030474.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030473.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ VA - Black Hole Trance Music 02-21 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030472.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Dream Cafe (Chill Out Classics) (2004) Sony Music Media [FLAC|Lossless|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030438.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Special Request - Discography 24 Releases (2013-2021) Houndstooth [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030417.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Fever Ray - Radical Romantics (2023) [FLAC|Lossless|tracks + .cue] <Synth Pop, E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030279.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Beborn Beton - Darkness Falls Again (2023) Deluxe Edition [MP3|320 Kbps] <Synthp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030275.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Raz Nitzan - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030269.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Lounge & Coffee, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030268.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Owl City - Coco Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electronic,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030263.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Yossi Amoyal Presents Fluere IV (2020) Sushitech Records [FLAC|Lossless|tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030260.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Memro - Colony (2013) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030258.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Yossi Amoyal Presents Fluere II (2020) Sushitech Records [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030257.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Maduk - Go Home (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030253.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ VA - Ambient Lounge 15 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030242.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ VA - Ambient Lounge 16 (2013) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030241.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ VA - Ambient Lounge 14 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030238.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ VA - Drizzly Chillin' Vol. 01-02 (2003-2004) Drizzly Music [FLAC|Lossless|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030234.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Spencer Brown Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030230.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ VA - Every Day Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030227.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Oblivion - Secrets Of Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030219.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - Depth Charge - Electro Boogie - Shape Generator (1999) Studio !K7 [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030214.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Dedast | Will-O'-The-Wisp - Discography 4 Releases (2008-2017) Cosmicleaf Record
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030184.jpg" />
 </div>
 
 
@@ -679,62 +737,6 @@ Dedast | Will-O'-The-Wisp - Discography 4 Releases (2008-2017) Cosmicleaf Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CDA3B55BD39F6852CF40D3E55E626E28ABD9491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199645   (1029898) от 21.02.2021
-
-Ruxpin - Discography 15 Releases (1999-2019) Mikrolux, n5MD, Elektrolux, SSSP [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Leftfield, Downtempo, Electro>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruxpin - Roadmap (05:05)
- 02. Dimitar Dodovski - Lontano (05:02)Тип издания: CD, Web, VinylЖанр: IDM/Techno/Dub TechnoПродолжительность: 12:59:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2447414C795A9D70C3F22B62917E4A17EEA8FE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943424   (1029859) от 21.02.2021
-
-Endless Melancholy - Discography 45 Releases (2012-2021) [FLAC|Lossless|WEB-DL]<Modern Classical, Minimal, Ambient, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blossoms (feat. Lights Dim) (06:22)
- 02. A Place Called Home (04:00)
- 03. Nowhere, Never (02:35)
- 04. Rivers Of Time (feat. EUS) (06:30)(   Читать дальше...   )Тип издания: WEBЖанр: Modern Classical, Minimal, Ambient, Post Rock •Продолжительность: 17:47:52 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E17FC62D0649EE7AE1748DD4F1518E7BFD0C1B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

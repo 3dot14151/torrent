@@ -6,7 +6,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461767.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461682.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461419.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461351.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461254.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460735.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sika - Love Kills (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460733.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Antonia - Jameia (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460729.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460572.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460330.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460097.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460086.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Little Big - Tacos (2020) WEBRip [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459951.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Rockin'1000: Stade de France, Paris (2019) WEB-DLRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459772.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Lara Fabian - En Toute Intimite a l'Olympia (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459728.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459652.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_459531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_459531.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459477.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Emerson Lake & Palmer - 40TH Anniversary Reunion Concert (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_459468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_459468.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458892.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458367.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458365.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Legends Disco Star-80 (2009) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458069.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456558.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456447.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456154.jpg" />
 </div>
 
 

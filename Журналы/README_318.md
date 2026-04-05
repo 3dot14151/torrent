@@ -1,3 +1,135 @@
+###  Публикация: 373615   (518830) от 09.08.2011
+
+Журнал | Ателье №1 (121) [2011] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518830.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ателье» — это первый профессиональный журнал о моде в России, ориентированный на владельцев ателье и мастерских по пошиву одежды, дизайн-студии, частных модельеров и дизайнеров.
+
+ В каждом номере можно найти массу интересных и профессиональных статей, предназначенных для специалистов швейного бизнеса. Основные материалы журнала посвящены последним новостям моды в (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560842   (518564) от 01.07.2022
+
+Журнал | IT Expert №5 (317) (май 2022) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518564.jpg" />
+</div>
+
+
+###  Подробнее
+
+IT Expert - журнал для профессионалов в области IT. На страницах издания можно узнать новости и статьи о последних технологических разработках, о тестировании новых продуктов, оценку рыночной ситуации в различных сегментах IT-индустрии как в России, так и за рубежом.Жанр: Журнал для профессионалов в области ITФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039D3EC129C8BD28E21EA910730FC82B17A6F8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560843   (518562) от 01.07.2022
+
+Журнал | IT Expert №6 (318) (июнь 2022) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518562.jpg" />
+</div>
+
+
+###  Подробнее
+
+IT Expert - журнал для профессионалов в области IT. На страницах издания можно узнать новости и статьи о последних технологических разработках, о тестировании новых продуктов, оценку рыночной ситуации в различных сегментах IT-индустрии как в России, так и за рубежом.Жанр: Журнал для профессионалов в области ITФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71710F4EA6CEE01BEE6AC93B948F5A20731BA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929516   (518509) от 20.08.2015
+
+Журнал | Школа цветовода №3 (28) (июль 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы это пластичное эффектное растение буквально ворвалось в ландшафтную моду. В нашем представлении, это высокие деревья, раскидистые кустарники. Но, оказывается, среди представителей их огромного семейства есть множество невысоких и даже маленьких, ползучих форм, ив для альпийских горок и контейнеров, которые способны стать настоящим украшением вашего (   Читать дальше...   )Жанр: Ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B88CED3AE1E7C4746B2451D7B539DB9C626D832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929779   (518507) от 20.08.2015
+
+Журнал | Цветники в саду №9 (сентябрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасно иллюстрированный журнал даст представление о гравийном саде.  Это относительно новая тема в ландшафтном дизайне. Кто-то видел, кто-то слышал, кто-то вообще не знает, о чем идет речь. А ведь это современное стилистическое направление ландшафтного дизайна не только интересно само по себе, как явление, но и весьма адаптивно и перспективно.Жанр: цветоводство, ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3B6BDF94A8841C33324DFE3BDBC73FD0F35346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929588   (518391) от 20.08.2015
 
 Журнал | UPgrade №27 (732) (август 2015) [PDF]
@@ -6,7 +138,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518391.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518348.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518346.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518343.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518341.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518334.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518288.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518268.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518208.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518091.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517910.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517868.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517756.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517753.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517748.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517694.jpg" />
 </div>
 
 
@@ -424,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517401.jpg" />
 </div>
 
 
@@ -450,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517392.jpg" />
 </div>
 
 
@@ -476,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517257.jpg" />
 </div>
 
 
@@ -502,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517084.jpg" />
 </div>
 
 
@@ -528,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517068.jpg" />
 </div>
 
 
@@ -539,138 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5F2F848D26544031EC3F39231B946D7C071D236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535498   (516977) от 16.08.2012
-
-Журнал | Загадки и тайны. Спецвыпуск №1 [август 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторические сенсации, скандальные расследования, загадочные артефакты, а также сверхъестественное, мистическое, непознанное для тех, кто привык быть в курсе самой интересной информации.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62672080E85EA769E4C810746332622060AC7CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535510   (516965) от 16.08.2012
-
-Журнал | Маленькая Diana. Спецвыпуск №9 [сентябрь 2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по вязанию представляет специальный выпуск с 73 узорами для вязания спицами, которые могут быть применены в самых разных моделях одежды. Условные обозначения приводятся на отдельной странице. Модель номера - ажурный кардиган.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9C484AA1DC90C12DCEB53A3AB8C57E7B825874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535519   (516861) от 16.08.2012
-
-Компьютерная газета Хард Софт №8 (235) [июль 2012] [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516861.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Компьютерная газета Хард Софт" - глянцевый журнал выходящий два раза в месяц. На страницах журнала размещены обзоры новейшего: компьютерного железа, мобильной коммуникации, мультимедийных устройств, софта, интернет-сервисов, игр.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B211690DA545D947CFE03B4A7BDFCEA28D086B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535511   (516859) от 16.08.2012
-
-Журнал | .Net №232 - Сентябрь [2012] [EN] [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516859.jpg" />
-</div>
-
-
-###  Подробнее
-
-.Net великолепный современный журнал, предлагающий полный путеводитель по интернет. Он ориентирован на лучшее становление бизнеса и расширение бизнеса в интернет сообществе с продажами на сайте или сервисе. Журнал Net обеспечивает читателей знаниями для более уверенного использования интернет, а также веб дизайнеров, работающих в этом секторе.
-
-Подробная информация на офсайте.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1E139F26C7C5CA07E3F91E73312E1B5B7F2F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535820   (516772) от 16.08.2012
-
-Журнал | Сабрина Baby №7 [сентябрь 2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сабрина Baby - журнал по вязанию на спицах и крючком одежды для малышей от 0 до 2 лет. В номере представлены 24 модели шапочек: весёлые и яркие, тёплые и лёгкие, с забавными рисунками и полосками. Все модели даны с подробными инстукциями, схемами, выкройками, с учетом тенденций детской вязаной моды.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6E0485423AC8DB3F6827AA3A7D5E667D437CC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

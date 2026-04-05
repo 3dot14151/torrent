@@ -6,7 +6,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804008.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802211.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Darksiders: Wrath of War (2010) [Ru] (1.1/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801904.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alice: Madness Returns (2000-2011) [Ru/Multi] (1.0.0.0/dlc) SteamRip Let'sPlay [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801631.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Saints Row 2 (2009) [Ru/Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800999.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Styx: Shards of Darkness (2017) [Ru] (1.02/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800074.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Alice: Madness Returns (2011) [Ru] (1.0.0.0/dlc) Repack Other s [The Complete Co
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799957.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Saints Row: The Third - Remastered (2020) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799855.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (1.033793/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798192.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Alan Wake Remastered (2021) [Ru/En] (1.0.33793/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798178.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rustler (Grand Theft Horse) (2021) [Ru/Multi] (1.02.21/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798046.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Soulsland (2021) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797896.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Saints Row: The Third - Remastered (2020) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797684.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Project Runner (2021) [En] (1.0) License DARKSiDERS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797268.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hellblade: Senua's Sacrifice VR (2017) [Ru/Multi] (1.01) License GOG [VR]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793771.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ HellGate: London (2018) [En] (20181213) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793768.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dead Rising 4 (2017) [Ru/En] (1.0/upd3/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793481.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Alpha Protocol (2010) [Ru] (1.1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792744.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ COLINA: Legacy (2018) [Ru/Multi] (1.0/upd3) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791996.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ COLINA: Legacy (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791552.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ DreadOut: Keepers of The Dark (2016) [En/Ch] (1.0.7) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791432.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ DreadOut (2014) [Ru/Multi] (2.2.18/dlc) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791431.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790245.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Assassin's Creed Anthology (2008-2015) [Ru/Multi] Repack/Rip R.G. Catalyst [The 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789679.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) License CPY [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789625.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack xatab [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789619.jpg" />
 </div>
 
 

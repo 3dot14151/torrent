@@ -6,7 +6,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555432.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boom Library - CARS - SUVS & VANS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555188.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Boom Library - CARS - V8 [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555001.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554840.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554140.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553941.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553693.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553688.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553498.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ NNM-Club Sound Cleaner Collection from mik_s
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553444.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ SonicCouture - The Hammersmith Pro Edition v1.2 [En]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552713.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NNM-Club Sound Cleaner Collection - STouR - Album 2
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551897.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548555.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547678.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547632.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Best Service - Chris Hein Solo Violin v1.0 [En]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547233.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543474.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543461.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535356.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534187.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534184.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Groove Monkee - MIDI Drum Loops[MIDI|EXE][ISO][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533877.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530927.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529097.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523782.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523708.jpg" />
 </div>
 
 

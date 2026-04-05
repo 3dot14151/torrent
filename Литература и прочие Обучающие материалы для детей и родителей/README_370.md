@@ -1,3 +1,57 @@
+###  Публикация: 1514810   (215757) от 04.12.2021
+
+Алла Озорнина | Тайна древнего амулета (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215757.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой книге Аллы Озорниной «Тайна древнего амулета» происходят страшные события. В мастерской художника хан сошёл с полотна и в призрачном виде стал приходить к Агнии и требовать, чтобы она помогла ему вернуть амулет. Если Агния не сможет осуществить просьбу древнего монгола, то в городе случится взрыв и погибнут люди! У девочки, кроме проблем древних людей, в (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042520F362B3EC45E168E3D436B5D29D3492AF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514787   (215751) от 04.12.2021
+
+Себастьян Перез | Шерлок Кот. Тайна пропавших мышей. Книга 1 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятное происшествие в Париже: все мыши в округе пропали! Тут не обойтись без лучшего детектива в городе – кота Шерлока. Он со своими пернатыми и четвероногими друзьями сразу же бросается на поиски. Ведь Шерлок ничего не боится! Ну, почти.
+Клянусь своими усами, впереди нас ждёт ещё одно расследование!
+Художник Бенжамен Лакомб с детства мечтал стать иллюстратором. (   Читать дальше...   )Жанр: Детская литература/Приключения/ДетективПеревод: А.Д. ПетроваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D9B073A833A8A69EFF680B8F866225C2F08E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513863   (215744) от 04.12.2021
 
 К. Чуковский | Телефон (1956) [PDF, DJVU]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215744.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215738.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215724.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215716.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215406.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215356.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215140.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215108.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215093.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215077.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215015.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214978.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214953.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214919.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214914.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214852.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214843.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214809.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214756.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214733.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214675.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214643.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214549.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214485.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0186C1DBEDE8F6AF1644A32B64B20DEBEEC8B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967492   (214439) от 20.12.2015
-
-Чарлз Робертс | В лесу (1929) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересные наблюдения мальчика в лесу над животными, незамечающими его присутствия. Охота лисицы за выводком куропаток, погоня куниц за зайцем и т. д.Жанр: Детская проза, Природа и ЖивотныеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5417E3BFE52507956C75853F94554212056022F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967291   (214432) от 20.12.2015
-
-Т. Синицын | Под вой пурги (1929) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для младшего и среднего школьного возраста.Жанр: Детская проза, Путешествия и ГеографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F4F5F1374FFB2FA6F912AE39BA38AE86C1EE78
 ```
 
 https://mybot314.ru/tekegram_catalog/

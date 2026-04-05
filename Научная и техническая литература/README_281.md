@@ -1,138 +1,3 @@
-###  Публикация: 911988   (614225) от 24.06.2015
-
-А.П. Речкалов | Кто ты, Русь: первые времена и первых князей вспоминая... (2007) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древняя Русь, Украина, Россия... Тесное переплетение этих понятий в сознании многих поколений наших соотечественников по сей день создает благоприятную почву для существования идеологического мифа о единой стране и едином народе, якобы вышедшем из недр средневековой Киевской державы. Излагая в общедоступной, доброжелательной манере обширные исторические сведения, (   Читать дальше...   )Жанр: историографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52BA0560486B304A58A7AC9377E1CECE23DBA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911179   (614159) от 24.06.2015
-
-Ог Мандино | Выбор (2013) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалуй, самое автобиографичное и вдохновляющее произведение Ога Мандино, раскрывающее тайны, спрятанные за золотыми дверями успеха, славы и богатства. В этой книге он указывает на самое ценное в нашей жизни – свободу выбора, являющуюся ключом к независимому и богатому будущему, где главное – любовь.
-
-Для широкого круга читателей.Жанр: О бизнесе популярно, Личностный рост, Зарубежная психологияПеревод: Лидия ДукорскаяФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9246995AECF9A2F997CE2019C2F0AC9A36521429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912062   (614079) от 24.06.2015
-
-А.П. Речкалов | Русь: путь к Украине. Украинские земли в составе Польши и Литвы. Книга 2. Часть 1 (2012) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание является хронологическим продолжением исследования литовско-польского периода в отечественной истории, начатое А. Речкаловым в первой книге «Русь — путь к Украине». Правление повелителей Великого княжества Литовского и Польского королевства Владислава III, Казимира IV, Яна-Альбреха и Александра рассматриваются автором на фоне падения Византийской (   Читать дальше...   )Жанр: историографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BF3DD6116C01A4E7432CD9ECF6FC5246AFA6F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911572   (614078) от 24.06.2015
-
-Е. Н. Федорова | КоАП для автомобилистов с комментариями (2015) [FB2, EPUB]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614078.jpg" />
-</div>
-
-
-###  Подробнее
-
-B этой книге собраны важнейшие для каждого автовладельца статьи КоАП РФ с учетом самых последних изменений.
-Автоюрист подробно и в доступной форме комментирует текст Кодекса, приводя ссылки на действующие нормативные акты.
-Небольшой формат позволит всегда держать издание под рукой, а актуальная информация будет полезна водителю в любой ситуации.
-(   Читать дальше...   )Жанр: Юриспруденция, право, Автомобили и ПДДФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2559E37D148FD8204B033DBC19BF2E08EBB93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912051   (614023) от 24.06.2015
-
-А.П. Речкалов | Русь: путь к Украине. Украинские земли в составе Польши и Литвы. Книга 1 (2014) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга А. Речкалова является первой частью исследования по истории Украины XIII—XVII вв. Начиная повествование с 1240 г., автор подробно рассматривает события, связанные с освобождением украинских земель от татарского ига и их вхождением в состав Великого княжества Литовского и Польского королевства. Большое внимание в книге уделено взаимоотношениям этих стран (   Читать дальше...   )Жанр: историографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD9A2F38CA6511C5618A78CFD3C3EFD6F6DB038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911429   (614020) от 24.06.2015
 
 Джек Кэнфилд, Марк Виктор Хансен | Все, что душа пожелает, или Фактор Аладдина (2007) [FB2, EPUB]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614020.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613975.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613964.jpg" />
 </div>
 
 
@@ -219,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613951.jpg" />
 </div>
 
 
@@ -247,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613942.jpg" />
 </div>
 
 
@@ -276,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613883.jpg" />
 </div>
 
 
@@ -302,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613765.jpg" />
 </div>
 
 
@@ -328,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613564.jpg" />
 </div>
 
 
@@ -354,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613439.jpg" />
 </div>
 
 
@@ -380,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613430.jpg" />
 </div>
 
 
@@ -406,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613376.jpg" />
 </div>
 
 
@@ -434,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613322.jpg" />
 </div>
 
 
@@ -460,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613313.jpg" />
 </div>
 
 
@@ -486,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613244.jpg" />
 </div>
 
 
@@ -512,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613214.jpg" />
 </div>
 
 
@@ -539,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613210.jpg" />
 </div>
 
 
@@ -565,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613193.jpg" />
 </div>
 
 
@@ -591,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613076.jpg" />
 </div>
 
 
@@ -619,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613072.jpg" />
 </div>
 
 
@@ -645,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613070.jpg" />
 </div>
 
 
@@ -673,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612917.jpg" />
 </div>
 
 
@@ -684,6 +549,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB18506BF5C0FE417CA41C2452B437484AA72C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912155   (612905) от 25.06.2015
+
+Семен Резник | Вл. Ковалевский (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всего четыре года из своей сорокалетней жизни (1842 - 1883) отдал Владимир Ковалевский своим научным исследованиям, но этого оказалось достаточно, чтобы его имя навечно осталось в памяти человечества. Выдающийся ученый-дарвинист, он положил эволюционную теорию в основу науки об ископаемых организмах. Благодаря его открытиям исчезнувшее миллионы лет назад население (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA69CAA2621B995816A9A4D062821A33DA0322B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912164   (612892) от 25.06.2015
+
+Константин Ковалев | Бортнянский (1989) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающимся композитором России "доглинковского" периода по праву считается Д.С. Бортнянский. Он - один из основоположников русской национальной классической композиторской школы. В наше время все чаще звучат его знаменитые духовные хоровые концерты, в театрах и концертных залах исполняются его оперы, камерные и симфонические инструментальные произведения, (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0162AC3F626404B13CAF6152F2CDE0AEB2DEADBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146666   (612852) от 30.06.2017
+
+Л.Л. Клюев | Теория электрической связи (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612852.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике изложены теоретические основы электрической связи (электросвязи), которые являются базовыми для подготовки инженеров по специальностям: «Инфокоммуникационные технологии (по направлениям)», «Инфокоммуникационные системы», «Защита информации в телекоммуникациях».
+Изложена теория электрической связи, включающая основы теории сигналов, теории информации, теории (   Читать дальше...   )Жанр: СвязьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD298CBD2021A1A7E7FCBEAC1091A0AE7A7CE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524564   (612830) от 18.07.2012
+
+А.Г. Кручина | Портреты русских писателей [1981] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект  из  32-х  цветных открыток.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D0DA5AB9442845432A8B76B082E62A96635BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912311   (612808) от 25.06.2015
+
+Вячеслав Козляков | Царица Евдокия (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя московская царица, отвергнутая жена царя Петра I, монахиня Елена, заточенная сначала в Суздальском Покровском монастыре, а затем в бастионе Шлиссельбургской крепости, и, наконец, "государыня-бабушка", считавшаяся важной и влиятельной персоной во время короткого царствования ее внука, императора Петра II, — это всё разные стороны биографии царицы-инокини (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD56346FC11B34CDAE7FA8D8E87F7DF5B05A62C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Jethro Tull - RokFlote (Alternative Mixes) (2023) [MP3|320 Kbps] <Prog Folk, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182344.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Omega - Testamentum (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock, Symphoni
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182250.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Berlin - Count Three & Pray (1986) [OGG Vorbis|480 Kbps] <Electronic, Rock, Soft
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181873.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ M-Opus - Origins (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181523.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jon Lord - Live (2023) [MP3|320 Kbps] <Symphonic Rock, Rock, Classical>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181346.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181311.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Alfio Costa - Frammenti (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180205.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sly Roosevelt - Kirlian (2020) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180194.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Big Big Train - Empire (2020) Live [MP3|320 Kbps] <Progressive Rock, Crossover P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180079.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ange - Trianon 2020 - Les 50 Ans (2020) 3xCD, Live [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179434.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Palace - Rock And Roll Radio (2020) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179358.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gran Torino - The Delphic Prophecy (2020) [MP3|320 Kbps] <Progressive Rock, Inst
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179341.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Magic Dance - Remnants (2020) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179285.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hawkestrel - Spacexmas (2020) [MP3|320 Kbps] <Psychedelic, Space Rock, Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178457.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Spirits Burning & Michael Moorcock - The Hollow Lands (2020) [MP3|320 Kbps] <Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178430.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hawkwind - 50 Live (2020) 2xCD [MP3|320 Kbps] <Psychedelic, Space Rock, Progress
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178360.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Robert Plant - London FM 1983 (2020) live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177637.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dire Straits - Live 1978 - 1992 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177443.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Majestic - Monument (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176856.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Paul McCartney - The 7” Singles (2022) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176646.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Richard Marx - Rush Street (1991) [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176231.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Beach Boys - Sail On Sailor (1972) 6CD, Super Deluxe, Remaster, 2022, Capito
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176135.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lee Aaron - Almost Christmas (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175876.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Philosophobia - Philosophobia (2022) [MP3|320 Kbps] <Progressive Rock, Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175666.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Morreale - Appunti Di Viaggio (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175294.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Sproingg - Clam (2020) [MP3|320 Kbps] <Progressive Rock, Eclectic Prog, Instrume
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173888.jpg" />
 </div>
 
 

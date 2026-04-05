@@ -1,29 +1,3 @@
-###  Публикация: 1475224   (1012356) от 06.06.2021
-
-Debian Edu - Skolelinux 10.9.0 Buster [Linux для школы] [i386, x86-64] 2xBD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9FD1D6E6ADE9387F39EC2225C32305C0520F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472137   (1011032) от 14.06.2021
 
 antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
@@ -32,7 +6,7 @@ antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011032.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010103.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010102.jpg" />
 </div>
 
 
@@ -115,7 +89,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.3 [x86_64, aarch64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008661.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ ArcaOS 5.0 [i386] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008510.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ Ctlos Linux Xfce 2.1.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008239.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ Amiga OS 4.1 [PowerPC] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008223.jpg" />
 </div>
 
 
@@ -221,7 +195,7 @@ Linux Mint 20.2 Uma (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007343.jpg" />
 </div>
 
 
@@ -247,7 +221,7 @@ Kali Linux 2021.2 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006207.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ EuroLinux 8.3 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005771.jpg" />
 </div>
 
 
@@ -301,7 +275,7 @@ Parted Magic 2019.12.24 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003128.jpg" />
 </div>
 
 
@@ -327,7 +301,7 @@ Liberte Linux [анонимный доступ в сети] 2012.3 [x32] (1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999004.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ Tor Browser 2.3.25-2 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997709.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ Pear Linux 6.1 R2 [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996008.jpg" />
 </div>
 
 
@@ -411,7 +385,7 @@ Snowlinux 4.0 Glacier (XFCE, E17 - легкий дистрибутив) [i386 + 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994684.jpg" />
 </div>
 
 
@@ -439,7 +413,7 @@ eComStation OS 2.1  [демо-версия] (1xCD)
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993249.jpg" />
 </div>
 
 
@@ -472,7 +446,7 @@ XigmaNAS-x64-LiveCD-12.1.0.4.7091 1xCD 12.1.0.4.7091 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992990.jpg" />
 </div>
 
 
@@ -498,7 +472,7 @@ ESSPEE R3 Live DVD (Анализ безопасности, хакинг) [i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990819.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Calculate Linux 15.12 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988321.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Calculate Linux 15.12 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987319.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Scientific Linux 6.5 Live Beta [i386, x86-64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985899.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ JonDo/Tor-Secure-Live-DVD 0.9.88 [анонимный доступ в сети] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985681.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ CentOS 7.2-1511 [i386] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985398.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [i68
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984362.jpg" />
 </div>
 
 
@@ -692,7 +666,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [x86
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984211.jpg" />
 </div>
 
 
@@ -703,6 +677,32 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [x86
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EC02540C4CF35CE4BF0CA837551F5E2210619B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355433   (980813) от 28.01.2020
+
+Kerio Control Software Appliance 9.3.3 build 3634 [i386] 1xCD [Multi]
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kerio Control — это комплексное решение в области безопасности, объединяющее несколько функций нового поколения (next generation) — в том числе межсетевой экран (файервол) и маршрутизатор, систему обнаружения и предотвращения вторжений (IPS), антивирус, VPN, фильтр веб-содержимого и фильтрациюприложений. Эти широкие возможности и непревзойденная гибкость в развертывании (   Читать дальше...   )Язык интерфейса: Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352D444454AA90F9B1F3F4BA58BE5FE892B0A686
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1289386   (244613) от 16.03.2019
+
+Mortuary Drape - Necromantic Doom Returns (2018) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Necromancy Demo 1987
+01 - Necromancy (Intro)
+02 - Primordial
+03 - Into The Catacomba(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578FCD287554B831890D6E5FA67427C081F094CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625238   (244611) от 09.04.2023
 
 The Raw Collective - The Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock, Blues Rock>
@@ -6,7 +35,7 @@ The Raw Collective - The Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244611.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gravecarver - Spectral Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244607.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Platens - Of Poetry And Silent Mastery (2021) Japanese Edition [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244603.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Desolate Dreams - Inevitability (2016) [MP3|320 Kbps] <Instrumental Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244599.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Avi Rosenfeld & XIS & JJ Sprondel - Rock Rock Baby (2022) [MP3|320 Kbps] <Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244598.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Last Union - Twelve (2019) Japan [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244597.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Legion Of The Damned - The Poison Chalice (2023) EP [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244594.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Nausea - World Struggle: Demos '88-'92 (2013) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244583.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Baest - Necro Sapiens (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244577.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ City Of Lights - Before the Sun Sets (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244569.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244565.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Tom Raley - Day To Day (2023) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244561.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Lord Belial - Kiss the Goat (1994) [WavPack|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244558.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Diaspora - Pendulum (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244557.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Hurry - Every Little Thought (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244547.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Djevel - Naa Skrider Natten Sort (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244542.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Screw - Angel Seed XXIII (1997) [APE|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244534.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Equipoise - Demiurgus (2019) [MP3|320 Kbps] <Technical Death Metal, Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244530.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Jon Oliva's Pain - 'Tage Mahal (2004) Japan [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244521.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244520.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Marco Garau's Magic Opera - 2 Albums (2021-2023) [MP3|320 Kbps] <Symphonic Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244519.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244511.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Antim Grahan - Goat Legion (2023) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244510.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Peter Lawson - 10 of Swords (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244503.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Dozer - Drifting in the Endless Void (2023) [MP3|320 Kbps] <Stoner Rock, Heavy R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244493.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Dozer - Drifting in the Endless Void (2023) [MP3|320 Kbps] <Stoner Rock, Heavy R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE972813BEAE58ED342058F92E6AD4A02D36620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609778   (244490) от 05.02.2023
-
-Victor Smolski - 3 Albums (2006-2023) [MP3|320 Kbps] <Neo-Classical, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2006 - Majesty & Passion
-2006 - The Heretic
-2023 - Guitar ForceЖанр: Neo-Classical, Progressive MetalПродолжительность: 3 CD, 02:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCC26930D21F9FFFEB85E6FBB75463FFA8DBD3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

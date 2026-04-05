@@ -1,3 +1,32 @@
+###  Публикация: 598062   (1000150) от 03.01.2013
+
+Uriah Heep - Greatest Hits (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 02:30:18
+
+CD1-01:15:02
+CD2-01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40CA892BEC9D3AEF3ACC0C248DF2E0568708CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599447   (999336) от 06.01.2013
 
 Airbourne - Runnin' Wild (2007) [MP3|320 кб/с]<Hard Rock>
@@ -6,7 +35,7 @@ Airbourne - Runnin' Wild (2007) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999336.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ Corroded - State of Disgrace (2012) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997551.jpg" />
 </div>
 
 
@@ -76,7 +105,7 @@ Shakra - Powerplay (2013) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996698.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ Pink Cream 69 - Ceremonial (2013) [MP3|320 кб/с]<Hard Rock/Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993590.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ Ozzy Osbourne (feat. Elton John) - Ordinary Man (2020) Single [MP3|320 Kbps] <Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992570.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ Voodoo Hill - Waterfall (2015) [OGG|485-537 кб/с] <Hard & Heavy, Hard Rock, C
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987484.jpg" />
 </div>
 
 
@@ -201,7 +230,7 @@ Udo Dirkschneider - Best Ballads (Limited Edition) (2011) [MP3|320 kbps]<Hard ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986269.jpg" />
 </div>
 
 
@@ -227,7 +256,7 @@ Revolution Saints - Rise (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984920.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ Balance - 3 Albums (1981-2009) CD [MP3|320 Kbps] <Hard Rock, Arena Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983532.jpg" />
 </div>
 
 
@@ -285,7 +314,7 @@ H.E.A.T - Live In London (2015) Japanese Edition [MP3|320 кб/с] <Rock, Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981924.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ Uriah Heep - It Was 40 Years Ago (2016) Compilation [MP3|320 кб/с] <Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980651.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ Johnny Lima - Unplug 'n Play (2015) [MP3|320 кб/с] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979280.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ Egypt Central - White Rabbit (2011) [MP3|320 кб/с]<Metal, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978505.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ David Coverdale & Whitesnake - Rarities, Remixes And Edits (2 CD) (1984-2001) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974889.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Gain Eleven - All In (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973366.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Merlins Legacy - Stronger Than Ever (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972174.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ The Resistance Organ Trio - Does Zeppelin (2012) [MP3|320 кб/с] <Rock, Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969666.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Gundacker Project - Plug Me In (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969416.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Lordi - Blood Red Sandman (2016) bootleg [MP3|320 кб/с] <Hard Rock, Heavy Met
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965593.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ KISS - New Best Ballads (2000) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959803.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ C.O.P. UK - No Place For Heaven (2016) [MP3|320 кб/с] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957359.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Orangefall - Orangefall (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957345.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Shakra - High Noon (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956023.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Shakra - Mad World (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955641.jpg" />
 </div>
 
 
@@ -729,7 +758,7 @@ Dylem - Dylem (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954641.jpg" />
 </div>
 
 
@@ -743,35 +772,6 @@ Dylem - Dylem (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12D387AD68E4423FCE97F12DFB153F0F369E538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089162   (953663) от 02.01.2017
-
-Last Autumn's Dream - In Disguise (2016) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Love Should Go (Streets) (4:33)
-02. Jet Airliner Time (Steve Miller Band) (4:10)
-03. Working For The Weekend (Lover Boy) (3:48)
-04.Жанр: Melodic Hard RockПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6622ACA41592831BD5A74A5F1DB876E1A1FF6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

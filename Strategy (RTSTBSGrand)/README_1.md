@@ -1,3 +1,55 @@
+###  Публикация: 1351173   (1002349) от 09.01.2020
+
+Interstellar Space: Genesis (2019) [En] (1.0.8) Repack Mr_Weegley
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Interstellar Space: Genesis использует классические механики из пошаговых стратегий жанра «4Х», добавляет пару неожиданных изменений и смешивает их с совершенно новыми механиками, чтобы создать поистине уникального представителя жанра. Задача игры также заключается в том, чтобы убрать докучающий микроменеджмент и сделать акцент на лучших аспектах классических пошаговых (   Читать дальше...   )Тип издания: RepackРазработчик: Praxis GamesЖанр: Стратегии, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4B2BB486A97A71C362BEFA364B5B25ED968F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601572   (997900) от 11.01.2013
+
+Medieval II: Total War Gold [Ru] (RePack/1.03 & 1.05) 2006 | R.G. ILITA
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Medieval 2: Total War — квинтэссенция всего лучшего, чем знаменита серия Total War. Армии стали больше, войска — разнообразнее, сражения — ожесточеннее, а вражеские полководцы — умнее и хитрее. Частые восстания и бунты, разжигаемые иноземными агентами, не позволят правителю расслабиться. Однако полководческий талант и умелая дипломатическая работа в конечном счете возведут вас на единый европейский престол!Тип издания: RepackРазработчик: Creative AssemblyЖанр: StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCF6C3D9AA224CE9087A1713C573511C4074B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603266   (997091) от 14.01.2013
 
 Dungeons | The Dark Lord [Ru] (RePack/1.3.2.1, 1.1.1.0) 2011 | Audioslave
@@ -6,7 +58,7 @@ Dungeons | The Dark Lord [Ru] (RePack/1.3.2.1, 1.1.1.0) 2011 | Audioslave
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997091.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ A Game of Thrones: Genesis / Игра престолов: Начало [Ru] (ReP
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997083.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Sword of the Stars II: Enhanced Edition [Ru/En/Multi4] (RePack /2.0.24759.2) 201
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994962.jpg" />
 </div>
 
 
@@ -92,7 +144,7 @@ Oil Rush [Ru/En/Multi3] (L) 2012 | *PROPHET*
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993867.jpg" />
 </div>
 
 
@@ -119,7 +171,7 @@ Overland (2019) [Ru/Multi] (713) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990477.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ Command & Conquer 3: Dilogy / Command & Conquer 3: Дилогия (2007-2008) [R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988149.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ Command & Conquer 4: Tiberian Twilight / Command & Conquer 4: Эпилог (2010
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988148.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ Warsworn: Dragon of Japan (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985661.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ King Arthur: The Role-playing Wargame / Король Артур [Ru] (L) 2009
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979548.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ Astra Exodus (2020) [Multi] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977326.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ Defense Grid: The Awakening [En] (Steam-Rip/8 DLC) 2008 | R.G. Игроманы
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977089.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ Etherlords / Демиурги (2001) [Ru] (1.07) Repack Focus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970201.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ Age of Mythology (2014) [En/Multi] (2.0.1/dlc) License RELOADED [Extended Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955461.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ Stronghold Crusader 2 (2014) [Ru/Multi] (1.0.22689/dlc) SteamRip Let'sPlay [Spec
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953189.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ Grey Goo (2015) [Ru/Multi] (0.34.593311/dlc) SteamRip Let'sРlay [Definitive Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947789.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ Broken Lines (2020) [Ru/Multi] (1.0) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944776.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Northgard (2018) [Ru/Multi] (2.1.4.16370/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941968.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ Planar Conquest (2016) [Ru/Multi] (1.3.1f) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936701.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Meridian: New World (2014) [Ru/Multi] (1.0.4.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936596.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Stronghold: Crusader II (2014) [Ru/Multi] (1.0.22714) License GOG [Special Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936576.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Cuban Missile Crisis Dilogy (2005) [Ru/Multi] (1.4/1.2) SteamRip Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934834.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Worlds of Magic (2015) [Ru/Multi] (1.2.6/dlc) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934545.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931621.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ Galactic Civilizations: Ultimate Edition [En] (L) 2003 | PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926174.jpg" />
 </div>
 
 
@@ -634,58 +686,6 @@ Galactic Civilizations является космической пошагово�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53719C9DA5273E91D5837625CF4126CAC08865CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095511   (923833) от 21.01.2017
-
-Endless Legend (2014) [Multi] (1.5.12/dlc) SteamRip R.G. Игроманы [Emperor Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Endless Legend - 4X-стратегия от создателей Endless Space. Бороться за власть на планете Аурига будут 10 цивилизаций. Игрокам предстоит собирать «пыль» и другие ресурсы, торговать, развивать науку и волшебство, искать артефакты и экипировать ими героев, ассимилировать малые народы.Тип издания: SteamRipРазработчик: Amplitude StudiosЖанр: Strategy (Turn-based, Grand strategy)Язык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1328868736D5CF058838BB87CD197157F2B196E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096607   (918538) от 24.01.2017
-
-Sid Meier's Civilization V (2011) [Ru/En] (1.0.3.279/dlc) Repack R.G. Механики [Game Of The Year Edition / Золотое Издание]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покорите мир! Проведите свой народ сквозь века - от времен зарождения цивилизации до эры освоения космоса. Развязывайте войны, ведите переговоры, совершайте научные открытия - постройте величайшую империю в истории человечества. Удобный, понятный, изящно оформленный интерфейс позволит новичкам быстро освоиться в игровом мире. Ветераны же оценят глубину проработки, (   Читать дальше...   )Тип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6D457AC55507CF1B1B348D4EF0D48F89EF18F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

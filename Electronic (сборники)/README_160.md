@@ -1,3 +1,61 @@
+###  Публикация: 1071012   (362037) от 09.11.2016
+
+VA - Singles - November 07 (2016) [MP3|320 Kbps] <Electronic, House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bukez Finezt — Step Back
+ 02. Carta — Aranya (Jungle Festival Anthem) (Original Mix)
+ 03. Chee — Fail To See The Hypocrisy
+ 04. Denny Berland — El Chango (Original Mix)(   Читать дальше...   )Жанр: Electronic, House, TrapПродолжительность: 01:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD74D8971C4736FE11CE6A3968792F79A33D906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071246   (361947) от 09.11.2016
+
+VA - State Of Trance Civilization (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance, Emotional, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Rush - Temptation (Original Mix) 7:59
+02. O.B.M Notion & Cosmic Heaven - Melancholy (Original Mix) 7:42
+03. Fabio XB & Mike Saint-Jules - Throne (Original Mix) 6:22
+04. Aurosonic & Neev Kennedy - Now I See (Club Mix) 7:31(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting Trance, Emotional, HarmonicПродолжительность: 08:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512E38B4F8AA74FC9E98B844C6F4BD32825164AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070905   (361881) от 09.11.2016
 
 VA - in FABRIC style: House - Compiled by Mistik (2016) [MP3|320 Kbps] <Electronic, House>
@@ -6,7 +64,7 @@ VA - in FABRIC style: House - Compiled by Mistik (2016) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361881.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Beatport Top 100 Techno October (2016) [MP3|320 Kbps] <Techno, Minimal Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361878.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Organic Trance Volume 10 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361751.jpg" />
 </div>
 
 
@@ -97,7 +155,7 @@ VA - Big City Trance Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361687.jpg" />
 </div>
 
 
@@ -129,7 +187,7 @@ VA - Original Mix Progressive Trance (2015) [MP3|320 кб/с]<Trance, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361278.jpg" />
 </div>
 
 
@@ -158,7 +216,7 @@ VA - Dubstep Planet 3 (2012) [MP3|320 kbps]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360598.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ VA - Beatport Deep House. Electro Sound Pack #189 (2020) [MP3|320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360393.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ VA - DJ Dynamic Basic Hits (2016) [MP3|250~320 Kbps] <House, Future House,  Funk
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359446.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ VA - Beyond Reality: Techno Mix (2016) [MP3|320 Kbps] <Techno, Tech House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359433.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ VA - Beatport Top 100 Tech House October (2016) [MP3|320 Kbps] <Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359357.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ VA - Hedkandi: Hardstyle Edition (2019) [MP3|320 Kbps] <Hard Dance, Electro, Har
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359269.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ VA - Virus Attack: Psy Trance Set (2019) [MP3|320 Kbps] <Psychedelic Trance, Goa
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359268.jpg" />
 </div>
 
 
@@ -366,7 +424,7 @@ VA - Trance Traveling 70 (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358969.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ VA - Hardstyle Top 100 (2017) [MP3|320 Kbps] <Techno, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358843.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ VA - Sexy Girls Lounge Vol 1 (2015) [MP3|320 кб/с]<Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358825.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ VA - Trance Eve Volume 45 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358729.jpg" />
 </div>
 
 
@@ -486,7 +544,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012) [MP3|320 кб/с]<Voc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358551.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ VA - Club Panorama: House Dance Party (2019) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358174.jpg" />
 </div>
 
 
@@ -548,7 +606,7 @@ VA - Essentials Dance House: October Select Mix (2019) [MP3|320 Kbps] <Dance Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358172.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ VA - The Treasure Of Illumina: Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357348.jpg" />
 </div>
 
 
@@ -606,7 +664,7 @@ VA - Beatport Trance Pack 11.11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357245.jpg" />
 </div>
 
 
@@ -635,7 +693,7 @@ VA - Record Super Chart #461 (2016) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357232.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ VA - Beatport Top 100 Deep House October (2016) [MP3|320 Kbps] <Deep House, Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356987.jpg" />
 </div>
 
 
@@ -693,7 +751,7 @@ VA - Trance Pure (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356334.jpg" />
 </div>
 
 
@@ -707,64 +765,6 @@ VA - Trance Pure (2015) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A188D784E7061F9FCA5E080337214D803B3AD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952548   (356211) от 01.11.2015
-
-VA - Chill Acoustic (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen & Envy - The Long Run - Allen Watts Remix
-02. Allen & Envy - The Heart That Never Sleeps - Allen Watts Remix
-03. Mike Shiver - A Little Rain - Allen & Envy Remix
-04. Ana Criado - Dancing Sea - ShouldB3Banned Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC093B10F80A195851E5ED351DD8A7F515AE827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952278   (356194) от 01.11.2015
-
-Lotus Space - Music for Chillout & Dreaming (2015) [MP3|320 кб/с]<Downtempo, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddha's Smile
-02. High Emotion Sunset
-03. Ganesha's Surprise
-04. Ganja Dreams(   Читать дальше...   )Жанр: Downtempo, ElectronicПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9240D7BD1B15088870324EFBDD05C98E7616BA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1465375   (1019224) от 25.04.2021
+
+Ларс Орстрём | Химия навсегда. О гороховом супе, опасности утреннего кофе и пробе мистера Марша (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему дирижабль «Гинденбург» был наполнен водородом, а не гелием и почему это привело к трагедии? Чем занимались зелейщики и почему крестьяне их не жаловали? Зачем ацетон был нужен военно-морскому флоту Великобритании? Действительно ли оловянные пуговицы сыграли фатальную роль в наполеоновской кампании 1812 года? Ларс Орстрём, шведский химик, специализирующийся (   Читать дальше...   )Жанр: Научно-популярная литература, Общая химияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D8D44C89B167016D9CF48C4612FD194A7C1DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465698   (1018889) от 27.04.2021
+
+Л. Эллиот, У. Уилкокс | Физика (1975) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга широко распространена в США. Она рассчитана на читателя, впервые знакомящегося с физикой и имеющего самые элементарные сведения по математике. Положительной оценки заслуживает попытка авторов изложить материал так, чтобы читатель переходил от самых простых и привычных понятий к более сложным, постоянно вдумывался в сущность физических явлений, сам искал (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EEE5F6805048161B75344A5873B9DD05A801BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466425   (1018536) от 29.04.2021
+
+Е. М. Тульчинский | Качественные задачи по физике в средней школе и не только… (2021) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Физика, как всем известно, – наука об окружающем мире, но мало кто умеет видеть связь между тем, что вокруг нас и скучными формулами в учебнике. В действительности, чтобы начать разбираться в этом, на первый взгляд, запутанном клубке из законов и сложных вычислений, достаточно посмотреть на любое явление изнутри – как оно устроено, словно мы собираем большую головоломку (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0B043B4E9955B03E9F1FEFD7D6C8D99805B649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469834   (1016071) от 14.05.2021
 
 Хаим Шапира | Восемь этюдов о бесконечности. Математическое приключение (2021) [FB2]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016071.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015941.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012965.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012371.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008666.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008420.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006834.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006721.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005408.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003418.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000800.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000362.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994449.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990139.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984830.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983425.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980598.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977986.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975825.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972022.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968823.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966999.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966500.jpg" />
 </div>
 
 
@@ -607,84 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C7145D7EDDD410A89F7223D625BA5D23771C45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977353   (964608) от 22.01.2016
-
-И. С. Шкловский | Звезды: их рождение, жизнь и смерть (1984) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена центральной проблеме астрономии - физике звезд. Заключительный этап звездной эволюции представляет особенно большой интерес, так как он имеет прямое отношение к таким интереснейшим объектам современной астрономии, как пульсары, рентгеновские звезды и черные дыры. Проблемы, связанные с этими объектами, пока далеки от решения. Поэтому автор стремился (   Читать дальше...   )Жанр: История, физика, науковедение, астрономия, естествознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC52DDC6752EF0E71692B91AA350D49C532A93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977360   (964557) от 22.01.2016
-
-М. Е. Набоков | Астрономические наблюдения с биноклем (1948) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любители астрономии с выпуском наших отечественных биноклей получили инструмент, с которым они могут вести целый ряд полезных для науки наблюдений комет, метеоров, переменных звезд и тем самым ближе подойти к подлинной научной работе астрономов, всегда основанной на результатах наблюдений. Из истории астрономии известно, что Галилей даже с небольшим инструментом (   Читать дальше...   )Жанр: История, астрономия, науковедениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A422186BF1DA72570D60E63C73184B4F515321A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978307   (963571) от 23.01.2016
-
-П.Я. Уфимцев | Основы физической теории дифракции (2013) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963571.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изучается дифракция акустических и электромагнитных волн на телах, больших по сравнению с длиной волны.Развитая в ней асимптотическая теория может быть полезна при решении разнообразных дифракционных задач, возникающих, например, в таких областях техники, как проектирование микроволновых антенн, конструирование акустических барьеров для снижения уровня шумов, (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5B22F9C5EC18C0EA5114786C52EC699DA22450
 ```
 
 https://mybot314.ru/tekegram_catalog/

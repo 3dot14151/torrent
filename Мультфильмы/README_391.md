@@ -1,3 +1,133 @@
+###  Публикация: 1730632   (53084) от 16.06.2024
+
+Агент Элвис / Agent Elvis (2023) WEB-DL (сезон 1, серии 1-10 из 10) [H.264/1080p-LQ] NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53084.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1968 году культовый король рок-н-ролла Элвис Пресли, пользующийся славой как одна из самых больших звезд в мире, знакомится с загадочной молодой женщиной по имени СиСи Райдер, которая предлагает ему работу агентом в сверхсекретной правительственной организации. С этих пор знаменитый музыкант вынужден разрываться между концертами в Лас-Вегасе, заботой о своей жене (   Читать дальше...   )Производство: США, Authentic Brands Group, Sony Pictures Animation, Sony Pictures Television, TitmouseЖанр: Для взрослых, боевик, триллер, комедия, криминалРежиссер: Флетчер Мулс, Гэри ЙеАктеры: Мэттью МакКонахи, Кэйтлин Олсон, Кристина Хендрикс, Киран Калкин, Саймон Пегг, Фред Армисен, Гэри Коул, Присцилла Пресли, Джонни Ноксвилл, Джейсон МанцукасПеревод: Многоголосый профессиональный (NewStation)  - Присутствует ненормативная лексика!Язык озвучки: Русский, АнглийскийСубтитры: русские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5398683490555D56B385725DB27624DAB307BDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730640   (53058) от 17.06.2024
+
+Ультрамен: Путь к вершине / Ultraman: Rising (2024) WEB-DLRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская аниме-адаптация культового сериала конца 70-х., созданная японскими аниматорами специально для стримингового сервиса Netflix. Семейство Сато отличается от прочих японских семей, поскольку мужчины из их рода с недавних пор обрели способность становиться Ультраменом — защитником людей от кайдзю. До недавнего времени Ультраменом был глава семейства, который, (   Читать дальше...   )Производство: США, Япония / Netflix Animation, Tsuburaya Productions, Industrial Light & Magic (ILM)Жанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Шеннон Тиндл, Джон АосимаАктеры: Крис Фрил, Роб Фукудзаки, Hiro Nakamura, Гедде Ватанабэ, Тэмлин Томита, Кион Янг, Фрэнк Бакли, Франсуа Чау, Джулия Харриман, Robert YasumuraПеревод: Дублированный (Videofilm International Ltd., Postmodern)Язык озвучки: русский, английский, украинскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE56075BBEB14C7FDCBC48DD521ED4B0A977B82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730795   (52934) от 18.06.2024
+
+Тарзан и Джейн / Tarzan & Jane (2002) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошёл почти год с момента свадьбы Тарзана и Джейн. С тех пор они счастливо живут в джунглях. Приближается годовщина свадьбы, и Джейн погружается в воспоминания о своих первых приключениях с Тарзаном. Джейн раздумывает, какой приятный сюрприз сделать на годовщину мужу.Производство: США, Филиппины, Австралия, Тайвань / Walt Disney Pictures, Walt Disney Television AnimationЖанр: мультфильм, приключения, семейныйРежиссер: Стив Лотер, Виктор Кук, Дон МаккиннонАктеры: Майкл Т. Уайсс, Оливия д’Або, Джефф Беннетт, Джим Каммингс, Тасос Костис, Эйприл Уинчелл, Рене Обержонуа, Грэй Гриффин, Алексис Денисоф, Джон О’ХарлиПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA18B63240135ACDC0091702A37016DAC373FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665786   (52928) от 18.06.2024
+
+Нико и Меч Света / Niko and the Sword of Light (2015-2019) WEB-DL [H.264/1080p] (Сезон 1-2, Серии 1-23 из 23)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сила мрака захватила королевство, обращая невинные создания в ужасных чудовищ. Остался лишь один чемпион, способный противостоять тьме и вернуть магию света: Нико. Вместе с бесстрашной принцессой, вооружённый мечом света, Нико держит путь к Проклятому вулкану, чтобы лицом к лицу сразиться с коварным колдуном Нар-Эстом и освободить мир от гнёта тёмных сил.Производство: США, Amazon Studios, TitmouseЖанр: Мультсериал, фэнтези, боевик, приключения, семейныйРежиссер: Ан Сон-джин, Майкл МолониАктеры: Андре Робинсон, Кари Уолгрен, Том Кенни, Стив Блум, Ди Брэдли Бейкер, Джим Каммингс, Кевин Майкл РичардсонПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH), немецкие, испанские, французские, итальянские, португальскиеПродолжительность: 00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BD711DAB34079B51FF1957C579B3475A2D61BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730876   (52923) от 18.06.2024
+
+Ультрамен: Путь к вершине / Ultraman: Rising (2024) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyпepзвeзде бeйcбoлa Keну Caтo было суждено стать зaщитникoм Зeмли — cyпepгepoeм Ультpaмeнoм. Caтo пpeдcтoит пpoтивocтoять coбcтвeннoмy эгo и пpoйти чepeз paзныe иcпытaния, чтoбы пoнять, чтo знaчит быть Ультpaмeнoм. Eмy тaкжe пpидётcя зaбoтитьcя o нoвopoждённoм кaйдзю — пoтoмкe cвoeгo глaвнoгo вpaгa.Производство: Япония, США / Industrial Light & Magic (ILM), Netflix Animation, Tsuburaya ProductionsЖанр: фэнтезиРежиссер: Шеннон Тиндл, Джон АосимаАктеры: Крис Фрил, Роб Фукудзаки, Хиро Накамура, Гедде Ватанабэ, Тэмлин Томита, Кион Янг, Фрэнк Бакли, Франсуа Чау, Джулия Харриман, Роберт ЯсумураПеревод: Дублированный (Videofilm International Ltd.)Язык озвучки: русские, английскиеСубтитры: русские (forced, full), английские (full, SDH), украинские, немецкие, французскиеПродолжительность: 02:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B22F6C2A8B82BADD86C475C7725960E34169503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731036   (52812) от 19.06.2024
 
 Стражи Вселенной: Как приручить динозавров / Cosmicrew: Storm Force (2023) WEBRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52812.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52636.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52635.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52624.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52588.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52466.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52454.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52424.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52331.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52321.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52249.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52248.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52171.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52161.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51922.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51544.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51533.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51512.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51398.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51374.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51322.jpg" />
 </div>
 
 
@@ -539,138 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:408ED717C32A6DB90973153009861F64E4DE387D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734046   (51275) от 02.07.2024
-
-Отважный Бим и пернатые колокольчики / Bim (2023) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед большим праздником колокольчики собираются вместе, чтобы состязаться в ловкости и отваге. Победителей ждет необыкновенно важная миссия — путешествие в Рим за магическим эликсиром, пробуждающим весну. Удача улыбается Биму и его друзьям. Прежде, чем доставить волшебный трофей, им предстоит схватка с грозной соперницей Авророй и бандой хулиганов.Производство: Бельгия / Fabrique FantastiqueЖанр: мультфильм, приключения, фэнтезиРежиссер: Том ван Гестель, Tom Van GestelАктеры: Линк Ван Гестель, Абдель Малик Фархуни, Лис Де Шеппер, Тине Эмбрехтс, Джойс Белленс, Янин Бишопс, Камилла Блеро, Мартен Босманс, Говер Деплуаж, Рокко ГранатаПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: Русские (forced, hardsub)Продолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A560FF363E38EB7CC4F83AE817B957A57615A0E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723439   (51245) от 03.07.2024
-
-Истребитель демонов / Demon Slayer / Kimetsu no Yaiba (2024) WEB-DL [H.264/1080p] (сезон 4, серии 1-8 из 8) Jaskier
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преображение Нэдзуко шокировало не только Мудзана, но и истребителей. Демоны бросили все силы на её поиски и стали проявлять себя реже. Столпы воспользовались затишьем перед бурей, чтобы организовать массовые тренировки мечников.Производство: Япония / Ufotable, Aniplex, ShueishaЖанр: аниме, мультфильм, фэнтези, боевикРежиссер: Харуо СотодзакиАктеры: Тосио Фурукава, Нацуки Ханаэ, Кана Ханадзава, Акира Исида, Кэнго Каванъиси, Акари Кито, Кацуюки Конъиси, Ёсицугу Мацуока, Мамору Мияно, Рётаро ОкиаюПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 1 серия ~00:49:00, 2-6 серии ~00:25:00, 7 серия ~00:32:00, 8 серия ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BC6E0F569B43E1A44CB63EE0F55B721254FC97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734300   (51181) от 03.07.2024
-
-101 далматинец 2: Приключения Патча в Лондоне / 101 Dalmatians II: Patch's London Adventure (2003) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллионерша Стервелла Де Виль, чья первая попытка похитить 101 далматинца и пошить из их шкурок роскошную шубу с треском провалилась, готовит новый дьявольский план по захвату славных песиков.
-
-Она потирает руки в ожидании легкого успеха, но на пути негодяйки встают храбрый щенок Патч и его новый друг Громобой - четвероногая звезда экрана! Улицы Лондона никогда еще (   Читать дальше...   )Производство: США, Япония, Великобритания, Гонконг, Канада / Walt Disney Pictures, DisneyToon Studios, Walt Disney Animation Japan, Walt Disney Television AnimationЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Джим Каммеруд, Брайан СмитАктеры: Бэрри Боствик, Джейсон Александер, Мартин Шорт, Бобби Локвуд, Сьюзан Блэйксли, Сэмюэл Уэст, Морис ЛаМарш, Джефф Беннетт, Джоди Бенсон, Тим БентинкПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268E7A2DB72444446A5063AA51DB4A9869094151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734831   (51032) от 05.07.2024
-
-Сказочный патруль. Шоу продолжается (2024) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре волшебницы из Сказочного патруля — Варя, Снежка, Алёнка и Маша — берутся за новое расследование: у брутальных гномов-рокеров похищен волшебный артефакт — электрогитара. Под подозрение немедленно попадают их заклятые враги — лесные эльфы. Дело принимает новый оборот, когда в расследование вмешивается могущественная третья сила.Производство: Россия / Parovoz Animation StudioЖанр: мультфильм, приключения, фэнтезиРежиссер: Антон ЛаншаковАктеры: Юлия Александрова, Глафира Тарханова, Анфиса Вистингаузен, Полина Кутепова, Ольга Кузьмина, Анна Киселёва, Данила Якушев, Владимир Антоник, Андрей Рожков, Даниил ЭльдаровСубтитры: ОтсутствуютПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2E1FD712673B966FBC74D5950FE9A71D83944F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221862   (50940) от 06.07.2024
-
-Роботы / Robots (2005) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в мире, населённом исключительно роботами. Как и в мире людей, у них есть своя социальная лестница, свои герои и изгои. Молодой гений Родни мечтает сделать мир роботов лучше. А ещё ему очень нравится роботша Каппи. Но на его пути стоит ведущий дизайнер роботов Биг Велд, принадлежащий к тому же сословию, что и Каппи.Производство: США / 20th Century Fox Animation, Blue Sky StudiosЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Крис Уэдж, Карлос СалданаПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC41149E8D40DC1C0C24F3B3B7021D9429331408
 ```
 
 https://mybot314.ru/tekegram_catalog/

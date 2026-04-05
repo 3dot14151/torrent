@@ -1,3 +1,119 @@
+###  Публикация: 1173097   (391360) от 10.10.2017
+
+VA - Ahmed Romel - Orchestrance 213 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Sky Feat. Sonia Suvagau - To Be Who We Truly Are (Afternova Remix)
+02. Saints And Sinners - Peace (Breakfast Remix)
+03. Amine Maxwell - Aspen (Alexey Ryasnyansky Remix)
+04. Sepehr Nazari Presents Hypersia & Sebastian Montano - Legends (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8274B4495FC750391D8E57D18AE7C88E0C1B895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173165   (391352) от 10.10.2017
+
+VA - Best Of Electronic Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sonic Scope - Kryshen (Original Mix)  7:15
+02.  LasImagenes - Anna (Original Mix)  3:12
+03.  Sebastian Strzesniewski - Islas Santanilla (Original Mix)  4:47
+04.  Dmitry Lee'O - In Blue (Original Mix)  2:17(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6969C82C5DE3C474DCA6242AA59A36D31803CEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172907   (391300) от 10.10.2017
+
+VA - Kamasutra Tantra Music, Vol 5: Sounds of Love (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanjay Farrell - Spirit Of Bali 05:14
+02. Jagdish Kay - Goa Sunrise 05:08
+03. Chanda Day - Positive Energy 05:32
+04. Laxmi Baan - Body And Spirit 06:20(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936BAF8E067AF1C048C181C544A5F0B26104913E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173070   (391289) от 10.10.2017
+
+VA - Underground Trance (2017) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farcoste – I Feel You In Thousand Kilometres (06:22)
+02. Skyrend – Magic Moon (05:02)
+03. Bekar-B – Birth To Sky (05:47)
+04. Owl Stone – Breath On Water (07:07)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C4832E7B6AE3D6DAC871A56A10C9EA87B515CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173088   (391241) от 10.10.2017
 
 VA - The Sound Of Trance Vol. 06 (2017) [FLAC|Lossless|tracks] <Trance>
@@ -6,7 +122,7 @@ VA - The Sound Of Trance Vol. 06 (2017) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391241.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Night Runner - Thunderbird (2017) [MP3|320 Kbps] <Synthwave, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391236.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ High Contrast - Night Gallery (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391089.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Naibu - Again / Uncalled (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391085.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ VA - Autumn 2017 Lounge Collection (30 Beautiful Tunes) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390618.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ VA - Sunshine Live Vol.61 (2017) [MP3|320 Kbps] <House, Trance, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390617.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ VA - Grand Chillout Vibrations (100 Tracks Special Edition) (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390610.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Digital Rain - My Dreams (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390280.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ VA - House With Sax Appeal Vol.1 (2010) [MP3|320 кб/с]<Deep House, Sax House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390265.jpg" />
 </div>
 
 
@@ -274,7 +390,7 @@ VA - Festival House: Session 6 (2017) [FLAC|Lossless|tracks] <House,Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389778.jpg" />
 </div>
 
 
@@ -303,7 +419,7 @@ VA - The Big Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389772.jpg" />
 </div>
 
 
@@ -332,7 +448,7 @@ VA - Lounge And The City (30 Beautiful Tunes) (2017) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389720.jpg" />
 </div>
 
 
@@ -361,7 +477,7 @@ Rildrim - Discography 9 Releases (2006-2017) [FLAC|Lossless|WEB-DL|tracks]<Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389640.jpg" />
 </div>
 
 
@@ -390,7 +506,7 @@ VA - Gleaner (2011) [FLAC|Lossless|WEB]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389367.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ Empire Of Love - Mysterious II (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389055.jpg" />
 </div>
 
 
@@ -453,7 +569,7 @@ VA - Buddha Zen: Downtempo Bar (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388981.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ VA - Roger Shah Presents High Noon At Salinas - Beach Grooves Vol.1 (2017) [MP3|
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388979.jpg" />
 </div>
 
 
@@ -511,7 +627,7 @@ VA - Lounge And The City (30 Beautiful Tunes) (2017) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388978.jpg" />
 </div>
 
 
@@ -540,7 +656,7 @@ VA - A State Of Trance Top 20 - October (Selected By Armin Van Buuren) ADE Speci
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388934.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ OMD (Orchestral Manoeuvres In The Dark) - The Punishment of Luxury (2017) [MP3|3
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388864.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ A Made Up Sound - At Klangendum (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, T
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388031.jpg" />
 </div>
 
 
@@ -624,7 +740,7 @@ VA - Body Of Work - The Best Of Denise Rivera (The Radio Edits) (2018) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388030.jpg" />
 </div>
 
 
@@ -638,121 +754,6 @@ VA - Body Of Work - The Best Of Denise Rivera (The Radio Edits) (2018) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E826E786B908A47F594BA4D5814616DBB8B09695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574072   (387932) от 04.09.2022
-
-Moderator - In the Garden (2022) EP [MP3|320 Kbps] <Trip-Hop, Downtempo, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jazz Tales [00:02:29]
-02 - Cherry [00:02:13]
-03 - Saudades [00:02:45]
-04 - Half Light [00:02:21](   Читать дальше...   )Жанр: Trip-Hop, Downtempo, JazzПродолжительность: 00:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572E6A2B490E3B2E3C2F296668D01C85BE8E3F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414216   (387878) от 07.10.2020
-
-Ian Hawgood - Peace Fragments (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387878.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fragment I 18:12
-2. Fragment II 40:06
-3. Fragment III 05:38Жанр: Ambient, Drone, MinimalПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7316D946771F1693DF40AA554F3125B3D049E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414241   (387876) от 07.10.2020
-
-Mathieu Karsenti - Downstream Blue (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387876.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pales 06:24
-2. Loosen 05:36
-3. Further 05:12
-4. Only Light 04:42Жанр: Ambient, Electrocoustic, MinimalПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35879B58D8CAD3CAF473C2D8D20EEB5C59F7AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067707   (387822) от 29.10.2016
-
-VA - Halloween Chillout Selections (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoMbra Modos – Shared Happiness – Original Mix
- 02. Arrojas – Clouds – Original Mix
- 03. Diario – Do You Remember Me? – Original Mix
- 04. Kaxamalka – Bonne Route – Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555B832A882CF1B28BC21B058BF436C8CF4C2602
 ```
 
 https://mybot314.ru/tekegram_catalog/

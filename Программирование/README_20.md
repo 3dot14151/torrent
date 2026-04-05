@@ -1,87 +1,3 @@
-###  Публикация: 1292186   (648192) от 28.03.2019
-
-Эрик Хэнчетт, Бенджамин Листуон | Vue.js в действии (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vue.js – это популярная библиотека для создания пользовательских интерфейсов. В ней значительно переосмыслены реактивные идеи, впервые появившиеся в React.js. Книга «Vue.js в действии» рассказывает о создании быстрых и эластичных пользовательских интерфейсов для Интернета. Освоив ее, вы напишете полноценное приложение для интернет-магазина, где будут присутствовать (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF32A0212BEFD12A749D2F3E462D1089AA43F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292294   (648170) от 28.03.2019
-
-Павел Орленко, Петр Евдокимов | C++ на примерах. Практика, практика и только практика (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга является превосходным учебным пособием для изучения языка программирования C++ на примерах.
-В книге рассмотрена базовая теоретическая часть языка C++, позволяющая ориентироваться в языке и создавать свои программы: типы, функции, операторы, логический конструкции, массивы, указатели, структуры, работа с файлами, объектно-ориентированное программирование. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08AC5865AD93921BEB76940140B81BE36E1FCCA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517743   (646638) от 01.07.2012
-
-Робин Никсон | Создаем динамические веб-сайты с помощью PHP, MySQL и JavaScript [2011] [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у вас есть базовые навыки работы с HTML, то с помощью книги Робина Никсона, опытнейшего разработчика и автора многочисленных бестселлеров по веб-мастерингу, вы без особого труда научитесь создавать динамические сайты, характеризующиеся высоким уровнем взаимодействия с пользователями.
-Откройте для себя сочетание PHP и MySQL, узнайте, как они облегчают создание современных веб-сайтов, научитесь добавлять к этим технологиям возможности javascript, позволяющего создавать высокотехнологичные приложения.
-В данном руководстве каждая технология рассматривается отдельно, показывается, как объединить PHP, MySQL и javascript в единое целое, дается представление о самых современных концепциях веб-программирования. С помощью подробно разобранных примеров и контрольных вопросов, приводимых в каждой главе, вы сможете закрепить изученный материал на практике.
-Данное руководство поможет вам:
-- освоить основы PHP и объектно-ориентированного программирования;
-- основательно изучить MySQL, начиная со структуры баз данных и заканчивая (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4047EF019649C88823D2AA0E49BD6C7DABC30C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031949   (645249) от 07.07.2016
 
 Василий Усов | Swift. Основы разработки приложений под iOS и OS X [2-е издание] (2016) [PDF]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645249.jpg" />
 </div>
 
 
@@ -116,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644445.jpg" />
 </div>
 
 
@@ -142,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639316.jpg" />
 </div>
 
 
@@ -168,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636891.jpg" />
 </div>
 
 
@@ -195,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634818.jpg" />
 </div>
 
 
@@ -221,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633768.jpg" />
 </div>
 
 
@@ -250,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633763.jpg" />
 </div>
 
 
@@ -276,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633222.jpg" />
 </div>
 
 
@@ -302,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631268.jpg" />
 </div>
 
 
@@ -329,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631245.jpg" />
 </div>
 
 
@@ -356,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631240.jpg" />
 </div>
 
 
@@ -383,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629013.jpg" />
 </div>
 
 
@@ -409,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627385.jpg" />
 </div>
 
 
@@ -435,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627330.jpg" />
 </div>
 
 
@@ -463,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627311.jpg" />
 </div>
 
 
@@ -489,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625582.jpg" />
 </div>
 
 
@@ -515,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621834.jpg" />
 </div>
 
 
@@ -541,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620350.jpg" />
 </div>
 
 
@@ -567,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620256.jpg" />
 </div>
 
 
@@ -593,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620141.jpg" />
 </div>
 
 
@@ -619,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618853.jpg" />
 </div>
 
 
@@ -645,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618344.jpg" />
 </div>
 
 
@@ -671,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618336.jpg" />
 </div>
 
 
@@ -683,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5417273EC6006D5A8A5B660B6CDD524D2EAB690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911441   (617907) от 22.06.2015
+
+П.Н. Бибило, Н.А. Авдеев | VHDL. Эффективное использование при проектировании цифровых систем (2006) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются наиболее распространенные на практике пакеты STD_LOGIC_1164, NUMERIC_STD, EXEMPLAR_1164, TEXTIO, STD_LOGIC_TEXTIO, VITAL языка VHDL и их использование при проектировании цифровых систем на элементной базе сверхбольших интегральных схем, в том числе базовых матричных кристаллов. Приведены примеры и маршруты проектирования с использованием системы ModelSim (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923B9ADA5ABB3EB742565583FABC3A11552CD0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910827   (617438) от 22.06.2015
+
+Сергей Тепляков | Паттерны проектирования на платформе .NET (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паттерны проектирования остаются важным инструментом в арсенале разработчика, поскольку они опираются на фундаментальные принципы проектирования. Тем не менее, появление новых конструкций в современных языках программирования делает одни паттерны более важными, а значимость других сводит к минимуму.
+Цель данной книги - показать, как изменились паттерны проектирования (   Читать дальше...   )Жанр: Компьютерная литература, Программирование на языках .NETФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF199BF3ABB406DBB13B4B44CAD33B0516237A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523597   (616316) от 16.07.2012
+
+Д.Н.Колисниченко | Самоучитель PHP 5 [2007] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является превосходным учебным пособием, позволяющим быстро освоить и эффективно использовать РНР. Здесь вы найдете все, что для этого необходимо: от описания настройки РНР, основ CGI и базовых конструкций языка до работы с сессиями, каналами, сокетами и другими специальными технологиями РНР. Особое место занимает рассмотрение взаимодействия РНР с базами данных. Книга максимально ориентирована на достижение реальных практических результатов. В деталях описано, как создать на РНР свою гостевую книгу, чат, форум, почтовую рассылку на сайте, новостную ленту и даже интернет-магазин. Приведены готовые скрипты. Отдельно рассмотрена методика создания системы автоматического управления содержимым сайта. Кроме создания своих скриптов, приведено описание уже готовых профессиональных продуктов (бесплатных и открытых): форума phpBB и системы PHPNuke. Эти продукты применяются на огромном количестве сайтов и позволяют «дважды не изобретать велосипед», а использовать уже готовые решения. Книга отличается простотой (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96316646051D676289A6EE4CD702D422B9D94A09
 ```
 
 https://mybot314.ru/tekegram_catalog/

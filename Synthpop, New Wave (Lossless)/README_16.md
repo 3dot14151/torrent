@@ -1,32 +1,3 @@
-###  Публикация: 1253848   (379410) от 11.10.2018
-
-The Midnight - Kids (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youth (03:09)
-02. Wave (04:31)
-03. Kids (Prelude) (02:13)
-04. Lost Boy (04:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA3358CC7E9AFF40ABD94C1681BFF2E9FEF738F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574787   (379227) от 08.09.2022
 
 Blondie - Against The Odds 1974-1982 (2022) 8CD Box Set, Deluxe Edition [FLAC|Lossless|tracks] <New Wave, Punk, Synth-pop>
@@ -35,7 +6,7 @@ Blondie - Against The Odds 1974-1982 (2022) 8CD Box Set, Deluxe Edition [FLAC|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379227.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ unTIL BEN - Binaries Traveller (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378958.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ unTIL BEN - Sketches Of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378856.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Talk Talk - Asides Besides (1998) Compilation, 2CD [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378160.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Christine - Echoes from Dawn (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376709.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Star Inc. - Earthborn: Modern Synthesizer Hits (2018) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374619.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Toyah - Anthem (1981) 2CD, Deluxe Edition, Remaster, 2022, Safari Records [FLAC|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373241.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Galaxy Racer - Across The Universe (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373184.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ DRYVE - 80s Kids (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372883.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ GUNSHIP - GUNSHIP (2015) INgrooves [FLAC|Lossless|tracks + .cue] <Electronic, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366041.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ DEADLIFE - The Order of Chaos (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364149.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ AaRON - We Cut the Night (2015) [FLAC|tracks+.cue]<Electronic, Pop Rock, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363301.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Eurythmics - Peace - (1999) /BMG Japan, Remastered 2005/ [FLAC|Lossless]<Synth-p
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_362870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362870.jpg" />
 </div>
 
 
@@ -418,7 +389,7 @@ Scheuber - The Me I See (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop, Darkwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361872.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ Beborn Beton - A Worthy Compensation (2015) [FLAC|image+.cue]<Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360736.jpg" />
 </div>
 
 
@@ -476,7 +447,7 @@ Scuta Scalamanta - Synthwave (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, El
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360579.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ Electric Youth - Innerworld (2014) [FLAC|Lossless|tracks + .cue] <Synthpop, New 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359025.jpg" />
 </div>
 
 
@@ -534,7 +505,7 @@ Scarlet Fantastic - Beyond Pluto (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Europo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355754.jpg" />
 </div>
 
 
@@ -563,7 +534,7 @@ Hurts - Surrender (2015) [FLAC|tracks+.cue]<Synthpop, Pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355568.jpg" />
 </div>
 
 
@@ -592,7 +563,7 @@ Depeche Mode - Remixes for the Masses EP. by Techni-ka (2014) [FLAC|tracks|WEB-D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355567.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ Didier Marouani - Space Opera (1987) Japanese Edition [FLAC|Lossless|image + .cu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352118.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ Kraftwerk - Minimum-Maximum (2005) [FLAC|image+.cue]<Electronic,Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351045.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ Scandroid - Scandroid (2016) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345641.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ Scandroid - Dreams In Monochrome (2018) FIXT Music [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345492.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ Alphaville & Deutsches Filmorchester Babelsberg - Eternally Yours (2022) [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340817.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ Alphaville & Deutsches Filmorchester Babelsberg - Eternally Yours (2022) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA965744ACAC495F35CFF53E8F71F1A42FB8E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419171   (339871) от 28.10.2020
+
+R°A - Space Melody (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander (5:35)
+02. Very Nice (4:19)
+03. Space Melody (Flemming Dalum Instr. Remix) (5:16)
+04. Clock War (5:28)(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, New WaveПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0098ACE257E4703621A905BBE1FB1CD8EC62F1BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

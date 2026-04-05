@@ -1,3 +1,60 @@
+###  Публикация: 1136685   (672649) от 23.05.2017
+
+Syncios Data Transfer 1.2.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672649.jpg" />
+</div>
+
+
+###  Подробнее
+
+SynciOS Data Transfer - простая в использовании, но мощная программа для передачи данных с телефона. Программа поддерживает передачу файлов, включая контакты, фотографии, музыку, видео и тд. между iPhone и Android без какой-либо потери данных и в любых направлениях.
+
+Возможность создать резервную копию телефона на компьютере в один клик. Вы даже можете управлять (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2017Разработчик: SynciosПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985FC0EF5D31B868FBD2727DB24652DB23F42852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030729   (672162) от 01.07.2016
+
+Command Center 1.0.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Command Center (бывший Control Center)
+Центр управления для Mac  - эта утилита для пользователей Mac OS X.
+Функции монитора включают расширенные графики и статистические данные по большей части информации , относящиеся к системе , например, процессора, оперативной памяти , сети , батареи и потребление энергии .
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июля 2016Разработчик: Cindori ABПоддерживаемая ОС: OS X 10.11  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664A59391FEC02D235AB11A931E53B8BA0F1E81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030789   (671963) от 01.07.2016
 
 MPV 0.18 (git-c57304a) [En]
@@ -6,7 +63,7 @@ MPV 0.18 (git-c57304a) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671963.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ Code Collector Pro 1.7.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671141.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ TiltShift 1.0.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671059.jpg" />
 </div>
 
 
@@ -85,7 +142,7 @@ SQLPro for MySQL 2022.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670875.jpg" />
 </div>
 
 
@@ -112,7 +169,7 @@ TinkerTool System 4.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670828.jpg" />
 </div>
 
 
@@ -139,7 +196,7 @@ PreSonus Studio One Professional 3 v3.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670626.jpg" />
 </div>
 
 
@@ -165,7 +222,7 @@ DoYourData Super Eraser for Mac 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670498.jpg" />
 </div>
 
 
@@ -193,7 +250,7 @@ Timelime 1.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670248.jpg" />
 </div>
 
 
@@ -221,7 +278,7 @@ Bokeh - Focus with Background Blur Photo Effects 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670078.jpg" />
 </div>
 
 
@@ -249,7 +306,7 @@ App Pier 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669397.jpg" />
 </div>
 
 
@@ -277,7 +334,7 @@ Email Archiver Enterprise 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669295.jpg" />
 </div>
 
 
@@ -305,7 +362,7 @@ Orion PDF Author 2.98 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669293.jpg" />
 </div>
 
 
@@ -333,7 +390,7 @@ iThoughtsX 2.26 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669280.jpg" />
 </div>
 
 
@@ -359,7 +416,7 @@ Glyphs 2.0.1 (727) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669199.jpg" />
 </div>
 
 
@@ -386,7 +443,7 @@ DEVONthink Pro Office/Server 3 v3.8.2 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669174.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ Apple MainStage 3.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669093.jpg" />
 </div>
 
 
@@ -440,7 +497,7 @@ ColoFolXS 2.1.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667900.jpg" />
 </div>
 
 
@@ -469,7 +526,7 @@ Textcraft 1.0.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667896.jpg" />
 </div>
 
 
@@ -496,7 +553,7 @@ Photo Batch 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667870.jpg" />
 </div>
 
 
@@ -524,7 +581,7 @@ Circular Studio 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667818.jpg" />
 </div>
 
 
@@ -551,7 +608,7 @@ Records v1.5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667815.jpg" />
 </div>
 
 
@@ -579,7 +636,7 @@ DiskWarrior (Standalone) 5.1 + Bootable 5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667054.jpg" />
 </div>
 
 
@@ -607,7 +664,7 @@ Mic Drop 1.4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666817.jpg" />
 </div>
 
 
@@ -633,7 +690,7 @@ Apps On Sale 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666779.jpg" />
 </div>
 
 
@@ -647,60 +704,6 @@ Mac App Store быстро растет, десятки приложений п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:924C9F5EFAE3788F829820D413C55C935EBA8115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137753   (666777) от 27.05.2017
-
-SimBooster Premiun 2 2.9.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666777.jpg" />
-</div>
-
-
-###  Подробнее
-
-SimBooster представляет собой утилиту все-в-одном, которая включает в себя разнообразные системные инструменты, для оптимизации Вашего Mac.
-
-Для медленных компьютеров Mac, SimBooster может освободить оперативную память для увеличения рабочих скоростей. Для пользователей, которые страдают от небольшого пространства на жестком диске, SimBooster может очистить мусор, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2017Разработчик: FMX CO., LTD.Поддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD74BC0042F4EC2BF1118920C3CACBF0AC4262C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537678   (666761) от 17.03.2022
-
-KCNcrew Pack 03-15-22 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666761.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под macOS с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2022Разработчик: © 2005-2022 KCNcrewПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754E730922ACFF3834B57705C3B9D312392213FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

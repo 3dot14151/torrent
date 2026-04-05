@@ -6,7 +6,7 @@ Shape Of Despair - Monotony Fields (2015) [MP3|320 кб/с]<Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643573.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Monument - Hellhound (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643139.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Death Whistle - Death Whistle (2016) [MP3|320 Kbps] <Symphonic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642006.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tremonti - Cauterize (2015) Deluxe Edition [MP3|320 кб/с]<Alternative Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641704.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Periphery - Periphery IV: Hail Stan (2019) [MP3|320 Kbps] <Progressive Metal, Ma
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641280.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Iced Earth - Incorruptible (2017) [MP3|320 Kbps] <Power / Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640785.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Karakoram - Ov Shangri-La (2015) [MP3|320 кб/с]<Heavy / Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640036.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Quiet Prayer - The Failure of Religion (2015) [MP3|320 кб/с]<Heavy Metal, Mel
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640033.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Therion - 13 albums (1991 - 2012) [MP3|320 кб/с]<Death Metal; Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639949.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tuatha De Danann - Dawn Of A New Sun (2015) [MP3|320 кб/с]<Progressive / Folk
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639937.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Hell Camino - Hell Camino (2015) [MP3|320 кб/с]<Southern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639935.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Risen Prophecy - Into the Valley of Hinnom (2015) [MP3|320 кб/с]<Thrash / Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639930.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Nergard - A Bit Closer To Heaven (2015) [MP3|320 кб/с]<Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639918.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Stormhammer - Echoes Of A Lost Paradise (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639916.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Poison Sun - Virtual Sin (2010) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639675.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Suita De Ora - Inspiration (2012) [MP3|217-278 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639597.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Athanasia - The Order of the Silver Compass (2019) [MP3|320 kbps] <Heavy Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639200.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Forever Still - Breathe In Colours (2019) [MP3|320 kbps] <Alternative Metal, Got
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639193.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Thunderstone - Dirt Metal (2009) [MP3|320 кб/с]<Heavy Metal / Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637597.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Twisted Sister - Come Out and Play (Japanese Edition) (1985) [MP3|320 кб/с]<G
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637588.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Satan - Earth Infernal (2022) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637513.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VVitchesmoon - Lilith, Star of Sorrow (2022) [MP3|320 Kbps] <Melodic Death, Goth
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637509.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The Violent Inzident - This Is Nu Metal! (2022) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637507.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Ghost - Prequelle (2018) [MP3|320 Kbps] <Heavy Metal, Occult Rock, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637506.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Dope Default - Division (2022) [MP3|320 Kbps] <Stoner Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637400.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ In the Last Days - Do What Thou Wilt (2022) [MP3|320 Kbps] <Hardcore, Modern Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637390.jpg" />
 </div>
 
 

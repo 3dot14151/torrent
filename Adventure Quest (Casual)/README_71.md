@@ -6,7 +6,7 @@ Reflections of Life 14: Gone But Not Forgotten (2025) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6447.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Detective Club 2: Gallery of Shadows (2025) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6112.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Grim Chronicles: Superior Sorcery / Мрачные летописи: Высше�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5689.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mystery Trackers 21: The Shrouded Village (2025) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5352.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Detective Club 2: Gallery of Shadows / Детективный клуб 2: Гал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4283.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Artifact Seekers: Season 2 / Искатели артефактов: Сезон 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4091.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Big Adventure: Trip to Europe 11 / Большое приключение: Пое
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4090.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Unseen Fears 7: Inner Darkness / Невидимые страхи 7: Тьма
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3769.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Myth Finders (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3128.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Whispered Secrets 17: Poisoner's Masquerade (2025) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2971.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Myth Finders / Искатели мифов (2025) [Ru] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2639.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Missing Hearts: Crimson Cruise (2025) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2614.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mystery Trackers 21: The Shrouded Village / Охотники за тайнами
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2016.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Chimeras 14: The Lost Film (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_791.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Icebound Secrets 2: Soul Hunter (2025) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_238.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Missing Hearts: Crimson Cruise / Пропавшие Сердца: Багровы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82.jpg" />
 </div>
 
 

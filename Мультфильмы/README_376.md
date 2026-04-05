@@ -1,3 +1,135 @@
+###  Публикация: 449934   (75294) от 10.02.2012
+
+Игорь / Igor (2008) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75294.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, населенном Безумными Учеными и Злыми Изобретателями, один талантливый помощник злого ученого мечтает сам стать ученым и выиграть ежегодную Злую Ярмарку Науки.Жанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Энтони ЛеондисПеревод: ДублированныйЯзык субтитров: Rus (несколько песен), Rus (полные)-R5, Rus (полные), Eng, Eng (pgs)Продолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FF55EE5C8477B2F801F2D7295C7E9E20DF7910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448867   (74964) от 08.02.2012
+
+Иван Царевич и Серый Волк (2011)   BDRip [1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная история от создателей богатырской трилогии, в которой героев русских народных сказок ждут новые приключения, опасности и забавные ситуации.Производство: РоссияЖанр: Мультфильм, семейныйРежиссер: Владимир ТоропчинАктеры: Никита Ефремов, Иван Охлобыстин, Артур Смольянинов, Лия Ахеджакова, Кристина Асмус, Виктор Сухоруков, Сергей Гармаш, Михаил Боярский...Перевод: ОригиналСубтитры: НетПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C25CF1F3B111D51BC78E0ED2EE36DDD726F4952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448576   (74763) от 07.02.2012
+
+Иван Царевич и Серый Волк (2011) [720p] BDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная история от создателей богатырской трилогии, в которой героев русских народных сказок ждут новые приключения, опасности и забавные ситуации.Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Владимир ТоропчинАктеры: Никита Ефремов, Иван Охлобыстин, Артур Смольянинов, Лия Ахеджакова, Кристина Асмус, Виктор Сухоруков, Сергей Гармаш, Михаил Боярский, Татьяна Бунина, Сергей РусскинПеревод: ОригиналФормат: MKVПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F34249DE188D332A3354881B142D02AD43D2B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448282   (74729) от 07.02.2012
+
+Вода и огонь / Tad u feu (2011) WEBRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания аборигенов добывает огонь весьма непростым способом, в то время как другому семейству становится очень холодно. И тогда отец отправляется на поиски тепла...Жанр: короткометражный анимационный фильм, комедияПеревод: Не требуетсяПродолжительность: 00:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DEC7928CB26876252782BFA80C93E7FC8B58CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447701   (74581) от 06.02.2012
+
+Коралина в Стране Кошмаров / Coraline (2009) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коралина, маленькая девочка попадает в другой мир, скрытый за секретной дверцей. Этот мир - ее альтернативная жизнь, которая не перестает ее радовать, все здесь хорошо, но до поры до времени. Однажды,
+она понимает что ее настоящим родителям за ее проделки угрожает смертельная опасность. Коралине придется найти
+выход из мира наполненного призраками в реальную жизнь…Жанр: Мультфильм, фэнтези, триллерРежиссер: Генри СеликПеревод: ДублированныйЯзык субтитров: Русские (UTF-8)Продолжительность: 01:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7920303E8FBF9F9848EA17F03EEE5AECC3898E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 448192   (74513) от 06.02.2012
 
 Ронал-варвар / Ronal barbaren (2011) [720p] BDRip
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74513.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74359.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74356.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73949.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73910.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73533.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73513.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72924.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72901.jpg" />
 </div>
 
 
@@ -246,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72804.jpg" />
 </div>
 
 
@@ -272,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72735.jpg" />
 </div>
 
 
@@ -298,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72711.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72354.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72344.jpg" />
 </div>
 
 
@@ -376,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72273.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72192.jpg" />
 </div>
 
 
@@ -428,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72168.jpg" />
 </div>
 
 
@@ -454,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71985.jpg" />
 </div>
 
 
@@ -480,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71972.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71834.jpg" />
 </div>
 
 
@@ -532,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71572.jpg" />
 </div>
 
 
@@ -543,139 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D283110A90137BDE3E053521FCFEA64C2EB280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775068   (71484) от 25.01.2025
-
-Панда и Антилопа / Xiong mao he xiao tiao ling / Panda and Springbok (2021) WEB-DL  [H.264/1080p] (Сезон 1,  Серии 1-52 из 52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южноафриканская антилопа Лола и китайская панда Хэ-Хэ случайно встречаются в одной прекрасной долине. С этого момента начинается удивительная история их дружбы. Несмотря на различия в культурах и привычках, они быстро становятся лучшими друзьями. Герои отправляются в большое путешествие, параллельно рассказывая зрителям истории о своих традициях. Каждый новый день (   Читать дальше...   )Производство: КитайЖанр: мультфильм, фэнтези, приключенияРежиссер: Ли ЦзяньпинАктеры: Ма Чэн, Тан Сяоси, Го Чжэнцзянь, Чжао Минчжоу, Син Чао, Чжэн Сяопу, Вэй ИффаньПеревод: Дублированный (официальный)Субтитры: отсутствуютПродолжительность: ~ 00:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC08EF86C8DEA36A50D3BE1D0DFEB1F6B1A7F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776177   (71340) от 30.01.2025
-
-Аргонавты / Колхида (1936) WEBRip [H.264/720p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агитационный мультфильм о работах по осушению Колхиды. Но рассказано все через историю героев древнегреческой мифологии — аргонавте Ясоне и его возлюбленной Медее. По сюжету картины Ясон пообещал Медее разбить у ее ног цветущий сад. Для этого ему нужно осушить болота, уничтожить малярийных комаров и кавалерию лягушек, которые обитают во влажной местности...
-Как таковой (   Читать дальше...   )Производство: СССР / Госкинпром ГрузииЖанр: короткометражный, мультфильм, агитпропРежиссер: Владимир МуджириСубтитры: русские (интертитры)Продолжительность: 00:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EBB5C296417D3AAF00CB3E812024487813BC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776994   (71129) от 03.02.2025
-
-В Африке жарко (1936) WEBRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой фильм о приключениях обезьяны, сумевшей найти и доставить в Африку изнывающему от жары зверью мороженое.
-История отечественной мультипликации. Первая лента, созданная на студии "Союзмультфильм".
-Фильм из  коллекции Госфильмофонда России и опубликован в интернете в рамках совместного проекта "Культура.РФ" и Госфильмофонда России "Открытая (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, короткометражныйРежиссер: Дмитрий Бабиченко, Александр БеляковСубтитры: отсутствуютПродолжительность: 00:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F31D73CCEB34DB7B7594F69E4246BB6BE0690E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777406   (71037) от 06.02.2025
-
-Мама для мамонтенка (1981) DVDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм о судьбе мамонтёнка, который случайно избежал вымирания мамонтов (замёрз в вечной мерзлоте, а потом оттаял) и теперь ищет маму. Мамонтёнок знакомится с белым медвежонком и моржом, которые отправляют его на льдине в плаванье. Старый мудрый дедушка Морж рассказывает мамонтёнку, что далеко на юге есть огромный континент, где живут звери, похожие на него, (   Читать дальше...   )Производство: СССР / ТО «Экран»Жанр: мультфильм, детский, короткометражкаРежиссер: Олег ЧуркинАктеры: Зиновий Гердт, Зинаида Нарышкина, Клара Румянова, Григорий Толчинский, Рина ЗелёнаяСубтитры: отсутствуютПродолжительность: 00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD2B9BD2682CD3884F7C6DFB85DCEF5A7B3736D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778590   (70858) от 09.02.2025
-
-Старик и море (1999) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70858.jpg" />
-</div>
-
-
-###  Подробнее
-
-История дружбы между маленьким деревенским мальчишкой и старым рыбаком. Сантьяго, сильный и гордый человек, он не может смириться с неумолимым течением времени, отнимающим физические силы. Уже много недель он возвращается без улова. Наконец он принимает решение — уйти за добычей далеко-далеко в море и без улова не возвращаться. Только так старый рыбак может вернуть (   Читать дальше...   )Производство: Россия, Канада, Япония, Ogden EntertainmentЖанр: рисованная анимация, короткометражный, приключения, для взрослыхРежиссер: Александр ПетровАктеры: Гордон Пинсент, Кевин Дюхани, Ёдзи Мацуда, Рэнтаро МикуниСубтитры: русские, английские, украинские, португальские, французские, испанскиеПродолжительность: 00:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10DB05CF98CE510930C57AFFBA25CB6466CFE572
 ```
 
 https://mybot314.ru/tekegram_catalog/

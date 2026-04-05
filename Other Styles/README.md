@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1863365   (1063946) от 
+
+VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gobi Desert Collective - Assez (5:02)
+02. Dj Renat - Busindre Reel (7:11)
+03. ARTYDAL - Viajero (Vocal Mix) (6:05)
+04. Marga Sol - Orolalo (4:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BD3FDA152DC097CAB0D0D093A1DE4E8FBFB239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863092   (1063684) от 
+
+VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Suvorov - Orchard (5:43)
+02. Ildar Bik - Talika (5:49)
+03. Gavr - Kamishek (7:22)
+04. Noyan Music - Moyo (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41AAE91F46233549F4BD1CAED0FA1BA7203FC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860850   (1063177) от 
+
+Александр Софикс - Дискография (2004-2009) [MP3|320 Kbps] <New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город радости (Viva Gomel)
+02. Океан
+03. По дну океана
+04. Я скоро буду с тобой(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908B84FC7BA16CC737E69A8986AECE5E78D2BCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859699   (1061238) от 
 
 Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-classical, New Age, Nordic Folk>
@@ -7,7 +94,7 @@ Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061238.jpg" />
 </div>
 
 
@@ -36,7 +123,7 @@ Franck Pourcel And His Orchestra - Pourcel Himself (2024) Remastered [FLAC 24/48
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060164.jpg" />
 </div>
 
 
@@ -65,7 +152,7 @@ Mladen Franko & Norman Candler Magic Strings - Just Beautiful (2024) Remastered 
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060163.jpg" />
 </div>
 
 
@@ -94,7 +181,7 @@ Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060040.jpg" />
 </div>
 
 
@@ -123,7 +210,7 @@ Paul Mauriat - Retalhos De Cetim (1974) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059941.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ Paul Mauriat - Sommer Souvenirs (1975) [FLAC 24/192|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059939.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Paul Mauriat - Les grandes musiques de films (1973) [FLAC 24/192|Lossless|WEB-DL
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059018.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Paul Mauriat - Plays The Beatles (1972) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058998.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, Wor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058980.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Mumford & Sons - Prizefighter (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk R
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058063.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Apparat (Sascha Ring) - 4 Soundtracks (2020) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057915.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057567.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ VA - The Greatest Love Songs From The Musicals (1995) [FLAC|Lossless|tracks + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057296.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ VA - RC Cars (Недетские гонки) OST (2002) Оригинальные
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056800.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055677.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055606.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Franck Pourcel - Cole Porter Story (2018) Remasterisé en 2018 [FLAC 24/44.1|Los
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054072.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Vayper - Матерные частушки (Алексей Иванов) (2026) 
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054009.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Paul Mauriat - Forever And Ever (1973) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051088.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050748.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050661.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047128.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Y
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045731.jpg" />
 </div>
 
 
@@ -659,91 +746,6 @@ VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Y
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A7CC24F722AA6E4A3FCFC0C371FFF4198A6D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603564   (1045672) от 10.01.2023
-
-Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Age, World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun of Inspiration
-02. My Devotion
-03. Kissing the Spirit Awake
-04. Come my LoveЖанр: New Age, World, MeditativeПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9999685D1EB8A093DB2DFB415CBE113CC0EAA13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604340   (1045374) от 13.01.2023
-
-Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Session) (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit of the Sea (Ritchie & Candice Anniversary Home Session)
-02. Shadow of the Moon (25th Anniversary New Mix)Жанр: Folk RockПродолжительность: 00:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F68AA2BB34926E41CF2F36179FDDEA527574B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604227   (1045311) от 14.01.2023
-
-Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Dawn
-02. Spirit Of Silence
-03. Signs Of Love
-04. Walking In The Air(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9E07AAEC25E5D1E683F5A964A5D87B0C7AF149
 ```
 
 https://mybot314.ru/tekegram_catalog/

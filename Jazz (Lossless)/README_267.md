@@ -6,7 +6,7 @@ VA - Modern Jazz Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214757.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Best Jazz Pop Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214732.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dave Koz & Friends - The 25th of December (2014) [FLAC|Lossless]<Jazz, Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214730.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazz Popular Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214720.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Jazz Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214713.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Paul Hardcastle - X (The Eclipse) (2022) [FLAC|Lossless|image + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214652.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Benjamin Bobenrieth - Travels (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214479.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Barbra Lica - You're Fine (2018) Justin Time Records [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214459.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jerome Richardson - Going To The Movies (1962) 2011, EMI Music[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214453.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Flavio Boltro BBB Trio - Spinning (2018) Anteprima [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214452.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Camille Thurman - Waiting For The Sunrise (2018) Chesky Records [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214389.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Erroll Garner - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214129.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Wilbur Harden - Jazz Way Out (1958) 1991, Savoy Jazz [APE|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214127.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Martial Solal & The Danish Radio Jazz Orchestra - Contrastes: The Jazzpar Prize 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214039.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ John Colianni - Live at Maybeck Recital Hall, Vol. 37 (1995) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213860.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ T.K. Blue (Talib Qadir Kibwe) - Eyes of the Elders (2000) [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213856.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Buck Clayton Legacy Band - Claytonia (2011) [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213803.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Sonny Criss - Intermission Riff (1951) 1998, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213801.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ghost Rhythms - Spectral Music (2021) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213777.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Steve Davis - Correlations (2019) Smoke Sessions Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213772.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Alla Ray - Coffee & Cake (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213746.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Melody Gardot & Philippe Powell - Entre eux deux (2022) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212957.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Nancy Wilson - Four Classic Albums Plus (1959 - 1962) 2CD, 2019, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212449.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ The Modern Jazz Quartet - Four Classic Albums (1953 - 1957) 2CD, 2008, Avid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212447.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Konstantin Klashtorni - Best So Far (Chillaxing Jazz Kollektion) (2023) Compilat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211937.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - Ultimate Collection of Relaxing Chilly Jazz III (2023) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211769.jpg" />
 </div>
 
 

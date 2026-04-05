@@ -1,3 +1,57 @@
+###  Публикация: 965800   (224428) от 15.12.2015
+
+Светлана Хмелевская | Социальная философия и социология (2002) [FB2]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие предваряет цикл дисциплин, связанных с изучением тех или иных сторон жизни общества. Социальная философия и социология дают общее представление об обществе как целостной системе, которое затем конкретизируется в ряде иных аспектов его исследования другими науками.
+Для преподавателей и студентов юридических, а также иных вузов, где преподаются (   Читать дальше...   )Жанр: Философия, Обществознание, УчебникиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790604208463116543FAE11DE947F9E842EA2006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965713   (224342) от 15.12.2015
+
+В.В.Левичев | Электронные и фотонные устройства. Принцип работы, технологии изготовления (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание устройств и методов нанотехнологий, изложенные в данном пособии, позволят понять основные принципы использования квантомеханических явлений в приборостроении.
+Пособие предназначено для магистров по направлению 12.04.01 «Приборы исследования и модификации материалов на микро- и наноразмерном уровне.Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDC0BEF967ACF5A87687203E0F5C59A8429AFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584885   (224184) от 19.10.2022
 
 А. Колмогоров, С. Фомин | Элементы теории функций и функционального анализа (2009) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224184.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224097.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223901.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223857.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223792.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223646.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223552.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223449.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223292.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223266.jpg" />
 </div>
 
 
@@ -267,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223250.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223223.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222946.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222625.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221863.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221329.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221320.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221195.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221160.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221052.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220711.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220676.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220612.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220537.jpg" />
 </div>
 
 
@@ -622,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:982DA457C8E821015A2073488BBC9F7C945F3D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424695   (220477) от 21.11.2020
-
-Вл.Д. Мазуров | Математические методы распознавания образов (2010) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задачи распознавания образов связаны с классификацией объектов, которая подчинена некоторой цели. Существуют различные направления формализации задач распознавания образов, приводящие к множеству математических постановок. Распознавание образов является основой искусственного интеллекта. В учебном пособии излагаются основные математические модели и методы решения (   Читать дальше...   )Жанр: Математика, электроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA02EBB9D397AEE47D87245DF667800F0EC3263C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269689   (219786) от 15.12.2018
-
-В.Н. Гришин, Е.Е. Панфилова | Информационные технологии в профессиональной деятельности (2007) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219786.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике дается характеристика информационно-коммуникационным технологиям и системам, используемым в процессах управления организацией. Особое внимание уделяется рассмотрению вопросов выбора системных, прикладных и специализированных программных средств для организации работы управленческого персонала. Представлен обзор рынка информационных технологий и особенности (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25AF5ABF27593BE9FC4E4D5F45AF5A0ACE1A185
 ```
 
 https://mybot314.ru/tekegram_catalog/

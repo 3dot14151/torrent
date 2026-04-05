@@ -1,3 +1,58 @@
+###  Публикация: 1609668   (208271) от 04.02.2023
+
+Enterclass, Анастасия Беседина | Зимний пейзаж акварелью (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208271.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 января рисуем снежный пейзаж акварелью и учимся строить композицию и работать с белым цветом в живописи.
+В первой части урока познакомимся с нашим новым преподавателем художником Анастасией Бесединой, разберем основы композиции в пейзаже и сделаем тональный акварельный этюд в цвете.
+
+В основное время мастер-класса напишем акварелью зимний пейзажный сюжет, научимся (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 04:19:12Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6638D78C1D31F0571E134443E92F452B36F58DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575949   (208266) от 12.09.2022
+
+Gumroad, Overdraw.xyz | Advanced Visual Effects in Unreal: Materia (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот учебный курс проведет вас через весь процесс создания эффекта Сфера Материи. Вы научитесь создавать исходный контент для эффектов - меш в Houdini и текстуры в Substance Designer. Затем вы импортируете контент в UE4, где создадите все шейдеры, и перейдете в Niagara, где вы узнаете, как создавать эффекты частиц качества AAA.Производство: GumroadЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9EA444D3AB8D64D809744E17ECA950AD65B08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648483   (208233) от 23.07.2023
 
 Digital Art Club, Алёна Клементьева | Цифровая Живопись (2020) WEB-DL [AD] [RU]
@@ -6,7 +61,7 @@ Digital Art Club, Алёна Клементьева | Цифровая Живо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208233.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ CG Forge, Tyler Bay | Pyro I - Smoke & Steam (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208226.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Muddy Colors, David Finch | Fantasy Anatomy (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208207.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208176.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ The Gnomon Workshop, David Silberbauer | Create A Procedural Waterwheel Simulati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208137.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208109.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ Skillshare, 3D Tudor, Neil Bettison | Blender VFX Liquid Fire & Smoke (2021) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208101.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ ArtStation, Mathew O'Halloran | Hard-Surface Masters Vol.1 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208086.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ Hudozhnik Online, Дарья Куцаева | Скетчинг цветными 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208050.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ Enterclass, Анастасия Беседина | Акварельная фау�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208044.jpg" />
 </div>
 
 
@@ -281,7 +336,7 @@ Liveclasses, Алексей Шадрин | 12 неизвестных шедев�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207996.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ Bazanova Art, Ольга Базанова | Роскошь лета. Пакет 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207974.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ Marker School, Вера Шерстобитова | Основы маркерно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207866.jpg" />
 </div>
 
 
@@ -362,7 +417,7 @@ Lectoroom, Елена Базанова | Безумное чаепитие с к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207864.jpg" />
 </div>
 
 
@@ -388,7 +443,7 @@ Hudozhnik Online, Екатерина Бердюгина | Анатомия ко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207666.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ pro.liga.ws, Штефан Ротарь | Autodesk Revit - Создание Ок�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207642.jpg" />
 </div>
 
 
@@ -442,7 +497,7 @@ SmartUP, Кирилл Дёмин | 30 дней / идей для твоего п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207637.jpg" />
 </div>
 
 
@@ -471,7 +526,7 @@ Udemy, JSFILMZ | Unreal Engine 5 Introduction to Lighting by JSFILMZ (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207632.jpg" />
 </div>
 
 
@@ -500,7 +555,7 @@ SmartUp, Кирилл Дёмин | Сочный дизайн - 2.0 (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207630.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ Udemy, Poly Bot | Unreal Engine 5.1: Advanced Landscape creation (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207622.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ Enterclass, Татьяна Анисимова | Pro натюрморт (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207601.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207589.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ Udemy, Creativity Unleashed | Unreal Engine 5 Megacourse: Create Games in UE5 & 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207555.jpg" />
 </div>
 
 
@@ -639,7 +694,7 @@ Granich, Елизавета Черникова | Графические мета
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207523.jpg" />
 </div>
 
 
@@ -653,60 +708,6 @@ Granich, Елизавета Черникова | Графические мета
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC49764BBA37193F7E892B9C7BD8D572E2D48AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578862   (207345) от 25.09.2022
-
-MographPlus, Kamel Khezri | Advanced 3d motion graphics in Cinema 4d and Realflow (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207345.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии уроков продолжительностью более 3 часов мы будем учиться создавать сложную 3D моушн-графику в Cinema 4D и Realflow.
-Это один из тех курсов, в котором мы с начала и до конца работаем над одним проектом.
-Сначала мы импортируем логотип из Adobe Illustrator в Cinema 4D. В Cinema 4D мы создадим трехмерную версию логотипа и импортируем ее в Realflow, чтобы (   Читать дальше...   )Производство: MographPlusЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4092A5FD3D686D0A52180F3D7A2659F59406CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578962   (207323) от 25.09.2022
-
-Udemy, Arrimus 3D | Arrimus Ultimate 3D Modeling Course (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207323.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы узнаете, как работать с полигонами, скульптингом и CAD, в программах 3D моделирования, чтобы получить лучшее из всех миров. Особое внимание уделяется использованию самых сильных сторон всех программ, чтобы получить максимальную отдачу от вашего опыта 3D-проектирования. Вы научитесь работать на хорошем уровне в 3D Studio Max, Blender, Zbrush и Plasticity. (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 13:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A463794679B336F4F613DC29726C8F03A3E10C97
 ```
 
 https://mybot314.ru/tekegram_catalog/

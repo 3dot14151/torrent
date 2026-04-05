@@ -1,3 +1,33 @@
+###  Публикация: 574198   (376410) от 12.11.2012
+
+Red Moon Architect - Concealed Silence (2012) [MP3|320]<Melodic Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Abscond
+2. Funeral
+3. Death Rank
+4. Black Butterflies
+5. RealmЖанр: Melodic Doom/Death MetalПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43FD207D000E95ABA3A2270309B3BBCCB6C8E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415492   (376334) от 12.10.2020
 
 Epica - Abyss of Time (single, 2020) [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic Gothic Metal>
@@ -6,7 +36,7 @@ Epica - Abyss of Time (single, 2020) [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic G
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376334.jpg" />
 </div>
 
 
@@ -32,7 +62,7 @@ We Came As Romans - Cold Like War (2017) [MP3|320 Kbps] <Alternative Rock, Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376276.jpg" />
 </div>
 
 
@@ -61,7 +91,7 @@ Wovenwar - Honor Is Dead (2016) [MP3|320 Kbps] <Alternative Metal, Melodic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376251.jpg" />
 </div>
 
 
@@ -90,7 +120,7 @@ Pretty Maids - First Cuts...And Then Some (1999) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376244.jpg" />
 </div>
 
 
@@ -119,7 +149,7 @@ Lethian Dreams - Season Of Raven Words (2012) [FLAC|Lossless]<Doom Metal, Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_376235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_376235.jpg" />
 </div>
 
 
@@ -152,7 +182,7 @@ Jimmy Barnes - The Rhythm And The Blues (2009) [MP3|320 кб/с]<Rock | Soul | B
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376231.jpg" />
 </div>
 
 
@@ -187,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376200.jpg" />
 </div>
 
 
@@ -216,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376199.jpg" />
 </div>
 
 
@@ -245,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376134.jpg" />
 </div>
 
 
@@ -273,7 +303,7 @@ Trivium - The Sin and the Sentence (2017) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376126.jpg" />
 </div>
 
 
@@ -302,7 +332,7 @@ Europe - Walk The Earth (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376120.jpg" />
 </div>
 
 
@@ -331,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376082.jpg" />
 </div>
 
 
@@ -366,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375701.jpg" />
 </div>
 
 
@@ -395,7 +425,7 @@ Dark Tranquillity - Atoma (2016) Limited Edition [MP3|320 Kbps] <Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375672.jpg" />
 </div>
 
 
@@ -424,7 +454,7 @@ Bon Jovi - This House Is Not For Sale (2016) Exclusive Target Edition [MP3|320 �
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375659.jpg" />
 </div>
 
 
@@ -453,7 +483,7 @@ Helloween - Burning Sun (CD Single) (2012) [FLAC|Lossless]<Power Metal, Speed Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_375656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375656.jpg" />
 </div>
 
 
@@ -482,7 +512,7 @@ Tiamat - The Scarred People (Limited Edition) (2012) Scene [FLAC|Lossless]<Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_375648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375648.jpg" />
 </div>
 
 
@@ -517,7 +547,7 @@ Clan of Xymox - Kindred Spirits (2012) [FLAC|Lossless]<Darkwave, Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_375546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375546.jpg" />
 </div>
 
 
@@ -552,7 +582,7 @@ Mighty D. - The Last Rise (2004) [FLAC|Lossless|image + .cue] <Atmospheric Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375491.jpg" />
 </div>
 
 
@@ -581,7 +611,7 @@ Messticator - Forthcoming Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375490.jpg" />
 </div>
 
 
@@ -610,7 +640,7 @@ Mighty D. - In the Sad Valley of Tears (2000) Reissue, 2018, Self-released [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375489.jpg" />
 </div>
 
 
@@ -639,7 +669,7 @@ Monasterium - 4 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375488.jpg" />
 </div>
 
 
@@ -668,7 +698,7 @@ Kalmah - Seventh Swamphony (2013) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375487.jpg" />
 </div>
 
 
@@ -697,7 +727,7 @@ Humaniac - 3 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Progressiv
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375486.jpg" />
 </div>
 
 
@@ -726,7 +756,7 @@ Stratovarius - Destiny (1998) [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375485.jpg" />
 </div>
 
 
@@ -740,35 +770,6 @@ Stratovarius - Destiny (1998) [OGG Vorbis|485 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BFE7A879B6FBB9504A27717A973C5FB390CA4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575010   (375484) от 10.09.2022
-
-Before I Die (RU) - 5 Albums (2017-2022) [Mp3|320 Kbps] <Metalcore, Doom Metal, Experimental Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375484.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-ИСЧЕЗАЮЩИЙ СВЕТ [00:04:44]
-2-ВОСТОРГ И ГНЕВ [00:04:21]
-3-ОСВОБОЖДЕНИЕ [00:03:56]
-4-МЕТРВЫЕ ГЛАЗА [00:03:21](   Читать дальше...   )Жанр: Metalcore, Doom Metal, Experimental MetalПродолжительность: 5 CD, 03:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA619CCFF76F7F749AB7C632746AD6743B22526C
 ```
 
 https://mybot314.ru/tekegram_catalog/

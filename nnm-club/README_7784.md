@@ -1,80 +1,23 @@
-###  Публикация: 1281521   (750020) от 09.02.2019
+###  Публикация: 1281408   (751217) от 08.02.2019
 
-Cat Stevens - Foreigner (1973) Island Masters - IMCD 72, 1993 [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner Suite (18:22)
-02. The Hurt (04:20)
-03. How Many Times (04:29)
-04. Later (04:46)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Classic RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D176BE31195B0C48BF593590DFA7DD71D194330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281670   (750019) от 09.02.2019
-
-VA - Winter White Party (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750019.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sara Landry - Tell Me
-002. Dj Kone & Marc Palacios - Push The Feeling On
-003. Dj Wady & Moondark - No One Cares (Original Mix)
-004. Hardwell - Kicking It Hard(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1396440BB151468F560715A2E482504B9BCC5A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281714   (750018) от 09.02.2019
-
-Affinity Photo Beta 1.7.0 (110) [Multi/Ru]
+Nik Complete Collection by DxO 1.2.18 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
+Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: DxOПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1C4973965326310BB95F3A03F5E19088183B3AF
+magnet:?xt=urn:btih:13BAB359BF5F2EDC24219E3C9F6D64B178595AAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201053   (750017) от 09.02.2019
+###  Публикация: 888980   (751216) от 16.04.2015
 
-Starfish Pool - Collection 19 Releases (1995-2001) [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Techno, Minimal, IDM, Ambient, Abstract>
+Журнал | Linux Format №3 (194) (март 2015) [PDF]
 
->>Electronic
->>IDM (Lossless)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Untitled (14:56)
- 02. Abused Locked Grooves (06:54)
- 03. Locked Groove 1 (00:18)
- 04. Locked Groove 2 (00:18)(   Читать дальше...   )Тип издания: CD, Web , VinylЖанр: Experimental, Techno, Minimal, IDM, Ambient, Abstract •Продолжительность: 00:31:44
+Первый в России ежемесячный журнал на русском языке, полностью посвященный операционной системе Linux. Основная задача журнала — своевременное и полноценное информирование читателей о современном состоянии индустрии программного обеспечения с открытым кодом, публикация обзоров о технологических новинках и обучающих программах, специализированные новости и интервью. Информация, представленная в журнале, будет интересной и полезной для всех пользователей ПК: как специалистам по программированию и системному администрированию, (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8712F102D5BB41B7DCE1A2569A100C2CC9A4EC29
+magnet:?xt=urn:btih:46B0F4183962508ED10D9BE5E16C44471620453B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +51,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281651   (750016) от 09.02.2019
+###  Публикация: 1216058   (751215) от 30.03.2018
 
-Free Nelson Mandoomjazz - The Organ Grinder (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental>
+Анна Бруша | Ведьма по ошибке (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда начинаешь делать ошибки, уже трудно остановиться. Правда, с другой стороны, жизнь становится интереснее. У Майи – так однозначно стала. Даже чересчур. Первая ошибка – и нет работы, вторая – и незапланированный переезд из Москвы… в магический мир! Настоящий! С демонами и подозрительными охотниками за этими самыми демонами. Третья – и тебя уже причисляют к ведьмам, (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 11:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC9E6362F4C9CBC18D2A2167AFD8882B72AC779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281242   (751214) от 08.02.2019
+
+Google через Chrome предупредит о скомпрометированном пароле
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google выпустил расширение Password Checkup для Chrome, которое сообщает пользователю — безопасен ли пароль.Для этого расширение проверяет его по базам данных 4 миллиардов комбинаций, о которых уже знают злоумышленники. Если компании станет известно о новой утечке, и пароль окажется скомпрометирован, пользователь получит уведомление при входе в аккаунт с любого устройства.Для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216405   (751212) от 30.03.2018
+
+Shakatak - Invitations (Expanded) (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Jazz Funk>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Open the Gate (4:32)
-02. You Are Old, Father William (6:44)
-03. The Woods (10:10)
-04. Funambule (5:55)(   Читать дальше...   )Производство: RareNoise Records – RNR068Жанр: Dark Jazz, Doom Jazz, Experimental, Avantgarde JazzПродолжительность: 01:10:02
+01. Invitations (Extended Mix) (6:03)
+02. Lose Myself (5:20)
+03. Lonely Afternoon (4:35)
+04. Steppin' Out (4:45)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, Jazz FunkПродолжительность: 01:04:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:973E049A9E39AF677812EBC73D18DEEEC321269B
+magnet:?xt=urn:btih:8439D9BF1E543DC5B8AAD2B5E13486F95E748FDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281831   (750015) от 09.02.2019
+###  Публикация: 888920   (751211) от 16.04.2015
 
-Хоккей с мячом. Чемпионат Мира  2019. Вёнерсборг (Швеция). Группа A. 1-й тур. Швеция — Россия (2019) WEB-DL [H.264/720p-LQ]
+Журнал | Навигатор игрового мира №4 (апрель 2015) [PDF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Журналы
+>>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 января 2019 года, суббота. 18:15 МСК
-39-й Чемпионат мира по хоккею с мячом 2019. Вёнерсборг (Швеция).
-Группа A. 1-й тур.
-Швеция — Россия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:51
+"Навигатор игрового мира" - ежемесячный журнал, посвященный новейшим компьютерным играм для платформы PC, выходит с 1997 года. В каждом номере журнала - описания самых последних и популярных игр, а также обзоры и характеристики аппаратного обеспечения, статьи о сравнителом тестировании девайсов и компьютерных составляющих, игровой периферии. Одной из особенностей журнала является то, что статьи в нём разделены по рубрикам в соответствии не с типом статей, а с жанром игр (например, все обзоры, интервью (   Читать дальше...   )Жанр: Игровой журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45F47DB4EF23B6349B16ECD0E61B25C2B649364C
+magnet:?xt=urn:btih:9FE7DF11356BA481A682D73CD3E1A7FFFECB5EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281511   (750014) от 09.02.2019
+###  Публикация: 1281411   (751210) от 08.02.2019
 
-Tyler Kamen - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Psychedelic>
+Жена / The Wife (2017) BDRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Main Attraction [00:04:48]
-02. All The Leaves They Shake [00:04:19]
-03. Inside Out [00:03:09]
-04. Better Man [00:03:42](   Читать дальше...   )Жанр: Progressive Rock, PsychedelicПродолжительность: 00:39:39
+История Джоан Кастлман, которая состояла в браке с известным писателем сорок лет и внезапно решила развестись с ним. Ситуация примечательна тем, что Джоан оставляет супруга накануне вручения тому Нобелевской премии.Производство: Великобритания, Швеция, США, Tempo Productions Limited,Anonymous Content,Film i VästЖанр: ДрамаРежиссер: Бьёрн РунгеАктеры: Гленн Клоуз, Джонатан Прайс, Кристиан Слэйтер, Макс Айронс, Энни Старк, Элизабет МакГоверн, Гарри Ллойд, Моргана Полански, Аликс Вилтон Риган, Карин Франц КёрлофПеревод: Дублированный (iTunes)Субтитры: Русские (forced), Английские (full & SDH)Продолжительность: 01:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A791E833ECA19DE31D7060538BC7F633B289340
+magnet:?xt=urn:btih:B948BB6605EEA8E331DD5881A3BC5C6C43AD3FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,170 +184,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281708   (750013) от 09.02.2019
+###  Публикация: 1216446   (751209) от 30.03.2018
 
-Любовь Шепилова - Я ищу тебя (2009) [FLAC|Lossless|image + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Загуляю я сегодня
-02. Курортный раман
-03. Вера, Надежда, Любовь ( дуэт с М.Бондаревым )
-04. Голубые глаза(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2E4440CE41DA6E4A412496DB6EB1B092F8AE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281486   (750012) от 09.02.2019
-
-Tobias Sammet's Avantasia - More Moonglow - The Rock Hard EP (2019) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750012.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:56] 01 - Moonglow
-[11:12] 02 - The Raven Child
-[11:32] 03 - The Scarecrow (Live At Wacken 2014)
-[7:12] 04 - Babylon Vampyres (Demo Version 2015)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFF40DED694C9D6C63BBC3E9B3E776E3A425421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281654   (750011) от 09.02.2019
-
-Morph Age 4.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Morph Age Pro мощный инструмент для высококачественного морфинга и варпинга(деформации) цифровых изображений и видеофрагментов для Mac OS X.
-Результаты работы с программой могут быть сохранены в виде видеоролика. Программа позволяет плавно регулировать изменения изображения с помощью направляющих кривых. Версия PRO может работать с видео, в то время как стандартная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD53621A598515624CCF072341908E9324073D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281522   (750010) от 09.02.2019
-
-Ernesto Cortazar - Concertos Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sol'itude (Concerto) (11:01)
- 02. Leaves In The Wind (Concerto) (9:30)
- 03. Beethoven's Silence (Concerto) (9:54)
- 04. Nights Of Silk And Tears (Concerto) (10:10)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7ECC697C43058CAA94B02BD778348B7F50A7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281751   (750009) от 09.02.2019
-
-John Diva & The Rockets Of Love - Mama Said Rock Is Dead (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750009.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:31] 1 - Whiplash
-[3:48] 2 - Lolita
-[4:02] 3 - Rock'n'roll Heaven
-[3:58] 4 - Wild Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3150175A0BCDE53AF141FA67FFA88288363E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998287   (750008) от 09.02.2019
-
-Solar Bears - Discography 8 Releases (2010-2016) Planet Mu, Sunday Best [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
+Café del Mar - Phuket (2018) [MP3|320 Kbps] <Downtempo, Chill House, Nu Disco>
 
 >>Electronic
->>IDM (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Separate From The Arc (Andrew Weatherall Mix 1) (04:45)
- 02. Separate From The Arc (Andrew Weatherall Mix 2) (05:42)
- 03. Separate From The Arc (04:41)Тип издания: CD, WEBЖанр: IDMПродолжительность: 00:15:08
+Диск1
+01. Cassady Locke - Mafele (Original) 8:13
+02. Musumeci - Hey Mama (Original Mix) 5:13
+03. Tuccillo and Kiko Navarro featuring Amor - Lovery (Yoruba Soul Mix) 7:18(   Читать дальше...   )Жанр: Downtempo, Chill House, Nu DiscoПродолжительность: 01:56:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACEC855C5B0CACCC107DA17437F2E7D7B639E85D
+magnet:?xt=urn:btih:3C59DE8FF09823349B0D65D0CF11AC8FD0B0F24F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,28 +213,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281729   (750007) от 09.02.2019
+###  Публикация: 1257578   (751206) от 08.02.2019
 
-VA - Direct Ministry Tracks Dance 2019 (2019) [MP3|320 Kbps] <Dance, Hands Up>
+Владимир Поселягин | Бей первым (2019) [FB2]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ynkkx Feat. Cammie Robinson - Happy Ending (Original Mix)
-02. Will G. Feat. A. Voltage - Celebrate (Radio Mix)
-03. Yuhniversia - Dark (Flemming Dalum Remix)
-04. Zhr And Batl - Rain (Original Mix)(   Читать дальше...   )Жанр: Dance, Hands UpПродолжительность: 05:56:56
+Первый роман цикла «Русич».
+
+Характер у Марка Геннадиевича Бестужева предполагал, что не нужно дожидаться, пока неприятности придут к нему. На все угрозы один ответ – всегда бей первым!
+(   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BADD8CC6FF193D6DEC43E1148956B4C5E5A4E83
+magnet:?xt=urn:btih:256959AC5712A756C16ED4300BA02D958963C6BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,83 +242,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523559   (750006) от 12.01.2022
+###  Публикация: 888735   (751205) от 16.04.2015
 
-VA - Wunderwerk 1 Connected Souls (2021) [AAC|~336 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nadja Lind - Limbus (Hernan Cattaneo & Soundexile Remix 1) (7:29)
-02. Helmut Ebritsch - Das Ermoeglichen (8:00)
-03. Klartraum, Nadja Lind, Helmut Ebritsch - Manifestation (Dapayk Solo Remix) (6:34)
-04. Klartraum, Nadja Lind, Giuliano Rodrigues - I Can't Believe (Klartraum Remix) (8:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC8E4EB48F27D61291A4B9A37F3A219A3963B7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523562   (750005) от 12.01.2022
-
-VA - Melodica 2021 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Holt - Marrakech Dreaming (Stephane Salerno Remix) (7:40)
-02. Marga Sol - Sacred Passage (Jack Essek Remix) (7:31)
-03. Jose Solano - Jangal (8:02)
-04. Stefan Alexander Thomas - Ozone (Majed Salih Remix) (7:34)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 02:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A44C2AE236F933F405E121704D2C6A023AE4405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523581   (750004) от 12.01.2022
-
-Smooze Pro 2.0.8 [En]
+Windows Repair (All In One) 3.1.3 Free + Portable [En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+Windows Repair - инструмент все-в-одном для ремонта системы . Предназначен для восстановления различных параметров Windows к их значениям по умолчанию. Помогает исправить большинство известных проблем, в том числе ошибки реестра и права доступа к файлам, а также проблемы с Internet Explorer, Windows Update, Windows Firewall и многое другое. Перед запуском Windows Repair будет предложено выполнить 4 простых действия предупреждающие ошибки в работе системы: проверка на вирусы, проверка жесткого диска, проверка (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFC5F164638DB8D2E9649DCCE0240CA911BEDE47
+magnet:?xt=urn:btih:F07335874D0814575044EEEE214B629171E47182
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,28 +268,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523533   (750003) от 12.01.2022
+###  Публикация: 34817   (751204) от 08.02.2019
 
-VA - Travel & Living Lounge, Vol. 3 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+Алекс Орлов | Наёмник (2006) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prana Tones - Lost in Japan (Original Mix) (4:51)
-02. Sami Sivananda - Kundalini (Original Mix) (2:45)
-03. Airstream - Electra (Religion Cut) (6:12)
-04. Island Sun - Loosing Again (Boombastic Cut) (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:23
+Отвоевав положенный срок, наемник Клаус Ландер возвращается домой на планету Бристоль, где нет суши, только океан, болота и коралловые рифы. Казалось бы, все неприятности позади и впереди его ждет лишь полная удовольствий мирная жизнь, но отдохнуть солдату не удается: по его следам идут убийцы, желающие поквитаться за прошлое, а неожиданная ссора с речными байкерами (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 20:05:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F645E2D0A46E67FE41DAB70B09CDBD0401238F02
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,28 +294,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523530   (750002) от 12.01.2022
+###  Публикация: 1281555   (751202) от 08.02.2019
 
-VA - Travel & Living Lounge, Vol. 2 (2016) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+Monster Energy Supercross 2 (2019) [Multi] (1.0/dlc) License CODEX [The Official Videogame]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Win Игры
+>>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alexander Muratovsky - External World (3:53)
-02. Cj Rcm - Serenity (5:46)
-03. Philip Aniskin - Rainy Fairy Tale (5:16)
-04. Alex Field, Natune - Wake Me (Bryan Milton Remix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:36
+Официальная игра Чемпионата Monster Energy AMA Supercross возвращается! Живите подобно чемпиону в обновленном режиме карьеры и участвуйте в ежедневных мероприятиях: новые испытания, спонсоры и удивительные призы ждут вас!Тип издания: LicenseРазработчик: Milestone S.r.l.Жанр: Racing, Simulation, SportsЯзык озвучки: АнглийскийЯзык интерфейса: Немецкий, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB416B58304466145BB2D6BF27EB160D9C8B2CD
+magnet:?xt=urn:btih:FB4F517A148A409CE783A11CEEC6355D06EFE020
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +320,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523498   (750001) от 12.01.2022
+###  Публикация: 888864   (751201) от 16.04.2015
 
-Converge - Axe To Fall (2009) [FLAC|Lossless|image + .cue] <Chaotic Hardcore, Metalcore>
+Потерянные / Nowhere Boys (2013-2014) PDTVRip (1 сезон, серии 1-13 из 13)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Horse
-02. Reap What You Sow
-03. Axe To Fall
-04. Effigy(   Читать дальше...   )Жанр: Chaotic Hardcore, MetalcoreПродолжительность: 00:42:11
+Группа подростков заблудилась в лесу. Там они провели не так уж и много времени. Но когда вернулись домой, то получилось так, что они попали в альтернативную реальность, где их и в помине нет.Производство: Австралия, Matchbox PicturesЖанр: фантастика, приключения, фэнтезиРежиссер: Даина Рейд, Питер Кастэйрс, Алистер ГрирсонАктеры: Дуги Болдуин, Джон Лок, Рахарт Адамс, Мэтт Тестро, Даркси Макдональд, Мичела Банас, Николас Когхлан, Тамала Шелтон, Шон Риз-Уэмисс, Либби Тэннер и др.Перевод: Многоголосый закадровый, любительский - VO-productionПродолжительность: ~00:26:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F145F91D380EA2FD2682B969FBA8F2CCBA5954B
+magnet:?xt=urn:btih:1A4B2569ACF58857695B81F58B53E1708F436D03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,54 +346,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523536   (750000) от 12.01.2022
+###  Публикация: 889128   (751198) от 16.04.2015
 
-VA - Travel & Living Lounge, Vol. 5 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - I've Been Waiting (Original Mix) (5:53)
-02. Triangle Sun - Summer of Our Love (Original Mix) (4:16)
-03. The Soul Crusaders - Share My Song (4:39)
-04. Schwarz & Funk - Ease (Original Mix) (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC5E508A02DC8931FB1719C243E18C9C2D9D600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523574   (749999) от 12.01.2022
-
-GarageSale 8 v8.4.1 [Multi]
+Actual Window Manager 8.3 [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
+Actual Window Manager - технологически продвинутый программный пакет, состоящий из более чем 50 инновационных инструментов для организации Рабочего Стола Windows, повышающий удобство использования и производительность работы с любыми приложениями Windows. С помощью Actual Window Manager вы сможете организовать рабочую среду для удобного, быстрого и эффективного выполнения ваших задач без необходимости отвлекаться на рутинные манипуляции с окнами.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DE7685A33D7197E4AAA040982B98EED36F20834
+magnet:?xt=urn:btih:1B5E457E9D9B47389D803AA540B11B6DF7F44996
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,28 +372,130 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523535   (749998) от 12.01.2022
+###  Публикация: 1279809   (751197) от 08.02.2019
 
-VA - Travel & Living Lounge, Vol. 4 (2019) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+(Linux) Pathfinder: Kingmaker - Imperial Edition (2018) [Ru/Multi] (1.2.3/dlc) License GOG
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Owlcat Games с гордостью представляют первую изометрическую компьютерную ролевую игру, действие которой происходит в столь полюбившейся игрокам вселенной настольной игры Pathfinder. Она была создана при поддержке 18 000 пользователей Kickstarter и при участии нарративного дизайнера Криса Авеллона и композитора Айнона Зура.Тип издания: LicenseРазработчик: Owlcat GamesЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FFB7D3572D7F2FFC051CBDCF123E51B47A611B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484816   (751195) от 08.02.2019
+
+Теория заговора  / Conspiracy Theory (1997) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джерри Флетчер кругом подозревает заговоры! Он владеет смертельно опасной информацией. Враги предпочли бы видеть Джерри мертвым. В этой ситуации она — единственная, кому он может доверять…
+Он — таксист и параноик. Она — прокурор, которая отказывается ему верить. Теперь они вместе вынуждены выживать… Одно из его сумасшедших предположений уже подтвердилось!Производство: США / Donner/Shuler-Donner Productions, Silver Pictures, Warner Bros. PicturesЖанр: Боевик, Триллер, Мелодрама, Криминал, ДетективРежиссер: Ричард ДоннерАктеры: Мэл Гибсон, Джулия Робертс, Патрик Стюарт, Силк Козарт, Стив Кэхэн, Терри Александр, Алекс МакАртур, Род МакЛахлан, Майкл Поттс, Джим СтерлингПеревод: Дублированный, АвторскийСубтитры: Русские, английскиеПродолжительность: 02:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E8473C205C84D82B1BE78E17251C7D3F8167F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281527   (751193) от 08.02.2019
+
+GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло много лет с последней битвы. Земля уже не то место, в котором люди привыкли жить. Ужасающие твари Арагами все еще блуждают по миру, неся разрушения и страдания. Чтобы спасти мир и восстановить баланс, были созваны новые героиТип издания: LicenseРазработчик: BANDAI NAMCO StudiosЖанр: Action, RPG, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7385F3F93D5D1541E623D1ACB9487D0EB9DFD4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281506   (751191) от 08.02.2019
+
+Богемская рапсодия / Bohemian Rhapsody (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чествование группы Queen, их музыки и их выдающегося вокалиста Фредди Меркьюри, который бросил вызов стереотипам и победил условности, чтобы стать одним из самых любимых артистов на планете. Фильм прослеживает головокружительный путь группы к успеху благодаря их культовым песням и революционному звуку, практически распад коллектива, поскольку образ жизни Меркьюри (   Читать дальше...   )Производство: Великобритания, США / GK FilmsЖанр: драма, биография, музыкаРежиссер: Брайан СингерАктеры: Рами Малек, Люси Бойнтон, Гвилим Ли, Бен Харди, Джозеф Маццелло, Майк Майерс, Эйден Гиллен, Том Холландер, Аллен Лич, Аарон МакКаскер, Эйс Бхатти, Прия Блэкберн, Дермот Мерфи, Тим Плестер, Дики БоПеревод: Дублированный (Лицензия EUR)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (SDH, SDH Colored)Продолжительность: 02:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44752A7B3FC5C10C8C3826D2D4C1C1EF649D1118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888877   (751190) от 16.04.2015
+
+Приключения Паддингтона / Paddington (2014) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eskadet - Un Songe (Original Mix) (6:30)
-02. DMTunes - Ser Mio (Original MIx) (4:42)
-03. Gary B - All I Long For (Original Mix) (4:00)
-04. Weathertunes - Long Beach (Original Mix) (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:17
+Познакомьтесь, это медведь по имени Паддингтон из дремучего Перу. Он приехал в Лондон, чтобы обрести семью и стать настоящим английским джентльменом. На пути к этой цели его ожидают невероятные приключения, полные юмора и опасностей.Производство: Великобритания, ФранцияЖанр: Комедия, приключения, семейныйРежиссер: Пол КингАктеры: Бен Уишоу, Николь Кидман, Хью Бонневилль, Салли Хокинс, Джули Уолтерс, Мадлен Харрис, Сэмюэл Джослин, Джим Бродбент, Питер Капальди, Имелда СтонтонПеревод: Профессиональный (дублированный) (Лицензия)Продолжительность: 01:35:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E201C201D94641DD7956BDF5D5A4D4756CC45DF0
+magnet:?xt=urn:btih:E08A49E487A782B9491743A458C93414F6E8108A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,28 +503,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523537   (749997) от 12.01.2022
+###  Публикация: 888400   (751186) от 16.04.2015
 
-VA - Travel & Living Lounge, Vol. 6 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+Загнанный / The Hunted (2003) DVDRip [H.264]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beamy - Twisted Soul (M-Sol Project Laidback Mix) (4:51)
-02. Digby Jones, Funkdust - Ah Negresco (3:27)
-03. Living Room - Brasil Sunset (2:34)
-04. Ibiza Chilled - Naked Nova (Original Mix) (6:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:45
+Ушедший в отставку специалист по подготовке элитного спецназа Эл Ти Бонэм присоединяется к команде ФБР, идущей по следу жестокого убийцы. Неуловимый киллер, виртуозно владеющий боевым ножом, – один из самых одаренных учеников Эл Ти. Ему не нужен дом – в лесу он чувствует себя неуязвимым. Ему не нужны деньги – все необходимое для жизни он может добыть сам. Ему не (   Читать дальше...   )Производство: США, Lakeshore Entertainment, Alphaville FilmsЖанр: Боевик, Триллер, ДрамаРежиссер: Уильям ФридкинАктеры: Бенисио Дель Торо, Томми Ли Джонс, Конни Нилсен, Лесли Стефансон, Хосе Зунига, Рон Кэнэда, Марк Пеллегрино, Дженна Бойд, Каррик О'Квин, Лонни Чапман, Рекс ЛиннПеревод: Многоголосый закадровыйПродолжительность: 01:34:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4E74115E15323562EDAFA8192D5AE2AFB6C5842
+magnet:?xt=urn:btih:EFF8925FA0D0108C344483F63A2ED9E1268E6760
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,54 +529,155 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523565   (749996) от 12.01.2022
+###  Публикация: 888962   (751185) от 16.04.2015
 
-VA - Winter Lofi Chill (2022) [AAC|~305 Kbps] <Lo-Fi, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Have Yourself A Merry Little Christmas (Lofi Edit) (2:21)
-02. Pueblo Vista - The Beginning Of The End (2:06)
-03. Sam Cross, Pueblo Vista - Dream In Motion (1:45)
-04. Lamar Azul, Pueblo Vista - Slowheal (2:08)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A662ADDE33B53FA702ED202B26E58B86A76492C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523583   (749995) от 12.01.2022
-
-System Toolkit 5.2.1 [Multi]
+Novicorp WinToFlash 0.8.0122 Beta Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+WinToFlash — это приложение, позволяющее полностью перенести программу установки Windows XP, Windows 2003, Windows Vista, Windows 2008, Windows 7, Windows 8 на USB накопитель за несколько кликов мышки. Это означает, что вы можете установить Windows с флэш карты, HDD или другого накопителя на ваш компьютер или нэтбук. И это не все, что она может делать. WinToFlash может перенести ваш live CD/DVD на USB накопитель, например, BartPE. После всех технологических манипуляций вы сможете полностью очистить флэш карту (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E0193463858A94D2D383BE486D2D0A193EC0061
+magnet:?xt=urn:btih:2C27928B98EA7E75ECA50F127F9F9A5638D26078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008939   (751184) от 22.05.2016
+
+IS Defense (2016) [En] (1.0 u5/dlc) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751184.jpg" />
+</div>
+
+
+###  Подробнее
+
+IS Defense - это аркадный шутер в фэнтезийном сеттинге с уклоном в политику. На дворе 2020 год, запрещенная группировка ИГИЛ распространяется в мире все больше и готовит вторжение в Европу. Игроку предстоит дать отпор темным силам террористов.Тип издания: LicenseРазработчик: Destructive CreationsЖанр: Arcade (Virt.shooting), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5108CBEA5CB1DE6B2471AA956902BCBDB67BD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019301   (751183) от 22.05.2016
+
+Ценный груз / Precious Cargo (2016) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Босс преступной группировки пробует убежать от ответственности за ограбление, которое совершил другой вор.Производство: КанадаЖанр: Боевик, триллер, драма, криминалРежиссер: Макс АдамсАктеры: Брюс Уиллис, Марк-Пол Госселаар, Клер Форлани, Джон Бразертон, Дженна Б. Келли, Николас М. Лоб, Лидия Халл, Дэниэл Бернхард, Эшли Кирк, Тайлер Джон ОлсонПеревод: Любительский многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:29:57Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78E3BE7CD0893AD2614F3E49FA8846C6C4B32E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019087   (751182) от 22.05.2016
+
+Ценный груз / Precious Cargo (2016) WEB-DLRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальный боевик о мошеннике Джеке, которому предстоит решить: стоит ли его бывшая девушка и соратница Карен смертельного шага в самое пекло, под град перекрестных пуль? Джеку нужно учесть, что его врагом станет мстительный и влиятельный гангстер, а на кону окажется жизнь его будущего ребенка...Производство: КанадаЖанр: Боевик, триллер, драма, криминалРежиссер: Макс АдамсАктеры: Брюс Уиллис, Марк-Пол Госселаар, Клер Форлани, Джон Бразертон, Дженна Б. Келли, Николас М. Лоб, Лидия Халл, Дэниэл Бернхард, Эшли Кирк, Тайлер Джон ОлсонПеревод: Любительский многоголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED2CA3B5E607A82159F2291DF35F92D1F47A20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019106   (751181) от 22.05.2016
+
+Штормагеддон / Stormageddon (2015) BDRip [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшно представить, что может произойти, если сложнейшая вычислительная система начнет управлять всеми процессами на земле. Такая система быстро проанализирует и сохранит множество данных, а после выйдет из-под контроля и сама получит полный контроль над жизнью людей. Однажды программа под названием "Эшелон", управлявшая едва ли не всей жизнью США, дала (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, триллер, драмаРежиссер: Ник ЛионАктеры: Джон Хенниган, Ив Мауро, Джозеф Гатт, Роберт Бланш, Рикко Росс, Дэвид Шатроу, Эдриан Пол, Дэвид Престон, Джон Мак, Роберт КрэйгхедПеревод: Профессиональный многоголосый (Официальный звук)Субтитры: Немецкие (вшитые, отключаемые)Продолжительность: 01:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CF1E9D0B38605C9DFF2D345976BB3461A6504E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782083   (751180) от 22.05.2016
+
+Марк Руссинович и др. | Внутреннее устройство Microsoft Windows. Основные подсистемы ОС. 6-е издание. Часть 1 и 2 (2013-2014) [PDF]
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестое издание этой легендарной книги посвящено внутреннему устройству и алгоритмам работы основных компонентов операционной системы Microsoft Windows 7, а также Windows Server 2008 R2. Определяются ключевые понятия и термины Windows, дается представление об инструментальных средствах, используемых для исследования внутреннего устройства системы, рассматривается (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D2F501420F9D25F73CB7B1AE242BD78F17DBA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

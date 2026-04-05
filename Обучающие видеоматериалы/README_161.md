@@ -1,3 +1,29 @@
+###  Публикация: 1415980   (371296) от 14.10.2020
+
+software-testing.ru | Организация функционального тестирования (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли представить себе хорошего линуксового системного администратора, который не знает общую теорию операционных систем и сетей, не подозревает о существовании Windows и MacOS, не умеет пользоваться для настройки системы консолью так же хорошо, как графической оболочкой? Можно ли считать хорошим инженером-строителем человека, который не владеет сопроматом, не (   Читать дальше...   )Жанр: ТестированиеПродолжительность: 07:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFCB73C40DAD0F1096933C6C3339DAD0FBA7DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416075   (371159) от 14.10.2020
 
 Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
@@ -6,7 +32,7 @@ Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371159.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Udemy, Виктор Черемных | Настройка MikroTik и CISCO Fire
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370061.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Udemy, Dmitrii Fokeev | Курс по Adobe Photoshop 2022 - С нуля до р
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370033.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ software-testing.ru | Техники и инструменты поиска и �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369234.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Udemy, Mrawan Hussain | Создание реалистичного автомо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369125.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369099.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ tocode.ru | Курс по vue.js - с нуля до про (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368999.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368987.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368965.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ JUG Ru Group | Heisenbug 2022 Spring. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367983.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ Daily Burn | DB10 (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367232.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ Oleg Lav | ZoneAlarm Free Firewall — Фаервол для вашего ком
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367204.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ FXPHD | NUKE: Tips and Tricks (2016) HDTV [RU, EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366937.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366934.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366932.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366858.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ Cathe Friedrich | Cross Fire (2012) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366272.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ JUG Ru Group | Hydra 2022. Concurrent and distributed computing conference / Hyd
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366178.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365121.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364950.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ Lynda.com | Bootstrap 3 (2013-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364811.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364742.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Fandroid | Продвинутый курс по созданию андроид-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364606.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364602.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364528.jpg" />
 </div>
 
 
@@ -665,34 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926683B55F0EEC5F9F85684950CA399784F52295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416828   (364525) от 17.10.2020
-
-[Специалист] Березанская Анна | Бухгалтерский учет 2020. Теория и практика (2020) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс соответствует требованиям профессионального стандарта «Бухгалтер», утвержденного приказом Минтруда и социальной защиты РФ от 21.02.2019 № 103н!
-
-Программа сочетает глубокую теоретическую подготовку и решение реальных практических задач. Она подойдёт слушателям, которые только начали осваивать бухгалтерский учет, а также тем, кто хочет обновить свои знания (   Читать дальше...   )Производство: СпециалистЖанр: БухгалтерияПродолжительность: 43:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9361BBFCEA70615AC16B15FF175F3922010FFB87
 ```
 
 https://mybot314.ru/tekegram_catalog/

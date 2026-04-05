@@ -1,3 +1,55 @@
+###  Публикация: 1333294   (304555) от 24.10.2019
+
+Adobe Photoshop CC 2019 20.0.7.28362 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2019 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC2889FD72901A157958E3EBB59AD50DAF8523A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585132   (304517) от 05.12.2012
+
+Вербо / Verbo (2011) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое будущее. Люди живут в гигантских мегаполисах, почти не выбираясь с окраин в центр и не интересуясь практически ничем, что выходит за рамки их профессии. Однако бывают и исключения: пятнадцатилетняя Сара не может примириться с рутинной механистичностью окружающего мира. Поиски смысла приводят ее к Лирико, автору странных будоражащих душу граффити, от которого она узнает, что ее реальность — не единственная, а лишь одна из возможных. Так начинаются опасные приключения Сары в таинственном зазеркалье. И ставка в этой новой игре — жизнь девушки…Жанр: Фантастика, ДрамаРежиссер: Эдуардо Чаперо-ДжексонАктеры: Альба Гарсия, Джедже Апали, Мишель Асанте, Виктор Клавихо, Вероника Эчеги, Макарена Гомес, Адам Езерски, Мириам Мартин, Найва НимриПеревод: Любительский (одноголосый)Продолжительность: 01:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE14EDE452993636CD8838130EF73C3F83CDD47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261107   (304444) от 10.11.2018
 
 Экстремальные ситуации в море
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_304444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304444.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304082.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304065.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Daum PotPlayer 1.6.63856 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303930.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Bandicam 3.3.0.1174 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303809.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ CyberGhost VPN 6.0.4.2205 RePack by BOPOH [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303807.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_303805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_303805.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Assault Squad 2: Men of War Origins (2016) [Ru] (3.260.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303798.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303711.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Röyksopp (Royksopp) - Discography 78 Releases (1999-2020) Wall Of Sound, Virgin
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303710.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Samurai Warriors 3 [Wii] [PAL] [Multi 5] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303691.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Kerio Connect 7.1.2 build 2260 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303687.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ VA - Hard Pro v.1-60 (2012-2014) [MP3|320 кб/с]<Hardstyle, Hardcore, Hands Up
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303660.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ qBittorrent 3.3.0 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302746.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Adobe Illustrator CC 2018 22.0.1.253  RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302708.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Pirates of the Caribbean / Корсары 2: Пираты Карибского �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302560.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Vampire: The Masquerade Bloodlines (2004) [Ru/En] (1.2/9.4) Repack Samael
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302500.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302487.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Total War: Rome II/2 (2013) [Ru] (2.2.0 Build 16155.736913/upd17/dlc) Repack =ne
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302480.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Star Wars: Republic Commando (2005) [Ru/Multi] (1.2.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302326.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ OfficeSuite + PDF Editor v10.0.15671 Premium Mod by Balatan [Ru/Multi] - Офи�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302323.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302319.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Sacred 2 Gold: Падший Ангел & Лёд и Кровь [Ru] (Repack/2.65.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302136.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301767.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078364   (301671) от 30.11.2016
-
-Deus Ex: Mankind Divided (2016) [Ru/Multi] (1.11.616.0/dlc) SteamRip R.G. Origins [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301671.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 2029 год. Общество отвергло людей, установивших механические аугментации, и превратило их в совершенных изгоев. Став тайным агентом, Адам Дженсен вынужден действовать в мире, который презирает ему подобных. Используя обновленный арсенал современного оружия и аугментаций, он должен найти верных людей и подобрать к ним подход, чтобы раскрыть впечатляющий всемирный (   Читать дальше...   )Тип издания: SteamRipРазработчик: Eidos-Montréal, Nixxes Software BVЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd Person, StealthЯзык озвучки: Русский, Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E747981D7C0E69F9D1499C69271A7C8F9D53DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078313   (301669) от 30.11.2016
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.11.30 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF7B577849F7EC257366F72A6340BCFDBA53CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

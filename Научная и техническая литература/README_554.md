@@ -1,136 +1,3 @@
-###  Публикация: 1345739   (165496) от 16.12.2019
-
-В.М. Алексеев | Язык программирования HTML5 (2019) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165496.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебно-методическом пособии излагаются основы языка программирования. Материал, изложенный в учебно-методическом пособии используется при изучении языка HTML5 и PHP изучаемых на старших курсах специализации 10.05.01 «Компьютерная безопасность».Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A966E5DFCC0F8EFA9313CB4244ADA66CA775C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341154   (165492) от 16.12.2019
-
-В.О. Шпаковский  | Танки. Уникальные и парадоксальные. Иллюстрированная энциклопедия (2007) [DJVU]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танки, прежде чем принять тот вид, в котором они существуют сейчас, прошли долгий путь развития.  При этом иногда создавались какие-то головоломные конструкции и не замечались очевидные (на взгляд потомков)  решения. Данное издание как раз и посвящено таким экзотическим проектам — их анализу и гипотезам о том, что могло бы быть, если бы мировое танкостроение пошло (   Читать дальше...   )Жанр: Энциклопедия, Военная техникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03207A6906C4EBD7B8FB01F70ED7939D66E57A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673322   (165290) от 01.11.2023
-
-Дж. Барлтроп, Дж. Койл | Возбуждённые состояния в органической химии (1978) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие по органической фотохимии. Нетрадиционное изложение материала - не по типам реакций, а по реакциям хромофорных (поглощающих) групп.
-Рекомендуется преподавателям и студентам, специалистам в области фотохимии.Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30900626847B9769C76B77AC82C71240F8909A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345888   (165165) от 17.12.2019
-
-Майкл Карвер | Битва под Эль-Аламейном. Поражение танковой армии Роммеля в Северной Африке (2003) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165165.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о событиях Второй мировой войны в Северной Африке близ маленькой железнодорожной станции Эль-Аламейн осенью 1942 года. Автор использует документальные источники: письма Роммеля, телеграммы Гитлера, доклад командования австралийской дивизии о ходе кампании. Детально воссоздана картина боевых действий армий Германии и Британии.Жанр: История, Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF4CCE5DB8EAE88DBCCF94F479530FAEDCE26D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432253   (165149) от 16.12.2020
-
-Н.С. Бахвалов и др. | Численные методы (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический учебник по численным методам, переработанный с учетом современных тенденций в вычислительных методах. В данном издании устранены неточности и опечатки, имевшиеся в предыдущих изданиях, упрощены некоторые доказательства.
-Для студентов и преподавателей вузов, а также для специалистов, использующих численные методы в своей работе.
-8-ое издание.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC830CB49F4E8131104A0BD84EDB1E23CA27E03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432085   (165141) от 16.12.2020
 
 Н.Н. Калиткин | Численные методы (1978) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165141.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165098.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165067.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165065.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165024.jpg" />
 </div>
 
 
@@ -270,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165006.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164997.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164952.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164939.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164934.jpg" />
 </div>
 
 
@@ -401,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164916.jpg" />
 </div>
 
 
@@ -427,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164822.jpg" />
 </div>
 
 
@@ -453,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164821.jpg" />
 </div>
 
 
@@ -479,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164792.jpg" />
 </div>
 
 
@@ -505,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164790.jpg" />
 </div>
 
 
@@ -532,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164780.jpg" />
 </div>
 
 
@@ -558,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164700.jpg" />
 </div>
 
 
@@ -584,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164334.jpg" />
 </div>
 
 
@@ -610,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164280.jpg" />
 </div>
 
 
@@ -638,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164246.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164243.jpg" />
 </div>
 
 
@@ -678,6 +545,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C7BE86FEAFEB740F0426B496A1912C94F58EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432315   (164196) от 17.12.2020
+
+В.Н. Сарабьянов | Введение и диалектический материализм (1925) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164196.jpg" />
+</div>
+
+
+###  Подробнее
+
+... Каким должно быть наше мировоззрение?
+
+Биолог изучает законы всего живого, зоолог законы животного мира (фауны), ботаник растительного мира (флоры), минералог работает в области минералов, физик рассматривает процессы перехода тел от одного состояния в другие, химик - процессы превращения одного тела в другие тела, социолог интересуется процессами в человеческом (   Читать дальше...   )Жанр: История, науковедение, философия, логикаИздательство: ПролетарийФормат: DJVU, PDFКачество: OCR с ошибками
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4464B50D4744C4D629BC4D1E10F9360DC987ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158948   (164112) от 13.12.2021
+
+Книжная серия | Новейшие исследования по истории России [4 книги] (2017) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164112.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Новейшие исследования по истории России» - новая серия исторических книг.
+Написанное живым, но вместе с тем научным языком, исследование предназначено всем, кто интересуется историей России, историей русского военного дела и повседневной жизнью русского общества той эпохи.Жанр: ИсторияФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D727B26CBF448D05F007C072A43683FC9697FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673653   (164095) от 02.11.2023
+
+Н. П. Калашников, М. А. Смондырев | Основы физики в 3 томах. Том 3. Упражнения и задачи (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задачник соответствует действующей программе дисциплины «Физика» для естественнонаучных и технических университетов. Книга входит в состав учебного комплекта, включающего также два тома учебника «Основы физики» тех же авторов.
+
+По всем темам представлены основные уравнения и формулы, разбор решения интересных для практики задач, задачи для самостоятельной работы. (   Читать дальше...   )Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: Лаборатория знанийФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A1C7913ED8BF4319B2EB9F832D3169FC8AACA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432502   (164001) от 17.12.2020
+
+Николай Костомаров | Обычаи и нравы народов государства Российского (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о жизни и быте народов Московского государства XVI–XVII вв. Читатель найдет здесь увлекательные истории о нравах людей этого времени, каковы были их интеллектуальные и материальные потребности и интересы. Что ели, во что одевались, что выращивали в своих садах и огородах, как лечились, справляли свадьбы и воспитывали детей. Семейные традиции и обряды, увеселения (   Читать дальше...   )Жанр: История, Культурология, ЭтнографияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F33502C9577FA1D2C0CD8AD84DEEB3DBC643EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432501   (163980) от 17.12.2020
+
+Эдуард Фукс | Эпоха Ренессанса (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Эпоха Ренессанса» – один из трех томов популярного издания Э. Фукса «Иллюстрированная история нравов», посвящена истории нравов эпохи Ренессанса. В ней увлекательно рассказывается о том, как в разных странах и у разных народов складывались представления о красоте и наслаждении, способах проявления чувств, брачных обычаях, внебрачных связях, наконец, о том, (   Читать дальше...   )Жанр: Культурология, Популярно об историиПеревод: Владимир ФричеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B752383B9808B20AE236B5130A3361035C0DFB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

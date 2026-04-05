@@ -1,3 +1,57 @@
+###  Публикация: 1675708   (159939) от 10.11.2023
+
+4K Image Compressor Pro for Mac 1.1.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко изменяйте размеры JPEG, PNG и WEBP. Сжимайте файлы до нужного вам размера. Экономьте место для хранения и легко делитесь изображениями в социальных сетях. Улучшите время загрузки вашего сайта. Оптимизируйте размер файла изображения без ущерба для качества.Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9856620F2AA184CB1B631A57792625E706D138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675842   (159924) от 10.11.2023
+
+Inklet 2.2.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inklet позволяет использовать тачпад Apple в качестве графического планшета.
+Inklet - первое приложение от сторонних разработчиков с поддержкой Force Touch от Apple. Разработчики обещают все удобства графического планшета и комфортную работу с практически любым приложением, поддерживающим письменный ввод, включая пакет редакторов Adobe, Sketch и Pixelmator.
+MacBook (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 Ten One Design LLCПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBEBF2FE822216D58F474D8A14F0060D7A84BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675872   (159907) от 10.11.2023
 
 Cisdem DVD Burner 6.10.0 [En]
@@ -6,7 +60,7 @@ Cisdem DVD Burner 6.10.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159907.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ iMedia Cutter 5.6.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159869.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ JetBrains DataGrip for Mac 2023.2.3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159808.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ AudFree Auditior 2.7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159408.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Rest&Move - Break reminder 1.7 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159402.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ DRmare Audio Converter for Mac 2.7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159398.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ Caato Time Tracker Pro 1.1.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159396.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ Viwizard Audio Converter for Mac 3.8.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159387.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ BetterTouchTool 3.986 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159382.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ PreviewMarkdown 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159377.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ Unzip Expert-Zip file tool 1.4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159362.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ PhoneClean Pro 5.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159349.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ EtreCheck Pro 6.8.3 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159335.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ Airtool 2 v.2.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159333.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ MacClean 3.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159317.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ iPulse 3.1.41 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159299.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ Mac Mouse Fix for Mac 3.0.0 Beta 6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159254.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ RAR Extractor  - Unzi‪p‬ 12.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159188.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ DMG Canvas 3.0.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159032.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ Mos 3.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159015.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ MacCleanse 12 v.12.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159003.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ Lightkey for Mac 4 v.4.5.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158882.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ Sweet Home 3D for Mac 7.2.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158860.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ Swift Typist 1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158675.jpg" />
 </div>
 
 
@@ -624,62 +678,6 @@ Swift Typist 1.4 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF98ECD298F3B9DDDA1D22EA855EEB30181E2E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967148   (158656) от 20.12.2015
-
-Briefs 1.3.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Briefs — инструмент для прототипирования мобильных приложений
-Тема прототипирования не так распространена в Сети в силу того, что она явно не касается массовой аудитории. Однако софт для таких целей периодически проскальзывает в обзорах. Приложения такого рода никогда не были подчинены одному закону и не имели какого-то явного эталонного лидера, чтобы быть похожими (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 сентября 2015Разработчик: Briefs LC.Поддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2A57BDF5EF821B98B9A8B165D6673CF6761377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967480   (158593) от 20.12.2015
-
-KeyKey 1.0.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158593.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeyKey — учимся слепому набору
-Слепая десятипальцевая печать — штука полезная. Даже если вы пишите только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
-
-Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 октября 2015Разработчик: Sergiy VynnychenkoПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Украинский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA965ED2969E00EFECE3743E39118C20D20A5EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

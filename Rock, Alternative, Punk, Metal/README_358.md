@@ -1,3 +1,148 @@
+###  Публикация: 1398817   (734762) от 28.07.2020
+
+Ауткаст - Ультра (2020) Deluxe Edition (2CD) [MP3|320 Kbps] <Metalcore, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не забывай (Инструментал)
+02. Один из нас (Инструментал)
+03. Невесомость (Инструментал)
+04. Всё в твоих руках (Инструментал)(   Читать дальше...   )Жанр: Metalcore, Modern MetalПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C8B92D897D51AEDDFC940B41662B951CDC1353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528217   (734445) от 02.02.2022
+
+Leo Sayer - Northern Songs (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Eleanor Rigby (00:03:15)
+02 - Strawberry Fields Forever (00:03:53)
+03 - Revolution (00:03:42)
+04 - Get Back (00:03:38)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F049CC3521E553476E1BCF7DD02E9ECF12C3D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528644   (734440) от 02.02.2022
+
+Reckless Souls - Timeless (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro II (01:45)
+02. Where I Belong (05:40)
+03. All of Nothing (05:14)
+04. Remember N' Forget (04:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D921B8D1B90B098285BB9B4409B1DEADC9C84FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528419   (734422) от 02.02.2022
+
+Чайки, Ша! - XXX (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734422.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Плохой сюжет (00:04:43)
+✧ 02 - Кто нас воспитал (00:02:44)
+✧ 03 - Мечты (00:00:51)
+✧ 04 - Бомж (00:03:26)(   Читать дальше...   )Жанр: Alternative Rock, UndergroundПродолжительность: 00:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4831E315DD90F2DBABFDEC088D041822EBC26126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399136   (734382) от 29.07.2020
+
+Longing for Dawn - Between Elation and Despair (2009) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Symbolic Burial (15:19)
+02. A Sunrise At Your Feet (11:01)
+03. Reflective (09:35)
+04. The Piscean Dawn (16:23)Жанр: Funeral Doom, Death MetalПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD8CCBFFFAF923770B817BDC898264FF5160FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399076   (734351) от 29.07.2020
 
 Mar de Grises - Streams Inwards (2010) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal>
@@ -6,7 +151,7 @@ Mar de Grises - Streams Inwards (2010) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734351.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Martriden - The Unsettling Dark (2008) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734346.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Alberto Rigoni - Odd Times (2020) (feat. Marco Minnemann & Alexandra Zerner) [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734343.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Stilema - Utopia (2020) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734342.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734226.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Saxon - Carpe Diem (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734011.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Saxon - Carpe Diem (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734010.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Korn - Requiem (2022) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733983.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733979.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Saxon - Carpe Diem (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <NWOBHM, Heavy-Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733576.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Crystal Ball - Crysteria (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733572.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733566.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ Tony Martin - Thorns (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733565.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733542.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733526.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733520.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ Mastifal - Intermundia (2010) [APE|Lossless|image + .cue] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733469.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ Saints Everlasting Rest - The Dusk Of Millennium (2005) [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733466.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ Celtic Frost - Vanity/Nemesis (1990) (1-st US pressing) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733446.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Metal Priest - Bursting Out (The Beast Became Human)/Get It Now (2006) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733443.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Fontaines D.C. - A Hero's Death (2020)  [FLAC 2.0|96/24|tracks|WEB-DL] <Indie Ro
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733432.jpg" />
 </div>
 
 
@@ -603,151 +748,6 @@ Fontaines D.C. - A Hero's Death (2020)  [FLAC 2.0|96/24|tracks|WEB-DL] <Indie Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12CAB4B895CA7D14D696144D19890E64FD4950D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399355   (733419) от 31.07.2020
-
-Alanis Morissette - Such Pretty Forks in the Road (2020) [FLAC|Lossless|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smiling (04:17)
-02. Ablaze (03:57)
-03. Reasons I Drink (03:36)
-04. Diagnosis (04:46)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B940C7599D37BE4928C3E11154DA8D15E3EC8988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529286   (733133) от 05.02.2022
-
-Ian Gillan Band - Higher And Higher (2005) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ian Gillan (19.08.1945) – один из величайших рок-вокалистов всех времен и народов. В раннем возрасте он успел сменить несколько команд, в том числе Garth Rockett and The Moonshiners, Jess Thunder and The Javelins, Episode six. Но настоящую славу Gillan познал в составе Deep Purple в тот период, когда вышли такие шедевры как In rock и Machine head. К 1973 году у вокалиста (   Читать дальше...   )01. Maelstrom (4:49)
-02. Bad News (3:59)
-03. Fiji (5:02)
-04. Come Tomorrow (3:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6155C0883268F5AE71D80BA6E1BEDA2DEBEFA21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529204   (733094) от 05.02.2022
-
-ГОРШЕНЕВ - Фауст (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733094.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пролог на небесах
-2. Духи
-3. Знакомство с Мефистофелем
-4. Бес огня(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F659616825F901745288210FDB6423C119FE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529273   (733074) от 05.02.2022
-
-The Чиж & Co - На поле танки грохотали (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733074.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На поле танки грохотали
-2. Солдат на привале
-3. Тучи над городом встали
-4. Вот пуля просвистела... (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F284C1339D2FC113C5B2490B4D93D18C66EB8055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529253   (733066) от 05.02.2022
-
-The Чиж & Co - На поле танки грохотали (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На поле танки грохотали
-2. Солдат на привале
-3. Тучи над городом встали
-4. Вот пуля просвистела... (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA64D4797EACEFA31E06861F8E361086CCE32E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

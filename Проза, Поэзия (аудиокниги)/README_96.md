@@ -1,55 +1,3 @@
-###  Публикация: 1784423   (25017) от 11.03.2025
-
-Василь Быков | В тумане (2014) [OPUS]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холодным слякотным днём поздней осени на втором году войны партизанский разведчик Буров ехал на станцию Мостище, чтобы застрелить предателя - здешнего деревенского мужика по фамилии Сущеня. Этот Сущеня еще с довоенного времени работал на железной дороге и считался неплохим человеком, но, месяц назад арестованный полицией за диверсию возле Выспянского моста, купил (   Читать дальше...   )Жанр: Военная прозаИздательство: Нигде не купишьПродолжительность: 05:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351CA64D4C3E7974C53544420D47338968D380CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784739   (24893) от 12.03.2025
-
-Василь Быков | Болото (2014) [OPUS, Валерий Стельмащук]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выбравшись из мрачных, сырых поутру лесных дебрей, где они проблуждали половину ночи, Гусаков облегчённо вздохнул: лес кончился, перед ними раскинулось поле. Над подёрнутой утренней дымкой стеной соседнего леса поднимался ярко-красный диск летнего солнца. Лучей от него ещё не было в чистом, погожем, широко залитом багрянцем небе, краснота которого, однако, быстро (   Читать дальше...   )Жанр: Военная прозаИздательство: Аудиокнига своими рукамиПродолжительность: 02:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E717D620670701818192385EB3871D56C6AA46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792286   (21032) от 18.04.2025
 
 Иван Котляревский | Енеїда /Энеида (2006) [MP3, Борис Лобода] [UA]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21032.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21002.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20794.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20261.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17597.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16520.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16519.jpg" />
 </div>
 
 
@@ -248,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15637.jpg" />
 </div>
 
 
@@ -275,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14205.jpg" />
 </div>
 
 
@@ -302,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14178.jpg" />
 </div>
 
 
@@ -328,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14054.jpg" />
 </div>
 
 
@@ -355,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13681.jpg" />
 </div>
 
 
@@ -381,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13678.jpg" />
 </div>
 
 
@@ -410,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12637.jpg" />
 </div>
 
 
@@ -436,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12224.jpg" />
 </div>
 
 
@@ -463,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12218.jpg" />
 </div>
 
 
@@ -489,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12149.jpg" />
 </div>
 
 
@@ -515,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11496.jpg" />
 </div>
 
 
@@ -541,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11135.jpg" />
 </div>
 
 
@@ -569,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11132.jpg" />
 </div>
 
 
@@ -597,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8226.jpg" />
 </div>
 
 
@@ -625,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8224.jpg" />
 </div>
 
 
@@ -653,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8221.jpg" />
 </div>
 
 
@@ -681,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8203.jpg" />
 </div>
 
 
@@ -692,6 +640,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37DF3602770068DD51C002D4370313D3AF660F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812110   (8028) от 13.08.2025
+
+Лоренца Джентиле | Книжный в сердце Парижа (2024) [MP3, Любовь Конева]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оливе тридцать, у неё нет стабильной работы и планов на будущее. Она живёт с родителями, страдает бессонницей и временами чувствует непреодолимую пустоту. Всё переворачивается с ног на голову, когда девушка получает письмо от эксцентричной тёти Вивьен, исчезнувшей шестнадцать лет назад. Так она оказывается в одном из старейших книжных на левом берегу Сены в компании (   Читать дальше...   )Жанр: психологическая проза, современная зарубежная литератураПеревод: Анастасия ЕременкоИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 10:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D02D1F608E3F1E7C849B6D5FCFF9A1D3F622A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812520   (7721) от 15.08.2025
+
+Стивен Фрай | Античный цикл (Книга 2). Герои. Человечество и чудовища. Поиски и приключения (2019) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга античного цикла Стивена Фрая. В ней речь пойдёт о героях и их подвигах. Ясон и Геракл, Персей и Орфей, Эдип и Беллерофонт. Загадки, погони, сражения, невероятные головоломки, убийства и спасения. «Герои» – это истории о тех невероятных подвигах, глупостях, актах отчаяния и храбрости, на которые мы, смертные, способны, если уж очень припечёт.Жанр: древнегреческая мифология, ироничная проза, современная зарубежная литература, юмор, сатираПеревод: Шаши МартыноваИздательство: ВимбоПродолжительность: 14:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EF52C08FF7B5C7C4EFE674937489157CB7942D
 ```
 
 https://mybot314.ru/tekegram_catalog/

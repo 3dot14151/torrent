@@ -1,3 +1,160 @@
+###  Публикация: 1525053   (130130) от 19.01.2022
+
+History Channel: Тайны древности: Магия и чудеса Ветхого Завета / Ancient Mysteries: Mysteries of the Bible. Magic and Miracles of the Old Testament (1998) DVDRip
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130130.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Библии с помощью различных чудес Бог появляется перед людьми и заставляет их поверить в себя, воодушевляет людей или насылает несчастья на их врагов. Однако, в Книге Книг не употребляется слово "чудо" при описании этих захватывающих событий. Чудеса в Библии всего лишь часть истории, все это могло происходить на самом деле. Возможно ли это, и как объяснить (   Читать дальше...   )Производство: США, Filmroos Inc., A&E Television Network (History Channel)Жанр: документальный, альтернативная историяРежиссер: Брэм Рус, Бад Вайзер, Трейси Бергер, Сьюзен ЛутцПеревод: двуголосый профессиональный (Кипарис)Субтитры: отсутствуютПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE963401E5C5C19032502FBBDD1AF4098B2AC03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525216   (130030) от 19.01.2022
+
+Фаберже: предметы вожделения / Faberge: les objets du desir (2021) HDTVRip [H.264] [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карл Густав Фаберже (1846-1920), царский ювелир - гений, который нарушил законы традиционного ювелирного дела, мастерски создав целое направление, насчитывающее более двухсот тысяч экземпляров. Среди них императорские яйца, заказанные Александром III, которые представляют собой своеобразную летопись жизни Романовых.Производство: Франция, Martange Production, TV5MONDE Europe HDЖанр: Документальный, история, искусствоРежиссер: Жан-Пьер КоттеПеревод: субтитрыЯзык озвучки: французскийСубтитры: Русские (неотключаемые, Hiventy)Продолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45920611A118D79AD336D6BA9D39CC4EB00524BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670646   (129998) от 09.12.2023
+
+Геймплей: История революции видеоигр / Gameplay: The Story of the Videogame Revolution (2015) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие тысячелетия человечество обходилось без компьютерных игр. Когда это изменилось, мир навсегда стал иным. Это история обо всем, что произошло после. Всего лишь за 50 лет индустрия игр прошла путь от точек на экране до трехмерной графики, не уступающей голливудским блокбастерам. Игры не только развлекали нас, но и изменили сам наш подход к умным машинам. Вызывающие, (   Читать дальше...   )Производство: СШАЖанр: документальный, история, кинематографРежиссер: Ричард ГолдгевичтПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 01:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C577474DF451E08D73F750E134CD150B1957099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683134   (129986) от 09.12.2023
+
+Экстрасенсы. Битва сильнейших (09.12.2023) WEBRip [H.264/1080p] (сезон 1, выпуск 27)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129986.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом шоу ТНТ «Экстрасенсы. Битва сильнейших» за право стать лучшим сражаются самые яркие участники легендарной «Битвы экстрасенсов». Самые сильные победители и финалисты «Битвы» приняли вызов продюсеров и согласились еще раз доказать свои способности.
+«Экстрасенсы. Битва сильнейших» – это турнир, в котором лучшие из лучших показывают свою силу и эзотерические (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2198CA9696A022DFE6221078D94510460FF83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670760   (129928) от 09.12.2023
+
+Без ума от Мадонны / Crazy for Madonna (2018) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляд на биографию иконы музыки и Голливуда, Мадонны, прозванной королевой поп-музыки. Ее выдающаяся карьера охватывает более четырех десятилетий. Не боясь споров и осуждений, Мадонна навсегда изменила историю поп-культуры.Производство: США, Sabbatical EntertainmentЖанр: документальный, история, биография, музыкаРежиссер: Карла ДуартеУчастники: Офелинда ГарсияПеревод: двуголосый профессиональный (SDI Media Россия)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B15DB1D8D95AF40D4C357EFF46677CC509DE194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670755   (129895) от 09.12.2023
+
+Жан Кокто, ложь и правда / Jean Cocteau, mensonges et verites (1997) DVDRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129895.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого — свой Жан Кокто: Годар вспомнит «банду четырёх» и серые мундиры Оккупации, Ходоровски — Кокто-«сюрреалиста», Робише — театрального Кокто, Бабиле — балетного. Марэ вспомнит, как Кокто разделялся при письме на мыслителя и секретаря, выглядя при этом как убийца. Симсоло складывает из этих высказываний чёткий образ поэта — но не сухаря, который марает бумагу (   Читать дальше...   )Производство: ФранцияЖанр: документальный, история, искусствоРежиссер: Ноэль СимсолоУчастники: Жан Кокто, Жан-Люк Годар, Алехандро Ходоровски, Жан Маре, Анри АлеканПеревод: многоголосый профессиональный (СВ Дубль)Язык озвучки: русскийСубтитры: русские, английские (отдельным файлом)Продолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7B213C0F59AAD0A92DD983CD6DBAB8D8F608CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683077   (129884) от 09.12.2023
 
 Новая Каледония. Страна чудес / New Caledonia. A Land Of Wonders (2020) HDTVRip [H.264/1080p] (серии 1-2 из 2)
@@ -6,7 +163,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129884.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129849.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129847.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129840.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129813.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129800.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129764.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129732.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129728.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129600.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129582.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129567.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129520.jpg" />
 </div>
 
 
@@ -347,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129488.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129481.jpg" />
 </div>
 
 
@@ -401,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129360.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129203.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129131.jpg" />
 </div>
 
 
@@ -479,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129017.jpg" />
 </div>
 
 
@@ -505,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129000.jpg" />
 </div>
 
 
@@ -516,162 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:364097DE898865F628BC8DD24302F3B837621320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824462   (128896) от 15.10.2025
-
-Мой отец – убийца СПУ / My Father, the BTK Killer (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деннис Рейдер, семьянин и руководитель скаутского движения, вёл двойную жизнь как серийный убийца СПУ. Его дочь Керри Роусон в этом документальном фильме рассказывает о том, как она пережила ужасные преступления своего отца.Производство: США / Campfire StudiosЖанр: документальный, криминалРежиссер: Скай БоргманУчастники: Kerri Rawson, Dennis Rader, Richard LaMunyon, Larry Hatteberg,  Andrea Rogers, Bill HirschmanПеревод: Многоголосый профессиональный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0583DCAF10BEAEC1A22769C8F06892AE19721823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683203   (128774) от 10.12.2023
-
-Человек, взломавший код нацистов / The Man Who Cracked the Nazi Code (2015) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятная история Алана Тьюринга, гениального британского математика, который взломал зашифрованные сообщения нацистов, что сделало возможным высадку в Нормандии. Фильм позволит нам иначе рассмотреть целую часть истории Второй мировой войны, и обнаружить тесную связь между победой Союзников и изобретением компьютера.Производство: Франция, Les Films d'Ici, ARTEЖанр: документальный, история, исследованияРежиссер: Денис ван ВаребейкеУчастники: Рэйчел Уильямс, Пол Бэнди, Кен СтарчевичПеревод: двуголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94B03038AE7B79DDA24C020005EB3B50CC0B150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683406   (128760) от 10.12.2023
-
-Джон Леннон: Убийство без суда / John Lennon: Murder Without A Trial (2023) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (серии 1-3 из 3) [VO]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые ключевые фигуры в жизни и смерти Джона Леннона, включая друзей, врачей и следователей, делятся личными воспоминаниями и рассказывают, что произошло в ночь его убийства. В фильме показаны ранее не публиковавшиеся фото с места преступления.Производство: США, Великобритания, 72 Films, Apple TV+Жанр: документальный, история, биографияРежиссер: Ник Холт, Роб КолдстримУчастники: Джон Леннон, Джек Дуглас, Кифер Сазерленд, Йоко Оно, Лори Кей, Джей Гастингс, Джо Мэни, Ричард Питерсон, Питер Каллен, Марк ЧепменПеревод: одноголосый любительский (CrimeCast)Язык озвучки: русскийСубтитры: русские (full), украинские (full), английские (forced, full, SDH)Продолжительность: 3 х ~00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E3A25D11E6DE41E3C90601F3E4A7290FF51CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683228   (128745) от 10.12.2023
-
-Триллер 40 / Thriller 40 (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128745.jpg" />
-</div>
-
-
-###  Подробнее
-
-История создания «Thriller», рекордного альбома Майкла Джексона.Производство: США / Company Name, Estate of Michael Jackson, Sony Music EntertainmentЖанр: документальный, музыкаРежиссер: Нельсон ДжорджУчастники: Стив Бэррон, Майкл Джексон, Мэри Джей Блайдж, Джон Бранка, Мисти Коуплэнд, Эд Экстайн, Джейн Фонда, Келли Фридман, Куинси Джонс, Нельсон Джордж, Стивен АйвориПеревод: Многоголосый закадровыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077E0BC8935685310EB80BB1E538F57505DCBC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683397   (128725) от 10.12.2023
-
-Имена нелегальной разведки. Арнольд Дейч (2023) HDTVRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он жил в одном доме с Агатой Кристи. Но «королева английского детектива» не подозревала, что среди ее соседей есть человек, в судьбе которого интриг и хитросплетений намного больше, чем у книжных героев. «Идеальный вербовщик», «Супершпион Сталина», «папа Кембриджской пятерки». Это все он — Арнольд Дейч. Фильм расскажет о том, как выходец из Австрии Арнольд Дейч стал (   Читать дальше...   )Производство: Россия, Первый канал, Синема ПродакшнЖанр: документальный, история, биографияРежиссер: Михаил ЕлкинЯзык озвучки: русскийСубтитры: русские (полные для слабослышащих - субтитрами сопровождается как речь, так и воспроизводимые звуки)Продолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D3BB5BE1E695560736D33135E1159CF8FD4F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683333   (128722) от 10.12.2023
-
-Кораблекрушение в кукурузном поле / Cornfield Shipwreck (2019) HDTVRip [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда историков-любителей провела раскопки на кукурузном поле в Канзасе и обнаружила затонувший в 1856 году пароход "Арабия". Погребенный на глубине 15 метров, он поразительно хорошо сохранился. Среди обнаруженных на борту грузов были настоящие исторические сокровища — предметы материальной культуры Америки середины XIX века. Эта находка представляет (   Читать дальше...   )Производство: США, Curiosity Studios, Wide Awake FilmsЖанр: документальный, история, археологияРежиссер: Шейн СелиУчастники: Джоди ШиллингПеревод: двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF45435A7EF0025CE6C5B70EF7C710B2B9ECCAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

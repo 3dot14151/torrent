@@ -1,3 +1,30 @@
+###  Публикация: 1299108   (600752) от 30.04.2019
+
+Гордон Брук-Шеферд | Перебежчики из разведки. Изменившие ход «холодной войны» (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перебежчики из разведки (советской и западной) сыграли важную роль в послевоенной истории. Например, полковник ГРУ Олег Пеньковский передал на Запад 5,5 тыс. документов, которые «определили планирование в западном альянсе на годы, а в некоторых вопросах – на десятилетия».
+Сотрудник британской разведки Ким Филби сообщил в Москву обо всех операциях ЦРУ против СССР. (   Читать дальше...   )Жанр: Биографии и Мемуары, Спецслужбы, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481F76E655C3E53836462DBFD7C26950A14A8A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299104   (600748) от 30.04.2019
 
 Владимир Воронов | Рассекречено. Правда об острых эпизодах советской эпохи (2018) [FB2]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600748.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600669.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600419.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600303.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600279.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600122.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600077.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600049.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600032.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599967.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599963.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598395.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598372.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598172.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598164.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597871.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597748.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597747.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596384.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596189.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596098.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595855.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594887.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593505.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593407.jpg" />
 </div>
 
 
@@ -657,34 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB4248CDBA67A8E086753A3B7E02526124522804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233269   (593381) от 29.06.2018
-
-Вирхиния Вальехо | Любить Пабло, ненавидеть Эскобара (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593381.jpg" />
-</div>
-
-
-###  Подробнее
-
-В истории известного наркобарона Пабло Эскобара и журналистки Вирхинии Вальехо есть все, что требуется для настоящей латиноамериканской драмы, – пылкая любовь и холодное предательство, миг неземного счастья и горькие слезы отчаяния, серенады и жестокие убийства.
-
-Претенциозная и эмоциональная, чувственная, яростная и податливая, утонченная и безудержная, наивная (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40703E775EEC66170DAA839559DA9F1FAF263515
 ```
 
 https://mybot314.ru/tekegram_catalog/

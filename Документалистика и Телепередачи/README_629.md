@@ -1,3 +1,159 @@
+###  Публикация: 1424401   (227329) от 17.11.2020
+
+Тайны небес Иоганна Кеплера / Johannes Kepler, der Himmelssturmer / Johannes Kepler - Storming the Heavens (2020) IPTVRip [H.264] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227329.jpg" />
+</div>
+
+
+###  Подробнее
+
+История его открытий - это драма шекспировских масштабов, полная интриг и страстей. Покорение космоса - мечта человечества с незапамятных времён. Это стало реальностью, во многом благодаря человеку, который 400 лет назад исследовал тайны небес. Кеплер заложил основы для современной астрофизики. Он достиг успеха, несмотря на многочисленные испытания, личные трагедии (   Читать дальше...   )Производство: Германия / Gruppe 5 Filmproduktion, Südwestrundfunk (SWR), Bayerischer Rundfunk (BR), ARTE, Czech TVЖанр: Документально-постановочный, биография, историяРежиссер: Christian TwenteАктеры: Christoph Bach, Heiko Pinkowski, Ben JanssenПеревод: Двуголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 2 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4000474F0AD4E3C79C191201778017D50219CC45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341921   (227270) от 30.11.2019
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (30.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227270.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске программы телезрители узнают, какая польза содержится в облепихе, и справедливо ли её считают русским национальным продуктом, а также запишут рецепт этой недели — вкусный, полезный и красивый. Как проходят чемпионаты по латте-арт, и почему выпить кофейный напиток — это всё равно что съесть кусок жирного торта? В ближайшем выпуске: вся правда о тунце. (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACBB151FFC56E0FB631AC10C68BA5F3F84E76F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341918   (227251) от 30.11.2019
+
+Главная дорога (30.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227251.jpg" />
+</div>
+
+
+###  Подробнее
+
+К хмельным напиткам с нулевым градусом многие относятся скептически, но всё чаще водители выбирают безалкогольное пиво на праздниках и пикниках. Ведущие "Главной дороги" Андрей Федорцов и Денис Юченков вооружились профессиональным алкотестером, пригласили в столичный центр наркологии добровольцев и выпили ящик "нулёвки". Так ли безобидна она оказалась?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD161C112FB54C30066B6023147D20D1710D91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650007   (227214) от 30.07.2023
+
+Неизведанное: Космическая машина времени / Unknown: Cosmic Time Machine (2023) WEBRip [H.264/720p] [EN / Ru Sub]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркие снимки далеких галактик, сделанные с помощью телескопа Джеймса Уэбба будоражат воображение. Этот документальный фильм прослеживает его путь от создания до запуска.Производство: СШАЖанр: документальныйРежиссер: Шай ГалПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские и др.Продолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF55D696B26DD0D1CE25772EAAB584AA89ADCBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341844   (227181) от 30.11.2019
+
+Гарик Сукачев. Носорог без кожи (29.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он предельно искренний музыкант и художник в широком смысле слова, любимец нескольких поколений меломанов. Мы наизусть знаем его песни, его голос узнается с первых звуков. Он — Гарик Сукачев.Телекомпания: 1 каналЖанр: ИскусствоПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848008D1F3604AA4D72A4F50A373D71F16F03D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513170   (226905) от 27.11.2021
+
+Стэлс-истребитель Гитлера / Hitler's Stealth Fighter (2009) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Авиация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226905.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние месяцы Второй мировой войны, войска Союзников разыскивали сверхсекретное оружие Германии. В одном из ангаров они обнаружили реактивный истребитель в виде крыльев летучей мыши, сконструированные для беспрепятственного преодоления радиолокационной обороны - сегодня это называют стэлс-самолетами. Это никакая не тайна - истребитель Horten 229 V3 пережил войну, (   Читать дальше...   )Производство: Канада, Flying Wing Films, Zweites Deutsches Fernsehen (ZDF), National GeographicЖанр: документальный, история, военный, техника, авиацияРежиссер: Майкл ЙоргенсенПеревод: одноголосый профессиональный (SDI-Media)Субтитры: английскиеПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F23835425182346832C59044A9218E7C47CF1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342114   (226784) от 30.11.2019
 
 Танцы (30.11.2019) WEB-DL [H.264/1080p-LQ] (сезон 6, выпуск 18)
@@ -6,7 +162,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226784.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226694.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226693.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226644.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226643.jpg" />
 </div>
 
 
@@ -140,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226272.jpg" />
 </div>
 
 
@@ -166,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226163.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226154.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226138.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226036.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225979.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225953.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225908.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225860.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225837.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225777.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225771.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225767.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225712.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225702.jpg" />
 </div>
 
 
@@ -515,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64870AB2E601B5DACB3B27EFAE2106CC247FFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965553   (225680) от 14.12.2015
-
-Синатра: Все или ничего / Sinatra: All or Nothing at All (2015) HDTV [H.264/1080i] (части 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225680.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Синатра: Все или ничего" - подробнейшее исследование жизни и карьеры легендарного американского исполнителя. История жизни, рассказанная его собственными словами в многочисленных интервью и дополненная комментариями близких Синатре людей. Фильм буквально соткан из музыки и картин из жизни Синатры вместе с редкими кадрами из его знаменитого "Прощального (   Читать дальше...   )Телекомпания: США, HBO Documentary Films presentation of a Jigsaw Production in association with Alcon Television Group and The Kennedy-Marshall CompanyЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:51:16 + 02:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F11770895D5C99134ACB13A6A293A6CECADE5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342185   (225608) от 01.12.2019
-
-Чудо техники с Сергеем Малозёмовым (01.12.2019) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225608.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске программы телезрители узнают, действительно ли термобельё лучше обычного трикотажа, и есть ли разница между дорогим и дешёвым термобельём, а также увидят чудо-товары недели: щётку для сушки волос с микрофиброй, ультразвуковую мойку для овощей и фруктов и набор для ремонта автостёкол. Умельцем этой недели стал Евгений Калдин из Ульяновска — создатель (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76999A4A8C1D9197A4B82740B6B8B32C745437CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513252   (225596) от 28.11.2021
-
-Чудо техники с Сергеем Малозёмовым (28.11.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все о технологичной одежде: кто покупает вещи, которые созданы в 3D-моделях и «надеть» их можно только на фотографию? Хорошо ли работает приложение, подсказывающее, во что одеты окружающие и где можно купить такие же вещи, как у них? Как транспорта коснулась борьба за чистоту окружающей среды? Тест чудо-товаров: банки для спины и компактные видеопроекторы.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B5928211DCDB907C54D5E5E92FD6F5E450621D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919727   (225541) от 11.12.2018
-
-Viasat History: Скрытые угрозы / Hidden Killers (2013) SATRip (сезон 1, серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225541.jpg" />
-</div>
-
-
-###  Подробнее
-
-С доктором Сюзанной Липском попробуем разобраться в том, какие скрытые убийцы скрывались в домах викторианской,  эдвардианской и  тюдоровской эпох.Производство: Modern Television, BBC WalesТелекомпания: Viasat HistoryЖанр: ДокументальныйРежиссер: Сюзанна ФиллипсПеревод: Одноголосый закадровый, профессиональный, перевод Т. Вишневской, Н. Сергевой, текст читает В. БабановаПродолжительность: 3x~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5ABA6B7BD6D08EF6969FD6671643DF473B66B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650596   (225514) от 02.08.2023
-
-Забытый полководец. Коровников Иван Терентьевич (2019) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Терентьевич Коровников – командующий 59-ой армией Волховского фронта, которой в ходе Ленинградско-Новгородской наступательной операции удалось разгромить немецко-фашисткую группу армий «Север», а в ходе Новгородско-Лужской – прорвать сильную оборону противника на новгородском направлении. Действия Ивана Коровникова не только способствовали полному освобождению (   Читать дальше...   )Производство: Россия / "ТЕЛЕИНВЕСТ"Жанр: документальный, история, Великая Отечественная войнаРежиссер: Николай КорнеевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0339AB0F3DB3E2BE5C138FE48D7B84084AFAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424833   (225508) от 18.11.2020
-
-Прощание со Сталиным / Похороны Сталина / Государственные похороны / State Funeral (2019) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм, полностью смонтированный из хроники масштабных похорон Иосифа Сталина. Тысячи людей разных национальностей, старики и молодежь, члены семьи и члены КПСС провожают «вождя». Провожают эпоху. Премьера исторического кинополотна известного режиссера-документалиста, лауреата Каннского фестиваля Сергея Лозницы состоялась на Международном кинофестивале (   Читать дальше...   )Телекомпания: Нидерланды, Литва, Atoms & Void, Studio Uljana Kim, NutprdukceЖанр: ДокументальныйПеревод: не требуетсяСубтитры: русские (forced вшитые)Продолжительность: 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E81483B6092004D8615DFF2AD8DFEAFEEBBDAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

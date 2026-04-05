@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062914.jpg" />
 </div>
 
 
@@ -28,35 +28,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861785   (1062863) от 
-
-VA - Трудный возраст. Трибьют МакSим (2026) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062863.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дора/ТРАВМА - Трудный возраст
-2. NANSI & SIDOROV - Сантиметры дыханья
-3. Lida - Нежность
-4. Абрикоса - Лолита(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A6A1C73B348C09A4576B1235F9C93F5E43B960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860645   (1062031) от 
 
 БИС - Хиты (2023) [MP3|320 Kbps] <Pop>
@@ -65,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062031.jpg" />
 </div>
 
 
@@ -94,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060916.jpg" />
 </div>
 
 
@@ -123,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060915.jpg" />
 </div>
 
 
@@ -152,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060913.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ VA - Аркадиас - 100 лучших песен (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060912.jpg" />
 </div>
 
 
@@ -207,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060846.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060099.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059686.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058750.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057913.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057912.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056968.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ VA - ДЖЕМ Дискотека 85/98 (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051941.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050319.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048218.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047934.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046202.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045485.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ VA - Старые песни о главном 2 (1996) [MP3|320 Kbps] <Рор>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043897.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ VA - А у нас во дворе... (2005) [MP3|320 Kbps] <Рор>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043793.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043511.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042503.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041126.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038474.jpg" />
 </div>
 
 
@@ -740,6 +711,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC604F682FE371B4D98B55F8B05FEE4A97E741C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615392   (1037773) от 25.02.2023
+
+VA - Romantic Collection: Лирика (1999) [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Несчастный Случай-Генералы Песчаных Карьеров
+02 - Алсу-Зимний Сон
+03 - Моисеев Борис-Глухонемая Любовь
+04 - Пугачёва Алла-Не Отрекаются Любя(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB0C143EC757E40B39B97A2EF3C92EC56F5CFDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

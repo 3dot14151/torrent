@@ -1,3 +1,55 @@
+###  Публикация: 1608898   (236701) от 01.02.2023
+
+OpenIn 4 Advanced Link Handler 4.0.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236701.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenIn.app — это расширенная утилита, которая позволяет открывать ссылки, электронные письма и файлы в выбранном вами приложении. Просто нажмите на нее и выберите приложение из списка. Это самый простой способ организовать рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2023Разработчик: © 2023 Loshadki LLCПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2DBC3ADF90CDD424302FB6C6FA67DB338A2A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639893   (236699) от 15.06.2023
+
+Super Vectorizer Pro for Mac 2.3.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Vectorizer Pro для Mac, уникальное программное обеспечение для работы с векторными изображениями для Mac, использует совершенно новый алгоритм квантования изображения, который обеспечивает более естественный цвет после векторизации изображения. Выходные векторные изображения без проблем работают с Illustrator, Corel или другими редакторами векторных изображений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2023Разработчик: © Effectmatrix LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF542952B16084459160E2EB92AD988E4A4DBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608851   (236691) от 01.02.2023
 
 AudFree Tidable Music Converter 2.10.0 [En]
@@ -6,7 +58,7 @@ AudFree Tidable Music Converter 2.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236691.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ iDealshare VideoGo for Mac 6.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236681.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ AudKit Tidal Music Converter 2.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236654.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ BetterDisplay Pro for Mac 2.0.1 pre-release [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236639.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Boss Radar 3.05 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236614.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Outline 3.2301.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236598.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ start 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236564.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Keep It 2.2.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236531.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ PCDJ LYRX 1.10.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236473.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Mirror for TCL TV 3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236457.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Photo Effects Pro 6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236430.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Client Folder Maker 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236423.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ PDF Checkpoint 1.9.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236412.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Live Performer 1.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236384.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Image Enhance Pro 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236341.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ NCH Express Accounts Plus 11.01 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236316.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Statistics Pro 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236286.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ EXIF App 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236274.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Valentina Studio Pro 13.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236273.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ ExpressionsinBar 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236189.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ TimeTable 3 v3.4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236146.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Bulk Photo Watermark 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236115.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ UctoX 2 v2.8.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235926.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Solis 1.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235765.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ Solis для Mac - это Live Design Output, который легко инте
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DC09A8CF7AD449AC3F35F80210031A46CABAFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642145   (235694) от 26.06.2023
-
-BetterDisplay Pro for Mac 1.4.15 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235694.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterDisplay — поистине замечательный инструмент. Приложение позволяет вам преобразовать ваши дисплеи в полностью масштабируемые экраны, позволяет управлять яркостью, обеспечивает масштабирование XDR / HDR (дополнительная яркость выше 100% на совместимых дисплеях), полное затемнение до черного, помогает вам создавать и управлять виртуальными дисплеями (манекенами) (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.06.2023Разработчик: © 2023 waydabberПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3CA545C6117A63858FD81E6C4E7E747E4920246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641261   (235570) от 21.06.2023
-
-Resolutionator 2.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изменение разрешения быстрее, чем Т-1000 меняет формы. Resolutionator делает его простым в использовании любого из доступных разрешений дисплея. Нужно больше места для проекта? Быстрый щелчок в строке меню или нажатием клавиатуры на ярлыке позволяет легко переключаться на любой доступный размер.
-Если у вас есть несколько мониторов, вы можете получить доступ ко всем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2023Разработчик: © 2023 Many TricksПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3CCDD7BCDF142B49370DD0444B2B1F54508A08
 ```
 
 https://mybot314.ru/tekegram_catalog/

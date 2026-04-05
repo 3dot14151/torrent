@@ -1,3 +1,29 @@
+###  Публикация: 1438687   (1040714) от 09.01.2021
+
+Специалист, Хрущ Игорь | Введение в статистику (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существующие на сегодняшний день статистические компьютерные программы позволяют проводить статистический анализ, не имея серьезной математической подготовки. Такие мощные системы как SPSS, SAS, R и др. дают возможность  использовать сложные  статистические методы. Не зная о степени применимости используемых статистических тестов к конкретным данным эксперимента, исследователь (   Читать дальше...   )Производство: СпециалистЖанр: СаморазвитиеПродолжительность: 08:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E9BFF0EB94A86859EF94FDE765EF045474897B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438623   (1040712) от 09.01.2021
 
 Udemy, Ben Tristem и др. | Unreal Engine C++ Developer: Learn C++ and Make Video Games (2020) PCRec [En / En Sub]
@@ -6,7 +32,7 @@ Udemy, Ben Tristem и др. | Unreal Engine C++ Developer: Learn C++ and Make Vi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040712.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040705.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040703.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040700.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Joe Mandia | Animating with Maya for Games and More (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040542.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Victory 3D, Corazon Bryant | Полное руководство по созда
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040423.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040325.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Ari Danesh | Houdini Projects: Terrain Generation (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040323.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040272.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040266.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Udemy, Srinivas Vanamala | The Complete 2020 PHP Full Stack Web Developer Bootca
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040265.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040263.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040257.jpg" />
 </div>
 
 
@@ -366,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040252.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040229.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040214.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040209.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Delano Athias | Getting Started with MEL in Maya (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040083.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040055.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Nicolas Garilhe | Armor Creation in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040024.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Udemy, Edwin Diaz и др. | PHP for Beginners - Become a PHP Master - CMS Proje
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040005.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Udemy, Edwin Diaz и др. | PHP with Laravel for beginners - Become a Master in
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039998.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Bravo Chef! Суши, роллы и сашими [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039988.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Chess.com | Achieving Full Board Awareness and Nirvana / Шахматы всле
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039987.jpg" />
 </div>
 
 
@@ -666,7 +692,7 @@ Masterclass | Кевин Спейси учит актерскому мастер
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039980.jpg" />
 </div>
 
 
@@ -680,32 +706,6 @@ Masterclass | Кевин Спейси учит актерскому мастер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05E33C5B8C4C10B294232BADDE68AB941D3F4EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661946   (1039972) от 12.01.2021
-
-В. Козин  Курс молодого электрика [2012] WEB-DLRip [H.264]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный видеокурс для тех, кто готов изучать электричество, начиная от простейших схем и заканчивая разводкой всех электрических цепей у себя дома.Жанр: Обучающее видеоПродолжительность: 02:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8604CC2178C688F91412DA28AD96551F36957949
 ```
 
 https://mybot314.ru/tekegram_catalog/

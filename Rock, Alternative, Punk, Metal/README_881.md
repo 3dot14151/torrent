@@ -1,3 +1,32 @@
+###  Публикация: 1576927   (234832) от 16.09.2022
+
+Slipknot - The End, So Far (2022) [MP3|320 Kbps] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adderall (5:40)
+02. The Dying Song (Time To Sing) (3:23)
+03. The Chapeltown Rag (4:49)
+04. Yen (4:43)(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACEDCF14F7422061FC0D7AFA6F4809CA69641103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539670   (234824) от 27.03.2022
 
 Dream Widow & Foo Fighters - Dream Widow (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Grunge Rock, Acoustic Rock>
@@ -6,7 +35,7 @@ Dream Widow & Foo Fighters - Dream Widow (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234824.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Silvertrain - Steel Against Steel (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234823.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sermon - Till Birth Do Us Part (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234821.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Smashing Pumpkins - ATUM : A Rock Opera In Three Acts (2023) 3xCD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234816.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mammatus - Expanding Majesty (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234815.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Razorblade Messiah - Age of Oppression (2022) EP [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234814.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Distance of Thought - Edge of Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234810.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Wet Wet Wet - Popped In Souled Out (1987-2017) Reissue, 2017, Virgin EMI Records
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234809.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Dorian Gray - Free Spirit (2004) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234807.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Sullivan King - Thrones of Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalstep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234794.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Dorian Gray - It's Your Day (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234791.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Schandmaul - Kn​u​ppel aus dem Sack (2022) Deluxe Edition, 2023, Napalm Reco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234788.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Dorian Gray - Burning (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234782.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Tunguska - 3 Albums (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Post-Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234776.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Dorian Gray - Journey Of Mind (1998) [FLAC|Lossless|image + .cue] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234769.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234768.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Striking Tunes Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234766.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Adversvm - Dysangelion (2019) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234759.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Dan Cummins - The New World (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234757.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Trash - Burnin' Rock (1985) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234750.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Adversvm - Vama Marga (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234744.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Ferdy Doernberg - ...'till I run out of road (2006) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234742.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Inmundus - The God Machine (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234739.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Trash - Watch Out (1982) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234733.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Immortal - War Against All (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234732.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Immortal - War Against All (2023) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:757FB3FC260FCCB6AE177D258DD66BFB3C987A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541397   (234730) от 03.04.2022
-
-Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trick Or Treat?
-02. Creepy Symphony
-03. Have A Nice Judgment Day
-04. Crazy(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AF832639A175376865A6F4E9BA13995DC91DC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

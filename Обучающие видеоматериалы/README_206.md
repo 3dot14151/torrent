@@ -1,3 +1,30 @@
+###  Публикация: 1570889   (210188) от 19.08.2022
+
+Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PCRec [CN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оголённый мозг, управляющий сверхцивилизованным космическим кораблем, чтобы сбежать с пустынной земли, дрейфующий в дальнем космосе, история разворачивается так...
+Вас когда-нибудь привлекало название какого-нибудь американского телешоу? Восхищаетесь их причудливым дизайном и характерными визуальными выражениями? Вы когда-нибудь думали о том, чтобы создать его самостоятельно, (   Читать дальше...   )Производство: YiihuuЖанр: Motion DesignЯзык озвучки: КитайскийПродолжительность: 08:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AAE4DAFC587D8909ACD424C5F09609173AF5E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571255   (210154) от 20.08.2022
 
 НАДПО | Курс профессиональной переподготовки «Практический психолог» (2022) WEB-DL [AD] [RU]
@@ -6,7 +33,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210154.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ LeadTex | Архитектор чат-ботов PRO (2021) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210115.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210103.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ Thinknetica Pro, Александр Борисов | Безопасность п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210036.jpg" />
 </div>
 
 
@@ -120,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210022.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210008.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ Schoolism, Nathan Fowkes | Digital Landscape Painting Workout (2021) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209935.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ Schoolism, Iain McCaig | Drawing Workout (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209803.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games with Adam Skutt (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209784.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ SideFX, Paul Esteves | Houdini 19 Nodes (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209726.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209680.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ BAS, Павел Дуглас | Создание Чекеров на BAS (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209588.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209562.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ Gumroad, Frank Tzeng | Zbrush BPR RENDERING package (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209471.jpg" />
 </div>
 
 
@@ -394,7 +421,7 @@ Schoolism, Nathan Fowkes | Environment Design Workout with Nathan Fowkes (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209436.jpg" />
 </div>
 
 
@@ -421,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209410.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ Granich.Design, Вадим Гранич | Графсистема Swiss (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209344.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ Granich.Design, Вадим Гранич | Графсистемы Брутали�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209319.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ Antipin-STUDIO, Виталий Антипин | Искусство портре�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209304.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ Udemy, David Bittorf | Substance Painter for Beginners - creating normal maps (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209297.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Pluralsight, Nathan Glemboski | Creating Hand Painted Textures in Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209291.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ Artilike, Любовь Титова | Акварельный Новогодни�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209288.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ Gumroad, Daniel Thiger | Substance Studies Tutorial Graphic Design (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209144.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Pluralsight, Dan Cox | Hard Surface Modeling a Modular Structure for Games in 3d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209140.jpg" />
 </div>
 
 
@@ -665,7 +692,7 @@ Pluralsight, Dan Cox | Sculpting Modular Structures in ZBrush (2016) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209107.jpg" />
 </div>
 
 
@@ -677,33 +704,6 @@ Pluralsight, Dan Cox | Sculpting Modular Structures in ZBrush (2016) PCRec [EN, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EFE065851C582D44F6D101BDD58208FEB170C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573767   (209087) от 02.09.2022
-
-Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 2 (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как и спортсменам, художникам нужно тренироваться, чтобы поддерживать свое мастерство. Приготовьтесь оттачивать свои художественные навыки вместе с Уотер Толп ежедневно в течение 9 недель с его "Упражнениями для digital-художников"! В 63 уроках Ваутер расскажет вам об упражнених по цифровой живописи, на которых основное внимание будет уделено:
-- живопись (   Читать дальше...   )Производство: SchoolismЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 10:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EAC502D4FA877C35D02167B5DCC39633A1F131
 ```
 
 https://mybot314.ru/tekegram_catalog/

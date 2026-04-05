@@ -1,31 +1,3 @@
-###  Публикация: 980346   (956386) от 29.01.2016
-
-А. М. Орехов | Первые марксисты в России. Петербургский "Рабочий союз" 1887-1893 гг. (1979) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена крупнейшей социал-демократической организации периода распространения и упрочения марксизма в России - Петербургскому "Рабочему союзу" (группа Михаила Бруснева).
-
-В книге рассматривается история становления и деятельности "Союза", уточнены периодизация и хронологические рамки этой организации. На фоне развития революционного движения (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF441BBA258C081DCB2BFF3DA633B0E5C5D0C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980344   (956292) от 29.01.2016
 
 Л. С. Шатенштейн | Мултанское дело. 1892-1896 (1960) [DJVU]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956292.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956283.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956173.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956172.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956163.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956100.jpg" />
 </div>
 
 
@@ -191,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955515.jpg" />
 </div>
 
 
@@ -217,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954767.jpg" />
 </div>
 
 
@@ -243,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954051.jpg" />
 </div>
 
 
@@ -269,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953252.jpg" />
 </div>
 
 
@@ -296,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953046.jpg" />
 </div>
 
 
@@ -323,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952802.jpg" />
 </div>
 
 
@@ -350,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952779.jpg" />
 </div>
 
 
@@ -376,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949717.jpg" />
 </div>
 
 
@@ -402,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948514.jpg" />
 </div>
 
 
@@ -428,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948441.jpg" />
 </div>
 
 
@@ -456,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948428.jpg" />
 </div>
 
 
@@ -482,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948305.jpg" />
 </div>
 
 
@@ -508,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947103.jpg" />
 </div>
 
 
@@ -534,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947057.jpg" />
 </div>
 
 
@@ -560,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945865.jpg" />
 </div>
 
 
@@ -589,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945476.jpg" />
 </div>
 
 
@@ -616,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945467.jpg" />
 </div>
 
 
@@ -644,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945416.jpg" />
 </div>
 
 
@@ -672,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945391.jpg" />
 </div>
 
 
@@ -685,6 +657,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1170060C9800E4E650023A9481BEB3B581A84E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983225   (945316) от 05.02.2016
+
+Николай Лузан | СМЕРШ. Один в поле воин (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор рассматривает период с ноября 1941 по октябрь 1943 г. и рассказывает о деятельности отечественной военной контрразведки, в частности особых отделов НКВД СССР - ГУКР Смерш НКО СССР.
+В основе книги лежит одна из наиболее значимых разведывательных операций советской контрразведки по агентурному проникновению в абвер. Она получила кодовое название "ЗЮД". (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D0C313B1E16FFE9B456D85DBC6787F8F3B7F9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

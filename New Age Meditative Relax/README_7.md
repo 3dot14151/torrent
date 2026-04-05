@@ -1,3 +1,32 @@
+###  Публикация: 1210624   (778546) от 04.03.2018
+
+Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Old Friends 3:56
+02. Spring Rain 5:57
+03. Time Out 6:02
+04. Hello Again 5:33(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18EC7007B24BF1B689F0613553E1B88FCD76296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210785   (778520) от 04.03.2018
 
 Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
@@ -6,7 +35,7 @@ Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778520.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778148.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777975.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Medwyn Goodall - Manitou the Great Spirit (2015) [MP3|320 кб/с] <Native ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777655.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Danny Rayel - Blue Skies (2016) [MP3|320 кб/с] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777649.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Peter Kater & Tina Guo - Inner Passion (2016) [MP3|320 кб/с] <New Age, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777622.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777564.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Michael Brant DeMaria - Ama (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777558.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Sal Oliveri - Piano Prayers: Peace for Stress & Anxiety (2018) [MP3|320 Kbps] <N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777510.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [MP3|320 кб/с] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777184.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Ani Yun Wiya - Indian Nation (2016) [MP3|320 кб/с] <World, Native American, E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776889.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Michael Sheehan - Radiance (2004) [MP3|320 кб/с] <New Age, Instrumental, Pian
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776559.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Sverre Knut Johansen - Earth From Above (2016) [MP3|320 кб/с] <Ambient, New a
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776530.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Nexion-Project - Voices Of The Ascension (2011) [MP3|320 кб/с] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775763.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Gandalf - All is One - One is All (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774982.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Magick Numbers - Dreaming of Oceans (2018) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774460.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Salvador Candel - Gently (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774230.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ David Wright & Carys - Prophecy (2017) [MP3|320 Kbps] <Electronic, Ambient, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773447.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773224.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Greg Maroney - Quiet Piano Improvisations, Vol. 1 (2016) [MP3|320 кб/с] <Inst
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770336.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768807.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765535.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765533.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Isis & Cobra - The Goddess Spiral Meditations (2013) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761110.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Singular Mind - Find Myself (2017) [MP3|320 Kbps] <Ambient, Chill Out, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749422.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Singular Mind - Find Myself (2017) [MP3|320 Kbps] <Ambient, Chill Out, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F66078CB839089A74D7E10BB896E69734E34030F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216784   (747839) от 01.04.2018
-
-VA - Impressions from Da Vinchi (2006) 3CD [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massini - Enae Volare Mezzo (4:24)
-02. Mary McDowell - Only Be One (3:53)
-03. Emerald Singers - Song of Tears (4:01)
-04. Tranceparence - Return to Innocence (4:01)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 03:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F540F085FD2DDACFA72775C4469DA33AF3B6A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

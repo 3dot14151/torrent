@@ -6,7 +6,7 @@ Ajin | Полулюди [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822592.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - Cadenza / Мелодия воро
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821051.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Himouto! Umaru-chan R | Двуличная сестрёнка Умару - 2 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820418.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Akatsuki no Yona | Рассвет Йоны [2014, TV, 24 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818374.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] HDTV 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818296.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Love Live! School Idol Project / Живая любовь! Проект "школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817985.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Love Live! Superstar!! / Живая любовь! Суперзвёзды!! [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817211.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kingdom 3 / Царство [TB-3] [2020, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817203.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Masamune-kun no Revenge / Месть Масамуне-куна [2017, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814428.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814307.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Just Because! / Да просто так! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813341.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812754.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / Завет Дь�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812497.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Hoozuki no Reitetsu (2017) | Хладнокровный Ходзуки [ТВ-2] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809724.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Nora to Oujo to Noraneko Heart | Nora, Princess, and Stray Cat | Нора, пр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809716.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809622.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809405.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Eldlive / Эль Драйв [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808735.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808648.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Ao no Exorcist: Kyoto Fujouou Hen | Blue Exorcist: Kyoto Saga | Синий Эк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808552.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808024.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nurse Witch Komugi-chan R / Медсестра-волшебница Комуги
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807101.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Garo: Honoo no Kokuin | Гаро: Печать пламени [2014, TV, 24] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806461.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Saenai Heroine no Sodatekata | Saekano | Как воспитать из обыч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806458.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Magi: The Kingdom of Magic / Magi 2 / Маги 2 [2013, TV, 25 эп.] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805812.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Chiruran: Nibun no Ichi / Чируран пополам [2017, TV, 12] WEB-DLRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805011.jpg" />
 </div>
 
 

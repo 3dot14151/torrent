@@ -1,3 +1,119 @@
+###  Публикация: 1412067   (420439) от 28.09.2020
+
+Fish - Weltschmerz (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks + .cue] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420439.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Grace of God (08:16)
+02. Man With a Stick (06:30)
+03. Walking on Eggshells (07:15)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91466386E0713BCCCBA579A7802FF3EC1AB687FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412264   (420435) от 28.09.2020
+
+Аквариум - Аквариум in Dub (2020) [FLAC|Lossless|image + .cue] <Rock, Regga>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кипение Аквариума На Ямайке
+02. Вавилон
+03. Иван И Данило
+04. Аристократ(   Читать дальше...   )Жанр: Rock, ReggaПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA0F83271E69C7E02954B46122289C40DE579B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572501   (419469) от 28.08.2022
+
+Tomi Malm - Coming Home (2021) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Westcoast>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Wave (2:51)
+02. Come Away (4:54)
+03. When You're Gone (4:04)
+04. Are You Real? (4:07)(   Читать дальше...   )Жанр: AOR, WestcoastПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4872D1A48BBBAB6A210CE513BB171D613374B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710070   (418371) от 13.10.2013
+
+VA - Pure... Rock Ballads (2013) Box Set, 4 CD [FLAC|Lossless|tracks + .cue]<Rock, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Asylum - Runaway Train (04:25)
+ 02. Hooters - Satellite (04:15)
+ 03. Starship - Sara (04:52)
+ 04. Bonnie Tyler - Holding Out For A Hero (04:21)(   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65126162FFF25F85B690706F112703BF5A4F8272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412406   (418365) от 29.09.2020
 
 Big Thinkers - A New Beginning (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
@@ -6,7 +122,7 @@ Big Thinkers - A New Beginning (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418365.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Built For The Future - Brave New World (2020) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418360.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Bubu - El Eco del Sol (2018) (2018) [FLAC|Lossless|image + .cue] <Progressive ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417935.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - The Very Best of Power Ballads (2005) 3CD [FLAC|track+.cue]<Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417721.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Imperial State Electric - All Through The Night (2016) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417212.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ David Crosby - Lighthouse (2016) [FLAC|Lossless|image + .cue] <Acoustic, Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416823.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - The Many Faces Of The Beatles (2016) 3CD Box Set [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416334.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Fatal Fusion - The Ancient Tale (2013) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416187.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Karnataka - Secrets Of Angels (2015) [FLAC|tracks + .cue]<Progressive Rock, Symp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415986.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Ram Jam - Greatest Hits (2020) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415887.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Big Day Out: Discrespective 1992-1997 / 1999-2002 (2002) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414946.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Tim Buckley - Greetings From L.A. (1972)[FLAC|Lossless|WEB-DL|tracks] <Funk, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414795.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Omega - Gammapolis & Live At Kisstadion (1979) 2xCD, Compilation, Reissue, 2022,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414751.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Pixies - Head Carrier (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Indie-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414577.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Hu - The Gereg (2019) [FLAC|Lossless|Web-DL|tracks] <Rock, Folk, Heavy Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414199.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Taxxi - Collection (2020) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413993.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Pure... Rock 'n' Roll (2013) Box Set, 4 CD [FLAC|Lossless]<Rock 'n' Roll, O
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413760.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Bryan Adams - Get Up (2015) [FLAC|image+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413751.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Bon Jovi - 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413478.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Robert Plant - Digging Deep: Subterranea (2020) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413475.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Sounds Of The Eighties - The Mid-'80s (1996) [FLAC|Lossless|tracks + .cue] <Vari
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412731.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Last Train - The Big Picture (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412593.jpg" />
 </div>
 
 
@@ -629,120 +745,6 @@ Last Train - The Big Picture (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B931C1FC8517856683C43795F313F87CF57B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325540   (412102) от 15.09.2019
-
-Dan McCafferty (Ex. Nazareth) - Last Testament (2019) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You and Me
-02. Why
-03. Looking Back
-04. Tell Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37D287001F9BC69F1CD2BB8AD98541B61D83554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413064   (412020) от 02.10.2020
-
-Marco Bernard and Kimmo Porsti (The Samurai Of Prog ) - Gulliver (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture XI
-02. Lilliput Suite
-03. The Giants
-04. The Land Of The Fools(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8027E031047C0CD6C896774A61DCFD4D9C33547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413019   (412019) от 02.10.2020
-
-Marco Bernard and Kimmo Porsti (The Samurai Of Prog) - La Tierra (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vuelo Sagrado
-02. El Error
-03. Voz De Estrella Que Muere
-04. Ansia De Sonar(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44DB830777FAE1B01B8828980E3C778F5F6186F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413035   (411924) от 02.10.2020
-
-The Samurai Of Prog - The Demise Of The Third King's Empire (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Book Of Knowledge (02:02)
-02. The Demise Of The Third King's Empire (57:10)Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F593118E8717D7CD8B21044815DB4E2E52DC7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 534820   (510153) от 22.08.2012
+
+The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | Audioslave
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромный мегаполис задыхается от власти преступников. На улицах города начинается настоящая война, и только Человек-паук способен очистить родной Нью-Йорк от грабителей, воров и убийц. Питер Паркер вновь надевает свой легендарный костюм и выходит на тропу войны. Но из теней, что сгустились над Манхэттеном, за полетом паутины следит нечто зловещее… и оно жаждет крови.
+Этот невероятно зрелищный экшен по мотивам голливудского блокбастера позволит вам применить самые впечатляющие боевые приемы из арсенала Человека-паука. Вам доведется парить над городом, прыгать по небоскребам, спускаться под землю и сражаться с легендарными злодеями из классических комиксов Marvel. Сюжет игры начинается там, где заканчиваются события фильма. Узнайте, что ждет героев после того, как пройдут финальные титры.(   Читать дальше...   )Тип издания: RepackРазработчик: BeenoxЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8521D4224699B4757E4E427AD7CC192AAED7123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537959   (510147) от 22.08.2012
+
+Batman: Arkham City / Batman: Аркхем Сити + 14 DLC [Ru/En] (RePack/1.03) 2011 | R.G. Catalyst
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия Rocksteady — создатели проекта Batman: Arkham Asylum — приглашают игроков вновь окунуться в мрачную и таинственную атмосферу Готэма в игре «Batman: Аркхем Сити».
+Аркхем — район, где бесчинствуют выпущенные из психиатрической клиники и предоставленные сами себе безумцы, матерые преступники и маньяки. Это черное пятно в самом сердце Готэма, отгороженное от окружающего города неприступной стеной. А как известно, где зло — там и Бэтмен! В Аркхеме легендарный Человек-летучая мышь встретится со многими знаменитыми героями и злодеями, а игроки испытают на себе, каково это — быть Темным Рыцарем. (   Читать дальше...   )Тип издания: RepackЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3FA4CD154FD912EC4D22F124445FCBC4212A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538044   (510140) от 22.08.2012
 
 Counter-Strike: Global Offensive [Ru/En/Multi24] (Steam-Rip/1.17.3.0) 2012 | RG GameWorks [Без таблетки]
@@ -6,7 +60,7 @@ Counter-Strike: Global Offensive [Ru/En/Multi24] (Steam-Rip/1.17.3.0) 2012 | RG 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510140.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Lost Horizon  [Ger] (L) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510093.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Swordsman (2015) [Ru/En] (0.0.30) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509815.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ The Amazing Spider-Man [Ru/En/Multi6] (RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509492.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Darksiders II: Death Lives - Limited Edition [Ru] (Repack/Upd.1) 2012 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509411.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509406.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509310.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Dark Souls: Prepare To Die Edition [Ru/En/Multi9] (L/1.0) 2012 [Без табл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509199.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508993.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ Transformers: Fall of Cybertron [En] (RePack) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508308.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Hitman: Sniper Challenge (NoDVD/1.0 + FIX) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508298.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ Angry Birds Seasons [En] (L/2.5.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508292.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508109.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Crookz - The Big Heist (2015) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507765.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ Satellite Reign (2015) [En] (1.02) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507764.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ Zero Tsukihami no Kamen (Fatal Frame4 Mask of the Lunar Eclipse) [JPN] [NTSC-J] 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507276.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ Project CARS (2015) [Ru/Multi] (3.0/dlc) Repack YelloSOFT [Digital Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506892.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ Satellite Reign (2015) [En] (2.0.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506833.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ Angry Birds Space (L/1.3.0) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506269.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ Armello (2015) [Ru/Multi] License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505052.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ Volume (2015) [Ru/Multi] (1.1.00) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505003.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ Jagged Alliance: Crossfire [Ru] (RePack/1.0.1) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504845.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ Galaxy on Fire 2. Full HD [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504795.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ Damnation [Ru/En] (RePack/1.0) 2009 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504670.jpg" />
 </div>
 
 
@@ -625,60 +679,6 @@ Damnation [Ru/En] (RePack/1.0) 2009 | R.G. Element Arts
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E8730A49D1B2FF337F2E47F761423F8267C00EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539522   (504486) от 28.08.2012
-
-Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0) 2012 | SHARINGAN
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
-Каждое испытание представляет собой головоломку с бесконечным количеством решений. Вам пригодится, в первую очередь, умение стратегически мыслить, чтобы победить многочисленных противников и завершить свой путь..(   Читать дальше...   )Тип издания: RepackЖанр: Action / RPG / FantasyЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский, Немецкий, Французский, Испанский, Итальянский, Китайский, Корейский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCCBF8D52D00001B371ACB22F64960A9F569E8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539336   (504392) от 28.08.2012
-
-Dark Souls: Prepare To Die Edition [Ru] (Repack/1.0.0.1) 2012 | {AVG}
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
-Каждое испытание представляет собой головоломку с бесконечным количеством решений. Вам пригодится, в первую очередь, умение стратегически мыслить, чтобы победить многочисленных противников и завершить свой путь..(   Читать дальше...   )Тип издания: RepackЖанр: Action / RPG / FantasyЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552ACD0319588C8C3123FA1411F2FFA01C0CEBF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

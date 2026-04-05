@@ -1,3 +1,32 @@
+###  Публикация: 1578773   (341083) от 25.09.2022
+
+Purpendicular & Ian Paice - Human Mechanic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nothing Box [00:04:59]
+02. Ghost [00:05:58]
+03. No One's Getting Out Alive [00:03:41]
+04. Something Magical [00:03:57](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B165A16DFB7022713AC4F629CDCB3E170231E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579007   (341078) от 25.09.2022
 
 Highly Suspect - 3 Albums (2015-2022) [MP3|320 Kbps] <Hard Rock, Blues Rock, Progressive Rock>
@@ -6,7 +35,7 @@ Highly Suspect - 3 Albums (2015-2022) [MP3|320 Kbps] <Hard Rock, Blues Rock, Pro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341078.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Freddie Mercury - Mr. Bad Guy (1985) Special Edition, Remastered, 2019 [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341009.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Chris Rea - The Best Of Chris Rea (1994) [OGG Vorbis|484 Kbps] <Rock, Soft Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340959.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Liar - Set The World On Fire (1978) Reissue, 2020, Escape Music [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340944.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Best Of British Rock (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340894.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Amaranthe - Helix (2018) Japanese Edition [MP3|320 кб/с]<Modern Melodic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340892.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ AC/DC - Fort Lauderdale 6th September 1977 (2018) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340888.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Deep Purple - Extras: The Infinite B-Sides and Bonus Songs (2022) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340818.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ A Sense of Gravity - Atrament (2016) [MP3|320 Kbps] <Progressive Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340742.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Mark Knopfler - Screenplaying (2013) K2HD Mastering [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340719.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Pink Floyd - Animals (2018 Remix) (1977) Japanese Edition, Reissue, 2022, Sony M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340659.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Devilment - II - The Mephisto Waltzes (2016) [MP3|320 Kbps] <Extreme Metal, Goth
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340544.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Diabulus In Musica - Dirge For The Archons (2016) [MP3|320 Kbps] <Symphonic Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340540.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Sandy and The Wild Wombats - The Girl Can't Help It! (2015) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340440.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Lera Lynn - Resistor (2016) [FLAC|Lossless|tracks] <Indie Folk Rock, Post-Americ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340438.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sixx: A.M. - Prayers For The Blessed Vol. 2 (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340437.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Lamb Of God - The Duke (2016) EP [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340365.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Krystal Jyl And The Jacks - Krystal Jyl And The Jacks (2017) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340275.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340221.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Joe Cocker - Fire It Up [Premium Edition] (2012) [FLAC|Lossless]<Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340203.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Destruction - Thrash Anthems II (2017) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340143.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Summoning - Lugburz (1995) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340128.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Summoning - Dol Guldur (1997) [FLAC|Lossless|tracks + .cue] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340127.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Summoning - Let Mortal Heroes Sing Your Fame (2001) [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340116.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Unleashed - Hell's Unleashed (2002) [FLAC|Lossless]<Death Metal, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340114.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Unleashed - Hell's Unleashed (2002) [FLAC|Lossless]<Death Metal, Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:110C6A2519F31BD308F79A2D7B41EECF94499126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419462   (340113) от 28.10.2020
-
-Summoning - Minas Morgul (1995) Reissue, 2002, IROND [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Wandering (2:31)
-02. Lugburz (7:12)
-03. The Passing of the Grey Company (9:14)
-04. Morthond (6:42)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F041B93646E9820E87C093891E754055D78390
 ```
 
 https://mybot314.ru/tekegram_catalog/

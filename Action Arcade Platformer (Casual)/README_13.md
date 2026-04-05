@@ -1,3 +1,55 @@
+###  Публикация: 1419678   (331907) от 01.11.2020
+
+GONNER2 (2020) [Rui/Multi] (1.1.8.2) License GOG [The Full Ikk Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш бескорыстный и внезапный герой Икк возвращается в GONNER2. На этот раз в нем нуждается сама Смерть. В ее логове обосновалось нечто таинственное, и теперь Икк должен помочь избавиться от незваного гостя. Отправляйтесь в путешествие по мрачным и хаотичным местам, где мелькают лишь редкие проблески цвета, сражайтесь с безумными боссами и помните: самое главное – (   Читать дальше...   )Тип издания: LicenseРазработчик: Art in HeartЖанр: Экшн, Приключение, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65ACA67F7A85881B22D668D66342BEF9A31AE7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907015   (325409) от 19.11.2015
+
+Казуальные игры (2015) [Ru/En] (15.06) RePack adguard [июнь]
+
+>>След.
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казуальные игры - это маленькие и увлекательные компьютерные игры, отличающиеся простым геймплеем. Неотъемлемой частью подобных игр являются легкий игровой процесс, красочная графика, а также отсутствие элементов жестокости. Они быстро скачиваются, не требуют мощного "железа" и специальных навыков владения компьютером, а вот удовольствия могут подарить (   Читать дальше...   )Тип издания: RePackРазработчик: Alawar Entertainment | Nevosoft | Big Fish Games | 8Floor Games и другиеЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6893EEE752B311EE355F19A3C29975936B25FFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 820456   (324426) от 20.11.2015
 
 Shovel Knight (2014) [En/Multi] (2.01) Repack Let'sPlay
@@ -6,7 +58,7 @@ Shovel Knight (2014) [En/Multi] (2.01) Repack Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324426.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Cyber Hook (2020) [Ru/Multi] (1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324205.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ A Hat in Time (2017) [Ru/Multi] (59270/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322543.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ de Blob (2017) [Multi] (0.28b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320600.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Way of the Red (2016) [En] (1.0.0.0/24.11.2016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315331.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Rampage Knights (2015) [En] (1.5) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311545.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Cyber Chicken (2016) [En] (1.0.3) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310531.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308826.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sneaky Sneaky  (2014) [En] (1.0.293) Repack  Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303752.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Iggy's Egg Adventure (2015) [En] License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302922.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Rogue Wizards (2016) [En] (1.0.311) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299446.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Junk Jack (2016) [En] (3.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291385.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ King Lucas (2016) [En/Es] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291211.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ CRAZY CHICKEN Strikes Back (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291203.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283625.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278111.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Filthy Lucre (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278071.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276748.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Rad Rodgers: World One (2016) [En] (1.1.4480) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273050.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ MinecraftEdu (2011) [Ru/Multi] (1.7.10 Build 22) License [Minecraft Classroom Ed
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264322.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Wonder Boy: The Dragon's Trap (2017) [Multi] (1.02.22) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262646.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Chicken Rush Deluxe / Куриная месть. Снова в деле (P) [Ru]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260133.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Kingdom Chronicles Collectors Edition / Как Джон Непоседа спа�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258631.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Peglin (2024) [Ru/Multi] (1.1.23) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257619.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Peglin (2024) [Ru/Multi] (1.1.23) Repack Necros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2FA08E6CA667A56FAED9F4428DE472A08D093BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500003   (256992) от 22.05.2012
-
-Top Secret Finders / СверхОсобый СпецОтдел (P) [Ru] 2012
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство создало специальное подразделение для исследования архивов экстраординарных случаев. Ваша первая миссия состоит в том, чтобы спасти небольшой город от опасного устройства. Используйте все свои навыки поиска скрытых объектов, чтобы раскрыть правду о правительственном заговоре и остановить злодея!(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Русский (Старый Пёс)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B13C1839E5A80476CB90D662E014BB052D70B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556095   (255031) от 18.04.2023
-
-Souldiers (2022) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с другими бойцами, бьющимися во славу своего королевства, вы внезапно оказываетесь в Террагае - загадочном крае где-то на задворках загробного мира. Ваша задача - найти Стража и пробраться в следующий мир. Но есть один нюанс… На самом деле вы и ваши товарищи до сих пор живы. Одолевайте коварных врагов, решайте сложные головоломки, улучшайте персонажа и заглядывайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Retro ForgeЖанр: Экшн, ПриключениеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72411F6CB166E1B34C53A3B8E7BB5C8873C92371
 ```
 
 https://mybot314.ru/tekegram_catalog/

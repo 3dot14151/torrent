@@ -1,3 +1,32 @@
+###  Публикация: 1593585   (180529) от 27.11.2022
+
+Malemort - Ball Trap (2016) [FLAC|Lossless|tracks] <Heavy Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ball Trap (03:15)
+02 - Mille regards (04:02)
+03 - Foutue belle jeunesse (La carapace) (03:31)
+04 - Brûle (03:09)(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F348611BA24F96918BA6073FD88FFAA814C5B735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593341   (180526) от 27.11.2022
 
 Grim Justice - Justice in the Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
@@ -6,7 +35,7 @@ Grim Justice - Justice in the Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180526.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ FoN - Мамонт (2022) [MP3|320 Kbps] <Rock, Blues>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180523.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Oceans - Is Where The Heart Is (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180512.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ In Sanity - For We Triumph (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180506.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ali Thomson - The Last Rodeo (2022) Japanese Edition [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180500.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Assignment - Reflections (2020) [FLAC|Lossless|image + .cue] <Progressive Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180496.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Danny Wilde - The Boyfriend (1986) Reissue, 2022, Bad Reputation [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180492.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180488.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Malamorte - God Needs Evil (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180487.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180485.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Lari Basilio - The Sound of My Room (2015) [FLAC|Lossless|image + .cue] <Instrum
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180463.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ David Maxim Micic - BILO IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180453.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180450.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Tom Petty & The Heartbreakers - Live at the Fillmore (1977) 2022, Warner Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180443.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Chris Rea - Whatever Happened to Benny Santini? (1978) Reissue, 1991, EastWest [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180439.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Fatal - Soul Burning Still - A Fatal Retrospective (2017) Compilation [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180364.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Soluna - Synesthesia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180349.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Asia - Fantasia (Live In Tokyo) (2007) 2xCD, Japanese Edition, Remastered, SHM-C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180328.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180327.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Avril Lavigne - Love Sux (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180307.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Sotiria - Hallo Leben (2018) Box Set 2CD [FLAC|Lossless|image + .cue] <Rock, Got
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180273.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Antirain of Corpses - U-2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Death-Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180208.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Alfio Costa - Frammenti (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180205.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Sly Roosevelt - Kirlian (2020) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180194.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Across The Divide - Disarray (2020) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180162.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Across The Divide - Disarray (2020) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0C1229EE1F4FA7F034CCA78D4A4DE69B8ECB60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428424   (180142) от 02.12.2020
-
-Hardy - Личности (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Горячее сердце (05:03)
- 02. Торговец смертью (05:27)
- 03. Святая ведьма (06:31)
- 04. Огненный смерч (05:21)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A549DE7406985ED95F0D3A14BC70A7B9AFF8720E
 ```
 
 https://mybot314.ru/tekegram_catalog/

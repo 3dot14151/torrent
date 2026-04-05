@@ -1,3 +1,61 @@
+###  Публикация: 1200043   (796961) от 19.01.2018
+
+VA - Sun:Sets 2018 (Selected by Chicane) (2018) [MP3|320 Kbps] <Deep House, Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Halftribe  -  Outward Momentum (Original Mix)  2:59
+02.  Thomas Datt  -  The Edge (Original Mix)  4:11
+03.  Alex Blest  -  Fragments Of Bliss (Magdelayna Chilldown Mix)  4:10
+04.  Tontario  -  Late (Original Mix)  4:16(   Читать дальше...   )Жанр: Deep House, Progressive House, TranceПродолжительность: 02:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44B59C3D40D268210357AA6E0D80CE07CBEAA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200046   (796913) от 19.01.2018
+
+VA - Sun:Sets 2018 (Selected by Chicane) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Halftribe  -  Outward Momentum (Original Mix)  2:59
+02.  Thomas Datt  -  The Edge (Original Mix)  4:11
+03.  Alex Blest  -  Fragments Of Bliss (Magdelayna Chilldown Mix)  4:10
+04.  Tontario  -  Late (Original Mix)  4:16(   Читать дальше...   )Жанр: Progressive House, Deep House, Trance, DowntempoПродолжительность: 02:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFCC07253F30BFC91495C062CA3D3A365DE0F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011324   (796878) от 27.04.2016
 
 ППК - New Hit's & Remixes (2002) [FLAC|Lossless|image + .cue] <Trance>
@@ -6,7 +64,7 @@
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796878.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ The Digital Blonde - N3ON (2021) [MP3|320 Kbps] <Trance, Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796860.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Spacekraft - Большое космическое путешествие (2016)
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796825.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Zodiac - Pacific Time (2014) [FLAC|Lossless|image + .cue] <Electronic, Synth-pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796698.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Tupilaq - Discography 4 Releases (1995-1997) Audio Pollution, Dot Records [FLAC|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796682.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796662.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ PBS'73 - Discography 4 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796649.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Visage - 3 Albums (1980-1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796648.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ W O L F C L U B (Wolfclub) - Collection 5 Releases (2017-2020) [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796543.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Urban Party Alarm 11 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796459.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796450.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796441.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796427.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Dance Hits (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796424.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796410.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Exist Strategy - Cold Dawn (2018) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796387.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Markus Schulz - Watch The World (2016) [MP3|320 кб/с] <Trance, Progressive Ho
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796357.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796319.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796304.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ glo - Discography 8 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796251.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ V.A. - Cafe Del Mar XXVII (Volumen Veintisiete) (2021) 2CD [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796189.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ The Comet Is Coming - Channel The Spirits (2016) [FLAC|Lossless|Web-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796153.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Didier Marouani Space - Greatest Hits (2008) Star Mark, 2CD [MP3|320 кб/с] <E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796045.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Pet Shop Boys - Super (2016) [FLAC|Lossless|image + .cue] <Synthpop, Europop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795969.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Pet Shop Boys - Super (2016) [FLAC|Lossless|image + .cue] <Synthpop, Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E033AAE015DCEF5EEC6AA49B6AF059D2B447CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011572   (795965) от 28.04.2016
-
-Blue Man Group - Three (2016) [MP3|320 кб/с] <Electronic, Experimental>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dispatches 1
-02. The Forge
-03. Hex Suit
-04. 3 to 1 (feat. Mike Relm & Rob Swift)(   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CEC3262937F34474133F26EDFFC1ECB585AE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108949   (795829) от 27.05.2020
-
-Monolog - Discography 16 Releases (2001-2020) Tender Productions, Hymen Records, Ad Noiseam [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, IDM, Dubstep, Breakcore, Experimental>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbos (03:04)
- 02. Seppuku (05:12)
- 03. Stream (04:34)
- 04. Grag (05:06)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/IDM/ExperimentalПродолжительность: 09:22:39 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BE436A301F8065CE26D546AE05ACA6217F97F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

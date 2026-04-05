@@ -1,3 +1,31 @@
+###  Публикация: 1340640   (263127) от 25.11.2019
+
+Convert Monster | Специалист SEO-оптимизации (2017) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш новый курс «Специалист по работе с поисковыми системами, SEO-оптимизатор» даст вам полное понимание всех механизмов привлечения органического трафика, чтобы в будущем вы успешно продвигали свой проект, либо стали одним из честных SEO-гуру.
+
+Мы взяли 5-летний опыт продвижения нашего сайта и 40+ успешных проектов и разобрали его по косточкам. Мы расскажем вам, (   Читать дальше...   )Жанр: SEO, Продвижение сайтовАктеры: Анастасия Богуш, Анастасия Волошина, Александр Конченко, Светлана ТренбаПродолжительность: ~11:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA5B8DDCE4ABBA74863040662D523EECCF27C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135452   (263084) от 25.11.2019
 
 Александр Федяев | Турбо-запуск товарного бизнеса за 1 день (2017) PCRec
@@ -6,7 +34,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263084.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262996.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Geekbrains | Как стать программистом (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262977.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Udemy.com | Adobe Photoshop CC For Beginners (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262858.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ SmartMe University | Изучаем Ruby (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262679.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262160.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Steve Cotter | Extreme Kettlebell Workout (2007) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262043.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ R&D-лаборатория Devhands, Владимир Перепелица | И�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261660.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261623.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ Udemy, Арнольд Оберлейтер | Всё об AI: ChatGPT, Midjourney
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261618.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ Udemy, Арнольд Оберлейтер | RAG Agents: создание при
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261616.jpg" />
 </div>
 
 
@@ -305,7 +333,7 @@ Udemy, Арнольд Оберлейтер | Голосовые ИИ-Агент�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261615.jpg" />
 </div>
 
 
@@ -331,7 +359,7 @@ Udemy, Арнольд Оберлейтер | AI-Автоматизация: Со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261612.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ Udemy, Арнольд Оберлейтер | AI-агенты: автоматиз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261611.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Udemy, Арнольд Оберлейтер |  MCP: Создание агенто
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261542.jpg" />
 </div>
 
 
@@ -411,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261062.jpg" />
 </div>
 
 
@@ -437,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260895.jpg" />
 </div>
 
 
@@ -463,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260894.jpg" />
 </div>
 
 
@@ -489,7 +517,7 @@ WebDesign Master | Three.js Большой практический курс (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260889.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260881.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ Purpleschool, Антон Ларичев | JavaScript с нуля - основы 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260877.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ Nikandr Surkov | Создание вирусных приложений для T
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260867.jpg" />
 </div>
 
 
@@ -598,7 +626,7 @@ Udemy, Filip Jerga | Rust & WebAssembly with JS (TS) - The Practical Guide (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260644.jpg" />
 </div>
 
 
@@ -624,7 +652,7 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260636.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260606.jpg" />
 </div>
 
 
@@ -661,33 +689,6 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07A575C892927883C9E757670B8C5DA14BE40ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500123   (258108) от 24.05.2012
-
-Работы по подготовке теплицы к эксплуатации (2011) SATRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовь телегу зимой, а сани летом – так гласит известная пословица. Фильм "Работы по подготовке теплицы к эксплуатации" как раз о подготовке той самой "телеги".
-Теплица на солнечном обогреве в средней полосе России особенно актуальна ранней весной. Осенью полно овощей и фруктов с открытого грунта, а вот весной они в явном дефиците. И ослабленному долгой зимой организму жизненно необходимы свежие витамины. Получить их и поможет теплица.Жанр: Документальный, Обучающая литератураПродолжительность: 00:25:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

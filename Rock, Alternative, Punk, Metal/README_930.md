@@ -1,3 +1,32 @@
+###  Публикация: 1513188   (225528) от 28.11.2021
+
+VA - Animals Reimagined - A Tribute to Pink Floyd (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Van Eede, Martin Barre - Pigs On The Wing, Pt. 1 1:53
+02. Graham Bonnet, Vinnie Moore, Kasim Sulton, Jordan Rudess, Pat Mastelotto - Dogs 17:00
+03. James LaBrie, Al Di Meola, Joe Bouchard, Patrick Moraz, Billy Cobham - Pigs (Three Different Ones) 11:33
+04. Arthur Brown, Rick Wakeman, Jan Akkerman, David J, Carmine Appice - Sheep 10:24(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Progressive RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3339F069FB79111CCB915BB3874B054AFC5302F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513291   (225520) от 28.11.2021
 
 Ленинград - Бабье Лето (2006) [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225520.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Hypocrisy - Worship (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225511.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Victoria K - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225501.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Hypocrisy - Worship (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225488.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lost Generation - Blues For My Ex-Friends (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225482.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Sextrow - Addicted To Rock (2022) [MP3|320 Kbps] <Hard Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225452.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Pink Floyd - Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225370.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Riding The Rock Machine: British Seventies Classic Rock (2021) 3xCD, Box Se
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225361.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ dArtagnan - Verehrt und verdammt (2017) [MP3|320 Kbps] <Musketier-Rock, Folk Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225345.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Pink Floyd - Chillout (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225316.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Sabaton - Steel Commanders (2021) EP [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225156.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Gorky Park (Парк Горького) - 4 Albums + 1 Compilation (1989-1998) 7C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225133.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Pink Floyd - Play (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225125.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225092.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Wolves of AhPuch - La Ascension Del Pukuj (2021) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225072.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Skeleton - Our Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225064.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Virgin Black - Requiem - Pianissimo (2018) [FLAC|Lossless|WEB-DL|tracks] <Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225046.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Gatoebrio - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225030.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Vampyroteuthis Infernalis - Vampyroteuthis Infernalis (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225023.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Teeth - Unremittance (2014) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225005.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ The Small Kicks - Get American! (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224996.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Until The Sun - Enchantment (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224988.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Voyager - Fearless In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224980.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ The Royal Beggars - Falling To New Heights (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224974.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ GNOB - 2 Albums (2018-2023) [MP3|320 Kbps] <Heavy Psych, Fuzz, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224938.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ GNOB - 2 Albums (2018-2023) [MP3|320 Kbps] <Heavy Psych, Fuzz, Stoner>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF8003B4AB1099F67172FE9C4081B04CA1DAE4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650631   (224897) от 03.08.2023
-
-Divisiv - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Adharma
-2021 - Burn It Down
-2023 - Lies in DisguiseЖанр: Gothic, Heavy MetalПродолжительность: 3 CD, 02:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DDED8251A5000D0DD33215339075ED3F4A56B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

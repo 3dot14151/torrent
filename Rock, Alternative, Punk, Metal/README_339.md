@@ -1,3 +1,148 @@
+###  Публикация: 1215607   (758106) от 26.03.2018
+
+The Absence - A Gift for the Obsessed (2018) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Gift for the Obsessed
+02. Misery Trophies
+03. The Forging
+04. Thought & Memory(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7262224821DF9DDC2E1E43F57E67F96AF0F86FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215619   (758105) от 26.03.2018
+
+Eldritch - Cracksleep (2018) [MP3|320 Kbps] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracksleep
+02. Reset
+03. Deep Frost
+04. Aberration of Nature(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086F148A97A0A049327BF3909E150C5350354CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215612   (758097) от 26.03.2018
+
+Stormzone - Lucifer's Factory (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Hedges
+02. Lucifer's Factory
+03. Cushy Glen
+04. Last Night In Hell(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740596189381EB946AF8865F513DA284AA142CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215614   (757954) от 26.03.2018
+
+Monster Magnet - Mindfucker (2018) [MP3|320 Kbps] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket Freak
+02. Soul
+03. Mindfucker
+04. I’m God(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E2B059F51A65EA82F26909BB0A1C7811BD34DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215573   (757941) от 26.03.2018
+
+Good Times - Просто Сложно Понять (2018) [MP3|320 Kbps] <Ska, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:54)
+ 02. Бельмондо (3:42)
+ 03. Титьки (3:02)
+ 04. Раз и навсегда (3:24)(   Читать дальше...   )Жанр: Ska, PunkПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB9069EF483EDC5CE5B298BEA110B5BD9ED4AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215620   (757782) от 26.03.2018
 
 Three Days Grace - Outsider (2018) [FLAC|Lossless|tracks + .cue] <Post-Grunge, Alternative Rock>
@@ -6,7 +151,7 @@ Three Days Grace - Outsider (2018) [FLAC|Lossless|tracks + .cue] <Post-Grunge, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757782.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Godslave - Welcome To The Green Zone (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757745.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Aftershok - Detonate (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757737.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Agonizer - Visions Of The Blind (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757736.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Stairway - Power and Glory (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757734.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Assassin - Combat Cathedral (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757641.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Lonewolf - The Heathen Dawn (2016) [MP3|320 кб/с] <Speed Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757637.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Rialto - Rialto (1998) [APE|Lossless|image + .cue] <Alternative Rock, Brit Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757634.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Suidakra - Realms Of Odoric (2016) [MP3|320 кб/с] <Epic Metal, MDM, Viking Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757632.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - Metal For The Masses: The Ninth Gate (2011) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757564.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Rialto - Night On Earth (2001) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757551.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Rock 'n' Roll Party - The Absolutely Essential (2015) [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757466.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Bob Dylan - Fallen Angels (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757461.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Zakk Wylde - Book Of Shadows II (2016) [FLAC|Lossless|image + .cue] <Southerh Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757455.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Evanescence - The Open Door (2006) [FLAC|Lossless|image + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757358.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ David Gilmour - Live In Gdansk (2006) 2 CD, 2008, Warner Music [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757313.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Sentinel - The Black of the Sun (2020) [MP3|320 Kbps] <Progressive Metal, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757269.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Brennen Sloan - Brennen Sloan (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757268.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Navighator - Navighator (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757264.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Ars Pro Vita - Peace (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog.>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757261.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757245.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43AE920F27ED4E489BC177AFDB025F981BDD3EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395242   (757200) от 09.07.2020
-
-Mekong Delta - Tales of a Future Past (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landscape 1 - Into The Void (1:20)
-02. Mental Entropy (5:44)
-03. A Colony Of Liar Men (6:13)
-04. Landscape 2 - Waste Land (6:42)(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8227A8A3CB31D53C5CEE964350DF90B7B90E20C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395118   (757196) от 09.07.2020
-
-Save My Name - Дойти До Трёх (2020) [MP3|320 Kbps] <Symphonic Metal, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Буря (04:00)
- 02. Танцы на костях (04:28)
- 03. Время не ждёт (03:37)
- 04. Мечта (04:59)(   Читать дальше...   )Жанр: Symphonic Metal, Heavy Metal, Power MetalПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24214DFE95C266DAD34D36B599B186D593519CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395128   (757108) от 09.07.2020
-
-Red - Declaration (2020) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for You (03:09)
-02. Infidel (04:06)
-03. Cauterize (03:48)
-04. The War We Made (03:54)(   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68199BE7FA329A65B39FC1D475662FBB8C7D66B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395184   (757107) от 09.07.2020
-
-Панк Жлоб Рок Банда СГ - В хлам (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757107.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Неделя
-3. Зина
-4. Гимн алкоголика(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B612D464538C17F9FF546BA3EEAB41BB8D5016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395197   (757102) от 09.07.2020
-
-Апельсиний Жмых (25/17 & Бранимир) - Корона Российской Империи (2020) [MP3|320 Kbps] <Rock, Chanson, Rap>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Домосед
-2. Наелся и спит
-3. Зверь
-4. Одиночество(   Читать дальше...   )Жанр: Rock, Chanson, RapПродолжительность: 00:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4B6235048A78017509021C3A59EC760FF268A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

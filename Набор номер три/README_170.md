@@ -1,3 +1,161 @@
+###  Публикация: 1118303   (812537) от 25.03.2017
+
+Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Allison Shearmur Productions, Black Hangar Studios, Lucasfilm Ltd., Walt Disney Studios Motion PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Мадс Миккельсен, Алан Тьюдик, Донни Йен, Бен Мендельсон, Форест Уитакер, Диего Луна, Джонатан Арис, Риз Ахмед, Артур Л. БернштейнПеревод: Дублированный (iTunes)Субтитры: Русские (форс., полные) английские (полные, SDH)Продолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A3C63CDC3BEE8CBD114BCC1E951C1168D1C6A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280204   (812536) от 25.03.2017
+
+Naruto Shippuuden / Наруто: Ураганные хроники [2007 - 2017, TV, 500 эп.] SDTV raw rus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812536.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире Наруто незаметно пролетели два года. Бывшие новички пополнили ряды опытных шиноби в ранге тюнин и дзёнин. Главные герои не сидели на месте – каждый стал учеником одного из легендарных Саннин – трех великих ниндзя Конохи. Парень в оранжевом продолжил обучение у мудрого, но эксцентричного Дзирайи, постепенно восходя на новую ступень боевого мастерства. Сакура (   Читать дальше...   )Жанр: Приключения, комедия, боевые искусства, сёнэнРежиссер: Датэ ХаятоПеревод: Mr.Well, DarkDragon, Palladis Tamia, Deep Kamate, Weiss, Hit & MakeОзвучка: Любительский одноголосый / Любительский двухголосый ( Ancord & Noir )Продолжительность: ТВ, 500 серий по ~24 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3007EE85627CADE7D9A8A44A2006831C99EE3D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883498   (812515) от 31.03.2015
+
+Сволочи (2006) BDRip [1080p] [hand made 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812515.jpg" />
+</div>
+
+
+###  Подробнее
+
+1943 год. Полковник Вишневецкий получает правительственное задание: подготовить диверсионную группу бойцов-смертников, которая должна блокировать действия отборных немецких соединений «Эдельвейс». Группа набирается из отчаянных мальчишек 14—15 лет, сирот, которых никто не будет искать.
+
+Подростков отправляют в потайной горный лагерь, где они проходят специальную (   Читать дальше...   )Производство: Россия / Кинокомпания «Парадиз»Жанр: Боевик, драма, военныйРежиссер: Александр АтанесянАктеры: Андрей Панин, Андрей Краско, Александр Головин, Ростислав Бершауэр, Сергей Рыченков, А. Бобров, Олег Буганов, Кирилл Емельянов, Митя Горевой, Владимир КашпурПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DF369E0013D560D914668D885151F7548298A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875914   (812436) от 31.03.2015
+
+CFW Darknet 4.70 (Standart + Cobra 7.05) [PS3] [EUR] [4.70] [Unofficial] [Multi] (2015)
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корейский разработчикРазработчик: DarkjirosЖанр: ПрошивкаЯзык интерфейса: Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48DEFAB138B652B6AF5EC9F9787D5D4DE47C784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767651   (812435) от 31.03.2015
+
+Сборник видеоклипов от BSV Labs (upd 03.03.2015) / РУССКИЕ КЛИПЫ / 1258 штук / 1950 - 2015 / Поп, Рок, Ретро и др. / BDRip, DVDRip, TVRip, SATRip и др.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот решил поделиться своей коллекцией клипов. Собираю их уже много лет. Увлекательное хобби, так как в отличии от mp3 их гораздо меньше. К тому же научился реставрировать видео и звук, на любительском конечно, но вполне достаточно для меня уровне. Основная масса коллекции это клипы 80-х и 90-х. Хотя есть самые модные и очень старые. Упор делается на ОРИГИНАЛЬНЫЕ (   Читать дальше...   )Жанр: Поп, Рок, Ретро и др.Формат: avi, mpg, mpeg, dat, divx, vob, flv, wmv, mp4, mkv
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 831402   (812432) от 31.03.2015
+
+Ходячие мертвецы / The Walking Dead  (2014) WEB-DL [H.264/720p-LQ] (сезон 5, серии 1-16 из 16) LostFilm
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: СШАЖанр: ужасы, триллер, драма, приключенияРежиссер: Эрнест Р. Дикерсон, Билл Джирхарт, Гай ФерлендАктеры: Эндрю Линкольн, Сара Уэйн Кэллис, Лори Холден, Стивен Юн, Чендлер Риггз, Норман Ридус, Айрон Э. Синглтон, Мелисса Сюзанн МакБрайд, Лорен Коэн, Джон Бернтал и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmФормат: MKVПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C054D6A93382EBBBCC73351E42C417457A52F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 831383   (812428) от 31.03.2015
 
 Ходячие мертвецы / The Walking Dead  (2014) WEB-DLRip (сезон 5, серии 1-16 из 16) LostFilm
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812428.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812427.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ uTorrent 1.8.2.15357 [Multi/Ru]
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812426.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy 10.2021 2DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811515.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Udemy, Дмитрий . | Основы программирования на Jav
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811513.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811511.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ Windows 10 (60in2) Sergei Strelec x86/x64 2004 (build 19041.264) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811129.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811128.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ Windows 10 Enterprise LTSC 2019 v1809 (x86/x64) by LeX_6000 [14.05.2020] [Ru/En]
 >>40
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811127.jpg" />
 </div>
 
 
@@ -245,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_810989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_810989.jpg" />
 </div>
 
 
@@ -271,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810985.jpg" />
 </div>
 
 
@@ -297,7 +455,7 @@ LEGO Star Wars 3: The Clone Wars [Ru] (RePack) 2011 | R.G.Repacker`s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810944.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810933.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ Pinnacle Studio Ultimate 19.5.0 + Bonus Content [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810925.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810920.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ WebForMySelf | HTML5 и CSS3  с нуля до профи (2016) PCRec
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810912.jpg" />
 </div>
 
 
@@ -429,7 +587,7 @@ Red Alert 2: REBORN (2016) [Ru/En] (1.001/2.2) Repack/Mod Gluk-v48
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810909.jpg" />
 </div>
 
 
@@ -455,7 +613,7 @@ The Elder Scrolls V: Skyrim Reloaded 2016 4k nextgen (2013-2016) [Ru] (1.9.32.0.
 >>45
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810908.jpg" />
 </div>
 
 
@@ -481,7 +639,7 @@ Lpro - Проверка лицензий программ 1.4.2 + Portable [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810570.jpg" />
 </div>
 
 
@@ -507,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810565.jpg" />
 </div>
 
 
@@ -518,168 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D0EC4ED77C33F176627EF2142AD06A8197E1F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 198104   (810559) от 06.05.2010
-
-Adobe® Creative Suite® 5 Master Collection
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые функции CS5 Master Collection
-
-Программное обеспечение Adobe® Creative Suite® 5 Master Collection представляет собой комплексный набор дизайнерских инструментов для различных медиаисточников. Воспользуйтесь улучшенными функциями, обеспечивающими повышение продуктивности за счет внедрения новых способов создания интерактивного контента, высокой производительности (   Читать дальше...   )Язык интерфейса: Английский. Русский присутствует, а так же еще шесть языков - чешский, венгерский, польский, румынский, турецкий и украинский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937486   (810553) от 26.03.2017
-
-Книжная серия | Межавторский цикл «Пограничье» [9 книг. Обновляемая] (2013-2017) [FB2, EPUB]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Центрум. Центральный мир вселенной, окруженный лепестками других миров, среди которых и наша Земля.
-
-Когда-то Центрум был велик и силен, но катастрофа отбросила его в прошлое.
-(   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B760FC840B5D534B16457C8E988FB206ADBEA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118224   (810549) от 26.03.2017
-
-Проекты - VideoHive - Handy Seamless Transitions | Pack & Script v.3.0 - 18967340 [AEP, JSXBIN]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Handy Seamless Transitions | Pack & Script v.3.0 - представляет собой набор видео-переходов, которые могут помочь сделать ваше видео визуально интересным и удивительным! Любой ваш проект будет гораздо более увлекательным, динамичным и профессиональным! Переходы очень просты в использовании - просто перетащите переход в область пересечения двух футажей, и включите (   Читать дальше...   )Формат: AEP, JSXBIN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366D3720AF938E97BDA9235BB25F834809B272EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116387   (810548) от 26.03.2017
-
-Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 03.2017 1 DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810548.jpg" />
-</div>
-
-
-###  Подробнее
-
-32-х и 64-х битные ОС Windows® 7™ максимальная с интегрированными обновлениями и дополнительными программами, оформлением в светло-голубом стиле и стандартной ручной установкой на 1 DVD. Дополнительно в сборку интегрирована профессиональная 64-х битная редакция для установки системы на GPT диски. После установки в системе будут присутствовать практически все возможные (   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA15088CE0E72037B5BFB10E45198448D25F5C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090422   (810547) от 26.03.2017
-
-Охотники на троллей / Trollhunters (2016) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-26 из 26) AlexFilm
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810547.jpg" />
-</div>
-
-
-###  Подробнее
-
-В руки пятнадцатилетнему юноше попадает Магический Амулет, который даёт ему звание охотника на троллей, призванного защищать троллей, живущих под землёй — под человеческим городом Аркадия. «Охотники на троллей» — мультсериал в жанре хоррора и фэнтези, вышедший в 2016 году. Он расскажет о легендарной битве, развернувшейся в маленьком городке близ Сан-Бернардино, а (   Читать дальше...   )Производство: США, Мексика, Cha Cha Cha, DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Родриго Блаас, Илэйн Боган, Эндрю Л. ШмидтАктеры: Келси Грэммер, Антон Ельчин, Рон Перлман, Лекси Медрано, Фред Татаскьор, Чарли Сэкстон, Джонатан Хайд, Стивен Ян, Эми Ландекер, Коул Сэнд и др.Перевод: многоголосый закадровый, профессиональный - AlexFilmОзвучка: Алёна Андронова, Маргарита Корш, Екатерина Муравицкая, Петр Гланц Иващенко, Артём Бахтин, Станислав Черсков, Владимир Курдов, Михаил СусловПродолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D3A1B2A05BC932D33C73D8FCA8E53A701F343E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 93822   (810545) от 26.03.2017
-
-Наши Мешатели, или звери юзверей.
-
->>3
->>53
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_810545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши Мешатели, или звери юзверейТолько что увидела огромного и славного кота в соседней теме (на столе некой дамы),
-вдобавок у самой под правой рукой сидит 2-месячный аллергенный фактор.Моя:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

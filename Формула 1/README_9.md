@@ -1,3 +1,113 @@
+###  Публикация: 1562583   (509208) от 09.07.2022
+
+Формула 1. Сезон 2022. Этап 11. Гран-при Австрии. Спринт (09.07.2022) WEB-DL [H.264/720p] [50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509208.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 июля 2022, суббота. 17:30 МСК. Этап 11, Шпильберг, Гран-при Австрии. Спринт (23 круга)Телекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF7A52B685ECEDC0E36356B30F6FC70A73D3BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562385   (509108) от 09.07.2022
+
+Формула 1. Сезон 2022. Этап 11. Гран-при Австрии. Квалификация (08.07.2022) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 11. Арена: Ред Булл Ринг (Шпильберг, Австрия)
+Квалификация. 8 июля 2022, пятница.
+
+Этап содержит 2 свободные практики, квалификацию (3 сегмента), спринт (100 км) в субботу и гонку в воскресенье. Расстановка на старте субботнего спринта определяется по итогам квалификации. Места пилотов на стартовой решётке гонки определяются по итогам спринта.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF80EDE72D8F838945898A2442DD8316956E297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562609   (508058) от 10.07.2022
+
+Формула 1. Сезон 2022. Этап 11. Гран-при Австрии. Спринт (09.07.2022) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 11. Арена: Ред Булл Ринг (Шпильберг, Австрия)
+Спринт. 9 июля 2022, суббота.
+
+Этап содержит 2 свободные практики, квалификацию (3 сегмента), спринт (100 км) в субботу и гонку в воскресенье. Расстановка на старте субботнего спринта определяется по итогам квалификации. Места пилотов на стартовой решётке гонки определяются по итогам спринта.(   Читать дальше...   )Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский, Немецкий, Французский, Испанский, Голландский, Португальский (Бразильский).Субтитры: отсутствуютПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A178C968BA381E97D97B6B40E0A345FECC0F490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562858   (507127) от 11.07.2022
+
+Формула 1. Сезон 2022. Этап 11. Гран-при Австрии. Гонка (10.07.2022) WEB-DL [H.264/720p] [50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507127.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 июля 2022, воскресенье. 17:00 МСК. Этап 11, Шпильберг, Гран-при Австрии. Гонка (71 круг)Телекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EC498D914934C88622559E638BC17826807321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562835   (507125) от 11.07.2022
 
 Формула 1. Сезон 2022. Этап 11. Гран-при Австрии. Гонка (10.07.2022) WEB-DL [H.264/1080p] [50fps] F1TV
@@ -6,7 +116,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507125.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505161.jpg" />
 </div>
 
 
@@ -64,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504148.jpg" />
 </div>
 
 
@@ -93,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504139.jpg" />
 </div>
 
 
@@ -121,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504054.jpg" />
 </div>
 
 
@@ -150,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504047.jpg" />
 </div>
 
 
@@ -179,7 +289,7 @@ Ferrari 312B / Ferrari 312B: Where the Revolution Begins (2017) BDRip [H.264/720
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500590.jpg" />
 </div>
 
 
@@ -205,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498499.jpg" />
 </div>
 
 
@@ -234,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498497.jpg" />
 </div>
 
 
@@ -263,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497584.jpg" />
 </div>
 
 
@@ -291,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496469.jpg" />
 </div>
 
 
@@ -317,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492582.jpg" />
 </div>
 
 
@@ -343,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492445.jpg" />
 </div>
 
 
@@ -372,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492322.jpg" />
 </div>
 
 
@@ -401,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492056.jpg" />
 </div>
 
 
@@ -429,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490417.jpg" />
 </div>
 
 
@@ -455,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487381.jpg" />
 </div>
 
 
@@ -484,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487379.jpg" />
 </div>
 
 
@@ -512,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486391.jpg" />
 </div>
 
 
@@ -541,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485613.jpg" />
 </div>
 
 
@@ -569,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484427.jpg" />
 </div>
 
 
@@ -595,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483077.jpg" />
 </div>
 
 
@@ -608,115 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E87BFB48248DDCC51B02854C32175F159340FD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 237859   (482772) от 20.09.2010
-
-Формула 1. Сезон 1992. Этап 6 из 16. Гран-При Монако. Гонка / Formula 1. Grand Prix de monaco 1992 (Monte Carlo) (1992) VHSRip
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Монако 1992 года — шестой этап чемпионата Мира по автогонкам в классе Формула-1 сезона 1992 года. Прошёл в Монте-Карло, Монако. Соревнования состоялись 31 мая 1992 года.Телекомпания: PTPЖанр: СпортПеревод: Многоголосый закадровый, профессиональныйЯзык озвучки: РусскийПродолжительность: 2:17:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244677   (480050) от 02.09.2018
-
-Формула 1. Сезон 2018. Этап 14. Гран-при Италии. Парад пилотов (02.09.2018) WEBRip [H.264/1080p-LQ] [ENG]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парад пилотов и проезд исторических машин на трассе в Монце, Италия.Телекомпания: Formula OneЖанр: СпортЯзык озвучки: Английский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DA08A0373DD917405FD345980346C9F777090B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244726   (480046) от 02.09.2018
-
-Формула 1. Сезон 2018. 14-й Этап. Гран-при Италии. Гонка (02.09.2018) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480046.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 сентября 2018 года, воскресенье. 16:10 МСК
-Формула 1. 14-й Этап сезона 2018 года. Гран-при Италии. Монца (Италия).
-Гонка
-Кругов:	53 - Длина круга:	5, 793 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE513E0B6FC08CBB20082E517552E99C5341E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244733   (480044) от 02.09.2018
-
-Формула 1. Сезон 2018. 14-й Этап. Гран-при Италии. Гонка (02.09.2018) HDTVRip [H.264]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Италии. Гонка (53 круга, 306.72 км)
-Арена: Автодром Монца (Монца, Италия)
-02 сентября 2018 года, воскресенье. 16:10 МСКТелекомпания: Матч ТВЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B480221FA8F17337AFC78CC2984CA09854E420B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

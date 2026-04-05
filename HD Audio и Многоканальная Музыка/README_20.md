@@ -1,29 +1,3 @@
-###  Публикация: 666321   (731394) от 09.06.2013
-
-VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | image (Vinyl-Rip)<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731394.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Red Wave» - это первый официальный релиз на Западе 4-х рок-групп СССР, которые официально были практически запрещены в России. Чтобы издать эту музыку на Западе, американская энтузиастка Джоанна Стингрей, влюбившаяся в Россию и прожившая здесь более 15 лет, вывезла записи групп из СССР и в 1986 году на фирме "Big Time Records" (Калифорния) тиражом 10 тыс.экз. (   Читать дальше...   )Жанр: RockПродолжительность: 00:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D258B93B68CDDE11AC870264B3455F73AFD0778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529997   (730776) от 09.02.2022
 
 Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Vinyl-Rip] <Jazz>
@@ -32,7 +6,7 @@ Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730776.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Telarc Heads Up SACD Sampler - Sound&Vision (2006) [DTS 5.1 CD-Audio|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730642.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ Secret Service - Collection (7 LP) (1979-1987) [FLAC 2.0 24/192|image(Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730294.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729859.jpg" />
 </div>
 
 
@@ -148,7 +122,7 @@ Jethro Tull – The Zealot Gene (2022) [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728929.jpg" />
 </div>
 
 
@@ -177,7 +151,7 @@ Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728766.jpg" />
 </div>
 
 
@@ -206,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728683.jpg" />
 </div>
 
 
@@ -235,7 +209,7 @@ Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728545.jpg" />
 </div>
 
 
@@ -264,7 +238,7 @@ VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727525.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ VA - Антология советского киношлягера - Любим
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726267.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Various Artists - Любимые песни из фильмов  /Movie Songs (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726101.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724474.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ Queen - The Game (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Pop Rock, Classic Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721449.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ Peter Frampton - Frampton Comes Alive! (1976) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721186.jpg" />
 </div>
 
 
@@ -439,7 +413,7 @@ Deep Purple - In Rock (1970) Repress, 1973, Warner Bros. Records [FLAC 2.0|192/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719116.jpg" />
 </div>
 
 
@@ -468,7 +442,7 @@ Matia Bazar - Tournee' (1982) Recorded 1979 [FLAC 2.0|96/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719014.jpg" />
 </div>
 
 
@@ -497,7 +471,7 @@ L. Subramaniam, S. Grappelli/Л. Субраманиам, С. Граппелли 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718680.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mudvayne - Studio Albums (5 releases) (2000 - 2009) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718563.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Norah Jones – Come Away With Me (2002)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD]
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715455.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ Lenny Kravitz - Music Box. Pop Super Best (2002) Unofficial Release [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714812.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ Black Sabbath - Легенды Зарубежного Рока (1999) Unofficial
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714715.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710094.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ Toto Cutugno - L'Italiano (1983) 1984, Jugoton[FLAC|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706397.jpg" />
 </div>
 
 
@@ -701,7 +675,7 @@ The Beatles - Rare Beatles (The Beatles On Air) (1993) Unofficial Release [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705145.jpg" />
 </div>
 
 
@@ -730,7 +704,7 @@ Saraya - Saraya [LP] (1989) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704926.jpg" />
 </div>
 
 
@@ -744,6 +718,35 @@ A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220077   (704410) от 19.04.2018
+
+Виктор Березинский - Третий концерт (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704410.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:11] 01. Виктор Березинский - Интро
+[2:43] 02. Виктор Березинский - Дуня
+[3:17] 03. Виктор Березинский - Мани-Мани
+[2:43] 04. Виктор Березинский - Чемодан(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11842F6D9B4748E61EC6ADFB614BEECE2D6C6C44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Naive New Beaters - Fvtvrvm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107375.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Imagine Dragons - Loom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Ind
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107345.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Yes - Fragile (1971) Super Deluxe Edition, Steven Wilson Remix, 2024, Rhino Atla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107330.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107302.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Hourglass - Voids and Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107287.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Channel Tres - Head Rush (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electrón
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107286.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - For Discos Only: Indie Dance Music From Fantasy & Vanguard Records (1976-19
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107277.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dua Lipa - Radical Optimism (2023) Extended Versions, 2024, Warner Records [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107256.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ James Blake & Lil Yachty - Bad Cameo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107226.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bryard Huggins - Confidential (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107225.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dreamroot - Push (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107224.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Federico Caruso - Sfunk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107222.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kadavar - 3 Albums (2011-2017) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107221.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Erik Friedlander - Dirty Boxing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107220.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Petty Country (A Country Music Celebration Of Tom Petty) (2024) [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107219.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Kasbo - 6 Albums (2018-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107213.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Benjamin Finger - Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melanchol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107198.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Outlander - Acts of Harm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107196.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kaipa - Sommargryningsljus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107164.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Visions Of Atlantis - Pirates II Armada (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107102.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Tommy Crane - Dance Music For All Occasions (2024) [FLAC 24/88.2|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107101.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Sensual Lounge Music Universe - Erotic Summer Moments (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107091.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Rachel Eckroth - Humanoid (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107089.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ jxdn - When The Music Stops (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107088.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Mt. Joy - Live at The Salt Shed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107086.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Mike Boguski - Here's To Tomorrow / Goodbye To Yeste (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107085.jpg" />
 </div>
 
 

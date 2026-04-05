@@ -1,3 +1,29 @@
+###  Публикация: 518608   (1031601) от 14.02.2021
+
+Т.А. Чохонелидзе | Лето. Задания по развитию речи (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник заданий для индивидуальной работы с ребенком, иллюстрированное пособие, занятия по которому могут проводить как логопеды, так и родители.Жанр: Развивающая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8F5D4CD2969B7AFA02A6E94064E9654C703852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447739   (1031497) от 14.02.2021
 
 Елена Тимощенко | Нейропсихологические занятия для детей (2021) [EPUB]
@@ -6,7 +32,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031497.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029831.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029451.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029442.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029432.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028964.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028809.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028792.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028771.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028196.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027620.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027287.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027152.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025957.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023933.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023931.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022519.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021871.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021604.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021584.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021503.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020844.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020843.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020490.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019333.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3227B8FF73E8BFA847DAA692CE2CC2B88925E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465359   (1019323) от 25.04.2021
-
-Ирина Чеснова | Каждый ребёнок желает знать. Как ходить в школу с удовольствием (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019323.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей новой книге известный семейный психолог Ирина Чеснова предлагает поговорить обо всем, что связано со школой: что самое главное в учебе, как не бояться неудач, победить лень и воспитать в себе чувство ответственности. Книга развеет страхи и подскажет, как выстроить хорошие отношения с учителями и одноклассниками. Научит прилагать усилия, верить в себя и не (   Читать дальше...   )Жанр: Педагогика/Воспитание детей/Литература для родителейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4620B532064C71179546062F86E30C214E234ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

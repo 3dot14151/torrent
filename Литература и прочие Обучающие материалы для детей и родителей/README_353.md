@@ -1,3 +1,58 @@
+###  Публикация: 1460208   (241335) от 04.04.2021
+
+Эмили Родда | Все о волшебной стране Тилоаре [сборник] (2007) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, полная приключений, загадок и неожиданностей!
+Много лет Повелитель Теней стремился покорить страну Тилоару, но ее оберегал волшебный Пояс с драгоценными камнями. И вот камни похищены слугами Повелителя Теней. Сын кузнеца Лиф, бывший стражник Барда и девушка-дикарка Жасмин отправляются в опасный путь, чтобы найти камни и спасти свою страну. А читатель сможет (   Читать дальше...   )Жанр: Фэнтези, СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B266848686F509F826BA4904F24F2A5160B91AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461598   (241275) от 10.04.2021
+
+Томас Леннон | Ронан Бойл и Мост загадок. Книга 1 (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ронан Бойл – самый молодой и самый скромный новобранец секретного отдела полиции, который расследует преступления магических существ.
+Родители Ронана в тюрьме, и он убежден, что в этом виноваты лепреконы. Несмотря на свой небольшой рост, плохое зрение и мягкий характер, парень полон решимости раскрыть правду и освободить родных.
+Но не все так просто: на его пути (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Д.В. ШляпинФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761160B444705D768890375E540EDB79A6F9491F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547883   (241119) от 30.04.2022
 
 Протоиерей Артемий Владимиров | Как зажигаются искорки радости. Увлекательные беседы со школьниками (2013) [PDF, DJVU]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241119.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241113.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240767.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240635.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240629.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240628.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240610.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240603.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240576.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240536.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240535.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240528.jpg" />
 </div>
 
 
@@ -329,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240490.jpg" />
 </div>
 
 
@@ -355,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240480.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240465.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240372.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240360.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240332.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240300.jpg" />
 </div>
 
 
@@ -516,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240267.jpg" />
 </div>
 
 
@@ -542,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240176.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240154.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239936.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239852.jpg" />
 </div>
 
 
@@ -633,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F8863D6782C4457BE4B46750C85D5215BAEFD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422177   (239843) от 07.11.2020
-
-Алекс Рюле | Маленькое привидение из дверного замка (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Циппель – маленькое привидение из старого замка. Да-да, замка, а не замка, как вы, наверно, подумали. Замок этот стоит во входной двери в квартире Пауля и его родителей. И в этом замке Циппелю было очень уютно, но тут… родители собрались замок поменять! И где же тогда будет жить маленькое привидение? К счастью, Пауль возьмется за дело и уж постарается найти для своего (   Читать дальше...   )Жанр: Детская литература/СказкаПеревод: Дарья ВилькеФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5910978DE3C35E21F475C0266B8339E830A1363C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467338   (239837) от 03.05.2021
-
-Наталия Журавликова | Великое путешествие через шкаф и обратно (2015) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если с детства тебе внушают, что чудес не бывает, Дед Мороз – переодетый работник отдела кадров с папиной работы, а сказки – чистой воды вымысел, не спеши так сразу этому верить. Вполне возможно, от тебя что-то скрывают. Например, что твоя мама – настоящая, стопроцентная великая волшебница, просто не хочет в этом признаваться. Именно так и произошло с Костиком. Возможно, (   Читать дальше...   )Жанр: Детская литература/ФантастикаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D4E0D3F84E5516543085BDAE91E5390D8EE3E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

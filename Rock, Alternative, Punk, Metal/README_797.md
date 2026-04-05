@@ -1,3 +1,32 @@
+###  Публикация: 1629734   (254744) от 27.04.2023
+
+Angels In Vein - Long Time Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One Gets Out Alive [00:03:36]
+02. With Me Tonight [00:03:25]
+03. Bang A Gong [00:05:06]
+04. Ready To Roll [00:03:11](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673F44839E99CFBE649FD5D6EEEE5616484F8B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629916   (254715) от 28.04.2023
 
 Hollywood Undead - Hotel Kalifornia (2022) Deluxe Version, 2023, BMG Rights Management [MP3|320 Kbps] <Rap Rock, Alt.Rock, Electronic>
@@ -6,7 +35,7 @@ Hollywood Undead - Hotel Kalifornia (2022) Deluxe Version, 2023, BMG Rights Mana
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254715.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Metallica - 72 Seasons (2023) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254661.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Steve Morse Band - Triangulation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254341.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Flesh Remains - Tales of Ruin (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254339.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Metallic Emotions (2007) [MP3|320 кб/с]<eavy Metal / Power Metal / Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254335.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Gina Haley with The Jive Aces - I've Got A Feelin' (2025) [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254313.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Mark Knopfler And Emmylou Harris - All The Roadrunning (2006) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254212.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Def Leppard - 12 Альбомов, 8 изданий, 19 CD (1980-2008)  [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254211.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Dr.Hook - Premium Gold Collection (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254207.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Wretched - Decay (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254194.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254180.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Chris Echo & The Verberations - Chris Echo & The Verberations (2025) [FLAC 24/48
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254177.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Lucy's Seduction - Jay's Garage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254174.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Robert Schilling - Trouble in the Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254170.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Rusty Bend featuring Trent McCallson - The Stage (2025) [FLAC 24/192|Lossless|WE
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254166.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Savage Mole - The Dunning Kruger Bias (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254162.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ The Comfort Revue - The Comfort Revue (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254160.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Adestria - Chapters (2012) [FLAC|Lossless]<Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254144.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ The Resistance - Scars (2013) [FLAC|Lossless]<Melodic Death/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254115.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Vicious Rumors - Electric Punishment (2013) [FLAC|Lossless]<Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254114.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254091.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ One Last Soul - To Those Who Are Hopeless (2011) [FLAC|Lossless]<Alt.Metal | Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254071.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Dee_Waste - Discography (2003 - 2010) [MP3|320 кб/с]<Alternative; Metalcore; 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253916.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Synthphonia Suprema - 2 Альбома (2006-2010) [MP3|320 кб/с]<Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253898.jpg" />
 </div>
 
 
@@ -717,7 +746,7 @@ Florence And The Machine - Ceremonials (Deluxe Edition) (2011) [MP3|320 кб/с]
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253828.jpg" />
 </div>
 
 
@@ -737,41 +766,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D99D4E9B6798A8D26DEE0A44158F63BE840B697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497449   (253808) от 17.05.2012
-
-Celldweller - Wish Upon A Blackstar (Deluxe Edition) (2012) [MP3|320 кб/с]<Industrial Rock / Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Arrival (0:44)
-02. It Makes No Difference Who We Are (3:02)
-03. Blackstar (4:07)
-04. Louder Than Words (4:40)
-05. The Lucky One (6:46)
-06. Unshakeable (5:09)
-07. I Can't Wait (7:16)
-08. Eon (6:22)
-09. So Long Sentiment (6:03)
-10. Gift For You (5:47)(   Читать дальше...   )2012Жанр: Industrial Rock / ElectronicПродолжительность: 1:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8927696F2028D3B366A2222BD347BEAC901C14
 ```
 
 https://mybot314.ru/tekegram_catalog/

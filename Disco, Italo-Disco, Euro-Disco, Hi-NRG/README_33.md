@@ -6,7 +6,7 @@ Paul Parker - Too Much To Dream (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354538.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Mike Theodore Orchestra - 2 Albums (1977,1979) Reissue, 1998, Westbound Reco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352388.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Aquarian Dream - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Disco, Jazz-Funk, Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351478.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ F. McDonald, C. Rae, B. De Souza - Wings (1976) LP [MP3|320 Kbps] <Funk, Instrum
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348006.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sphinx - Judas (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348002.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Quartz - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345707.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Computer - Come And Dance (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345702.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Radiorama - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344163.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ C.J. & Co - Deadeye Dick (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343442.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Chantereau, Dahan & Pezin - Disco & Co  (vol. 1-3) (1979) 3 LP [MP3|320 Kbps] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343311.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ DJ Friction present Ground Control - Boogie Some More (2017) [MP3|320 Kbps] <Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342643.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dee Dee - Loving You (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342520.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Interface - Plastic Age (2020) Unofficial [MP3|320 Kbps] <Synthpop, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342189.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Amadeus Liszt - Win The Race (2020) Unofficial [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342058.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Wonder - Up & Down (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342054.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Fly To Moscow (2018) Unofficial [MP3|320 Kbps] <Italo-Disco, Synthpop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342052.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Piano Fantasia & Beautiful Ballet - Song For Denise / Energy (2020) Unofficial [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342051.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342047.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Joy Peters - Burning Dreams (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342039.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - New Italo Disco Top 25 Compilation, Vol.10 (2018) [MP3|320 Kbps] <Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341065.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340278.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ The Universal Robot Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Electronic, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340142.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Gene Farrow - Move Your Body (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339988.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Sabrina - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339711.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Gazebo - Reset (2015) [MP3|~245 кб/с (V0)]<Italo Disco, Synthpop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339594.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339466.jpg" />
 </div>
 
 

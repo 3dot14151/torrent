@@ -1,3 +1,61 @@
+###  Публикация: 1097988   (911955) от 28.01.2017
+
+Celldweller - Transmissions Vol. 04 (2017) [MP3|320 Kbps] <Industrial, Alternative>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Radio Transmission
+02. The Siren's Lullaby (Heart On)
+03. Pulse Injector
+04. Lifeforms (Mother-32 Version)(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22AB47043C12BA5DD0CFC3AF92C2CD73E67EA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988667   (911864) от 25.02.2016
+
+VA - Club Charts 2016.1 (2016) [MP3|256 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Show Me Love (feat. J.U.D.G.E.) 04:17
+ 02. DJ Tonka - She Knows You (Update Radio Mix) 03:04
+ 03. Gestort aber GeiL - Ich & Du (feat. Sebastian Hamer) 03:37
+ 04. EDX - Revered (Radio Edit) 03:15(   Читать дальше...   )Жанр: HouseПродолжительность: 03:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7858570329D65DC2EBD734D560493F44A97335BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374181   (911806) от 24.08.2021
 
 Hypnus Records - Label-Pack 47 Releases (2014-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Experimental>
@@ -6,7 +64,7 @@ Hypnus Records - Label-Pack 47 Releases (2014-2021) [FLAC|Lossless|tracks+.cue, 
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911806.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Infected Mushroom - Return to the Sauce (2017) [FLAC|Lossless|WEB|tracks|image] 
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911496.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Aevin - Discography 8 Releases (2014-2020) Raumklang Nusic [FLAC|Lossless|WEB-DL
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911087.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Only For DJs - Spring 2020 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911079.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Etapp Kyle - Nolove (2020) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Lef
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911049.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Commemoration 3 Years (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910904.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Roger Eno and Brian Eno - Mixing Colours (2020) Deutsche Grammophon [FLAC|Lossle
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910854.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Nu Lounge 2017 Vol 1 (Finest Chilled New Beats) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910774.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Melodica Electronica Vol.3 (2017) [FLAC|Lossless|tracks] <Deep House, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910763.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance 100 (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910569.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Camouflage - Sensor (2003) [FLAC|Lossless|image + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910508.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Abiogenesis - Biosynthesis (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910442.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [FLAC|Lossless|WEB|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910305.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Pensees (Pensées) - Discography 23 Releases (2015-2020) [FLAC|Lossless|WEB-DL|t
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910227.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Variant - Discography 36 Releases (2009-2016) echospace [detroit] [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910174.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ VA - Suntribe Vol.8 (2004) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910113.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Millimetric - Reconfiguration (2011) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910064.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ VA - Faith In A Wet Season (2012) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910039.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910025.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Electric Walls: Dance Floor Vol 2 (2016) [MP3|320 кб/с] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910009.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ The Qemists - Warrior Sound (2016) [MP3|320 кб/с] <Drum & Bass, Alternative, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909421.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Four Tet - Sixteen Oceans (2020) Text Records [FLAC|Lossless|tracks+.cue] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909253.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ DJ Valium - The Album (2003) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro-Hou
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909165.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Armada Music Miami (2020) Extended Versions [MP3|320 Kbps] <House, Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909153.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ VA - Armada Music Miami (2020) Extended Versions [MP3|320 Kbps] <House, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D75ED17EF263EB90231DED3E2F03B55F30A4AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759260   (909124) от 21.02.2014
-
-Sinepearl - Cycles Within Cycles Within (2014) [FLAC|Lossless|WEB-DL]<Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great Wobble (14:28)
- 02. Miryjudi Goes South (10:05)
- 03. Illusion Of Control (8:52)
- 04. Light Of The First Quarter (6:48)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EAF7806353C888A1628662CADDFFB8B51CE395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368479   (909076) от 20.03.2020
-
-Four Tet - Sixteen Oceans (2020) Text Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <House, Ambient, Tech House, Downtempo, IDM, Minimal>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. School (04:02)
- 02. Baby (04:24)
- 03. Harpsichord (02:54)
- 04. Teenage Birdsong (03:25)(   Читать дальше...   )Жанр: House, Ambient, Tech House, Downtempo, IDM, MinimalПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB4238CCB329674ED07D3428F8F09359C4EAF1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

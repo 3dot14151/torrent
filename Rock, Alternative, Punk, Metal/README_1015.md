@@ -1,3 +1,32 @@
+###  Публикация: 1594080   (178748) от 30.11.2022
+
+Porcupine Tree - Closure / Continuation (2022) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harridan
+02. Of the New Day
+03. Rats Return
+04. Dignity(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1463EFADC94703D21A6608A777615F7ECAF22CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428800   (178480) от 04.12.2020
 
 TDW - The Days The Clock Stopped (2020) [MP3|320 Kbps] <Progressive Metal, Rock>
@@ -6,7 +35,7 @@ TDW - The Days The Clock Stopped (2020) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178480.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Hawkestrel - Spacexmas (2020) [MP3|320 Kbps] <Psychedelic, Space Rock, Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178457.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Unheilig - Puppenspiel Live - Vorhang Auf! (2008) 2CD [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178433.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Spirits Burning & Michael Moorcock - The Hollow Lands (2020) [MP3|320 Kbps] <Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178430.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Iron Altar - Promethean (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Mode
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178429.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Unheilig - Danke! Ein Letztes Mal - Live (2016) 2CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178419.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Stan Bush - Dare To Dream (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178407.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Phenomena - Still The Night (2020) [FLAC|Lossless|image + .cue] <Melodic Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178401.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ MNP - Feel the Pain (2020) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178399.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ellefson - No Cover (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178388.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Brant Bjork - Saved By Magic Again (2005) Remastered , 2023, Heavy Psych Sounds 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178379.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Paradise Lost - Draconian Times (1995) 25th Anniversary Edition, 2020, Music For
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178377.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Brant Bjork and The Bros - Saved By Magic Again (2005) Remastered, 2023, Heavy P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178375.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178372.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Carnifex - Necromanteum (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178365.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Hawkwind - 50 Live (2020) 2xCD [MP3|320 Kbps] <Psychedelic, Space Rock, Progress
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178360.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Unruly Child - Our Glass House (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178356.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Evil Seeds - Theory Of Fear (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178345.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Unheilig - Als Musik Meine Sprache Wurde (2013) Digipack 5CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178330.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Hollywood Undead - New Empire, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178323.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Chris De Burgh - Into The Light (1986) A&M CD5121 [FLAC|Lossless|image + .cue]<S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178312.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - The Most Essential Classic Rock Ever (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178266.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Anomaly - Planet Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178263.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Tzompantli - 2 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178258.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Euphrosyne - Keres (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178255.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Euphrosyne - Keres (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Doom,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002F3351241DDB8E8707A079F90D99C8DFCC043B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594484   (178251) от 01.12.2022
-
-Anomaly - Terms of the Saw Doctor (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Litany in Time of Plague (03:53)
-02 - Terms of the Saw Doctor (04:10)
-03 - Offspring of Chemicals (05:30)
-04 - The Last Public Execution by Guillotine (04:58)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B206B688D05DAA5462F472FE48063F238DE222EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

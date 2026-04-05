@@ -1,3 +1,32 @@
+###  Публикация: 1665414   (182457) от 30.09.2023
+
+Jonne Aaron - Onnen Vuodet (2013) [FLAC|Lossless|image + .cue] <Glam Rock, Melodic Rock, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ihanaa Elamaa
+02. Kulkurisydan
+03. Taivas Itkee Hiljaa
+04. Eteenpain(   Читать дальше...   )Жанр: Glam Rock, Melodic Rock, Gothic RockПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0B0F4ED4FFA1F11A2CF71556D6046271BDCA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427740   (182454) от 29.11.2020
 
 Big Country - Peace in Our Time (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -6,7 +35,7 @@ Big Country - Peace in Our Time (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182454.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Eliza Jaye - Middle Child (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182449.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182440.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jimmy Martin - The Singles (2020) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182434.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Steven Wilson - The Harmony Codex (2023) [MP3|320 Kbps] <Progressive rock, Art r
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182406.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Anthony Phillips - Missing Links I-IV (2020) 5xCD, Remastered [MP3|320 Kbps] <Sy
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182391.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Southeast of Saturn (2020) [FLAC|Lossless|WEB-DL|tracks] <Shoegaze, Dream P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182385.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182380.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Spellmaster - Unearthed Arcana (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182379.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Jimmy Buffett - Songs You Dont Know By Heart (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182373.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Stones Of Babylon - Ishtar Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182362.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Steely Dan - Aja (1977) Reissue, 2023, Geffen [FLAC 24/192|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182352.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Jethro Tull - RokFlote (Alternative Mixes) (2023) [MP3|320 Kbps] <Prog Folk, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182344.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Testament - Original Album Series (2013) 5CD [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182341.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182327.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Graveyard - 6 (2023) [MP3|320 Kbps] <Blues rock, Hard Rock, Psychedelic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182315.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Cats in Space - Atlantis (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182310.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Taï Phong (Tai Phong) - 6 albums, 13 CD (1975-2017) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182277.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Irminsul - Fader (2013) [FLAC|Lossless|image + .cue] <Pagan Metal, Viking Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182273.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Acoustic Rock 2020 [FLAC|Lossless|WEB-DL|tracks] <Rock, Acoustic, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182264.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Omega - Testamentum (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock, Symphoni
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182250.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182231.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Within Temptation - Ritual (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182176.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Guitar Rock Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal, Oth
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182171.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Within Temptation - Ritual (2023) [MP3|320 Kbps] <Symphonic Rock, Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182154.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Within Temptation - Ritual (2023) [MP3|320 Kbps] <Symphonic Rock, Symphonic Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B07030ED39F8DF4A20FDC2B1F814D91FF04F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592763   (182044) от 25.11.2022
-
-Griefbringer - The Horrible Wilting (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Harbinger [00:05:08]
-02. Disfigurement [00:04:54]
-03. A Warlock [00:04:57]
-04. Ghosts of the Desert [00:04:53](   Читать дальше...   )Жанр: Doom Metal, Death Metal, SludgeПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF81D0424EFD8FD63ACF8912974E6FFD29CB070C
 ```
 
 https://mybot314.ru/tekegram_catalog/

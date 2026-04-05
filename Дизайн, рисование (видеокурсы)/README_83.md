@@ -1,3 +1,58 @@
+###  Публикация: 1517482   (161800) от 16.12.2021
+
+Cubebrush, Marc Brunet | ULTIMATE Guide Drawing The Human Anatomy (2019) WEB-DLRip [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет! Я собрал вместе все курсы по анатомии, которые я сделал для АРТ школы в этом отдельном пакете для тех, кто хочет серьезно улучшить свою работу с анатомией! Сотни часов ушли на то, чтобы это сделать, поэтому я сильно надеюсь, что вы получите от этого столько пользы, сколько я думаю.Производство: CubebrushЖанр: Рисование, 2D, CG, AnatomyЯзык озвучки: Русский, АнглийскийПродолжительность: 10:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3358D314B93DB99554493A7783E850649AC3309F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674192   (161750) от 04.11.2023
+
+Валерия Новикова | Нейросети и дизайн. Тариф Самостоятельный (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научись делать дизайн в своих проектах за считанные секунды с помощью нейросетей. Полный пак нейросетей, который только могут понадобиться в работе!
+
+- Работа с изображениями. Вы научитесь работать с нейросетями для генерации изображений. Узнаете как применять их в своем блоге для постов, сторис и reels
+- Работа с видео. Вы научитесь работать с нейросетями по видео. (   Читать дальше...   )Жанр: Дизайн, AIЯзык озвучки: РусскийПродолжительность: 08:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEEB1D16446A90469D253E20C87BCFC1E0F0BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674167   (161747) от 04.11.2023
 
 Study Kvo, Саня Кво | Марафон по UX UI дизайну мобильных приложений (2023) WEB-DL [AD] [RU]
@@ -6,7 +61,7 @@ Study Kvo, Саня Кво | Марафон по UX UI дизайну мобил
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161747.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Yiihuu, Wingfox, Ji Yu | Creating a AAA Character from Scratch: A Nameless Samur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161658.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ Skillbox, BangBang, Tagline, Илья Митрошин и др. | Скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161526.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Skillbox, Роман Цыганов и др. | Профессия 3D-джене�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161508.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161414.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161406.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Enterclass, Елена Куракина | Розы акрилом (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161252.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ ZartSchool, Павел Зубов, Татьяна Зубова | Море на �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161213.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161179.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ Skillshare, Dave Bergin | Character Creation in Cinema 4D and Daz Studio (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161044.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161030.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ Skillshare, Marco Bucci | Digital Painting 3 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161021.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ New masters academy, Glenn Vilppu | Foundations of Composition (2016) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161010.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ ArtStation, Realtime GraphX | Create Next Gen AAA Characters for Unreal Engine (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160984.jpg" />
 </div>
 
 
@@ -388,7 +443,7 @@ New Maters Academy, Joe Weatherly | Introduction to Animal Anatomy (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160921.jpg" />
 </div>
 
 
@@ -414,7 +469,7 @@ Enterclass, Александра Чу | Линия и цвет (2023) WEB-DL [AD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160799.jpg" />
 </div>
 
 
@@ -443,7 +498,7 @@ Render.Camp, Daniel Nagaets, Irena Poliakova and etc. | Professional Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160755.jpg" />
 </div>
 
 
@@ -472,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160724.jpg" />
 </div>
 
 
@@ -501,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160721.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160619.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160543.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ Tilda school, Антон Командин | Резиновая верстка в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160520.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ Soshnikova School, Сошникова Елена | Пейзаж. Основы (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160391.jpg" />
 </div>
 
 
@@ -642,7 +697,7 @@ Yudaev School, Никита Юдаев | Изучаем дизайн с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160018.jpg" />
 </div>
 
 
@@ -656,62 +711,6 @@ UX/UI(   Читать дальше...   )Производство: Yudaev School
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEBE5C01512622E6D2A154258C7898B8420EFCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675951   (159221) от 11.11.2023
-
-Kalachevaschool, Анна Чайникова | Рассвет акрила. Тариф Стандарт (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159221.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Рассвет акрила» — атмосферный курс Анны Чайниковой для всех, кто хочет разобраться в возможностях акрила, научиться писать картины в необычном, интересном стиле и находить красивые сюжеты в повседневности.
-Вы узнаете, как использовать сложное, контражурное освещение, когда пронизывающие солнечные лучи подсвечивают предметы сзади.
-
-Большое внимание на курсе уделяется (   Читать дальше...   )Производство: KalachevaschoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:18:49Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746AF29E772517ADCC8C5149C87BD12FF5C00A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675979   (159176) от 11.11.2023
-
-Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Perspective and Composition (2023) WEB-DL
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели проиллюстрировать сцену, полную деталей, но не знали, с чего начать? Не волнуйся; Я был там, и я здесь, чтобы провести вас!
-Присоединяйтесь ко мне на этом практическом занятии , где мы глубоко окунемся в радостный процесс проектирования красочной комнаты, наполненной деталями. И угадай что? Мы не будем одни в этой комнате; нас будут сопровождать (   Читать дальше...   )Производство: SkillshareЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 02:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA8BE88EF469849730F72A5F67E308345F15A70
 ```
 
 https://mybot314.ru/tekegram_catalog/

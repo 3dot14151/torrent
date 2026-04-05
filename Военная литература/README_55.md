@@ -1,134 +1,3 @@
-###  Публикация: 462661   (95720) от 05.03.2012
-
-Григорий Раковский | Конец Белых. От Днепра до Босфора. (1921) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раковский Григорий Николаевич - журналист, военный корреспондент, переживший Гражданскую войну на Юге России вместе с Белой армией. Очевидец и непосредственного участник описываемых событий рассказывает о попытке генерала Врангеля воссоздать белую армию в Крыму сразу после разгрома Деникина. Крымский этап эпопеи белого движения во многом напоминает деникинский: и (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8B3AA855AC665F4548F48A0269B9BBAC7EDA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462698   (95700) от 05.03.2012
-
-В.А.Кукель | Правда о гибели Черноморского флота в 1918 году [1923] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95700.jpg" />
-</div>
-
-
-###  Подробнее
-
-18-го июня 1918 года на рейде Новороссийска потоплена своими командами половина Черноморского флота бывшей императорской России.
-Это потопление, обстоятельства которого ниже излагаются активным участником его В.А. Кукелем, является одним из наиболее трагических эпизодов в истории военных флотов, эпизодом не уступающим по трагизму другим историческим "потоплениям": (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E3571061372F7E6ACD238D36FAE09D32E7247C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462625   (95480) от 04.03.2012
-
-М. Голубых | Уральские партизаны [1924] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 1918 рабочие отряды Южного Урала, действовавшие в районе Оренбург—Уфа—Челябинск, оказались в результате мятежа Чехословацкого корпуса и оренбургских казаков отрезанными от районов снабжения и регулярных частей Красной Армии и перешли к партизанским действиям. К середине июля партизанские отряды (Уральский В. К. Блюхера, Верхнеуральский Н. Д. Каширина, Троицкий (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37366167C6E2DC7BDF747EBAD8C35BD5F45D47BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462471   (95474) от 04.03.2012
-
-Е.М. Красноусов | Шанхайский Русский Полк [1927-1945] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идея создания книги-памятки «Шанхайский Русский Полк» принадлежит последнему Адъютанту Полка капитану Е.М.Красноусову, который в течении всей его большей части 20-тилетней службы в Полку, кроме своих прямых обязанностей, заведовал всеми видами спорта, а равно был организатором и участником всех состязаний и выступлений спортсменов Полка. Молниеносные события в Китае (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C76A962A6C5F0E8D9CEE2A62185E30042C88395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462005   (95325) от 03.03.2012
-
-И. Мощанский | Средний танк Т-34-85. Второе рождение машины (2009) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена истории создания и внедрения в производство знаменитого советского танка Т-34-85. Результатом деятельности сразу нескольких конструкторских коллективов стала коренная модернизация танка, буквально подарившая знаменитой "тридцатьчетверке" второе рождение. Запускать в серийное производство новую модель было доверено заводу № 112 "Красное (   Читать дальше...   )Жанр: История бронетехникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BF4523B8F839AB17857DA1AC762D3733CB1BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461887   (95277) от 03.03.2012
 
 М.Коломиец, И.Мощанский | Танки Ленд-лиза [2000] [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95277.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94896.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94810.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94794.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94594.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89657.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89605.jpg" />
 </div>
 
 
@@ -321,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89409.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88653.jpg" />
 </div>
 
 
@@ -376,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88557.jpg" />
 </div>
 
 
@@ -402,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88337.jpg" />
 </div>
 
 
@@ -429,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88294.jpg" />
 </div>
 
 
@@ -455,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88087.jpg" />
 </div>
 
 
@@ -481,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87148.jpg" />
 </div>
 
 
@@ -507,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87106.jpg" />
 </div>
 
 
@@ -533,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86301.jpg" />
 </div>
 
 
@@ -559,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85713.jpg" />
 </div>
 
 
@@ -585,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83658.jpg" />
 </div>
 
 
@@ -611,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83279.jpg" />
 </div>
 
 
@@ -637,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83233.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81619.jpg" />
 </div>
 
 
@@ -675,6 +544,143 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F27104997D410F268B1D7AA2B4372025FB244327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464004   (80618) от 07.03.2012
+
+Общий список офицерских чинов по 1 января 1909 года (репринт) [2006] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80618.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании приведен список всех офицеров русской императорской армии по состоянию на 1-е января 1909 г. Сведения систематизированы в соответствии со структурой Военного министерства: управления и высшие военные установления; гвардия; пехота; кавалерия; артиллерия; инженерные войска; казачьи войска; военные заведения и учреждения.
+Для каждого лица сообщаются фамилия, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E894D1934C6D64D3A27B20AC92CAA9A3207599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463813   (80579) от 07.03.2012
+
+И. В. Вуич | Малая война (1850) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малая война — боевые действия небольшими силами в целях измотать противника и обеспечить своим войскам благоприятные условия для решающих сражений. Малая война ведется как на суше, так и на море. Иногда Малая война - синоним локального конфликта. Термин впервые появился в 18 веке. Малая война на суше - разведывательные, диверсионные, партизанские и террористические (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE0703DBFD2B6C46CF37666C2E56AB34FAD36FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462998   (80133) от 05.03.2012
+
+М.Е. Бархатов, В.В. Функе | История русско-японской войны.(тт. I-VI) [1907] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная художественно-иллюстрированная боевыми, бытовыми и разными военными снимками «История Русско-Японской войны» с изящно выполненными картами, планами в 5-ти томах и 6-й том – художественный альбом портретов участников войны (от генералов, командующих армией, до медсестер и полевых священников) с краткими биографическими сведениями.
+ Издание преследовало цель (   Читать дальше...   )Язык: Русский (дореформенный)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B4907A8936E502B865322C4CB4A9F06A517FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459181   (78941) от 28.02.2012
+
+Жорж Бернаж | Книги-альбомы автора о Второй мировой войне [2006-2007] [PDF, DjVu]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрированные хроники Жоржа Бернаж посвящены:
+1. Берлин 1945 - Агония "Тысячелетнего" рейха
+2. Харьков январь-март 1943 г. Контрудар танкового корпуса СС
+3. Немецкие танковые войска. Битва за Нормандию 5 июня — 20 июля 1944 годаФормат: PDF, DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9902BC8265CFE8808489AD60C2EB022E6170A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458950   (78788) от 27.02.2012
+
+М. Веллер, А. Буровский | Гражданская история безумной войны (2007) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга впервые излагает историю Гражданской войны как страшную и удивительную сказку, случившуюся в реальности. Фантастические судьбы, необыкновенные приключения, благородные мечты и моря крови. Легкий разговорный язык, ирония и честность на грани цинизма делают книгу незаменимым чтением для каждого, кто слышал слово "Россия".
+
+Михаил Веллер, Андрей (   Читать дальше...   )Жанр: Военная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769BF1DC107990D2B693E708161AA9D701B1C067
 ```
 
 https://mybot314.ru/tekegram_catalog/

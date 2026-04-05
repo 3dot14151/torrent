@@ -1,3 +1,108 @@
+###  Публикация: 966248   (150186) от 25.12.2015
+
+До свидания, Чарли / Goodbye Charlie (1964) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голливудский сценарист Чарли Сорел (Гарри Мэдден), застигнутый известным кинопродюсером в момент свидания с его женой на борту яхты, получает от ревнивого мужа пулю и падает в море. А через несколько дней случайный прохожий видит одиноко гуляющую по пляжу молодую женщину. Единственное, что помнит симпатичная блондинка, - адрес дома, где жил Чарли. Проснувшись утром, (   Читать дальше...   )Производство: США, Venice ProductionsЖанр: Фэнтези, Мелодрама, КомедияРежиссер: Винсенте МинеллиАктеры: Тони Кертис, Дэбби Рейнольдс, Гарри Мэдден, Пэт Бун, Джоэнна Барнс, Эллен Берстин, Лаура Девон, Мартин Габел, Роджер С.Кармел, Мирна ХансенПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CE4DCC2A2E8051B3416DD7B8D5D4CF29AC8FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514713   (150100) от 22.12.2021
+
+Эммануэль / Emmanuelle (1974) BDRip [H.265/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый фильм о жрице любви Эммануэль. Сюжет служит канвой для описания сексуальных похождений героини в Юго-Восточной Азии.
+Муж Эммануэль, работающий в посольстве, поощряет в ней стремление к раскрепощенности в сексе, благо весь дипломатический корпус, особенно женщины, изнывают от скуки. За её воспитание берется уже пожилой специалист. Эммануэль делает большие успехи (   Читать дальше...   )Производство: Франция / Orphée Productions, Trinacra FilmsЖанр: драма, мелодрама, для взрослых, эротикаРежиссер: Жюст ЖэкинАктеры: Сильвия Кристель, Ален Кюни, Марика Грин, Даниэль Сарки, Жанна Коллетен, Кристин Буассон, Саманта, Габриэль БрианПеревод: Двуголосый профессиональный, АвторскийСубтитры: русскиеПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C23F4A614BC6C24B7CC9D23342746B6B3D92B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515035   (149171) от 23.12.2021
+
+Джеймс Бонд 007: На секретной службе ее Величества / James Bond 007: On Her Majesty's Secret Service (1969) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идя по следу своего старого врага Блофельда, Бонд оказывается в Португалии, где безумно влюбляется в необыкновенно красивую девушку, которая ко всему прочему является дочерью короля преступного мира. Используя связи своего потенциального свекра, он обнаруживает секретную лабораторию, замаскированную под частную клинику, где Блофельд разрабатывает новый смертоносный (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: Боевик, триллер, приключенияРежиссер: Питер Р. ХантАктеры: Джордж Лэзенби, Дайана Ригг, Телли Савалас, Габриэле Ферцетти, Ильзе Штеппат, Лоис Максуэлл, Джордж Бейкер, Бернард Ли, Бернард Хорсфолл, Десмонд ЛлевелинПеревод: Дублированный, Многоголосый профессиональный, Двухголосый профессиональный, АвторскийЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030DBF2F8A5C2F6573C5E840E52C5BF9321E8C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515205   (148464) от 24.12.2021
+
+Дом о семи фронтонах / The House of the Seven Gables (1940) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм поставлен по одноимённому роману признанного мастера американской литературы XIX века Натаниэля Готорна. В центре внимания картины находится борьба двух братьев Пинченов, Клиффорда и Джеффри, за обладание семейной усадьбой, которая, согласно легендам, хранит тайные сокровища, а также семейное проклятье их рода. В процессе борьбы Джеффри выдвигает против брата (   Читать дальше...   )Производство: США, Universal PicturesЖанр: драма, триллерРежиссер: Джо МэйАктеры: Джордж Сандерс, Маргарет Линдси, Винсент Прайс, Дик Форан, Нэн Грэй, Сесил Келлауэй, Алан Напье, Гилберт Эмери, Майлз Мандер, Чарльз ТроубриджПеревод: любительский одноголосый (Nocknarroys)Субтитры: русские (Conrad_Siegfried), английскиеПродолжительность: 01:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58E321D3CC2BB60074F5B937D1D6B402BA1308F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345716   (147873) от 24.12.2019
 
 Сексмиссия (Новые амазонки) / Seksmisja (Sexmission) (1983) BDRip [H.264/1080p]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147873.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147499.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147410.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146790.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146774.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146225.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144633.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144594.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144448.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144441.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144249.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144070.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143428.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143401.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143264.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143197.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142867.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142775.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142422.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142036.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141636.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141558.jpg" />
 </div>
 
 
@@ -575,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93AFE9459A67F9BA6C6CAB24312A88567EA3CCD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676701   (141471) от 23.11.2023
-
-Стукач / Le doulos (1962) BDRip [H.265/1080p] [10-bit] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два лучших друга Сильена находятся по разные стороны закона, Морис — вор, а Клен — полицейский комиссар. Сильен периодически помогает то одному, то другому, являясь одновременно преступником и полицейским осведомителем. Правда, вечно это продолжаться не может. Морис, после удачного ограбления и убийства своего сообщника, спрятав пистолет и похищенные драгоценности, (   Читать дальше...   )Производство: Франция, Италия, Compagnia Cinematografica Champion, Rome Paris FilmsЖанр: триллер, криминалРежиссер: Жан-Пьер МельвильАктеры: Жан-Поль Бельмондо, Серж Реджани, Жан Дезайи, Рене Лефевр, Марсель Кювелье, Филипп Марш, Фабьен Дали, Моника Хеннесси, Карл Штюдер, Кристиан ЛюдПеревод: Двухголосый профессиональный (Film Prestige)Язык озвучки: русский, французкийСубтитры: русские (PGS), французкие (PGS)Продолжительность: 01:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25F2B6108A7BA3D712644F4C983DE1240D1F201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515739   (141365) от 28.12.2021
-
-Ах! Эти прекрасные вакханки / Ah! les belles bacchantes.... (1954) WEB-DL [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комиссар полиции Лебеф очень консервативен, и поэтому его не может не волновать падение нравов во Франции. Узнав о готовящейся премьере шоу «Ах! Эти прекрасные вакханки», Лебеф отправляется в театр-варьете, чтобы выяснить, не скрывается ли за этим подозрительным названием некое непристойное действо.
-Главный режиссер театра, поверив в придуманную историю о скрывающемся (   Читать дальше...   )Производство: Франция, Италия / Lux Film S.p.a., Optimax FilmsЖанр: мюзикл, комедияРежиссер: Жан ЛубиньякАктеры: Робер Дери, Колетт Броссе, Раймон Бюссьер, Роже Качча, Луи де Фюнес, Жаклин Майян, Франсис Бланш, Жак Бове, Жак Жуанно, Жак ЛеграПеревод: Двуголосый профессиональный (ОРТ-Видео)Субтитры: русские (Forced, Full), английские, хорватские, чешские, датские, голландские, финские, французские, греческие, венгерские, итальянские, норвежские, португальские, румынские, шведские, испанскиеПродолжительность: 01:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F52545BC693AE61EE14A4B3651F8F50D63F8A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966367   (140863) от 30.12.2015
-
-Виннету – вождь апачей / Old Shatterhand (1964) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верная Рука и Виннету продолжают успешно противостоять проискам коварных злодеев, желающих всеми правдами и неправдами завладеть племенными землями апачей. Захватывающие скачки и погони, безупречная стрельба навскидку, драки — все это присутствует в изобилии и никого не оставит равнодушным.Производство: Германия (ФРГ), Франция, Италия, Югославия / Авала-фильм , CCC Filmkunst GmbH, Criterion Productions, SerenaЖанр: Приключения, ВестернРежиссер: Уго ФрегонезеАктеры: Лекс Баркер, Пьер Брис, Далия Лави, Гай Мэдисон, Ральф Вольтер, Густаво Рохо, Рик Батталья, Китти Матерн, Чарльз Фоусет, Мирко ЭллисПеревод: Дублированный, многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F13A4F58790D8F3B02AB106971266FE52CB1B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430319   (140681) от 29.12.2020
-
-Фантомас / Fantomas (1964) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый фильм трилогии о невероятных приключениях комиссара Жюва, преследующего неуловимого преступника Фантомаса. Париж потрясен сенсационными и дерзкими преступлениями, совершенными таинственным злодеем по имени Фантомас. На его поимку брошены все силы полиции, но Фантомас практически неуловим — он все время меняет облик, ловко ускользая из рук правосудия. Напасть (   Читать дальше...   )Производство: Франция, Италия / P.A.C., Société Nouvelle des Établissements Gaumont (SNEG), P.C.M.Жанр: Комедия, Криминал, ПриключенияРежиссер: Андре ЮнебельАктеры: Жан Маре, Луи де Фюнес, Милен Демонжо, Жак Динам, Робер Дальбан, Мари-Элен Арно, Анн-Мари Пейссон, Кристиан Тома, Мишель Дюпле, Андре Таинси и др.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BDC112A46A20610AC186DD7BDCFA4C0348EDB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1619074   (199648) от 17.04.2023
+
+Ее личная жизнь / Geunyeoui Sasaenghwal / Her Private Life (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16) Мобильное Телевидение
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сон Док Ми живёт двойной жизнью онf куратор художественной галереи и активный фанат и автор фан сайта поп айдола Си Ана. Она профессионал в обоих аспектах своей жизни, но фанатская деятельность очень мешает личной жизни. Райан новый директор галереи, где работает Док Ми. В прошлом известный художник, сейчас он наслаждается размеренной жизнью и новой карьерой. И вот (   Читать дальше...   )Производство: Корея Южная | «Bon Factory», «Studio Dragon», «tvN»Жанр: Комедия, мелодрамаРежиссер: Хон Джон-чханАктеры: Пак Мин-ён, Ким Джэ-ук, Ан Бо-хён, Ким Ми-гён, One, Хон Со-ён, Пак Чин-джу, Ким Сон-ён, Мэн Сан-хун, Пак Мён-щинПеревод: Многоголосый профессиональный (Мобильное Телевидение)Язык озвучки: РусскийСубтитры: Корейские (forced hardsub)Продолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE88E2FE6A807BDC41040888E2277FC22A6C59F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614611   (199426) от 22.04.2023
 
 Скажи мне, что это любовь / Sarangira malhaeyo / Call It Love (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) DublikTV, Softbox
@@ -6,7 +32,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199426.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199410.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199292.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199149.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199137.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199091.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199080.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199078.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199076.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198983.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198906.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198830.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198777.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198719.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198604.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198401.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198276.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198142.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198128.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197993.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197990.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197891.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197860.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197740.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197373.jpg" />
 </div>
 
 
@@ -652,33 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC892C18E5872603DD75CFB05F2734023F214ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630482   (196566) от 26.06.2023
-
-Учитель Ким, доктор Романтик / Nangmandakteo Kim Sabu / Romantic Doctor, Teacher Kim (2023) WEB-DL [H.264/1080p] (сезон 3, серии 1-16 из 16) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пу Ён-джу когда-то был известным хирургом, его даже называли Руки Бога. Но однажды он просто исчез, и никто не знал, куда. Сейчас Ён-джу — простой учитель, который любит называть себя романтичным доктором.
-Кан Дон-джу стал врачом, чтобы победить, Юн Со-джун — чтобы получить признание. Но после встречи с учителем Кимом они поняли, в чём на самом деле заключается профессия (   Читать дальше...   )Производство: Южная Корея, Samhwa Networks, SBS, Studio SЖанр: драма, мелодрамаРежиссер: Ю Ин-щик, Ли Гиль-бок, Пак Су-джинАктеры: Хан Сок-кю, Ю Ён-сок, Со Хён-джин, Ким Хон-пха, Чин Гён, Лим Вон-хи, Пён У-мин, Ли Сон-гён, Ан Хё-соп, Со Ын-суПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: отсутствуютПродолжительность: ~01:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309B628D7FEDC09BEEF2EF4E57FBE70ADA9C5C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

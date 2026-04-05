@@ -6,7 +6,7 @@ Songsterr Guitar Tabs & Chords v2.4.16 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332360.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Respawnables 3.4.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331947.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MIUI-ify v1.8.12 Premium [Ru/Multi] - Уведомления и быстрые �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331894.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Minecraft - Pocket Edition 0.12.3 + 0.13.0.b4[Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331788.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Telegram for Android 9.0.2 (2808) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331696.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Batman And Robin Immortality 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331057.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ tTorrent Pro 1.5.4.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330971.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Aladdin Retro Remix 1.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330915.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330896.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Skies of Glory 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330555.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330364.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330326.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Zool 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330212.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Tattoo my Photo 2.0  v2.60 Pro [Ru/Multi] - татуировки на фото
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330042.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Materialistik Icon pack 3.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329971.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329395.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Side Pocket 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329214.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ KK Launcher Prime 6.82 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329032.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Julls' Calendar Widget Lite 2.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328352.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327615.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_326824.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_326803.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Foxit MobilePDF Business 3.6.0.1117 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326588.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326539.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326527.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ CamScanner 4.0.0.20151110 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326384.jpg" />
 </div>
 
 

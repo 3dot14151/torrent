@@ -1,3 +1,161 @@
+###  Публикация: 288333   (923133) от 28.01.2011
+
+Age of Pirates 2: City of Abandoned Ships / Корсары: Город Потерянных Кораблей [Ru] (RePack/1.2.12 2009) | Fenixx
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корсары: Город Потерянных Кораблей" - это новая игра в линейке «Корсаров», продолжение "Корсары: Возвращение Легенды", которая была разработана общими силами студии Seaward.ru и компании "Акелла" как альтернативный взгляд на знаменитую трилогию о пиратах.
+В "Городе Потерянных Кораблей" создатели "КВЛ" реализовали всё то, чему по причине временных ограничений, не нашлось места в «Возвращении легенды».Заслуженно большее внимание получили мистические мотивы в сюжете игры: теперь таинственному и потустороннему отведено две полноценные локации.Первая - собственно Город Потерянных Кораблей. Зловещая пристань, куда попадают затерявшиеся в Карибском море суда, с годами накопила несметные сокровища. Только одной смелости мало, чтобы отобрать их у мертвых.Вторая - золотая столица ацтеков Теночтитлан. Здесь, как известно, тоже есть, чем поживиться. Между пиратом и его безбедной старостью стоят лишь мифические существа из мрачных верований южноамериканского племени.Можно подумать, (   Читать дальше...   )Тип издания: Перепакованная лицензияЖанр: Action, Add-on (Standalone / Naval), RPG, 3rd Person, Privateer, TraderЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 287745   (923127) от 28.01.2011
+
+Microsoft Office 2010 x86/x64 License [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office для дома и бизнеса 2010 — это набор важнейших средств, необходимых для управления малым бизнесом или работы на дому. Усовершенствованные инструменты и функции помогают управлять предприятием и взаимодействовать с клиентами, а также способствуют эффективной организации домашних задач. Microsoft Office для дома и бизнеса 2010 поддерживает новые фото-, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863333   (923015) от 27.01.2015
+
+Три богатыря: Ход конем (2014) WEB-DL [720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Придворный конь Гай Юлий Цезарь на свою беду подслушивает разговор бояр и узнает о заговоре против князя. Что же делать? Защитить-то князя некому! Богатыри далеко — ловят разбойника Потаню, Горыныч в отпуске, войско на учениях… Но если плохие парни собираются захватить мир, то кому-то же надо его спасти? Кто же он, настоящий герой, который придет на помощь? Конечно, (   Читать дальше...   )Производство: Россия, Кинокомпания СТВ, Студия МельницаЖанр: Мультфильм, Комедия, ПриключенияРежиссер: Константин ФеоктистовАктеры: Сергей Маковецкий, Дмитрий Быковский-Ромашов, Валерий Соловьев, Олег Куликович, Дмитрий Высоцкий, Дмитрий Нагиев, Наргиз Закирова, Гоша КуценкоПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798C7FC5D42F66411F57DD03697EDC835C3D8E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863960   (923006) от 27.01.2015
+
+Ограбление по-американски / American Heist (2014) WEB-DL [H.264/720p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923006.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Джеймса темное прошлое, но сейчас он из всех сил пытается изменить свою жизнь — встречается с красивой девушкой, устроился работать автомехаником, мечтает о собственном бизнесе. Тем временем, его старший брат Френки, отсидевший десять лет в тюрьме, выходит на свободу. Френки пытается наладить отношения, но Джеймс не может простить брата за то, что много лет назад (   Читать дальше...   )Производство: США, Россия / Glacier Films, NGN ProductionsЖанр: Триллер, Криминал, ДрамаРежиссер: Сарик АндреасянАктеры: Хейден Кристенсен, Эдриан Броуди, Джордана Брюстер, Эйкон Тори, Киттлз Луис Да Силва мл., Лэнс Э. Николс, Джон МакКоннеллПеревод: Дублированный (Чистый звук) ОфициальныйСубтитры: ОтсутствуютПродолжительность: 01:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1FDE0F218ECD35FA415541D4816933EBE6EEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798465   (922996) от 27.01.2015
+
+Beyond: Two Souls / За Гранью: Две Души [PS3] [EUR] [Ru/En] [4.40] [Cobra ODE / E3 ODE Install ISO] (2013)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922996.jpg" />
+</div>
+
+
+###  Подробнее
+
+«За гранью: Две души» - новая игра от создателей блокбастера Heavy Rain - Дэвида Кейджа и студии Quantic Dream. Главные роли в этом интерактивном психологическом триллере исполняют звезды кинематографа Эллен Пейдж и Уиллем Дефо.
+Джоди Холмс - девушка, обладающая паранормальными способностями, у нее есть ментальная связь с потусторонним. Вместе с Джоди вам предстоит (   Читать дальше...   )Тип издания: RePackРазработчик: Quantic DreamЖанр: Adventure / 3D / Interactive MovieЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C20564A9FD5E757AF6D9AFB551CE3A5FEA8458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565955   (922991) от 27.01.2015
+
+Ultimate Caller HD Pro 1.0.3.8 - Фото на контакт (27.01.15) <Ru>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетает в себе идентификатор вызывающего абонента в полный экран , менеджер изображений контактов, блокировщик вызовов и такие действия, как сброс звонков, переворотом телефона экраном вниз.Разработчик: LowveldПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B216AA43F62A8CF47977CD9EDD3F4F8932688510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 756480   (922453) от 13.02.2014
 
 Я, снова я и мама / Les garcons et Guillaume, a table! (2013) DVB
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922453.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921933.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921915.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ Acronis True Image 2017 New Generation 21.0.6116 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921796.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ DriverPack Solution 17.7.33 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921792.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ Windows 10 Enterprise (x86/x64) Elgujakviso Edition (v.22.01.17) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921789.jpg" />
 </div>
 
 
@@ -166,7 +324,7 @@ Acronis True Image 2017 New Generation 21.0.6116 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921788.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921787.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921783.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ DOOM (2016) [Ru/En] (1.0/upd5) Rip xatab
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921781.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921741.jpg" />
 </div>
 
 
@@ -297,7 +455,7 @@ The Forest (2015) [En] (0.33b) Repack NIK220V
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921723.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921708.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ Kerish Doctor 2016 4.60 DC 19.02.2016 Repack by Alker [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921702.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ Oddworld New 'n' Tasty (2015) [Ru/Multi] (1.06/dlc) SteamRip Let'sPlay
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921694.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921687.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921681.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921676.jpg" />
 </div>
 
 
@@ -480,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921606.jpg" />
 </div>
 
 
@@ -506,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921594.jpg" />
 </div>
 
 
@@ -517,162 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941111   (921523) от 18.08.2021
-
-PowerDirector – Video Editor v9.5.1 Mod [Ru/Multi] - мощный видео-редактор от CyberLink
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый мощный видео-редактор на рынке, PowerDirector дает вам возможность создавать удивительные видео. Импорт и редактировать видео, добавлять эффекты и титры, и экспорт HD видео непосредственно на Facebook или YouTube. С простом в использовании интерфейсом PowerDirector, вы можете быстро создать профессиональное, с богатые эффектами видео, с помощью всего нескольких (   Читать дальше...   )Тип издания: Пиратка (Mod)Релиз состоялся: 16.08.2021Разработчик: CyberLink.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B0B985A081910B0849DF88195F553A422FCE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433213   (921508) от 18.08.2021
-
-Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License GOG [Patches]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: LicenseРазработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6364FD3732A90DCB19C392EF3D21A7D0D566542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178834   (921502) от 27.02.2010
-
-Демонстрационный DVD-Video диск. Dolby Digital, DTS Multichannel Sound
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430432   (921501) от 18.08.2021
-
-Cyberpunk 2077 (2020) [Ru/Multi] (1.3) SteamRip InsaneRamZes
-
->>3
->>16
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: SteamRipРазработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5E61263D1D6D070C4FA3F4A961BC39897DBD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430416   (921488) от 18.08.2021
-
-Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License GOG
-
->>3
->>22
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: LicenseРазработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F380542CC37FAB659F768E0FAE99B466DB0971A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430422   (921484) от 18.08.2021
-
-Cyberpunk 2077 (2020) [Ru/Multi] (1.3) EGS-Rip InsaneRamZes
-
->>3
->>42
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: EGS-Rip (Epic Games Store Rip)Разработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B339D8B1A1C6C89B45203476E53AA75B1657EA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518524.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518523.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chuck Mangione Quintet - Recuerdo (1962) /1990, Jazzland/ [FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518519.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Heather Powell - A Haze of Grays and Blue (2015) [FLAC|image+.cue]<Vocal Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518512.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Stanley Turrentine - Up At Minton's (1961) 2CD, 1994, Blue Note [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518470.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Steve Laury - The Hi-Fi World of Electric Guitar (Denon Test Disc) (1994) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518408.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Sonny Clark & Buddy DeFranco (De Franco) Quartet - Complete Sessions (1954) 2CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517808.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Bochinche - Caracas (1990) /Oxymoron/ [FLAC|image+.cue]<Jazz, World Fusion, Lati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517413.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Marlene Rosenberg - MLK Convergence (2019) Origin Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517272.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Lucky Millinder - 1951 - 1960 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517190.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Abe Rabade - A Modo (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516975.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Shirley Bassey -  Goldfinger ( 1993 ) & Best Of ( 2012 )[FLAC|Lossless]<Jazz, Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516572.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Louis Hayes And The Cannonball Legacy Band - Maximum Firepower (2006) Savant [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516293.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Shakatak - Street Level (1993) [APE|Lossless]<Jazz, Soul-Jazz, Jazz-Funk, Soul-F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515660.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Michael Feinstein - Gershwin Country (2022) Craft Recordings [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515645.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Flora Purim - If You Will (2022) Strut [FLAC|Lossless|tracks + .cue] <Latin Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515589.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Jamie Lynn Fletcher - My Desire Of You (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515351.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Gene Sedric - 1938 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515180.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Vijay Iyer Sextet - Far From Over (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515138.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Gary Burton Quartet With Eberhard Weber - Passengers (1977) 1988, ECM [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515131.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Mason Razavi - Quartet Plus, Volume 2 (2017) OA2 Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515098.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Bengan Janson, Jan Lundgren, Ulf Wakenius (2011) Ladybird [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515097.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Ahmad Jamal - Marseille (2017) Jazz Village [FLAC|Lossless|image + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515095.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Sophie Milman - Make Someone Happy (2007) Linus [APE|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515089.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Grant Green - 5 Original Albums (1961 - 1965) 5CD, 2018, Universal [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515079.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Steve Tibbetts - Hellbound Train: An Anthology (2022) Remastered[FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514673.jpg" />
 </div>
 
 

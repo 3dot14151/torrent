@@ -1,3 +1,38 @@
+###  Публикация: 570614   (389982) от 05.11.2012
+
+Flyleaf - New Horizons (2012) [MP3|320 кб/с]<Alt.Rock | Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Fire
+02. New Horizons
+03. Call You Out
+04. Cage On The Ground
+05. Great Love
+06. Bury Your Heart
+07. Freedom
+08. Saving Grace
+09. Stand
+10. Green Heart(   Читать дальше...   )Жанр: Alt.Rock | Female VocalПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 151073   (389821) от 08.11.2009
 
 Orianthi - Believe (2009) [MP3|320 kbps]<Alt. Rock/Modern Rock/Female Vocals>
@@ -6,7 +41,7 @@ Orianthi - Believe (2009) [MP3|320 kbps]<Alt. Rock/Modern Rock/Female Vocals>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389821.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389807.jpg" />
 </div>
 
 
@@ -69,7 +104,7 @@ Brett Benowitz - Burn to Glow (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389773.jpg" />
 </div>
 
 
@@ -98,7 +133,7 @@ Samael - Hegemony (2017) [MP3|320 Kbps] <Industrial Metal, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389644.jpg" />
 </div>
 
 
@@ -127,7 +162,7 @@ Robert Plant - Carry Fire (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389627.jpg" />
 </div>
 
 
@@ -156,7 +191,7 @@ Fail Emotions - Speed of Light EP (2012) [MP3|320 кб/с]<Post-hardcore \ Tranc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389283.jpg" />
 </div>
 
 
@@ -187,7 +222,7 @@ Emmure - Slave To The Game (2012) [MP3|320 кб/с]<Moshable Metalcore / Deathco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389277.jpg" />
 </div>
 
 
@@ -222,7 +257,7 @@ Dethklok - Dethalbum III (2012) [web] [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389165.jpg" />
 </div>
 
 
@@ -257,7 +292,7 @@ Sentient Horror - Ungodly Forms (2016) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389057.jpg" />
 </div>
 
 
@@ -286,7 +321,7 @@ Enslaved - E (2017) [MP3|320 Kbps] <Progressive Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388977.jpg" />
 </div>
 
 
@@ -315,7 +350,7 @@ William Patrick Corgan - Ogilala (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388976.jpg" />
 </div>
 
 
@@ -344,7 +379,7 @@ Deftones - Covers (2011) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388973.jpg" />
 </div>
 
 
@@ -373,7 +408,7 @@ VA - Wish You Were Here (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388972.jpg" />
 </div>
 
 
@@ -402,7 +437,7 @@ Samael - Hegemony (2017) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388881.jpg" />
 </div>
 
 
@@ -431,7 +466,7 @@ Robert Plant - Carry Fire (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388868.jpg" />
 </div>
 
 
@@ -460,7 +495,7 @@ Styx - Pieces Of Eight (1978) Hybrid SACD, remaster, 2017, Audio Fidelity [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388816.jpg" />
 </div>
 
 
@@ -489,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388798.jpg" />
 </div>
 
 
@@ -518,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388775.jpg" />
 </div>
 
 
@@ -544,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388721.jpg" />
 </div>
 
 
@@ -573,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_388512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388512.jpg" />
 </div>
 
 
@@ -599,7 +634,7 @@ Belinda Carlisle - Icon (2013) [FLAC|Lossless] <Pop Rock, Ballad>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388243.jpg" />
 </div>
 
 
@@ -628,7 +663,7 @@ Larry And His Flask  - Hobo's Lament(EP)(2012) [MP3|320 kbps] <Folk Rock, Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388187.jpg" />
 </div>
 
 
@@ -659,7 +694,7 @@ Pure Massacre - Pure Massacre (2022) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388050.jpg" />
 </div>
 
 
@@ -688,7 +723,7 @@ Dynazty - Final Advent (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388049.jpg" />
 </div>
 
 
@@ -717,7 +752,7 @@ Nordic Union - Animalistic (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388047.jpg" />
 </div>
 
 
@@ -731,35 +766,6 @@ Nordic Union - Animalistic (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C91CD62CBBE1264B7D91D94B4A41667D083AA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574258   (388044) от 04.09.2022
-
-Pat Travers - The Art of Time Travel (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pat Travers - икона блюз-рока и великолепный гитарист возвращается с новым мастерским студийным альбомом! The Art Of Time Travel - твердое свидетельство магии уникального бренда классического блюз-рока Pat Travers'а, обладающего сверхъестественной способностью переносить слушателей в недалекое прошлое, когда рок был королем, а гитары доминировали в эфире радиостанций. (   Читать дальше...   )01. The Art Of Time Travel (4:34)
-02. Ronnie (3:21)
-03. No Worries At All (5:30)
-04. Over And Over (5:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DCD2AD4F201ABC66909030F6BA14AF220C1E70
 ```
 
 https://mybot314.ru/tekegram_catalog/

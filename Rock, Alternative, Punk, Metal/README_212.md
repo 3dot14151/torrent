@@ -1,3 +1,148 @@
+###  Публикация: 1372084   (887122) от 02.04.2020
+
+Red - Declaration (2020) [MP3|320 Kbps] <Alternative Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All For You [00:03:06]
+02. Infidel [00:04:03]
+03. Cauterize [00:03:46]
+04. The War We Made [00:03:52](   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAD038A2C597AA321D10877E27A2E06CDBA1BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372095   (887113) от 02.04.2020
+
+Dynazty - The Dark Delight (2020) [MP3|320 Kbps] <Melodic Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Presence Of Mind [4:16]
+ 02. Paradise Of The Architect [4:14]
+ 03. The Black [3:54]
+ 04. From Sound To Silence [3:54](   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83F0C360514EDDA6192BE9DA0611B52396D2FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372040   (887085) от 02.04.2020
+
+Hollywood Monsters - 3 Albums (2014-2019) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hollywood Monsters является детищем французского эмигранта, вокалиста, гитариста и композитора Стефана «Steph» Хонде, живущего в Калифорнии с 2012 года. Впервые музыкант обратил на себя внимание в составе Mamooth, где получил репутацию виртуозного гитариста. В 2004 году он присоединился к французской рок-группе Café Bertrand, которые нередко играли на многотысячных (   Читать дальше...   )--------------------------
+
+01. A Scream Looking For A Mouth (2:51)
+02. Speak Of The Evil (3:52)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 02:20:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDABA8D2D15FEE3AF03D0527D6ACFE1F5F7F334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372257   (887056) от 02.04.2020
+
+The Starkillers - Дикий Восток (2020) [MP3|320 Kbps] <Heavy Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. За Мазу-Рaшу! [04:51]
+02. Дикий Восток [04:00]
+03. Часть команды, часть корабля [03:26]
+04. Пусть твоя могила... [03:13](   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79226261D29ED145FDC04135F59D2B5327B9832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372012   (887050) от 02.04.2020
+
+The Starkillers - Дикий Восток (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. За Мазу-Рaшу! [04:51]
+02. Дикий Восток [04:00]
+03. Часть команды, часть корабля [03:26]
+04. Пусть твоя могила... [03:13](   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C10AAA25B69B0104480FC7C8CD572B19E96687B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372148   (886885) от 02.04.2020
 
 Phish - Sigma Oasis (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Psychedelic Rock, Progressive Rock, Jam Bands>
@@ -6,7 +151,7 @@ Phish - Sigma Oasis (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Psychedelic Rock, Pro
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886885.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Testament - Titans Of Creation (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886753.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886704.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ Nightwish - Human. :II: Nature. (2020) 2CD [MP3|320 Kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886622.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ Minushuman - Bloodthrone (2011) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886594.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886592.jpg" />
 </div>
 
 
@@ -183,7 +328,7 @@ Accuser - The Forlorn Divide (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886531.jpg" />
 </div>
 
 
@@ -212,7 +357,7 @@ Sunburst - Fragments Of Creation (2016) [MP3|320 кб/с] <Progressive Metal, Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886518.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ Van Canto - Voices of Fire (2016) [MP3|320 кб/с] <Power A Cappella>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886406.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ Guns N’ Roses - Live Era '87 - '93 (1999) Japan [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886318.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ Ocean Of Sin - Lie Goes To Hell (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886308.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ Royal Hunt - Cargo (2016) Japanese Edition 2CD [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886228.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886212.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ Killswitch Engage - Incarnate (2016) Deluxe Edition [MP3|320 кб/с] <Melodic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886176.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ Steve Hackett - Surrender of Silence (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886116.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ Eld Varg - One Man Army (2021) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886108.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ Eddie Tatton - Canons Under Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886086.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ The Zappa Band - Saratoga Springs (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Progres
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886032.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886012.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Quarzum - Alma Inmaterial (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886000.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Axia - Axia (1986) Reissue, 1986, MTM Music [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885993.jpg" />
 </div>
 
 
@@ -603,153 +748,6 @@ Axia - Axia (1986) Reissue, 1986, MTM Music [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64ACE857ABDF81227832793B794D7EF90A75D99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494762   (885961) от 09.09.2021
-
-The Neal Morse Band - Innocence & Danger (2021) [FLAC|24/96|tracks|WEB-DL] <Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It All Again (8:53)
-02. Bird on a Wire (7:23)
-03. Your Place in the Sun (4:12)
-04. Another Story to Tell (4:50)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502343674857EAAAB8E6767587E1334F428D2B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103608   (885920) от 12.02.2017
-
-Knight Area - Heaven and Beyond (2017) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbroken (7:06)
-02. Dreamworld (5:14)
-03. The Reaper (7:11)
-04. Box Of Toys (3:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB940D784A6765308845856A3EF89DD94A907EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103325   (885913) от 12.02.2017
-
-Blackfield - V (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blackfield — это проект лидера Porcupine Tree Стивена Уилсона и израильского музыканта Авива Геффена.
-
-Всё началось с того, что в 2000 году Геффен, большой поклонник Уилсона и Porcupine Tree, пригласил последних выступить в Израиле. После ряда концертов между ним и Стивеном Уилсоном завязалась дружба, а двумя годами позже Геффен уже пел на двух треках «поркупайновского» (   Читать дальше...   )01. A drop in the ocean (1:24)
-02. Family man (3:37)
-03. How was your ride? (3:59)
-04. We'll never be apart (2:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58580BAC1DCC24062EC4BE6377D75459E94196A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103581   (885906) от 12.02.2017
-
-Бригадный Подряд - Реинкарнация 2 (2016) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уроки панк-рока
-02. Мослы
-03. Скамейка
-04. Школьное любовище(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C783EBCD6518D3762483C138D253D7A32B9E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103590   (885889) от 12.02.2017
-
-Саша Самойленко & TOMAS band - Джем (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Караван (feat. ГЕНИЙ)
-2. Командор (feat. Олег Сакмаров, Дарья Рубцова & Александр Бар)
-3. Комета
-4. ЛоЛа (feat. Алексей Могилевский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE17F5F8D2ABB62806D48C35E7DDFA10ED91A10D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213882.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213867.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213863.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213797.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213684.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213679.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213623.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212712.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212363.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212133.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211015.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Iwa Kakeru! Sport Climbing Girls | Держись крепче! Скалолаз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210957.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kaguya-sama wa Kokurasetai: First Kiss wa Owaranai | Kaguya-sama: Love is War - 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210590.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209953.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209767.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208147.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208104.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь сл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207237.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206231.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205873.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205782.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204642.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204615.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204584.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203940.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203877.jpg" />
 </div>
 
 

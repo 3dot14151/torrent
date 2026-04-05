@@ -1,81 +1,3 @@
-###  Публикация: 1082979   (275797) от 14.12.2016
-
-Роберт Каплан | Муссон. Индийский океан и будущее американской политики (2015) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275797.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мере укрепления и выхода США на мировую арену первоначальной проекцией их интересов были Европа и Восточная Азия. В течение ХХ века США вели войны, горячие и холодные, чтобы предотвратить попадание этих жизненно важных регионов под власть «враждебных сил». Со времени окончания холодной войны и с особой интенсивностью после событий 11 сентября внимание Америки (   Читать дальше...   )Жанр: Политика, международные отношения, обществоФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF1DB9183F6A6C525BAC30B87B3A310B3F62EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082748   (275688) от 14.12.2016
-
-Стивен Фредерик Старр | Утраченное Просвещение. Золотой век Центральной Азии от арабского завоевания до времен Тамерлана (2017) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Центральная Азия в глазах большинства жителей развитых стран – это несколько Богом забытых бедных государств где-то на краю света, культура которых абсолютно непримечательна. Автор книги – Фредерик Старр, признанный специалист по региону, – доказывает ошибочность такого мнения. Цель его работы – развенчать миф об отсталости и маргинальности Центральной Азии. Он знакомит (   Читать дальше...   )Жанр: История науки, культурологияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912CA96F3C0E57D30C739009E76428898F8B8621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082971   (275593) от 14.12.2016
-
-Роберт Каплан | Политика воина. Почему истинный лидер должен обладать харизмой варвара (2016) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опираясь на труды Сунь-цзы, Фукидида, Тита Ливия, Макиавелли, Гоббса и других великих мыслителей прошлого, известный американский публицист Роберт Каплан стремиться доказать, что в мире с нестабильными государствами и неопределенным будущим внешняя политика должна основываться на «нравственности результатов». Ведущую роль в мире после окончания холодной войны автор (   Читать дальше...   )Жанр: Политика, международные отношения, обществоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8610E5746206A5ED9D4330A2E48E7CC1840A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081775   (273724) от 16.12.2016
 
 В.И. Лимонов (ред.) | Томский педагогический институт. 1931-1981 (1981) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273724.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273723.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273673.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273600.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273594.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272971.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272379.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271755.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270614.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269195.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269193.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269177.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269173.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269166.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269085.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269002.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268995.jpg" />
 </div>
 
 
@@ -538,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268840.jpg" />
 </div>
 
 
@@ -564,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268193.jpg" />
 </div>
 
 
@@ -590,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268043.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267959.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267568.jpg" />
 </div>
 
 
@@ -670,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266163.jpg" />
 </div>
 
 
@@ -681,6 +603,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8777303EFD829AFF32E68BEF7D1ADBE63D62B254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339368   (266148) от 19.11.2019
+
+П. М. Керженцев | Принципы организации (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266148.jpg" />
+</div>
+
+
+###  Подробнее
+
+В однотомнике избранных произведений Платона Михайловича Керженцева, посвященных научной организации труда и управления, помещено с некоторыми сокращениями пять работ: «Принципы организации», «НОТ — научная организация труда», «Борьба за время», «Памятка организатора», «Организуй самого себя!».Жанр: История, психология, социология, искусство, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587DA078EFA035D4982E8973DA69DDDE4DCBC3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339363   (266068) от 19.11.2019
+
+Ж. Г. Тард | Законы подражания (2011) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический труд основателя социальной психологии Г. Тарда посвящен социально-коммуникативной деятельности индивидов в форме подражания (имитации), которая выступает как основа развития общества. Под процессом подражания понимается элементарное копирование и повторение одними людьми поведения других. Процессы копирования и повторения касаются существующих практик, (   Читать дальше...   )Жанр: История, психология, социологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19B4C66C4DD5CB1453DCEA1C6443F8A98231029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267309   (265131) от 08.12.2018
+
+Е. С. Варга | Изменения в экономике капитализма в итоге второй мировой войны (1946) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет собой результат шестилетнего труда.
+
+С начала второй мировой войны я занялся наблюдением и анализом новых экономических явлений, выдвинутых войной. Я поставил перед собой вопрос: какие из этих новых явлений носят преходящий и какие — длительный характер? Иначе говоря, как будет развиваться капиталистическое хозяйство после войны? Таким (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA5A50E042E4D59CB5F7847FE2B42E8840D35FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

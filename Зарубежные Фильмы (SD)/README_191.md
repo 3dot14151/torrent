@@ -1,55 +1,3 @@
-###  Публикация: 1506932   (798907) от 02.11.2021
-
-Исчезнувший / My Son (2021) WEB-DLRip [Локализованный видеоряд]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время очередной командировки Эдмонд узнает, что в детском лагере пропал его семилетний сын. Версий у следствия много, но зацепок нет совсем. Когда детектива, который связывает исчезновение ребенка с профессиональной деятельностью Эдмонда, отстраняют от дела, отец сам пускается на поиски.Производство: Великобритания, Франция / Великобритания, Франция / Canal+Жанр: Триллер, драма, криминал, детективРежиссер: Кристиан КарионАктеры: Джеймс МакЭвой, Клэр Фой, Том Каллен, Гари Льюис, Майкл Морлэнд, Роберт Джек, Оуэн Уайтлоу, Пол Рэттрэй, Тони Фрутин, Розалинд СидниПеревод: Дублированный (Марафон)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6494F7345A0891798270DC9BF1C6407D43DA693A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122468   (798832) от 05.04.2017
-
-Спящий голос / La voz dormida (2011) HDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798832.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух сестер в смутный период сразу же после завершения гражданской войны в Испании. Младшая из них Пепита, простоватая девушка из окрестностей Кордовы, отправляется в Мадрид, чтобы быть рядом со своей сестрой Гортензией, которая находится в тюрьме и ждет ребенка.Производство: ИспанияЖанр: Драма, военныйРежиссер: Бенито СамбраноАктеры: Мария Леон, Инма Куэста, Хавьер Годино, Фэни Де Кастро, Ана Вагенер, Марк Клотет, Сьюзи Санчез, Дэнни Холгин, Хавьер Мора, Берта ОхеаПеревод: Любительский одноголосый (Serg Tex)Субтитры: ОтсутствуютПродолжительность: 02:033:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF71A20F7D20143892C4F8165D798EFA84FCAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507226   (798705) от 03.11.2021
 
 Великан / The Mighty (1998) BDRip [H.264] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798705.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798686.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798667.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798546.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798529.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798519.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798439.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798419.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798373.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798356.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798343.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798333.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798223.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798210.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798207.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798191.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798176.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798174.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798060.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798045.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798041.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797918.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797901.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797889.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:719F4A8842CA60DED21EAAB9D5EC863C44161F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199560   (797856) от 17.01.2018
+
+Мир, полный чудес / Wonderstruck (2017) WEB-DLRip [H.264] [AVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797856.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Бена и Роуз, которые живут в разные эпохи и не могут смириться с окружающим их миром. Бен мечтает найти своего отца, а мысли Роуз заняты загадочной актрисой. Однажды судьба толкает их на поиски того самого недостающего их жизни элемента.Производство: США, Amazon Studios, Cinetic Media, FilmNation EntertainmentЖанр: Драма, Детектив, СемейныйРежиссер: Тодд ХейнсАктеры: Милли Симмондс, Джулианна Мур, Кори Майкл Смит, Джеймс Урбаняк, Дэмиэн Янг, Патрик Мёрни, Лорен Ридлофф, Энтони Натали, Кэрол Аддаббо, Говард СаэгоПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: нетПродолжительность: 01:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5278815E609345C213BE121667A25B82AC4D93EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199685   (797852) от 17.01.2018
+
+Пила 8 / Jigsaw (2017) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797852.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, Канада / A Bigger Boat, Serendipity Productions, Twisted PicturesЖанр: Ужасы, Триллер, Криминал, ДетективРежиссер: Майкл Спириг, Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа Блэк, Эдвард Раттл, Майкл Бойсверт, Сэм КоулесПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F1032794E7831AEC5145B8479553FA672EFA24
 ```
 
 https://mybot314.ru/tekegram_catalog/

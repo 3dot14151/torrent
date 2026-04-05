@@ -1,3 +1,55 @@
+###  Публикация: 967492   (214439) от 20.12.2015
+
+Чарлз Робертс | В лесу (1929) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересные наблюдения мальчика в лесу над животными, незамечающими его присутствия. Охота лисицы за выводком куропаток, погоня куниц за зайцем и т. д.Жанр: Детская проза, Природа и ЖивотныеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5417E3BFE52507956C75853F94554212056022F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967291   (214432) от 20.12.2015
+
+Т. Синицын | Под вой пурги (1929) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская проза, Путешествия и ГеографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F4F5F1374FFB2FA6F912AE39BA38AE86C1EE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343857   (214383) от 08.12.2019
 
 Справочник по скаутизму (1916) [PDF]
@@ -6,7 +58,7 @@
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214383.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214150.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214145.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214138.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214126.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214118.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214096.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214086.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214083.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214075.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214058.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214033.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214022.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214017.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213853.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213664.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213644.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213640.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213590.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213585.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213468.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213253.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213068.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212707.jpg" />
 </div>
 
 
@@ -633,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CABDE8A2C8E604243094CD7ED53FC363350922D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348752   (212696) от 10.07.2022
-
-Т.А. Алтухова, Н.А. Егорова | Занимательные игры и упражнения для речевого и интеллектуального развития детей 5-6 лет с общим недоразвитием речи. Тетрадь 1 (2005) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит занимательные игровые упражнения и задания, способствующие речевому и интеллектуальному развитию детей 5-6 лет с общим недоразвитием речи и соответствующие лексическим темам, изучение которых в старшей логопедической группе предусмотрено Программой коррекционного обучения и воспитания детей с общим недоразвитием речи. В соответствии с лексическими (   Читать дальше...   )Жанр: Развивающее пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD542ACF8E48A24A0E65590E57E37BB4CB38A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431180   (212309) от 21.07.2022
-
-О.В. Узорова, Е.А. Нефёдова | 3000 примеров для начальной школы [7 книг] (2018-2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ольга Узорова — знаменитый отечественный учитель, практикующий более четверти века, и автор шести тысяч пособий для малышей и школьников. Первый сборник упражнений она выпустила еще в 1992 году, составив его на основе систематизации частых ошибок учеников — для их последующего устранения. Тиражи ее изданий превышают пятьдесят миллионов экземпляров. А некоторые пособия, (   Читать дальше...   )Жанр: Обучение и развитие детей, Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945356625F5C30860AAE3E699EA4096FE5263C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

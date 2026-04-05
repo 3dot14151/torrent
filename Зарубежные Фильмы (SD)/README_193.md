@@ -1,55 +1,3 @@
-###  Публикация: 1385557   (797091) от 25.05.2020
-
-Неаполитанские мошенники / Il Ladro di Cardellini (2019) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797091.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ковбой» Паскуале, Дон Франко и парень по имени Тоторе — экстравагантное трио браконьеров, которые охотятся за певчими птицами. Их будни полны опасности и красоты — например, когда они поставляют голубей на пышные неаполитанские свадьбы. Чтобы подзаработать, они решают совершить «преступление века» и поймать очень редких и дорогих белых щеглов, но еще не знают, к (   Читать дальше...   )Производство: Италия / Minerva Pictures, Bronx Film, PFA FilmsЖанр: КомедияРежиссер: Карло ЛульоАктеры: Нандо Паоне, Эрнесто Махье, Лука Де Гильо, Вивиана Канджано, Лино Муселла ...Перевод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A01D44052091C82DB1F4D6D62C8BF94FAE0B4C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385562   (797077) от 25.05.2020
-
-Любовнички / The Lovebirds (2020) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги на грани развода во время поездки в Новый Орлеан оказываются подозреваемыми в убийстве и, чтобы спастись, теперь вынуждены работать сообща.Производство: США / Quinn's House, 3 Arts Entertainment, Media Rights CapitalЖанр: Боевик, триллер, мелодрама, комедия, криминал, детективРежиссер: Майкл ШоуолтерАктеры: Кумэйл Нанджиани, Пол Спаркс, Анна Кэмп, Исса Рэй, Кайл Борнхаймер, Джо Крест, Кеннет Кинт Брайан, Махди Коччи, Андрин Уорд-Хэммонд, Келли МуртаПеревод: Двухголосый закадровый, профессиональный (Ideafilm)Субтитры: Русские (Full), английские (Full), украинские (Ful)Продолжительность: 01:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3247D17FDED8B79B422283D6A356A874D25E87DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385682   (797068) от 25.05.2020
 
 Тёмное наследие / Inheritance (2020) WEB-DLRip H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797068.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796903.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796834.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796819.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796803.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796797.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796768.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796752.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796730.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796709.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796701.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796675.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796664.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796640.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796638.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796635.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796629.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796628.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796575.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796567.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796562.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796548.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796531.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796474.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:332E36AB666EF705CB9F91F735CC82281D736785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200239   (796255) от 20.01.2018
+
+Мечтатель / Dreamer: Inspired by a True Story (2005) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях. Отец и дочь — две одинокие души, живущие под одной крышей. Несмотря на глубокую привязанность, на самом деле они очень далеки от взаимопонимания. Но всё меняется, когда маленькая Кейл просит отца вылечить любимую лошадь. Это становится точкой отсчёта в новой истории любви и привязанности, новой жизни новой семьи и настоящей дружбы...Производство: США / DreamWorks SKG, Hyde Park Entertainment, S.K.G. Productions LLC, Tollin/Robbins Productions, Brass Hat FilmsЖанр: Драма, СемейныйРежиссер: Джон ГэйтинсАктеры: Курт Рассел, Дакота Фаннинг, Крис Кристофферсон, Элизабет Шу, Дэвид Морс, Фредди Родригес, Луис Гусман, Одед Фер, Кен ХовардПеревод: Многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0099A9E3F2A0C771199B1E213158A89E3523A372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200165   (796072) от 20.01.2018
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США / 20th Century Fox Film Corporation, Marv Films, Shangri-La EntertainmentЖанр: Боевик, Комедия, ПриключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (BD EUR)Субтитры: Русские (отдельным файлом)Продолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D29B9AED374FD2DCFBECF5B80A2486541BA56E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA Rock Ballads - Сборник (2009) [MP3|320 kbps]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873239.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Bon Jovi - Best Ballads (1997) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873233.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872981.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872847.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [MP3|320 Kbps] <S
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872722.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872683.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Tom Waits - 35 Albums (1973-2009) [MP3|320 Kbps] <Blues, Jazz, Experimental Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872232.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ozzy Osbourne - No More Tears (2021) 30th Anniversary Expanded Edition [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871226.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Grace Slick - Manhole (1973) Reissue, 2011, Retroworld [MP3 |320 Kbps] <Psychede
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870061.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Lera Lynn - Discography (2011-2019) [MP3|320 кб/с] <Folk-Rock, Independent Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868524.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Ruby the RabbitFoot - New as Dew (2014) [MP3|320 кб/с]<Indie Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867745.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Pholhas - Dead Faces (1973) Reissue CD, 2000, BMG Music Spain, S.A. [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867268.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dany Lademacher's Wild Romance - Out Of Heaven (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866697.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Unruly Child - Worlds Collide (2010) [MP3|320 кб/с] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866695.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Please - Seeing Stars (1969) Remastered, 2001, Acme Deluxe Series [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866473.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ The Rolling Stones - Hear it Like The Stones (2020) Limited Edition, 4CD Box Set
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864770.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Queen - Golden Ballads (1996) [MP3|192-320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864657.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Bob Dylan: The 30th Anniversary Concert Celebration (1993) 2CD live [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862945.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Freddy Lindquist - Menu (1970) Reissue, 2004,  Pan Records [MP3|320 Kbps] <Hard 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862918.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Best Of Pop Rock Hits 2020 [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862044.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ringo Starr - Change The World (2021) EP [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861250.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Trickster - Find The Lady (1977) 2006, Strange Days Records [MP3|320 Kbps] <Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860996.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ The Like - Release Me (2010) [MP3|~190 Kbps (V2)] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860994.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Trickster - Back To Zero (1979) 2006, Strange Days Records [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860991.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ David Bowie - ChangesNowBowie (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860384.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Paul McCartney & Wings - Wings Greatest (1978) Remastered, 2020, Paul McCartney 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860261.jpg" />
 </div>
 
 

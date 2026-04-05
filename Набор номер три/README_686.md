@@ -1,3 +1,216 @@
+###  Публикация: 1689964   (30808) от 16.01.2025
+
+День независимости / Independence Day (1996) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Extended Cut] [hand made Upscale AI]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30808.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Земле принимается сигнал, посланный источником явно неземного происхождения. Источник этот приближается, и на «уши» поднимается вся планета. Никто, правда, не ожидал, что инопланетяне окажутся такими огромными и в таком количестве.Производство: США / Twentieth Century Fox, Centropolis EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Роланд ЭммерихАктеры: Уилл Смит, Джефф Голдблюм, Билл Пуллман, Мэри МакДоннелл, Джадд Хёрш, Роберт Лоджа, Рэнди Куэйд, Маргарет Колин, Джеймс Ребхорн, Харви ФайерстинПеревод: Многоголосый профессиональный (Superbit)Язык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 02:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E619DAB891680B42F9007541643EF162CF7268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773450   (30807) от 16.01.2025
+
+Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2894 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_24h2_x64_dvd_f9b9b5d6
+ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED426F2001A7FFC96E60747041EDE67E145A6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041961   (30706) от 17.01.2025
+
+Иди и смотри (1985) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина основана на документальных фактах и обращается к «Хатынской повести» Адамовича. Авторами выбрано именно то место и те события, которые стали символом народной беды и страдания.
+Флера — шестнадцатилетний мальчишка, откопавший среди обрывков колючей проволоки, ржавых пулеметных лент и простреленных касок карабин, и отправившийся в лес к партизанам. В начале (   Читать дальше...   )Производство: СССР / Беларусьфильм, МосфильмЖанр: Драма, военныйРежиссер: Элем КлимовАктеры: Алексей Кравченко, Ольга Миронова, Любомирас Лауцявичюс, Владас Багдонас, Юри Лумисте, Виктор Лоренц, Казимир Рабецкий, Евгений Тиличеев, Александр Берда, Г. ВельцПродолжительность: 02:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9A29E2B033914DFFA688E388950E066D1F4D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773405   (30704) от 17.01.2025
+
+Золото Рио Браво: Тайна шерифа Келли / Gold of Rio Bravo (2025) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30704.jpg" />
+</div>
+
+
+###  Подробнее
+
+1874 год, Восточный Техас. Шериф Вернон Келли и бывший генерал Иван Турчин восстанавливают справедливость в небольших американских городках на границе с Мексикой. Одна из стычек с головорезами заставляет Шерифа Келли раскрыть Ивану тайну «золота Конфедерации», похищенного во время Гражданской войны в США.Производство: СШАЖанр: боевикРежиссер: Джо КорнетАктеры: Александр Невский, Керри Гудвин, Джо Корнет, Курт ЛамбертПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7B755E41B2032D2AB8AD38A4C49CFC80DB50C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631348   (30699) от 17.01.2025
+
+Укрытие / Бункер / Silo (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) Невафильм
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30699.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем выжившие 10 тысяч человек живут в огромном бункере глубиной в 144 этажа. Люди верят, что мир мёртв, воздух снаружи отравлен и выходить на поверхность смертельно опасно. Всю информацию они получают с помощью огромных экранов, на которые транслируются изображения с внешних камер. День за днём глядя на безжизненный серый пейзаж, обитатели безропотно (   Читать дальше...   )Производство: США / AMC StudiosЖанр: фантастика, драма, триллерРежиссер: Мортен Тильдум, Дэвид СемелАктеры: Ребекка Фергюсон, Иэн Глен, Кэйтлин Зоз, Уилл Пэттон, Фердинанд Кингсли, Анджела Йео, Тим Роббинс, Шэйн МакРей, Рик Гомес, Кристиан ОчоаПеревод: Дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full, SDH), английские (Full, SDH), иврит, украинскиеПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D533AD1ADDDDC7CE3C82D14755ED3F9C6361CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773498   (30691) от 17.01.2025
+
+Новосибирские инженеры создали паровой двигатель для космических аппаратов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданный двигатель малой тяги — это компактное, экологичное, полностью готовое устройство, включающее в себя теплообменник, электронику, управляющие клапаны, бак с топливом (водой), ПО для управления двигателем.Ни одно решение в мире электротермического двигателя на воде не имеет таких компактных размеров — объем 0,4 литра, габариты: 8 см диаметр и 8 см высота. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773200   (30679) от 17.01.2025
+
+Флаг на Луне: электромагнитное чудо вместо ветра
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покорение Луны – это не только посадка модуля и сбор образцов грунта. Это еще и символизм, выраженный в национальном флаге, гордо развевающемся на новом, неземном, ландшафте. Однако на Луне нет атмосферы, нет ветра, который мог бы колыхать полотнище. Перед китайскими учеными, готовящими миссию "Чанъэ-7", встала нетривиальная задача: создать флаг, который (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773576   (30613) от 18.01.2025
+
+16 самых глупых надписей на русском в иностранных фильмах
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, друзья искусства!
+Вы люди внимательные и наверняка замечали странные надписи в зарубежных фильмах. Иногда это просто смешные опечатки и неточности, иногда — абсурдные фразы, а иногда – просто набор букв на кириллице.Мне всегда было интересно: кто пишет такие «шедевры»? Что это работа продакшн-команд, которые думают: «Русские всё равно никогда не посмотрят»? (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749671   (30610) от 18.01.2025
 
 Дикий / Yabani (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-15 (37-51) из 15) Voize, AlisaDirilis
@@ -6,7 +219,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30610.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30603.jpg" />
 </div>
 
 
@@ -58,7 +271,7 @@ Ex Machina (2005) [Ru] (1.2) Repack/Mod Финиган
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30602.jpg" />
 </div>
 
 
@@ -84,7 +297,7 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.01.
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30599.jpg" />
 </div>
 
 
@@ -111,7 +324,7 @@ Windows 11 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2025.01.15 [Ru/E
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30596.jpg" />
 </div>
 
 
@@ -138,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30582.jpg" />
 </div>
 
 
@@ -164,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30503.jpg" />
 </div>
 
 
@@ -190,7 +403,7 @@ Microsoft® Windows® 11 Pro-Home Optim Lite x64 24H2 RU by OVGorskiy 01.2025
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30491.jpg" />
 </div>
 
 
@@ -216,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30403.jpg" />
 </div>
 
 
@@ -242,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30288.jpg" />
 </div>
 
 
@@ -268,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30281.jpg" />
 </div>
 
 
@@ -294,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30280.jpg" />
 </div>
 
 
@@ -320,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30279.jpg" />
 </div>
 
 
@@ -346,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30181.jpg" />
 </div>
 
 
@@ -372,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30154.jpg" />
 </div>
 
 
@@ -398,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30088.jpg" />
 </div>
 
 
@@ -424,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30086.jpg" />
 </div>
 
 
@@ -450,7 +663,7 @@ Kaspersky Free 21.20.8.505 Repack by LcHNextGen (23.01.2025) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30081.jpg" />
 </div>
 
 
@@ -461,220 +674,6 @@ Kaspersky Free – это обновление бесплатной версии
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77FF349D8BDC2DDCD26EB2F5CCB24D9486F1703B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774514   (30077) от 23.01.2025
-
-Microsoft® Windows® 11 Enterprise LTSC x64 24H2 by OVGorskiy 01.2025  [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30077.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинального образа новой версии операционной системы Windows 11 Enterprise LTSC от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: накопительные обновления и небольшой набор необходимых приложений. Сборка предназначена для тех, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD4F2281F23F296C838572082D95893DF492DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532802   (30074) от 23.01.2025
-
-Udemy, Bogdan Stashchuk | Docker - Полный курс Docker (2022) WEB-DL [RU]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс посвящен Docker
-Узнайте, КАК работает Docker, и изучите его основные функции НА ПРАКТИКЕ. Это на 90% практический курс с множеством реальных примеров использования Docker
-Узнайте, как создавать различные контейнеры, такие как Node.js, Python, NGINX, busybox, MySQL.
-Мы начнем с установки Docker на ваш компьютер — MacOS, Windows или Linux. В MacOS и Windows (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 06:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F347A2286EB9E81E941BDC9E0EFB36DEB247D3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123513   (30073) от 23.01.2025
-
-Craft The World (2014) [Ru/Multi] (1.10.005 1/dlc) License GOG (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Craft The World – уникальная стратегия-песочница, объединившая элементы Dungeon Keeper, Terraria и Dwarf Fortress. Исследуйте случайным образом сгенерированный мир, населенный опасными созданиями, стройте гномскую крепость, собирайте ресурсы и создавайте все необходимое снаряжение, оружие и доспехи.Тип издания: LicenseРазработчик: Dekovir EntertainmentЖанр: Strategy (Manage, Busin., Real-time), Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E10CA137589CBB60B356D36B8B88ABC9489AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774602   (29983) от 24.01.2025
-
-Летим  на Марс всего за 45 дней
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания General Atomics Electromagnetic Systems (GA-EMS) только что достигла важного рубежа, который может изменить будущее освоения космоса.Компания успешно испытала ядерное топливо, которое однажды может радикально сократить время путешествия на Марс и дальше. Испытания показали, что топливо может выдерживать суровые условия ядерного теплового реактора.Другими (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675015   (29968) от 24.01.2025
-
-The Invincible (2023) [Ru/Multi] (1.6.1) License GOG [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29968.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Invincible представляет собой приключенческую игру с видом от первого лица. Проект использует антураж ретрофутуризма и отсылает к космической гонке между США и СССР в 20 веке. Тайтл выполнен в сеттинге атомпанка. Он может понравиться тем, кто любит атмосферу научно-фантастических триллеров. В основу нелинейного сюжета The Invincible лег роман "Непобедимый" (   Читать дальше...   )Тип издания: LicenseРазработчик: Starward IndustriesЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий,  Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий,  Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2ABA7F7574E543AD018E02B35E630B13B9574A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774892   (29870) от 25.01.2025
-
-Google оспорил в суде российский штраф в два ундециллиона рублей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технологическая корпорация Google оспорила в Международном арбитражном суде в Великобритании российский штраф в 2 ундециллиона рублей, взыскание признано неправомерным, сообщает издание Android Authority.
-Суд охарактеризовал действия России как "согласованную стратегию международного принуждения"."Суд постановил, что Google не обязан платить российский (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775224   (29866) от 25.01.2025
-
-Анора / Anora (2024) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бруклин. Стриптизерша Анора, предпочитающая имя Эни, знакомится с сыном русского олигарха Ваней, который проводит всё время в вечеринках и развлечениях. Вскоре парень выкупает время Эни на неделю, предлагает слетать в Вегас, а там молодые люди спонтанно женятся. Узнав об этом из газет, родители Вани приходят в ярость и срочно вылетают из России в США, а разобраться (   Читать дальше...   )Производство: США / Cre Film, FilmNation EntertainmentЖанр: драма, мелодрама, комедияРежиссер: Шон БэйкерАктеры: Майки Мэдисон, Марк Эйдельштейн, Юра Борисов, Карен Карагулян, Ваче Товмасян, Алексей Серебряков, Дарья Екамасова, Линдси Нормингтон, Пол ВайсманПеревод: Дублированный, Многоголосый закадровый, АвторскийЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full)Продолжительность: 02:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23215F7C3092DB48C9AB872CF73666797D5DA40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774449   (29864) от 25.01.2025
-
-Launcher for zapret 1.5 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
-Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
-На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B53C799A601F5421FD1BD71590346E9AAEE19F
 ```
 
 https://mybot314.ru/tekegram_catalog/

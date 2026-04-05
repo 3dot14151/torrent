@@ -6,7 +6,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859301.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858664.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856820.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856814.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853512.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851806.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850985.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845777.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844631.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Mindvalley, Джим Квик | Скорочтение (2021) WEBRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840944.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837923.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835711.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835693.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832831.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829541.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816947.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815253.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813076.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Mindvalley, Джим Квик | Скорочтение (2021) WEBRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811533.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809483.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Numerolog club, Анастасия Данилова | Цвета и цифры: 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798425.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797750.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ top3travel | Путешествие в Лаос (2015) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793368.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ top3travel | Самостоятельное путешествие в Мьянм
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793365.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ top3travel | Самостоятельное путешествие в Малай
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793315.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ top3travel | Путешествие на Филиппины (2014) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793313.jpg" />
 </div>
 
 

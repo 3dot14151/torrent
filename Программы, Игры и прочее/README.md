@@ -1,4 +1,115 @@
 https://t.me/izofen
+###  Публикация: 1863433   (1063990) от 
+
+CYBERPORTAL // X  1.0.2 Mod by STR_BYPASS [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063990.jpg" />
+</div>
+
+
+###  Подробнее
+
+CYBERPORTAL // X  — PORTAL WG ⚙️ + CONNECT ⚡️ + DPI 🕶
+больше не разбросаны по разным приложениям —
+они слились в единый, цельный инструментТип издания: FreeПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0142C84A905871E72161B97A66F53F4706EC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862666   (1063945) от 
+
+CYBERPORTAL // X  1.0.1 Mod by STR_BYPASS [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063945.jpg" />
+</div>
+
+
+###  Подробнее
+
+CYBERPORTAL // X  — PORTAL WG ⚙️ + CONNECT ⚡️ + DPI 🕶
+больше не разбросаны по разным приложениям —
+они слились в единый, цельный инструментТип издания: FreeПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93E67114D431066BAAE1D2E48FD7A044F2BBEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863194   (1063936) от 
+
+Яндекс Музыка, Книги, Подкасты PLUS 2026.03.4
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Яндекс Музыка на андроид с активированной подпиской дает возможность бесплатного доступа к музыкальному контенту без ограничений. Пользователи свободно могут слушать свои любимые треки, а так же создавать плейлисты и скачивать музыку без какой либо оплаты подписки.Тип издания: ModРелиз состоялся: 18.03.2026Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863684CB6DA6AF4FB8BE8C7D5FC7E848F54AA22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862517   (1063282) от 
+
+TuDiziPlay / Просмотр турецких сериалов 1.1.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063282.jpg" />
+</div>
+
+
+###  Подробнее
+
+📖 О проекте
+TuDiziPlay — это легкое и быстрое приложение с чистым интерфейсом для тех, кто любит турецкий кинематограф. Мы собрали удобный каталог с быстрым поиском, чтобы вы могли смотреть любимые серии сразу после их выхода.
+
+Проект оптимизирован для работы на любых экранах: от маленьких телефонов до больших телевизоров с управлением от пульта.(   Читать дальше...   )Тип издания: FreeРелиз состоялся: 30.03.2026Разработчик: almazheadПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F4EF60628BBEA6A97429D514C09AFB419579BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862217   (1062944) от 
 
 Opera Proxy для Android 3.0.13 [Ru]
@@ -7,7 +118,7 @@ Opera Proxy для Android 3.0.13 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062944.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ Rosetta Stone: Изучение языков 9.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062491.jpg" />
 </div>
 
 
@@ -59,7 +170,7 @@ Opera Proxy для Android 3.0.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062309.jpg" />
 </div>
 
 
@@ -85,7 +196,7 @@ Solid Explorer File Manager v3.4.2 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062074.jpg" />
 </div>
 
 
@@ -114,7 +225,7 @@ Grok - ИИ ассистент v1.1.44-release.01 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062073.jpg" />
 </div>
 
 
@@ -140,7 +251,7 @@ PictureThis - Plant Identification v5.22.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062072.jpg" />
 </div>
 
 
@@ -166,7 +277,7 @@ OsmAnd+  Карты & GPS Офлайн v5.3.0 Mod by Balatan [Ru/Multi]
 >>Навигация для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062069.jpg" />
 </div>
 
 
@@ -192,7 +303,7 @@ Smart Tools v2.1.17a mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062068.jpg" />
 </div>
 
 
@@ -218,7 +329,7 @@ Vanced Tube v5.5.80.529 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062067.jpg" />
 </div>
 
 
@@ -244,7 +355,7 @@ Remini / Улучшение Фото v3.7.1301.202520225 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062063.jpg" />
 </div>
 
 
@@ -270,7 +381,7 @@ Call Filter / Фильтр Звонков v1.33.8 Mod by FreeSoftware [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062062.jpg" />
 </div>
 
 
@@ -296,7 +407,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.4 Mod by baalajimaestro  [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061970.jpg" />
 </div>
 
 
@@ -322,7 +433,7 @@ NewPipe v0.28.4 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061969.jpg" />
 </div>
 
 
@@ -348,7 +459,7 @@ Photo Editor v12.7.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061965.jpg" />
 </div>
 
 
@@ -374,7 +485,7 @@ Photo Editor v12.7.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061964.jpg" />
 </div>
 
 
@@ -400,7 +511,7 @@ Moon+ Reader Pro v10.5 (b1005002) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061920.jpg" />
 </div>
 
 
@@ -426,7 +537,7 @@ Gaia GPS (Topo Maps) v2026.2 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061919.jpg" />
 </div>
 
 
@@ -452,7 +563,7 @@ AIDA64 v2.19 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061588.jpg" />
 </div>
 
 
@@ -478,7 +589,7 @@ Magic Eraser / Магический ластик v3.1.21 Mod by Maximoff⁠ [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061587.jpg" />
 </div>
 
 
@@ -504,7 +615,7 @@ Smart Tools 2 v1.2.5 Mod by TryRoon [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061586.jpg" />
 </div>
 
 
@@ -530,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061585.jpg" />
 </div>
 
 
@@ -556,7 +667,7 @@ Magic Eraser / Магический ластик v3.1.18 Mod by Maximoff⁠ [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061193.jpg" />
 </div>
 
 
@@ -567,113 +678,6 @@ Magic Eraser - это революционное приложение для р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2DD818F11834414CB55AE44F19084921D002210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859305   (1061192) от 
-
-Открытки на каждый день и GIF v4.7 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые открытки, поздравления на все случаи жизни и любой повод. Вы сможете выбрать готовую открытку или приложение поможет вам создать открытку самостоятельно. Прикольные открытки и GIF анимация помогут вам поздравить родных и близких на любой праздник и по любому случаю жизни. Поздравляйте с днем рождения и юбилеем, днем ангела, именинами и другими важными событиями (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.03.2026Разработчик: WutappПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D23C22B4D86431B5AA5AE409628D05AF48E4672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859296   (1061191) от 
-
-Folder Player Pro v5.38 b368 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Folder Player Pro - это ориентированный на каталоги и файлы музыкальный mp3-плеер, являющийся более продвинутой версией своего популярного бесплатного аналога. Это приложение обеспечивает простоту использования с удобным управлением. Здесь не нужно создавать или добавлять плейлисты, достаточно выбрать папку содержащую аудиофайлы, чтобы запустить проигрывание. А учитывая (   Читать дальше...   )Тип издания: Paid (купленная Pro с Маркета)Релиз состоялся: 15.03.2026Разработчик: Peter ShashkinПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B57A05E45CEB9A74D713F856B89D882E628189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859369   (1061189) от 
-
-Справочник электрика v4.0.2 (309) Mod by vadj  [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для всех тех, чья деятельность связана с электричеством. Для профессионалов и любителей. Данное приложения является своеобразным трамплином для дальнейшего изучения электротехники.
-В приложении присутствуют 4 категории:
-1. Теория
-2. Схемы(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 07.02.2026Разработчик: SergeiVПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAC93CF22E5C13529EF878334CD4ADC90BC1012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859294   (1061188) от 
-
-Plus Messenger (Telegram+)  v12.5.1.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.03.2026Разработчик: rafalenseПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71FA5F2E435772DD95153CD80A1802E89CFA231
 ```
 
 https://mybot314.ru/tekegram_catalog/

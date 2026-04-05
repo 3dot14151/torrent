@@ -1,81 +1,3 @@
-###  Публикация: 1230057   (842342) от 05.10.2021
-
-И.Г. Песталоцци | Избранные педагогические произведения [3 тома] (1961-1965) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник избранных педагогических произведений И.Г. Песталоцци включает известные сочинения и ряд ранее не переводившихся на русский язык работ и писем, проливающих яркий свет на жизнь и педагогическое творчество педагога-демократа. Трехтомное издание не может, разумеется, претендовать на полноту. В нем будет дана лишь некоторая, весьма небольшая часть произведений, (   Читать дальше...   )Жанр: История, искусство, педагогикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0A02AC18268DC7FABABA12477CAABCEE276936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003891   (841696) от 04.04.2016
-
-Пётр I (ред.) | Азбука гражданская (1710) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841696.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представленна знаменитая "Гражданская азбука" с исправлениями Петра I и его собственноручной записью на внутренней стороне верхней крышки переплета: «Сими литеры печатать исторические и манифактурныя книги. А которыя подчернены, техЖанр: АзбукаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4538DA5D2863759BC5F9BAE6AD115C21114A29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112860   (841353) от 09.03.2017
-
-Мануэль Кастельс | Власть коммуникации (2016) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга одного из крупнейших социологов современности Мануэля Кастельса, известного российскому читателю по опубликованным ранее произведениям, представляет собой поистине энциклопедию "работы" власти в современном пронизанном медиа мире. Автор дает практически исчерпывающее представление как о современном политическом процессе, существующем только через (   Читать дальше...   )Жанр: Политика. Избирательные технологии. ВыборыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E605A7D44605BFE529E112331534FE97A7D293CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379211   (841204) от 28.04.2020
 
 М. М. Кузнецов | Литература и антилитература [Литература для масс и «массовая» литература] (1975) [DJVU, PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841204.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841095.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840972.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840855.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840318.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840190.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838544.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838413.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838388.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838296.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838293.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837683.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836609.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833039.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832084.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832083.jpg" />
 </div>
 
 
@@ -513,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831745.jpg" />
 </div>
 
 
@@ -539,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831346.jpg" />
 </div>
 
 
@@ -565,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831191.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831070.jpg" />
 </div>
 
 
@@ -619,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831068.jpg" />
 </div>
 
 
@@ -645,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831064.jpg" />
 </div>
 
 
@@ -671,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830054.jpg" />
 </div>
 
 
@@ -682,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53CD5E32E305C50A095DFE37954846B8C003CC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416909   (829891) от 13.10.2021
+
+Виталий Шаповалов | Методы психологической оценки достоверности сообщаемой информации (2016) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829891.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем методическом пособии представлен обзор зарубежных психологических методик, используемых в целях психологической оценки достоверности сообщаемой информации или так называемой неинструментальной детекции лжи. Данные методики активно используются в разных странах экспертами-психологами, сотрудниками полиции, службами безопасности предприятий, полиграфологами, (   Читать дальше...   )Жанр: Психология, ПолиграфияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26D49A43B1B69113E297D9E362ADE2C0458FF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380923   (829515) от 05.05.2020
+
+Франц Оппенгеймер | Государство: переосмысление (2020) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829515.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Государство» (нем. Der Staat) — книга немецкого социолога Франца Оппенгеймера, впервые опубликованная в Германии в 1907 году. Франц Оппенгеймер написал книгу «Государство» как часть, вошедшую во второй том в 1925 году, своей фундаментальной четырехтомной работы «Система социологии» (нем. System der Soziologie), предназначенной для интерпретации принципов организации (   Читать дальше...   )Жанр: Юридическая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329096A0979961E4EF9B4E517D4A6B1F7F8EFA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380931   (829514) от 05.05.2020
+
+Фрэнк Ходоров | Налог: корень зла (2019) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Ходоров был экстраординарным мыслителем и писателем, очень влиятельным в 1950-х годах в США. В книге «Налог: корень зла» он обосновывает, что налоги на прибыль отличаются от других форм налогов, поскольку они отрицают право частной собственности на прибыль и предполагают дальнейший государственный контроль над всеми остальными частными благами. Ходоров утверждает, (   Читать дальше...   )Жанр: Экономическая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF49BC24140A738992108547195D712514BF70B
 ```
 
 https://mybot314.ru/tekegram_catalog/

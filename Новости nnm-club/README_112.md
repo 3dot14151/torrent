@@ -1,3 +1,31 @@
+###  Публикация: 1029711   (677756) от 28.06.2016
+
+Udemy.com | IT Безопасность Для Начинающих 2.0 : Сертифицированный Курс По Взлому (2015) PCRec [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сетевая и IT Безопасность это не шутки. В считанные секунды хакеры могут получить доступ к вашей сети и просмотреть файлы, аккаунты, и даже украсть вашу личность. Этот курс создан для того, чтобы познакомить Вас с концепциями и реальными тактиками, которыми пользуются хакеры, чтобы вы смогли защитить себя и вашу сеть.
+
+По мимо того что этот курс включает в себя пошаговые (   Читать дальше...   )Жанр: IT БезопасностьПродолжительность: 10:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1BCCB06A0ED90AD4F351DEDB8EA5E57AB8A8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631181   (677619) от 07.07.2013
 
 Злые птички / Angry Birds Toons (2013) SATRip (1 сезон, серий 16 из 52)
@@ -6,7 +34,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677619.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Facebook начал ранжировать СМИ по рейтингу дост
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_676870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676870.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Kaspersky Internet Security 2019 19.0.0.1088 (Technical Release) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676742.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676737.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676630.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ Autodesk AutoCAD Architecture 2016 7.8.44.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676621.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676164.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_675979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_675979.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ AMD подтвердила, что её процессоры не подверж
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675844.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675826.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675739.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ Linux Mint 18 Sarah (Mate, Cinnamon) [32bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675705.jpg" />
 </div>
 
 
@@ -319,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675617.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675613.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675482.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674927.jpg" />
 </div>
 
 
@@ -425,7 +453,7 @@ Space Engineers Deluxe Edition (2013) [Ru/Multi] (01.186.5) License [Steam Early
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674911.jpg" />
 </div>
 
 
@@ -451,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674850.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ NVIDIA GeForce Desktop 352.86 WHQL + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674671.jpg" />
 </div>
 
 
@@ -503,7 +531,7 @@ Adobe Photoshop CC 2014.2.2 (20141204.r.310) Registered & Unattended RePack by a
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674546.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674539.jpg" />
 </div>
 
 
@@ -555,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674206.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674037.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673798.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ Final Cut Pro X 10.4.6 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673709.jpg" />
 </div>
 
 
@@ -651,32 +679,6 @@ Final Cut Pro X включает основные функции аудиомо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF1B45362871F45156A7C6B01FD9B51C9526A937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966270   (673705) от 22.03.2019
-
-Жертвуя пешкой / Pawn Sacrifice (2014) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673705.jpg" />
-</div>
-
-
-###  Подробнее
-
-В разгар Холодной войны внимание всей планеты приковано к «схватке столетия» — матчу за звание чемпиона мира по шахматам в Рейкьявике. Бой между абсолютным чемпионом Борисом Спасским и по-настоящему одержимым игрой Бобби Фишером превращается в борьбу за интеллектуальное превосходство двух сверхдержав. Права на проигрыш нет. Вокруг поединка разражается мировой скандал. (   Читать дальше...   )Производство: США, Gail Katz Productions, Palm-Star EntertainmentЖанр: Драма, БиографияРежиссер: Эдвард ЦвикАктеры: Тоби Магуайр, Лив Шрайбер, Робин Вайгерт, Лили Рэйб, Питер Сарсгаард, Майкл Стулбарг, Софи Нелисс, Эвелин Брошу, Шеймас Дэви-Фицпатрик, Лидия ЗеделПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3534932FB5347F5984CE61DA83864851853FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

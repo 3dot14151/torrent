@@ -6,7 +6,7 @@ Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708997.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Diana Krall - Turn Up The Quiet (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708552.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chico Hamilton - El Chico & The Further Adventures Of El Chico (1965/1966) 2011,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708294.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Phil Woods - Voyage (2001) Chiaroscuro Records[FLAC|Lossless|image + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708293.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sonny Stitt & Hank Jones - The Complete Original Quartet Recordings (1955, 1957,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708246.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Fredrik Kronkvist - Afro-Cuban Supreme (2017) Connective Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708245.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dusko Gojkovic - Belgrade Blues (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708244.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Phil Sheeran - Orchid (1998) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708215.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Cannonball Adderley Quintet - Mercy, Mercy, Mercy!: Live At “The Club” (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708212.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Frank Sinatra, Dean Martin, Sammy Davis Jr. - The Clan In Chicago (1994) Live At
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708017.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Frank Sinatra - Blue Skies (1995) Series Success [APE|Lossless|image + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707938.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Toots Thielemans - Four Classic Albums (1957 - 1961) 2016, 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707705.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Arne Domnerus & Rolf Ericson - 1950 - 1951 (2003) Dragon Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707432.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Liane Foly - Crooneuse (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707387.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Arne Domnerus Group - Jazz At The Pawnshop 2 (1976) 1991, Proprius [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707373.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tyrone Brown String Sextet - Song Of The Sun (2000) Naxos Jazz [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707355.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kenny Rankin - Professional Dreamer (1995) [FLAC|Lossless|image + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707328.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Art Farmer - The Complete Albums Collection 1961-1963 (2016) 4CD, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707322.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Carlo Actis Dato - The Moonwalker (2001) Leo Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707317.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Monica Chapman - Small World (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707292.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Chris Camozzi - Windows Of My Soul (1996) [FLAC|Lossless|image + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707156.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Miles Davis - Live In Stockholm (1960) 2001, Jazz & Traz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707141.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Miles Davis - 1958 Miles (2001) Remaster, Sony Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707133.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Phil Perry - Breathless (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, R'n'B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707084.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Joe Van Enkhuizen & Horace Parlan - Ellington Ballads (1988) Remaster, 2015, Sol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706245.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Masabumi Kikuchi Trio - Feel You (1993) Remaster, 2015, King Record[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706243.jpg" />
 </div>
 
 

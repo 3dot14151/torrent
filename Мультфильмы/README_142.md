@@ -1,3 +1,133 @@
+###  Публикация: 1403824   (688028) от 21.08.2020
+
+Тролли. Мировой тур / Trolls World Tour (2020) DVD9 [Custom]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поп-тролли в шоке – оказывается, мир музыки гораздо больше, чем они думали. Рейвы, оупен-эйры, классические концерты и, конечно, хип-хоп баттлы – впереди их ждет головокружительное веселье. Но неудержимая королева Рокс планирует уничтожить всё, чтобы миром безоговорочно правил хард-рок! Розочка, Цветан и их новые друзья отправляются в невероятное путешествие: им (   Читать дальше...   )Производство: США / Universal Pictures, DreamWorks AnimationЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Уолт Дорн, Дэвид П. СмитПеревод: Дублированный (лицензия)Субтитры: Русские, английские, итальянскиеПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68B1362E51A379E85467482CF19C9C0300E3782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289358   (687995) от 15.03.2019
+
+Смывайся! / Flushed Away (2006) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родди – привилегированная крыса, живущая жизнью любимого домашнего животного в престижном пентхаусе. Однажды засорившаяся раковина "выплевывает" в квартиру канализационную крысу Сида, которому приходятся по душе роскошные апартаменты. Чтобы избавиться от надоедливого гостя, Родди решает смыть его в унитаз, но житель канализации не такой простак, каким кажется, (   Читать дальше...   )Производство: США, DreamWorks Animation, Aardman FeaturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дэвид Бауэрс, Сэм ФэллПеревод: Дублированный, профессиональный двухголосый закадровыйСубтитры: Русские (форсированные, полные), украинские, английские (полные, для слабослышащих)Продолжительность: 01:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE14C22566C2B9EAB6509913A0A5C4730356461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791301   (687601) от 13.06.2014
+
+Лего. Фильм / The Lego Movie (2014) BDRemux 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная лего-фигурка соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / Animal Logic, LEGOЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Фил Лорд / Phil Lord, Кристофер Миллер / Christopher MillerАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Крэйг Берри, Элисон Бри, Дэвид Берроуз, Энтони ДэниелсПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (SDH)Продолжительность: 01:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C889CA9F1B6C1AEE5499BF22732F85CDC5C74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334799   (687502) от 10.05.2011
+
+Про черепаху (1980) DVD
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рисованая анимация, КороткометражныйРежиссер: Александр ГорленкоПродолжительность: 00:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3C18D9D32F04540E20BD0F2EF4C283849E1689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791123   (687462) от 13.06.2014
+
+Лего. Фильм / The Lego Movie (2014) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная лего-фигурка соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / Animal Logic, LEGOЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Фил Лорд / Phil Lord, Кристофер Миллер / Christopher MillerАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Крэйг Берри, Элисон Бри, Дэвид Берроуз, Энтони ДэниелсПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (full, SDH, SDH-colored)Продолжительность: 01:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374B5205510F2D2ACA72333AEB6D6D6BC4377465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506830   (687396) от 06.06.2012
 
 Эдит и я / Technotise - Edit i ja (2009) [720p]  BDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687396.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687284.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687200.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687151.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687055.jpg" />
 </div>
 
 
@@ -139,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686590.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686588.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686439.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686160.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686026.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686012.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685759.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685653.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685515.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685448.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685427.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685404.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685380.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685264.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685209.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685125.jpg" />
 </div>
 
 
@@ -540,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64BCFA365B4492355B14E1513E9A4010054266B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507347   (684999) от 07.06.2012
-
-Кошкин дом (1958) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жила-была Кошка на свете. И жила она не так, как другие кошки: спала не на рогожке, а в уютной спаленке. И был у нее самый настоящий Кошкин дом. Однажды кошка не пустила несчастных котят, которые попалив беду. А вот когда с ней случилось несчастье, котята приютили ее…Жанр: Мультфильм, короткометражка, мюзикл, семейныйРежиссер: Леонид АмальрикПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00F43C80FE25DBA93B463EB5EE0414E72FBACCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 212399   (684655) от 25.06.2010
-
-Даша следопыт: Город Потерянных Игрушек / Dora the Explorer: City of Lost Toys (2006) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_684655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселый учебный мультик для детей от 2х лет. Даша – маленькая испанская школьница, которая вместе со своим другом обезьянкой Башмачком в игровой форме учат наших детей арифметике и английскому, наблюдательности и внимательности, вежливости и этикету.Жанр: Рисованая анимация, Детский, ПриключенияРежиссер: Джон Мэдден, Гари КонрадПерсонажи: Даша, Диего, Башмачок, Карта и др.Перевод: Полный дубляж, вкл. песни; ОригинальныйПродолжительность: 01:30:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404072   (684391) от 23.08.2020
-
-Охота на лис / The Fox Hunt (1931) DVDRip [H.264] [hand made colored] [EN sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утро в английской деревне, и дворянам пора заняться своим любимым видом спорта: охотой на лис. Эксцентричные джентльмены бывают самых разных форм и размеров, а толстые создают наибольшую нагрузку на лошадей. С охотниками с моноклем происходят самые безумные вещи. Одного даже сбивают с ног, когда лошадь перепрыгивает через кирпичную стену. Он вылетает высоко в небо (   Читать дальше...   )Производство: США, Walt DisneyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Уилфред ДжексонПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: вшитые отключаемые, английскийПродолжительность: 00:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B85BD3BC1E784F2053BF337A67189115823514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404188   (683860) от 23.08.2020
-
-Лило и Стич / Lilo & Stitch (2002) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лило – это маленькая девочка, живущая на Гавайах. Она сирота и живет вместе со своей старшей сестрой Нани. Лило любит всех животных, но больше всего она подружилась с собачкой по имени Стич, которая на самом деле совсем не собачка, а – замаскированный инопланетянин.Производство: США / Walt Disney Pictures, Walt Disney Animation Studios, Walt Disney Feature Animation FloridaЖанр: мультфильм, фантастика, фэнтези, драма, комедия, приключения, семейныйРежиссер: Дин ДеБлуа, Крис СандерсПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9F762E1F0B783028899A3D7ECD1B21BDAACEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324636   (683824) от 07.03.2022
-
-Мегамозг / Megamind (2010) [1080p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегамозг — самый гениальный и самый неудачливый злодей в мире. Вот уже много лет он пытается покорить Метро-Сити самыми разнообразными способами. Но каждая такая попытка кончается провалом по вине супергероя по имени Метро-Мэн. Но злодей убивает супергероя, и внезапно Мегамозг лишается цели в жизни. Суперзлодей без супергероя. Единственный выход — создать нового (   Читать дальше...   )Жанр: Комедия, семейный, мультфильмРежиссер: Том МакГрат / Tom McGrathПеревод: Дублированный (Blu-Ray CEE)
-Профессиональный многоголосый (BBC Saint-Peterburg)Язык субтитров: Русские (Forced, Full, SDH), украинские (Forced, Full), английские (Full, Commentary)Продолжительность: 01:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF94A904B8E8B811DA60F9406E9F4075134E8082
 ```
 
 https://mybot314.ru/tekegram_catalog/

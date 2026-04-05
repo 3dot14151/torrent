@@ -1,3 +1,29 @@
+###  Публикация: 1652505   (194486) от 11.08.2023
+
+Сердце Стоун / Heart of Stone (2023) WEB-DL [H.264/1080p] [EN / RU, EN, UKR and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оперативник разведки теневого глобального миротворческого агентства должен помешать хакеру украсть его самое ценное и опасное оружие.Производство: США / Dune Films, Mockingbird Pictures, NetflixЖанр: боевик, триллер, криминалРежиссер: Том ХарперАктеры: Галь Гадот, Лу Сыцзин, Джейми Дорнан, Пол Рэди, Энцо Чиленти, Joe Reisig, Лука Фьяменги, Алиа Бхатт, Маттиас Швайгхёфер, Томас АрнольдПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, украинские и др. (см. MI)Продолжительность: 02:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79038A50998B1209C82EF805573790D5D728B764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655305   (193797) от 25.08.2023
 
 Мег 2: Бездна / Meg 2: The Trench (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193797.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193642.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193550.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193053.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192538.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192514.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192283.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191936.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191522.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191253.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189599.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188351.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187883.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187656.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187646.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187147.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187079.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187014.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186089.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185142.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ The Fanimatrix: Run Program (2003) WEBRip [H.264/720p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185103.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185085.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ THE FANIMATRIX: Run Program (2003) WEBRip [H.264/1080p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185016.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184309.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181762.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8FD94C243AA0553D80B07A7399DE31CA5C02CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593113   (181466) от 25.11.2022
-
-Стражи Галактики: Праздничный спецвыпуск / The Guardians of the Galaxy Holiday Special (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стражи Галактики отмечают Рождество и отправляются на Землю, чтобы отыскать идеальный подарок для Питера Квилла.Производство: США / Marvel StudiosЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джеймс ГаннАктеры: Крис Пратт, Пом Клементьефф, Дэйв Батиста, Брэдли Купер, Вин Дизель, Карен Гиллан, Шон Ганн, Кевин Бейкон, Мария Бакалова, Майкл РукерПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH), китайские, чешские и др.Продолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9AB7AD09CFEC8E666A601946CED77B8809C6E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

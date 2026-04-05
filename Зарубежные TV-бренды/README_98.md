@@ -6,7 +6,7 @@ Discovery: Невидимые миры. Вода / Invisible Worlds. Water (2010
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285723.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ BBC. Российская империя: Династия Романовых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284205.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC: Забытые британские рабовладельцы / Britain's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283892.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283738.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Discovery Channel Россия. Техногеника. Русский колл�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282185.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281922.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BBC: Частная жизнь шедевров. "Свобода на барри
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281671.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BBC. Великая битва Александра Македонского / A
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281081.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG. Ледяная дорога: Кошмар на дороге! / Ice Road Resc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280993.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280645.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280117.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280115.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280011.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ NGW. Выжить в дикой природе / Survive the Wild(2016) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279455.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2018) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279030.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278768.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Discovery. Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278753.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278699.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278363.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Discovery. Танк на Луне / Tank on the Moon (2008) PDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_278293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_278293.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTV [H.264/720p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278274.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277176.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276933.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Discovery: Опасная миссия: Хаббл / Mission Critical: Hubble (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276929.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276850.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ NG: Древние греки / The Greeks (2016) HDTVRip (Серии 1-3 из 3
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276271.jpg" />
 </div>
 
 

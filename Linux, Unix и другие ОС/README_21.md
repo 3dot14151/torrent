@@ -1,31 +1,3 @@
-###  Публикация: 567627   (395719) от 30.10.2012
-
-Santoku (Безопасность, хакинг мобильных устройств) 0.30 alpha [x86] (1xDVD)
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Santoku дистрибутив основанный на Ubuntu и предназначен для анализа безопасности/хакинга мобильных устройств.
-
-В его составе: средства разработки такие как Android SDK Manager, AXMLPrinter2, Fastboot, Heimdall, Heimdall (GUI), SBF Flash; инструменты работы с беспроводными сетями: Chaosreader, dnschef, DSniff, TCPDUMP,  Wireshark, Wireshark (от Root) и многие другие стандартные средства анализа безопасности.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717113   (391722) от 31.10.2013
 
 Manjaro Linux 0.8.7.2 (Arch + KDE) [i686, x86-64] 2xDVD
@@ -34,7 +6,7 @@ Manjaro Linux 0.8.7.2 (Arch + KDE) [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391722.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391147.jpg" />
 </div>
 
 
@@ -90,7 +62,7 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391095.jpg" />
 </div>
 
 
@@ -118,7 +90,7 @@ Debian Live GNU/Linux 9.2.0 + nonfree Stretch [amd64] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390360.jpg" />
 </div>
 
 
@@ -146,7 +118,7 @@ Tor Browser 2.3.25-14 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389299.jpg" />
 </div>
 
 
@@ -172,7 +144,7 @@ KDE neon 5.11 (20171011) [x86-64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388720.jpg" />
 </div>
 
 
@@ -198,7 +170,7 @@ Antergos 18.10 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387331.jpg" />
 </div>
 
 
@@ -224,7 +196,7 @@ Debian GNU/Linux 9.2.1 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380510.jpg" />
 </div>
 
 
@@ -252,7 +224,7 @@ elementary OS 5.1.6 Hera [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380471.jpg" />
 </div>
 
 
@@ -278,7 +250,7 @@ Debian GNU/Linux 9.2.1 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380328.jpg" />
 </div>
 
 
@@ -306,7 +278,7 @@ elementary OS 5.1.7 Hera [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377982.jpg" />
 </div>
 
 
@@ -332,7 +304,7 @@ Lubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376882.jpg" />
 </div>
 
 
@@ -360,7 +332,7 @@ Xubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376738.jpg" />
 </div>
 
 
@@ -386,7 +358,7 @@ Arco Linux 18.10.4 [x86_x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374738.jpg" />
 </div>
 
 
@@ -412,7 +384,7 @@ Manjaro Linux 0.8.7.1 Легкий дистрибутив: Arch + E17 [i686, x86
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374545.jpg" />
 </div>
 
 
@@ -440,7 +412,7 @@ antiX Linux 19.2 Hannie Schaft [full] [i386, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371333.jpg" />
 </div>
 
 
@@ -466,7 +438,7 @@ MANJARO KDE JUHRAYA 18.1.0 [i386, x86-64] 1xDVD (2019-09-12)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367527.jpg" />
 </div>
 
 
@@ -492,7 +464,7 @@ Ubuntu ServerPack 20.04 (сентябрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366933.jpg" />
 </div>
 
 
@@ -519,7 +491,7 @@ MANJARO GNOME JUHRAYA 18.1.0 [i386, x86-64] 1xDVD (2019-09-12)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365234.jpg" />
 </div>
 
 
@@ -545,7 +517,7 @@ MANJARO XFCE JUHRAYA 18.1.0 (2019-09-12) 18.1.0 [i386, x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365099.jpg" />
 </div>
 
 
@@ -571,7 +543,7 @@ Parted Magic 2020.10.12 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362064.jpg" />
 </div>
 
 
@@ -597,7 +569,7 @@ Mageia 4 Beta I [i586, x86-64] 6xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360112.jpg" />
 </div>
 
 
@@ -631,7 +603,7 @@ Sabayon 15.11 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357710.jpg" />
 </div>
 
 
@@ -657,7 +629,7 @@ SUSE Linux Enterprise 12 SP2 (Server and Desktop) [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356228.jpg" />
 </div>
 
 
@@ -683,7 +655,7 @@ Aget 0.4.1 [i386, amd64] (deb + src)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355372.jpg" />
 </div>
 
 
@@ -695,6 +667,32 @@ Aget скачивает HTTP-ссылки способом, подобным wge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E811C0CD6915E6A0DA9C11D910766C568AE7C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256550   (351572) от 23.10.2018
+
+Runtu 18.04 Xfce [x86_x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышла 64-разрядная версия дистрибутива Runtu XFCE 18.04, основанная на пакетной базе релиза  Bionic Beaver 18.04.3 LTS. Дистрибутив собран с помощью debootstrap, установлена базовая система и рабочее окружение XFCE 4.12. В состав ПО включены средства для воспроизведения аудио- и видео-файлов, офисный пакет LibreОffice 6.0.6.2, графический редактор Gimp 2.10.6, подсистема (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7360EEC4E9B640C461970E1B2B6DA585DD361D
 ```
 
 https://mybot314.ru/tekegram_catalog/

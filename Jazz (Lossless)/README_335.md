@@ -6,7 +6,7 @@ Glenn Gatsby - Mission Prohibition (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103906.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sonny Stitt - Stitt's Bits: The Bebop Recordings (1949 - 1952) 3CD, 2006, Presti
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103878.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Erotica - Serene Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103872.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jeanie Lambe And The Danny Moss Quartet - The Blue Noise Session (1999) Nagel He
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103859.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chick Corea / Miroslav Vitous - Tones for Joan's Bones & Mountain in the Clouds 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103858.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John Scofield - Live (1977) 2020, Solid [FLAC|Lossless|tracks + .cue] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103814.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cannonball Adderley - Burnin' In Bordeaux: Live In France (1969) 2CD, 2024, Elem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103798.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Heavy Hitters - The Heavy Hitters (2023) Cellar Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103782.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Ai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103766.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Charles Mingus - Something Like A Bird (1978) 2013, Atlantic [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103728.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ted Heath & His Music - Swing Is King! (1992) Limelight [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103726.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Jihee Heo - Flow (2024) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Pia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103723.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Herbie Hancock / Lionel Hampton - Nightlife Late Night (2000) Direct Source Spec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103705.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Ted Heath And His Music - Fever (1965) 1985, London Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103704.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Joe Pass - True Virtuoso (2005) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103703.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Summer Bossa Nova (Relaxing Brazilian Jazz Bossa) (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103684.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103662.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103661.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Nu Acid Jazz Party For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103660.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - It's A Groovy Thing! Vol.5 (The Amazing Jazz Funk Afro Sound) (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103658.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Funky Afro Jazz Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103656.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Funky Jazz Saxophone (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103655.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Just Jazz (Luxurious Smooth Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103654.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Dinner Jazz Instrumentals_ The Ultimate Collection, Vol. 1 (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103653.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Just Jazz (Luxurious Smooth Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103650.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Joe Pass - Live In Vegas (1988) 2018, Hi Hat [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103618.jpg" />
 </div>
 
 

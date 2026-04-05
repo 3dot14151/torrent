@@ -1,3 +1,136 @@
+###  Публикация: 340120   (1030642) от 18.02.2021
+
+Петя и волк (1958) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм - экранизацию одноименной симфонической сказки Сергея Прокофьева. Рассказывая историю пионера Пети, победившего злого волка, авторы одновременно знакомят ребят с инструментами симфонического оркестраПроизводство: СССР, СоюзмультфильмЖанр: Кукольный, ДетскийРежиссер: Анатолий КарановичПродолжительность: 00:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFC426B44A3DD129F12C6C3F4E1BB2BCEA1AC45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448548   (1030554) от 18.02.2021
+
+Барбоскины на даче (2020) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нешуточные страсти кипят на обычной даче, где отдыхает семья Барбоскиных. Коварные противники, фантастические изобретения, великосветские интриги, разбитые сердца и даже шпионские тайны. Справиться со всем этим под силу только настоящему индейцу – Малышу.Производство: Россия / Melnitsa Animation Studio, CTB Film CompanyЖанр: мультфильм, приключенияРежиссер: Елена Галдобина, Федор ДмитриевАктеры: Екатерина Гороховская, Ксения Бржезовская, Максим Сергеев, Вадим Бочанов, Юлия Зоркина, Михаил Черняк, Мария Цветкова-Овсянникова, Валерий Смекалов, Иван ЧабанСубтитры: отсутствуютПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D7464868B8684EF950B53AA0671F45C9551992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 26982   (1030390) от 27.03.2023
+
+Чертенок №13 (1981,1982) DVDRip (2 серии)
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселый мультфильм о маленьком чертенке №13, который не вписывался в образовательную систему чертей.
+После него стали крылатыми фразы:
+- Мелкую пакость не придумывают при взгляде на ближнего. Она приходит в голову сама по себе.
+- Люби себя, чихай на всех, и в жизни ждет тебя успех!(   Читать дальше...   )Производство: СССР / ТО "Экран"Жанр: Мультфильм, КороткометражкаРежиссер: Натан ЛернерПродолжительность: 00:09:41, 00:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E6CE3A1312409B9C1F2AA13F7F603119F72018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 17096   (1030339) от 19.02.2021
+
+Вершки и корешки (1974) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030339.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке об умном мужике и ленивом медведе...Производство: СССР / СоюзмультфильмЖанр: Мультфильм, КороткометражкаРежиссер: Леонид НосыревПродолжительность: 00:11:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449201   (1030206) от 20.02.2021
+
+Звёздные войны: Сопротивление / Star Wars: Resistance (2019) WEB-DL [H.264/1080p-LQ] (Сезон 2, серии 1-18 из 18) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадзуда Сионо — молодой пилот, недавно вступивший в ряды Сопротивления под командованием генерала Леи. Несмотря на юный возраст, Кадзуде поручают важное задание — разведать, чем занимается Первый орден.Производство: США, Lucasfilm Ltd, DisneyXDЖанр: мультфильм, фантастика, боевик, приключенияРежиссер: Стюарт Ли, Боско ЭнДжи, Sergio PaezАктеры: Крис Фрил, Алексис Лэнг, Джош Бренер, Сьюзи МакГрат, Bucket, Скотт Лоуренс, Ди Брэдли Бейкер, Джонатан Липоу, Това Фелдшух, Мирна ВеласкоПеревод: Многоголосый закадровый - TVShowsСубтитры: английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11B0E5F742A58687A4388EB3A50E7D92BDC67D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259245   (1030095) от 20.02.2021
 
 Звёздные войны: Сопротивление / Star Wars: Resistance (2018) WEB-DL [H.264/1080p-LQ] (Сезон 1, серии 1-20 из 20) TVShows
@@ -6,7 +139,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030095.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030078.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029956.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029885.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029772.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029663.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029320.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029305.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029266.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029170.jpg" />
 </div>
 
 
@@ -267,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029164.jpg" />
 </div>
 
 
@@ -293,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029159.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029155.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029154.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029152.jpg" />
 </div>
 
 
@@ -397,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029136.jpg" />
 </div>
 
 
@@ -423,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029097.jpg" />
 </div>
 
 
@@ -449,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029086.jpg" />
 </div>
 
 
@@ -475,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028976.jpg" />
 </div>
 
 
@@ -501,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028969.jpg" />
 </div>
 
 
@@ -527,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028937.jpg" />
 </div>
 
 
@@ -538,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644856BEF7DD2657FC3CCE8010ADB359F05F40C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450560   (1028795) от 27.02.2021
-
-Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордАктеры: Николас Кейдж, Эмма Стоун, Райан Рейнольдс, Кэтрин Кинер, Клорис Личмен, Кларк Дьюк, Лесли Манн, Питер Динклэйдж, Келли Мари Трэн, Кайли КроуфордПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F681BABE59EF98F1C400530F041C1074E6857165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450412   (1028704) от 28.02.2021
-
-Белоснежка и семь гномов / Snow White and the Seven Dwarfs (1937) BDRip [H.264/720p] [KAZ / Ru Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация знаменитой немецкой сказки братьев Гримм о Белоснежке, жившей в замке со злой мачехой-королевой, которая очень гордилась своей красотой. Узнав от волшебного зеркальца, что Белоснежка стала самой прекрасной девушкой на свете, завистница решила погубить прелестную падчерицу. Но бедная девушка не погибла в лесу, а наоборот, встретила там настоящих друзей (   Читать дальше...   )Производство: США / Walt DisneyЖанр: мультфильм, мюзикл, фэнтези, мелодрама, семейныйРежиссер: Уильям Коттрелл, Дэвид Хэнд, Уилфред ДжексонПеревод: Дублированный (Казахский язык)Субтитры: русские (Forced, Full)Продолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C689504F00E3669CD94D0DC34CE91BCC5CA6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450927   (1028700) от 28.02.2021
-
-Тачки 2 / Cars 2 (2011) BDRip [H.264/1080p] [KAZ / RU Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молния МакКуин и его друг Мэтр отправляются в международное путешествие — когда МакКуин получает шанс участвовать в соревнованиях для самых быстрых машин в мире, Мировом Гран-При. Этапы этих престижных гонок заведут друзей в Токио, на набережные Парижа, на побережье Италии, и на улицы туманного Лондона.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, комедия, приключения, семейный, спортРежиссер: Джон Лассетер, Брэд ЛьюисПеревод: ДублированныйЯзык озвучки: КазахскийСубтитры: русские (Forced, Full)Продолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FD6D6E96F1E92180B20EB006456F94D47F9C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451171   (1028506) от 01.03.2021
-
-Ковёр-самолёт / Hodja fra Pjort (2018) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой растёт мечтательным мальчиком, который хочет увидеть мир. Его отец, смотря на жизнь куда более реалистично, настаивает, чтобы сын выбросил никчёмные мысли из головы и выучился на портного. Но мальчик не перестаёт мечтать о путешествиях в далекие края, и в один прекрасный день встречает купца ЭльФазу, который готов пожаловать ему ковер-самолёт, если (   Читать дальше...   )Производство: Дания / M&M Productions, A. Film, Danmarks Radio (DR)Жанр: Мультфильм, СемейныйРежиссер: Карстен КилерихПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BBB163BB00B35EF63B810C0711FD9C8F43341A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451169   (1028485) от 01.03.2021
-
-Ковёр-самолёт / Hodja fra Pjort (2018) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой растёт мечтательным мальчиком, который хочет увидеть мир. Его отец, смотря на жизнь куда более реалистично, настаивает, чтобы сын выбросил никчёмные мысли из головы и выучился на портного. Но мальчик не перестаёт мечтать о путешествиях в далекие края, и в один прекрасный день встречает купца ЭльФазу, который готов пожаловать ему ковер-самолёт, если (   Читать дальше...   )Производство: Дания / M&M Productions, A. Film, Danmarks Radio (DR)Жанр: Мультфильм, СемейныйРежиссер: Карстен КилерихПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FFD4DB3434B38DE1F97742FFD76E4DAD70F5E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

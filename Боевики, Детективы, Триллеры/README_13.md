@@ -1,3 +1,112 @@
+###  Публикация: 1358506   (968510) от 08.02.2020
+
+Дэн Браун | Инферно (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый роман цикла о Роберте Лэнгдоне.
+
+…Оказавшись в самом загадочном городе Италии – Флоренции, профессор Лэнгдон, специалист по кодам, символам и истории искусства, неожиданно попадает в водоворот событий, которые способны привести к гибели все человечество… И помешать этому может только разгадка тайны, некогда зашифрованной Данте в строках бессмертной эпической (   Читать дальше...   )Жанр: Детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9FB13B63CE275290A68324633632D985658D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299451   (968501) от 08.02.2020
+
+Джон Харт | Цикл "Джонни Мерримон"  [2 книги] (2019 - 2020) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Харт – единственный писатель в истории, дважды подряд получивший одну из главных остросюжетных литературных наград – премию Эдгара Аллана По. Его произведения переведены на 30 языков и продаются в 17 странах мира.
+Перед вами – история, достойная пера Стивена Кинга. Феноменальная история потери и надежды, обретения себя, стойкости перед лицом зла.
+Детство Джонни (   Читать дальше...   )Жанр: Детектив, триллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE092FE23B3E5A013DD0912AEB5EB6D32CED0FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976893   (967825) от 19.01.2016
+
+Эд Макбейн и др. | Игра в безумие [сборник] (1996) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интригующая непредсказуемость сюжета, эффектные разоблачения, великолепное видение авторами проблем и парадоксов западного образа жизни — вот черты, объединяющие три столь разные детектива сборника.Жанр: Криминальный детективПеревод: И. В. ТопольФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88ADA4E0E882CAFE6208B2FAC806F4B280D6DB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358924   (967242) от 09.02.2020
+
+Гарольд Мазур | Такая богатая, такая красивая и такая мертвая [3 книги] (2004) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарольд Мазур в своих детективах использует форму романа-загадки, в чем схож с Россом Макдональдом. Его постоянный персонаж — адвокат Скотт Джордан — по заданию клиента углубляется в изучение очередного запутанного дела и оказывается в центре преступления.
+Лучшие романы Мазура, представленные в этом сборнике, — «Зарой меня глубже», «Такая богатая, такая красивая (   Читать дальше...   )Жанр: Крутой детективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FB1BF8F3A526753A25446AA2DE48533070FE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358939   (967132) от 09.02.2020
 
 Джефф Мариотт | Нарко. Коготь ягуара (2019) [FB2]
@@ -6,7 +115,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967132.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966196.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965677.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965119.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964531.jpg" />
 </div>
 
 
@@ -140,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963153.jpg" />
 </div>
 
 
@@ -166,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962514.jpg" />
 </div>
 
 
@@ -194,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962096.jpg" />
 </div>
 
 
@@ -220,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962083.jpg" />
 </div>
 
 
@@ -246,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960677.jpg" />
 </div>
 
 
@@ -275,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958363.jpg" />
 </div>
 
 
@@ -303,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958232.jpg" />
 </div>
 
 
@@ -331,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958103.jpg" />
 </div>
 
 
@@ -357,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958075.jpg" />
 </div>
 
 
@@ -384,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957312.jpg" />
 </div>
 
 
@@ -411,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957166.jpg" />
 </div>
 
 
@@ -437,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957071.jpg" />
 </div>
 
 
@@ -463,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956989.jpg" />
 </div>
 
 
@@ -490,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956709.jpg" />
 </div>
 
 
@@ -516,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955643.jpg" />
 </div>
 
 
@@ -542,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955059.jpg" />
 </div>
 
 
@@ -570,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954057.jpg" />
 </div>
 
 
@@ -581,114 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:979AFABBD0505EAF243BC5919386FAD37CFC2B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981293   (952972) от 31.01.2016
-
-Николас Блейк | Требуются доказательства. Бренна земная плоть [сборник] (2015) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время школьных соревнований в стогу сена находят труп одного из учеников… Молодой учитель Майкл Эванс, оказавшийся под подозрением, просит своего друга Найджела Стрейнджуэйса взяться за это дело. И Найджел, опросив всех учеников и преподавателей колледжа, понимает: многие из них что-то скрывают…
-
-Известный летчик Фергюс О’Брайан умирает на устроенном им же рождественском (   Читать дальше...   )Жанр: Классический детективПеревод: Николай АнастасьевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1104E52AC38DB86822DBE4490128A5D8D9316E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981257   (952894) от 31.01.2016
-
-Кристианна Брэнд | Не теряй головы. Зеленый – цвет опасности [сборник] (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шутливое заявление Грейс Морланд в присутствии гостей, что она лучше умрет, чем наденет модную шляпку, обернулось трагедией: на следующее утро ее нашли мертвой, причем на голове у нее была именно такая шляпка. Инспектор полиции Кокрилл, ведущий расследование, приходит к выводу: так «пошутил» кто-то из гостей, накануне убийства находившийся в доме местного землевладельца. (   Читать дальше...   )Жанр: Полицейские детективы, Классические детективы, Зарубежные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CB33C16A9405D5F2F82F2776A7E0A2783BFB56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361942   (952259) от 21.02.2020
-
-Рина Осинкина | Убить админа (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952259.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Кати Поздняковой имелась сотня причин ненавидеть холеного, наглого, саркастичного, неприлично богатого Олега Демидова. Но даже самой себе она боялась признаться, что на самом деле за ненавистью кроются совсем другие чувства. Быть может, о них никто бы никогда и не узнал, если бы в интернате для детей-сирот, где Демидов был одним из спонсоров, а Катя – добровольным (   Читать дальше...   )Жанр: ДетективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5BD9867750065C48D4F74123E416D0A4BC0B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361963   (952187) от 21.02.2020
-
-Артуро Перес-Реверте | Саботаж (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Фалько».
-
-Май 1937 года. Гражданская война продолжает свой кровавый ход в Испании, но битва идет и вдалеке от полей сражений. Фалько отправляется в Париж со сложной миссией: попытаться, насколько это возможно, сделать так, чтобы «Герника», которую рисует Пабло Пикассо, так и не достигла Всемирной выставки. Хотя ветры новой войны, которая опустошит (   Читать дальше...   )Жанр: Зарубежные детективы, Исторические приключения, Триллеры, Шпионские детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85ED2FE99D471CF8F632EB1347084118C47514C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

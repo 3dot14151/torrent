@@ -1,3 +1,133 @@
+###  Публикация: 1291372   (670560) от 24.03.2019
+
+Журнал | Любимая дача. Буказин №1 (14). Уроки ландшафтного дизайна (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670560.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни горожан наступает момент, когда они становятся счастливыми экспериментаторами, осваивающими участок земли. Мы расскажем, как это сделать лучше всего, просто и без лишних хлопот!Жанр: дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DB4D125FDAE65F9246CF1B9D0A743996D45292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536977   (670409) от 14.03.2022
+
+Журнал | Хакер №1 (274) (январь 2022) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670409.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хакер» - журнал рассказывающий о компьютерах, программном обеспечении, железе, технологиях, играх и, конечно же, о хакерах. Но на этом все не ограничивается. В журнале публикуются материалы о стиле жизни, о каких-то абсолютно жизненных вещах, о здоровье, о том, как провести свободное время. Издание отличается от других, наверное, в первую очередь манерой подачи (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4209C605E4B87B9C5820CC12C6CE2394C31E37DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678300   (670192) от 11.07.2013
+
+Журнал | Conde Nast Traveller [Россия] №7 (июль 2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670192.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Conde Nast Traveller» — журнал для путешественников, издаваемый международной корпорацией Conde Nast Publications. Издание принято называть библией для туристов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91EE34145FC43372AC54B0315F9BE6A71815DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678304   (670187) от 11.07.2013
+
+Журнал | Elle [Россия] №7 (июль 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670187.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Elle" - самый популярный журнал мод в мире. Его концепция уникальна: понятие «мода» выходит за привычные рамки и имеет отношение к образу жизни в целом. Elle - это новейшие тенденции в области lifestyle, самые горячие новости из мира моды и красоты, самые яркие звезды и самые актуальные статьи о психологии современной женщины, нацеленной на успех.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18979FD292DB215853A3F1FF17739DA61AB3C356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678296   (670182) от 11.07.2013
+
+Журнал | Collezioni Jewellery & Accessories [Россия] №7-8 (июль-август 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Collezioni - предоставляет информацию о том, какой обещает быть женская мода нового сезона. Издание является полноценным иллюстрированным гидом по моде, который не теряет своей актуальности на протяжении нескольких месяцев. Выпуск посвящен ювелирным украшениям и аксессуарам.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F70DF1B268D25DBB1528DD8FEA70ABD955EE4EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030871   (670137) от 02.07.2016
 
 «Моделист-Конструктор» | Морская Коллекция №5 (200) (2016) [PDF]
@@ -6,7 +136,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670137.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670134.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670086.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670084.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670079.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669803.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669775.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669764.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669649.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669591.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669577.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669436.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669366.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669306.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669304.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669301.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669297.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669290.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669221.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669063.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669058.jpg" />
 </div>
 
 
@@ -539,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6AF28F3FD2B2F6FAC6F4065AEB1647F4CC53B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137092   (669052) от 25.05.2017
-
-Газета | Мой друг компьютер №9 (262) (апрель 2017) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для пользователей ПК, в котором рассказывается, как выбрать компьютерную технику, установить и настроить программы, модернизировать компьютер с минимальными финансовыми затратами.Жанр: Компьютерная газетаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068D957E613F4EAADD79D45BC29A99B85A650AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458940   (668970) от 15.03.2022
-
-Подшивка журналов | Системы безопасности (2021) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668970.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания журнала – системы охранно-пожарной сигнализации, CCTV, контроля доступа, инженерно-технической защиты, оперативной связи, антитерроризма, информационной безопасности, специальной техники для правоохранительных органов, охранные услуги и многие другие аспекты безопасности.Жанр: БезопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE2238B72B0C78680F0268E2F14FCEC164B285F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291634   (668788) от 25.03.2019
-
-Журнал | Вышитые картины №3 (2019) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668788.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены разнообразные сюжеты и интересные идеи для вышивок крестом, гладью и лентами. Все сюжеты имеют схемы. В некоторых номерах приводятся иллюстрированные описания приемов вышивки разными техниками.Жанр: рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8742AD388112E5D2910F175E1D7D12573CA27FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537265   (668727) от 15.03.2022
-
-Журнал | InfoCity №2 (172) (февраль 2022) [PDF] [Ru,Az]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668727.jpg" />
-</div>
-
-
-###  Подробнее
-
-InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DBCF6A6204FBFA8E28DB796CD322DA9C543FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449881   (668714) от 15.03.2022
-
-Подшивка журналов | Системный администратор (2021) [PDF] [Обновляемая]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668714.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Системный администратор» – ежемесячное издание, цель которого – предоставление максимально полной и объективной информации о решениях, продуктах и технологиях современной ИТ-отрасли.
-Главная задача издания – популяризация лучших разработок ИТ-специалистов разных стран. Девяносто процентов статей в журнале носят прикладной характер, снабжены примерами, таблицами, (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075AF474ACDBBA4317517983840FD1E68590D67A
 ```
 
 https://mybot314.ru/tekegram_catalog/

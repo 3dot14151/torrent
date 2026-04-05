@@ -1,3 +1,61 @@
+###  Публикация: 1201975   (791054) от 27.01.2018
+
+VA - Ferry Corsten presents Corsten's Countdown January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferry Corsten  -  Lonely Inside (Extended Ferry Fix)  5:56
+02.  Alpha 9  -  You And I (Extended Mix)  5:38
+03.  BT & Jes  -  Every Other Way (PureNRG Extended Remix)  7:32
+04.  Gabriel & Dresden  -  Sequoia (Original Mix)  7:24(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD86425616CF7F24FC72DEAFE38D442562692392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201645   (791050) от 27.01.2018
+
+VA - Hed Kandi:Back To Love (1999) [FLAC|Lossless|tracks] <House, Garage House, Deep House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.T-Empo - Saturday Night, Sunday Morning (T-Empo Mix) (8:10)
+02.Degrees Of Motion featuring Biti - Shine On (Original 12') (7:09)
+03.Jomanda - Got A Love For You (Hurley's House Mix) (7:35)
+04.Jamiroquai - Space Cowboy (Morales Classic Club Mix) (7:51)(   Читать дальше...   )Жанр: House, Garage House, Deep House, DiscoПродолжительность: 02:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B73CDB5FB9223CDB2C0BA98A908685C1ECEDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201795   (791049) от 27.01.2018
 
 Lane 8 - Little By Little (2018) [FLAC|Lossless|WEB-DL|tracks] <Vintage Progressive House>
@@ -6,7 +64,7 @@ Lane 8 - Little By Little (2018) [FLAC|Lossless|WEB-DL|tracks] <Vintage Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791049.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Markus Schulz + Gabriel & Dresden - Global DJ Broadcast (2018) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791027.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Aly & Fila - Future Sound of Egypt 532 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791024.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Brambles - Charcoal (Special Edition) (2014) Serein [FLAC|Lossless|WEB-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791019.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Work & Study Ambient Music Vol. 2 (2018) [MP3|320 Kbps] <Balearic, Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791018.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Hidden Orchestra - Dawn Chorus Remixes (2018) Tru Thoughts [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791010.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren)2CD (2018) [FLAC|Los
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791008.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Trance 100 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790977.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Sal Solaris - Thresholds (2016) Zhelezobeton [FLAC|Lossless|tracks+.cue] <Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790936.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ hyDrone - Discography 6 Releases (2010-2017) [FLAC|Lossless|tracks+.cue, tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790905.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Best of Ibiza 2018 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790904.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Above & Beyond - Common Ground (2018) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790900.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790762.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790559.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Max Leonidas - Hotel Martinez v.3 Luxury Life house electro club (2007) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790558.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790557.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Smooth Summer Lounge And Chill House (2018) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790554.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Balearic Lounge: Fresh Nu Lounge Music Selection (2018) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790550.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790549.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790548.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - RLX 16 - The Chill Out Collection (2018) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790546.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - The Ultimate Lounge Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790544.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Modulation - Sky (2004) Maxi-Single [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790488.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Sunset Meditation - Relaxing Chill Out Music, Vol. 7 (2018) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790478.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Sunset Meditation - Relaxing Chill Out Music, Vol. 7 (2018) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA3C5F30203B2CF910BDDDA79ABD348BC73843BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275495   (790475) от 11.01.2019
-
-Marnie - Strange Words and Weird Wars (2017) [MP3|320 Kbps] <Electronic, Synthpop, Electro>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphabet Block (4:23)
-02. Bloom (2:58)
-03. G.I.R.L.S (3:58)
-04. Electric Youth (3:25)(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectroПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B94A2C7EBAF7ADC19EF62B389B5F080DADA676F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275403   (790472) от 11.01.2019
-
-Above & Beyond - Group Therapy 300 Live from Hong Kong - Deep Set (2018) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond – Group Therapy Intro (Abgt300wd) (00:32)
-02. Dee Montero – Headspace (Abgt300wd) feat. Meliha (05:58)
-03. Ben Böhmer & Koelle – Almost Home (Abgt300wd) (04:59)
-04. Antic – Turncoat (Abgt300wd) (05:14)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4C9B8FF6CE56818949D7133E4C40F10D37E44B
 ```
 
 https://mybot314.ru/tekegram_catalog/

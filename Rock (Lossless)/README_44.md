@@ -1,3 +1,116 @@
+###  Публикация: 1386563   (793566) от 30.05.2020
+
+Jerry Lee Lewis - Live At The Star-Club Hamburg (1964) Reissue, 1984, Bear Family Records [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Woman Blues (4:02)
+02. High School Confidential (2:26)
+03. Money (4:39)
+04. Matchbox (2:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA6DD9EA0FB52FA68A7FC222C632C8AE9A931BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244146   (793534) от 13.11.2021
+
+Pink Floyd - 1st Press Collection (1967-1994) [CUE+FLAC|Lossless]<Progressive Rock / Psychedelic Roсk>
+
+>>След.
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Rock / Psychedelic RoсkПродолжительность: 01:06:34
+01. Cluster One
+02. What Do You Want From Me
+03. Poles Apart(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7DC95FCC661F3A9ED47A7A27BC33B141397582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442479   (793525) от 13.11.2021
+
+Pink Floyd - The Dark Side Of The Moon, Wish You Were Here, The Wall: Immersion Box Set (1973,1975, 1979) / 2011 [FLAC|Lossless]<Progressive rock, Psychedelic>
+
+>>След.
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive rock, PsychedelicФормат: Flac (image+.cue+tracks)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F46B1F930208691D9FE03C6989F03BF9B156FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386821   (793459) от 30.05.2020
+
+Donovan - Sunshine Superman (1967) Remastered, 2005, Mono [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunshine Superman — третий студийный альбом британского певца-исполнителя Донована. Релиз пластинки состоялся в сентябре 1966 года в США, но альбом не был выпущен в Великобритании из-за контрактных споров. Вместо этого там в июне 1967 года был издан сборник, состоявший из материалов альбомов Sunshine Superman и Mellow Yellowruen, но вышедший под названием Sunshine (   Читать дальше...   )01. Sunshine Superman (3:17)
+02. Legend of a Girl Child Linda (6:54)
+03. Three Kingfishers (3:18)
+04. Ferris Wheel (4:15)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ABF99E956AA64D9C7CED9BDF8DFFCBFFEEDFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282879   (793346) от 30.05.2020
 
 The Strokes - 6 Albums (2001 - 2020)  [FLAC|Lossless|tracks + .cue|image + .cue] <Indie Rock, Garage Rock, Alternative>
@@ -6,7 +119,7 @@ The Strokes - 6 Albums (2001 - 2020)  [FLAC|Lossless|tracks + .cue|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793346.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Smokie - Greatest Hits vol.1 & vol.2 (2017) New Extended Version [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793172.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Sheryl Crow - Everyday Is A Winding Road: The Collection (2013) [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793009.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ Legacy Pilots - The Penrose Triangle (2021) [FLAC|Lossless|image + .cue] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792933.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Somali Yacht Club - The Sea (2018) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792823.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ The Pretty Things - S.F. Sorrow (1968) Reissue, 1998, Mono [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792694.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Van Morrison - Astral Weeks (1968) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792669.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ The United States Of America - The United States Of Americ (1968) Reissue, 2004,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792643.jpg" />
 </div>
 
 
@@ -239,7 +352,7 @@ Traffic - Traffic (1968) Limited Edition, Reissue 2008 [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792641.jpg" />
 </div>
 
 
@@ -269,7 +382,7 @@ The Who - Maximum As & Bs: The Complete Singles (2017) 5CD Box Set [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792161.jpg" />
 </div>
 
 
@@ -298,7 +411,7 @@ Dennis DeYoung (ex-Styx) - 26 East: vol.2 (2021) Japanese Edition [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792137.jpg" />
 </div>
 
 
@@ -327,7 +440,7 @@ Santana - The Best Of Santana (1969,1990) 2CD /Sony Music 2012/[FLAC|Lossless]<C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791752.jpg" />
 </div>
 
 
@@ -356,7 +469,7 @@ VA - Soft Rock Nuggets (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791698.jpg" />
 </div>
 
 
@@ -385,7 +498,7 @@ Sniff'n'the Tears - Random Elements (2017) [FLAC|Lossless|image + .cue]<Pop-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791626.jpg" />
 </div>
 
 
@@ -414,7 +527,7 @@ The Allman Brothers Band - The Best Of The Allman Brothers Band (20th Century Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791115.jpg" />
 </div>
 
 
@@ -443,7 +556,7 @@ Robert Palmer - Don't Explain (1990) [FLAC|Lossless|tracks + .cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790805.jpg" />
 </div>
 
 
@@ -472,7 +585,7 @@ Bowes & Morley - 2 альбома (2002-2004) [FLAC|Lossless|image + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790482.jpg" />
 </div>
 
 
@@ -501,7 +614,7 @@ The Bangles - The Essential Bangles (2004) Compilation [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790445.jpg" />
 </div>
 
 
@@ -530,7 +643,7 @@ Daniel Gauthier - Altitude 16425 - Someone (2021) 2xCD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790405.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ MC5 - Kick Out The Jams (1969) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790129.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Gene Clark - White Light (1972) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790128.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ Girls Against Boys - Venus Luxure No.1 Baby (1994) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790127.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ Girls Against Boys - Venus Luxure No.1 Baby (1994) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A2CAEA24489F9A2A5165A06DDC2421980F3EA32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387996   (790125) от 04.06.2020
-
-The Stooges - Fun House (1970) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down On The Street (3:44)
-02. Loose (3:34)
-03. TV Eye (4:18)
-04. Dirt (7:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833E4460F543DF17D040EF3F26A02BB951453B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511026   (789758) от 19.11.2021
-
-Jimi Hendrix - 3 Albums (1972 - 1975) [FLAC|Lossless|tracks + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789758.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Message To Love 3:14
-2. Somewhere Over The Rainbow 3:31
-3. Crash Landing 4:16
-4. Come Down Hard On Me 3:17(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4833AC12C6CF3A4DDDA6763C746CBE776BC70D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511023   (789752) от 19.11.2021
-
-Janis Joplin - The Very Best  Of Janis Joplin (1988) [FLAC|Lossless|tracks + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee
-02. Cry Baby
-03. Kozmic Blues
-04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D86ECD87F9424A95355A843586992E191208210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510908   (789733) от 19.11.2021
-
-Issa - Queen Of Broken Hearts (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Calling (3:30)
-02. The Way Out (3:49)
-03. The Night It Rained Forever (3:39)
-04. I'm Here To Stay (3:49)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611FED632388D59F378A01E07465B8C5C072FA65
 ```
 
 https://mybot314.ru/tekegram_catalog/

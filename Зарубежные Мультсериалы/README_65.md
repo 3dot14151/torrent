@@ -1,3 +1,57 @@
+###  Публикация: 1806090   (11838) от 11.07.2025
+
+Афросамурай / Afurosamurai / Afro Samurai (2007) BDRip [AV1/2160p] [4K, SDR, 10-bit] (серии 1-5 из 5) MC Entertainment [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11838.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире самураев существуют только два великих воина, их называют Первый и Второй. Первый считается божеством, вызов которому может дать только Второй великий самурай. Второму же приходится сложнее: каждый может претендовать на его место или же попытаться уничтожить. Жизнь Второго постоянно находится в опасности.
+
+Всё началось, когда к Первому пришёл Второй и победил (   Читать дальше...   )Производство: США, Япония / Fuji Television Network Inc., G.D.H., Gonzo, Mosaic Media Group, Samurai Project, Spike TVЖанр: аниме, мультфильм, фэнтези, боевик, драма, приключенияРежиссер: Фуминори КидзакиАктеры: Сэмюэл Л. Джексон, Фил ЛаМарр, Юрий Ловенталь, Грег Иглз, Терренс «Т.К.» Карсон, Джон Ди Маджио, Рон Перлман, С. Скотт Буллок, Фред Таташиор, Дейв УиттенбергПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full)Продолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EDB52E313E47D486D17E730EB7201029AC043B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806089   (11796) от 11.07.2025
+
+Золотой парень / Golden Boy (1995 – 1996) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (серии 1-6 из 6) AniLibria, MTV [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парень Кинтаро Оэ колесит по стране на велосипеде в поисках приключений и любой работы. Каждый день Кинтаро находит применение своим знаниям и встречает прекрасных девушек.Производство: Япония / A.P.P.P. Company, KSS Inc., ShueishaЖанр: аниме, мультфильм, приключения, комедия, мелодрамаРежиссер: Хироюки КитакубоАктеры: Мицуо Ивата, Мика Канаи, Кикуко Иноуэ, Юко Минагути, Юри Сиратори, Хироми Цуру, Сакико Тамагава, Горо Ная, Хадзимэ Косэки, Ёсукэ АкимотоПеревод: Двухголосый любительский (AniLibria), Двухголосый профессиональный (MTV)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:29:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1D22B359DEC4EF1CA9F1719E441B880C490EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798794   (11755) от 12.07.2025
 
 Непобедимый / Неуязвимый / Invincible (2025) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-8 из 8) Flarrow Films [Локализованная версия] [hand made Upscale AI]
@@ -6,7 +60,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11755.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11743.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11707.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11091.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10914.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10786.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10781.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10686.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10486.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10453.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10342.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9921.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9755.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9471.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8918.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8695.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8139.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8124.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8099.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6948.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5889.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5367.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4935.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4367.jpg" />
 </div>
 
 
@@ -622,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E12B8AD2D0F7B35CAB41C5BFCA2D12CC9D7DA9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799416   (4360) от 05.09.2025
-
-Рик и Морти / Rick and Morty (2025) WEB-DL [H.264/1080p] (сезон 8, серии 1-10 из 10) Сыендук, TVShows, HDRezka, LE-Production, 1Win Studio, RedRussian1337
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4360.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета - школьник по имени Морти и его дедушка Рик. Морти - самый обычный мальчик, который ничем не отличается от своих сверстников. А вот его дедуля занимается необычными научными исследованиями и зачастую полностью неадекватен. Он может в любое время дня и ночи схватить внука и отправиться вместе с ним в безумные приключения с помощью построенной из разного (   Читать дальше...   )Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, приключенияРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсПеревод: одноголосый (Сыендук, RedRussian1337)
-многоголосый (TVShows, HDRezka, LE-Production, 1Win Studio)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH), болгарские, чешские, датские, etc.Продолжительность: ~00:22:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F7968E76EEB4A20756CB51A22E671EA8148E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816670   (3942) от 07.09.2025
-
-Пожиратель звёзд / Tunshi Xingkong (2020-2025) UHDTV [H.265/2160p] [4K, Dolby Vision Profile 8, 10-bit] (сезон 1-3, серии 1-85) [handmade Remastered AI] FAN
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постапокалипсис. На развалинах мира бушует вирус RR, который на северо-востоке Китая привёл к заражению не только человека, но и животных. Люди без иммунитета умирают, а другие живые существа начинают необычайно быстро мутировать. Население Земли тает на глазах как от вируса, так и от нападения монстров, которые достигли гигантских размеров и внушительной силы, а (   Читать дальше...   )Производство: Китай, Sparkly Key AnimationЖанр: фэнтези, приключения, скайфай, компьютерная анимацияРежиссер: Шэнь ЛэпинАктеры: Чжао ЦяньцзинПеревод: Дублированный (FAN)Язык озвучки: РусскийСубтитры: Китайские (неотключаемые) в некоторых серияхПродолжительность: ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6EF1F7CDACDE631A95E5803A60180A2210BFA59
 ```
 
 https://mybot314.ru/tekegram_catalog/

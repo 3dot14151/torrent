@@ -6,7 +6,7 @@ The Oscar Peterson Trio - Stratford, Ontario, Canada, 1956 (1996) Giants Of Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002546.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002318.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ John Gary - Sings Cole Porter (1994) Audiophile Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002225.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Gary - The Essential John Gary (2001) RCA [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002003.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Eddie ''Lockjaw'' Davis - Four Classic Albums Plus 1952 - 1959 (2013) 2CD, Avid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001695.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Thought Gang (David Lynch and Angelo Badalamenti) - Thought Gang (2018) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001686.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marshall Gilkes & WDR Big Band - Koln (2015) Alternate Side Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001353.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Djabe - Forward Live, 2CD (2018)   [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001346.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joe Calderon - Cup Of Joe (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001189.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jimmy Dludlu - History In A Frame (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001187.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Double Jazzy - Sax, Girls & Bubble Gum (2021) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001184.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tom Braxton - Lookin' Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001172.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tony Saunders - All About Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001155.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Blue Claw Philharmonic - Classical Jazz Music Playlist (2020) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001050.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Julian Lage - Sounding Point (2009) [FLAC|Lossless]<Jazz, Guitar, Instrumentall>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999997.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Jessy Carolina and The Hot Mess - Bootlegs:January 2012 (2012) [FLAC|Lossless]<N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999723.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Fiona Apple - 4 альбома (1996-2012) [FLAC|Lossless]<Piano rock, baroque p
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999663.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Karen Aoki - Jazz After Sunset (2 HDCD) (2012) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999637.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Jane Monheit - 6 Албомов (2000-2009) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999110.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Salena Jones - 3 альбома (2007-2011) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999079.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ V.A. - Acid Jazz (2011) [FLAC|Lossless]<Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998917.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Various Artists - The Art Of Electro Swing (2012) [FLAC|Lossless]<Future Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998630.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Antonio Forcione - Touch Wood (2003) [FLAC|Lossless]<Jazz, Gypsy Jazz, Flamenco>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998082.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Wes Montgomery - Boss Guitar (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998074.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ Bill Evans & Jim Hall - Intermodulation (1988) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998046.jpg" />
 </div>
 
 
@@ -791,7 +791,7 @@ Scott Hamilton - With Strings (1993) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997054.jpg" />
 </div>
 
 

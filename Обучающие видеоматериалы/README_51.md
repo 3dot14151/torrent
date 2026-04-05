@@ -1,3 +1,32 @@
+###  Публикация: 1288904   (1014406) от 24.05.2021
+
+Джама Джурабаев | Продвинутое 3D рисование / Advanced 3D Painting (2017) PCRec [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014406.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе я покажу продвинутые методы 3D рисования в Photoshop.
+Эта техника позволит вам оживить ваши рисунки и легко настроить вашу композицию.
+Также это даст вам полный контроль над дизайном и сюжетом рисунка.
+(   Читать дальше...   )Производство: GumroadЖанр: Рисование, PhotoshopЯзык озвучки: Русский, АнглийскийПродолжительность: 01:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D5C1B362A19F9B8C52D30538195D695E9AA2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472214   (1014403) от 24.05.2021
 
 Linux Academy | Certified Kubernetes Administrator (CKA)  (2021) PCRec [En]
@@ -6,7 +35,7 @@ Linux Academy | Certified Kubernetes Administrator (CKA)  (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014403.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014402.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Nate Schutta, Neal Ford | Presentation Patterns (2016) PCRec [En]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014361.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ James Paick | Environment Basics 2 Perspective & Layout (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014344.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ James Paick | Environment Basics 4 Lighting & Textures (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014341.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ Eytan Zana | Graphic Composition For Environments (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014336.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ Ben Adler | Intro to PBR in Unreal Engine 4 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014325.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ Nate Hallinan | Painting Fur (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014324.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ James Paick | Environment Basics 1 Basic Composition & Values (2015) PCRec [En, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014321.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Udemy, Prateek Narang и др. | Data Structures & Algorithms, Level-up Course (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014309.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ Mario Brajdich | Mastering 3D Modeling In Cinema 4D Part 1-3 (2017) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014257.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ CG Cookie, Kent Trammell | Создание реалистичного пром�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014110.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014073.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ Jason Scheier | Composition 101 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013989.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013921.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013913.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Jason Scheie | Visual Development for Animation (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013827.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ John Park | Introduction to Vehicle Design - The Basics (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013802.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Mark Edward Lewis | Cinema Sound (2015) WEBRip [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013799.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013782.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ Creative Shrimp | Реалистичное освещение в Blender 2.76-2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013769.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ Matthias De Muylder | Marvelous Designer For Concept Art (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013760.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Creative Shrimp | Космические визуальные эффекты: С
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013755.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ Devman | Командная строка (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013624.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ CASP School | Docker (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013615.jpg" />
 </div>
 
 
@@ -666,35 +695,6 @@ CASP School | Docker (2018) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FBE254FCDA17F09374F500933971DAA77C8C4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473411   (1013591) от 29.05.2021
-
-Хекслет, Артем Архипов и др. | Профессия Python-программист (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013591.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПРОФЕССИЯ Python-программист
-Python - один из самых популярных языков программирования. На нём разрабатывают искусственный интеллект, web-сайты, игры. Трудно найти другой язык, настолько широко используемый и при этом несложный в освоении - не зря Python используют в Google, Yandex, Dropbox!
-Чему вы научитесь:
-Фундаментальному пониманию программирования(   Читать дальше...   )Производство: ХекслетЖанр: ПрограммированиеПродолжительность: 02:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62971A7C15EB9C3F4120D95235927BDD76452BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

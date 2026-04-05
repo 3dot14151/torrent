@@ -1,81 +1,3 @@
-###  Публикация: 1220911   (698702) от 22.04.2018
-
-А. А. Жижиленко | Очерки по общему учению о наказании (1923) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышедшая в 1914 г. моя книга „Наказание. Его понятие и отличие от других правоохранительных средств" в настоящее время распродана; выпускать ее новым изданием без надлежащей переработки, в особенности в виду полного упразднения дореволюционного права и нарождения нового, находящегося еще в стадии становления, сейчас невозможно, между тем основные идеи, высказанные (   Читать дальше...   )Жанр: История, политология, правоведение, криминологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C97ED3DFC1DB76D55A45D9ED51B85654AF42AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220929   (698599) от 22.04.2018
-
-Н. А. Заровнядный (сост.) | Спутник самоучки [сборник статей и материалов в помощь начальному самообразованию] (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник предназначается для читателя, обладающего небольшой подготовкой — примерно за школу политграмоты. Имеется в виду дать первоначальные простейшие указания для работы в одиночку. За дальнейшими указаниями товарищам необходимо обращаться к литературе и специальным журналам по самообразованию. При подборе списков не имелось в виду рекомендовать товарищам (   Читать дальше...   )Жанр: История, политология, искусство, педагогика, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3C02A968ACC6A34016537DB547C6C85169249A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026878   (698476) от 18.06.2016
-
-В. Т. Мещеряков | Развитие представлений о гармонии в домарксистской и марксистско-ленинской философии (1981) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698476.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии наряду с обзором античных и более поздних представлений о гармонии показана роль трудов К. Маркса, Ф. Энгельса и В. И. Ле­нина в создании методологических основ новой, диалектико-материалистической, концепции гармо­нии и гармонического развития. На базе законов и принципов материалистической диалектики рас­сматривается связь гармонии с противоречиями, (   Читать дальше...   )Жанр: История, философияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248641EB1FDEFB6495B82DF04D29F47031C55F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026857   (698474) от 18.06.2016
 
 В. Т. Мещеряков | Соответствие как отношение и принцип (1974) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698474.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698366.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697809.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697494.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696799.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696797.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695828.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694846.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694071.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693629.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692875.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692765.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691658.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691652.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691557.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691554.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691482.jpg" />
 </div>
 
 
@@ -539,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691406.jpg" />
 </div>
 
 
@@ -565,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691291.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691168.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691067.jpg" />
 </div>
 
 
@@ -643,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689842.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689673.jpg" />
 </div>
 
 
@@ -682,6 +604,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:259C3066303E31163E8A990C2815F9D8E1DFDF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221732   (689667) от 27.04.2018
+
+Л. А. Леонтьев | Начальный курс политической экономии: Капитализм [Часть 1] (1933) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга должна служить учебным пособием по политической экономии для низших звеньев сети партийного просвещения — марксистско-ленинских кружков и вечерних совпартшкол. Она является, таким образом, в известном смысле следующей ступенью после учебника политграмоты.
+
+Учебник разделяется на две части; Первая часть посвящена экономике капитализма, вторая часть (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F2D6C5DCB803865E6434D7B072CCC97DF2BC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221917   (689564) от 27.04.2018
+
+Д. П. Боголепов | Краткий курс финансовой науки (1925) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+В настоящее время чрезвычайно трудно дать марксистский анализ финансовых явлений. Сравнительно очень недавно марксисты и коммунисты стали заниматься финансовой наукой. Многие проблемы, очень важные, до сих пор еще не разработаны с марксистской точки зрения; между тем, для практических потребностей чрезвычайно важно дать марксистское руководство по финансовой (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C45A51CF30F4722997F24ED705CC57C07B45F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134237   (689447) от 15.05.2017
+
+В. Ваганян | По боевым вопросам марксизма (1926) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник составлен из статей, ранее появившихся в журналах — лишь две последние печатаются здесь впервые. Появлялись они под разными подписями. Мои псевдонимы были так прозрачны, что я расшифровываю их без всякого риска кого-либо удивить. Называя «боевыми» те вопросы, которым посвящен мой сборник, я нисколько не грешу против истины. На самом деле, вот уже (   Читать дальше...   )Жанр: История, политология, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97408E53527492F108CBC97F26AE2DEEEFC3F9D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1160843   (471119) от 26.08.2017
+
+Лесное трио / Log Jam / KJFG (2008-2009) WEB-DLRip [H.264/1080p-LQ] (сезон 1-2, серии 1-14 из 14)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководствуясь принципами «краткость – сестра таланта» и «лучше меньше, да лучше», замечательный художник Алексей Алексеев, работавший в свое время в знаменитой студии Pilot, а теперь продолжающий творить в Венгрии, придумал и нарисовал трех забавных зверей-музыкантов, которые сразу же полюбились и детям, и взрослым. Коротенькие мультфильмы под общим названием «Лесное (   Читать дальше...   )Производство: Венгрия / Studio BaestartsЖанр: Компьютерная анимация, Мультсериал, КороткометражкаРежиссер: Алексей АлексеевПерсонажи: Медведь, Волк и Заяц (музыкальное трио)Перевод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:14:04 (~00:01:00 серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F003FB509BAA50AF4087C6D582E610E9753231AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160781   (471113) от 26.08.2017
+
+Грэвити Фоллс / Gravity Falls (2012 – 2016) WEB-DL [H.264/1080p] (Сезон 1-2, серии 40 из 40)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий сериал о приключениях брата и сестры, которые происходят с ними за время летних каникул в гостях у своего дяди. Грэвити Фоллс, маленький городок, оказывается вовсе не таким уж простым местом. С каждым днём обнаруживается всё больше любопытного и неординарного, и благодаря пытливости главных героев многое удаётся разгадать, не всегда оперативно, но с (   Читать дальше...   )Производство: США, Walt Disney Television AnimationЖанр: Детский, Фентези, Сказка, ПриключенияРежиссер: Джон Аошима, Джо Питт, Аарон СпринджерПеревод: Полный дубляж, вкл. песниОзвучка / Автор перевода: DisneyСубтитры: Русские/ английскиеЯзык: РусскийПродолжительность: ~ 00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4800D13FC8D9958268D954DA702DE0151BCA5FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545946   (470900) от 16.09.2012
 
 Аватар: Легенда о Корре / The Last Airbender: The Legend of Korra (2012) WEB-DLRip [H.264/720p-LQ] (Сезон 1, серий 12 из 12)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470900.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470399.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468980.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468324.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468203.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466694.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464058.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463906.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463695.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463269.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461653.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459753.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459621.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459617.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459614.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459127.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457735.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457044.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456774.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455293.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455153.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455008.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454307.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454292.jpg" />
 </div>
 
 
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9E99DE3CA2E2E54EE286B1049E46C100DEF3C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388631   (453580) от 19.09.2011
-
-Мышиный дом (Серий 26 из 52) / House of Mouse (2001-2002) SATRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микки Маус и его друзья (Дональд, Минни, Дейзи, Гуфи, Плуто и др.) в своём клубе показывают для персонажей из различных диснеевских полнометражек («Аладдин», «Геркулес», «Красавица и чудовище» и т.п.) различные представления и классические мультфильмы Диснея. В промежутках между мультфильмами зрители видят жизнь клуба: Микки помогает гостям решить их проблемы, улаживает конфликты и устраняет неполадки, вызванные Питом, который всеми способами пытается сорвать шоу и добиться закрытия заведения.Жанр: Рисованая анимацияРежиссер: Тони Крэйг, Роберт Ганнавей, Майк МунПерсонажи: Mickey Mouse, Goofy, Mike, Minnie Mouse, Daisy Duck, Donald Duck, Clarabelle Cow, Pete, Gus Goose, Timon и др.Перевод: Дублированный. Серии 1,2,3,6,7 -  без переводаПродолжительность: 26 x ~ 00:21:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 699033   (453195) от 28.09.2013
-
-Маленький принц / Le petit prince (2010) SATRip (1 сезон, 48 эпизодов из ??)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_453195.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам произведения  Антуана де Сент-Экзюпери.
-Маленький Принц путешествует по разным планетам. Его ждут необычные встречиЖанр: мультсериал, приключения, фентезиРежиссер: Пьер-Ален ЧартьерПерсонажи: Гэбриел Бисмут Бьенэмэ, Франк Капиллери, Гийом Гальенн, Брайан Драммонд, Мари Жиллен, Валин ШинейПеревод: ДублированныйПродолжительность: 48 х ~ 00:22:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

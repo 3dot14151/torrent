@@ -1,3 +1,57 @@
+###  Публикация: 462811   (80222) от 05.03.2012
+
+Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Depth Hunter - симулятор подводной охоты, позволяющий в полной мере испытать все прелести экстремальной спортивной рыбалки с острогой, а также охоты за подводными пейзажами и сокровищами.
+
+(   Читать дальше...   )Тип издания: RePackЖанр: Sport (Hunt/Fish) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, французский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EFDECE3D7A529DB665BD50B0530CB2C71D9202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779784   (70609) от 15.02.2025
+
+Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Roboquest - это динамичный рогалик от первого лица, в который можно играть как в одиночку, так и в кооперативном режиме на двоих. Прыгайте в стальные башмаки мощного гипермобильного робота и сражайтесь так, как никогда раньше. Бегите по случайно сгенерированной среде на неузнаваемой Земле. Выжженные каньоны и яркие города, наполненные секретами, улучшениями и врагами. (   Читать дальше...   )Тип издания: RepackРазработчик: RyseUp StudiosЖанр: Экшны, От первого лица, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DECF6B1B5FC5BFF6C52F6495203B23B1019100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474815   (62728) от 17.03.2024
 
 AMID EVIL (2019) [En] (2628/dlc) License GOG
@@ -6,7 +60,7 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62728.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62385.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61684.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61625.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61583.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ STAR WARS: Dark Forces Remaster (2024) [Ru/En] (1.0.1308.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61352.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/Multi] (3.12/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61264.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60728.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ Bulletstorm (2017) [Ru/Multi] (1.0upd2/dlc) Repack dixen18 [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60632.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59688.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59323.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59263.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59243.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (1.1.2952) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59134.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59026.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58730.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (11830638) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58574.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ Return to Castle Wolfenstein (2001) [Ru/En] (1.42c) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58527.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58518.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58409.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ Rise of the Triad (2013) [En] (1.5.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58390.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58354.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58117.jpg" />
 </div>
 
 
@@ -604,7 +658,7 @@ Unholy Village (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58079.jpg" />
 </div>
 
 
@@ -615,58 +669,6 @@ Unholy Village – Иосиф вместе со своими друзьями о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15E3268CB0EA3236C96C100D2F41B397FC2F0E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722132   (57020) от 10.05.2024
-
-Phantom Fury (2024) [Ru/Multi] (17384) Repack Decepticon
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шелли Харрисон по прозвищу Бомба возвращается – вас ждет сочетание экшена от первого лица и приключения в жанре роуд-муви. Отправляйтесь в адреналиновое путешествие по США. Используйте обширный арсенал оружия и навыков, сражаясь с предателями и мерзкими мутантами, чтобы спасти человечество.Тип издания: RepackРазработчик: Slipgate Ironworks™Жанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C5E0C36000CBA8A2C481B036107FDC4C21EAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723493   (56327) от 17.05.2024
-
-Soviet Soldier / История советского Солдата (2024) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soviet Soldier ставит вас на место солдата красной армии. Сражайтесь в исторических битвах в ходе масштабных кампаний, и ваш выбор определит судьбу СССР. Защитите свою Родину во Второй мировой войне - от Cталинграда до Берлина. Во время холодной войны противодействуйте западному влиянию в Венгрии и Афганистане. Проект предлагает глубокое погружение в советскую историю. (   Читать дальше...   )Тип издания: SceneРазработчик: Go Up GamingЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3205B6B6B4E75542DC5AEF886121603CE091E493
 ```
 
 https://mybot314.ru/tekegram_catalog/

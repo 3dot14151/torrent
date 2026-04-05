@@ -1,3 +1,55 @@
+###  Публикация: 1451641   (1028138) от 03.03.2021
+
+1nsane (2001) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никаких ограничений, никаких треков и скучных автодромов. В 1nsane вам предстоит покорять захватывающее бездорожье как в одиночном режиме, так и с друзьями по локальной сети или в Интернете. Выбирайте машины и местность, покажите, на что вы способны на внедорожнике в семи уникальных режимах игры. Да воцарится безграничная свобода и хаос полноприводной гонки! Никаких (   Читать дальше...   )Тип издания: LicenseРазработчик: Invictus GamesЖанр: Racing, ArcadeЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED9744D02611B0EA7941123D75BBDCF4A50AB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453812   (1026678) от 12.03.2021
+
+M.U.L.E. / MULE (1983) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра проходит на вымышленной планете Irata (Atari наоборот). Игра представляет собой опыт в экономике спроса и потребления, включающий соревнование между четырьмя игроками. Место отсутствующих игроков занимают компьютерные противники. У игроков есть возможность выбрать расу их колонистов, что даёт различные преимущества и недостатки, которые могут быть соединены (   Читать дальше...   )Тип издания: LicenseРазработчик: Ozark SoftscapeЖанр: Strategy, TacticalЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD38A25E955507A99B096C49AC76A7FC2A9E0D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455191   (1025702) от 18.03.2021
 
 Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack Other s
@@ -6,7 +58,7 @@ Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025702.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021346.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017979.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017170.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016640.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016630.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Inherit the Earth: Quest for the Orb (1994) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016525.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016054.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013648.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Slipways (2021) [Multi] (1.0) License Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012624.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Olympus 2207 (2014) [Ru] (1.2) Mod NebesaGames
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012046.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010923.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010915.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010408.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007206.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004950.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004186.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003925.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003650.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003027.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Shadow Watch [Ru] (P) 2000
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000372.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997639.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ MediEvil: Dilogy [Ru] (PC/Emul) 1998-2000 | Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997632.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Re-Volt [En/Multi8] (RePack/1.2a12.1225) 1999 | R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993878.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ Re-Volt [En/Multi8] (RePack/1.2a12.1225) 1999 | R.G. Revenants
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA0A3E26188AE0472324871FDF6B6CA2E98A6E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 228021   (985670) от 24.01.2020
-
-Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) License
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой этой истории – мальчик Льюис, который ничем бы не отличался от своих сверстников, если бы не некоторые обстоятельства. Прежде всего, он растет без родителей и страстно мечтает найти семью. Кроме этого, он обладает поразительной способностью изобретать самые нереальные и фантастические приспособления. И наконец, ему предстоит совершить самое интригующее (   Читать дальше...   )Тип издания: LicenseРазработчик: Disney Interactive StudiosЖанр: Arcade, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4F4EB461A4267EFACB6DFD9AD4181913B1B849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355020   (984394) от 25.01.2020
-
-Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждут лучшие национальные команды и крупнейшие лиги, а также насыщенный однопользовательский режим. Невероятная тактическая глубина, позволяющая воссоздать все тонкости этого вида спорта. Меняйте план на лету, продумывайте построение, ищите слабые места во вражеской обороне и помогите своей команде победить!Тип издания: LicenseРазработчик: Eko SoftwareЖанр: Симуляторы, Спортивные игры, РегбиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, Французский, Итальянский, ЯпонскийЯзык интерфейса: Английский, Французский, Итальянский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577E50CB60172958A5193E1C1C8D4A36B717F9A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

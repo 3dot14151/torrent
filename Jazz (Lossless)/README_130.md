@@ -6,7 +6,7 @@ Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615743.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Carla Cook - Dem Bones (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615742.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chet Baker And Crew (1956, 1959) 2CD, 2018, Jazz Images [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615709.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Laurindo Almeida - Guitar From Ipanema (1964) Japan Edition, 2011, Capitol / EMI
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615675.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Melanie De Biasio - Blackened Cities (2016) [FLAC|Lossless|image + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615668.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Bob Leaper Big Band - Big Band, Beatle Songs (2005) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_615408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_615408.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Branford Marsalis Quartet - The Secret Between The Shadow And The Soul (2019) Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615240.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Smooth Jazz Dinner Party (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615142.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Milt Jackson - Mostly Duke (1982) 1998, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614773.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Members Of The Duke Ellington Orchestra - A Tribute To Duke Ellington (1997) Gre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614772.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Apollo Saxophone Orchestra - Perpetual Motion (2012) Nimbus [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614771.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Stanley Turrentine - Six Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614770.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Art Blakey And The Jazz Messengers - Roots & Herbs (1961) /2014, Universal/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614500.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ McCoy Tyner - Suddenly (1991) 2001, Past Perfect [APE|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614114.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Michael Franks - The Music In My Head (2018) [FLAC|Lossless|image + .cue] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614057.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ George Adams & Don Pullen - Melodic Excursions (1982) Remaster, 2015, Solid Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614039.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ The Modern Jazz Disciples - Right Down Front (1960) Remaster, 2013, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613985.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Eddie Harris - People Get Funny… (1987) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613984.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Sadao Watanabe - Sadao Watanabe (1972) Remaster, 2014, Sony Music[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613982.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Nicki Parrott - Yesterday Once More: The Carpenters Song Book (2016) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613866.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Kid Ory - Ory's Creole Trombone (1930-e - 1950-e) 1998, Giant Of Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613582.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Lester Young - Portrait: 24 Carat Gold Edition (1936 - 1952) 10CD, 2001, Past Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613286.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Ben Perowsky, Frank Perowsky, Sam Yahel - Bop On Pop (2002) JazzKey Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613085.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ The Red Garland Trio - Rojo (1958) 1993, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613081.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Billy Mitchell - This Is Billy Mitchell (1962) 2003, Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613080.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Dianne Reeves - Palo Alto Sessions 1981-1985 (1996) Blue Note [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613078.jpg" />
 </div>
 
 

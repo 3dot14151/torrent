@@ -1,3 +1,107 @@
+###  Публикация: 1598403   (199062) от 30.04.2023
+
+Rock Identifier - Stone ID v2.3.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просто сделайте или загрузите фото камня, и Rock Identifier расскажет все за считанные секунды. Исследуйте свое геологическое окружение, узнавайте о различных породах и знакомьтесь с миром природы с помощью Rock Identifier!Тип издания: PremiumРелиз состоялся: 24.04.2023Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0A0F89BE0A722BD95C11A21ACA2CCD9FB4940F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614765   (199042) от 30.04.2023
+
+Bikemap: велотрекер и маршруты v19.1.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните свое новое велосипедное приключение с Bikemap - идеальным компаньоном для планирования, навигации и отслеживания велосипедных поездок. С коллекцией из более чем 11 миллионов велосипедных маршрутов по всему миру, у Bikemap найдется что-то интересное для каждого велосипедиста. Используйте Bikemap, чтобы превратить свой телефон в велосипедный компьютер, планировщик (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 28.04.2023Разработчик: Bikemap GmbHПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B47BCCF113A5F4B15DF8B696A5CFF5F922687BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630473   (199025) от 01.05.2023
+
+BackCountry Navigator TOPO GPS v7.3.8 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите топографические карты для автономного навигатора на открытом воздухе! Используйте свой телефон или планшет в качестве портативного GPS-навигатора для топографической съемки бездорожья с самым продаваемым приложением для навигации на открытом воздухе для Android! Исследуйте за пределами покрытия сотовой связи для пеших прогулок и другого отдыха. Вполне конкурентоспособный (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 08.02.2023Разработчик: CritterMap Software LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FC4FBE30245973489AE580F726D8B1306842AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630558   (199014) от 01.05.2023
+
+ElectroCalc - DIY Electronics v3.7 (88) Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ElectroCalc в основном ориентировано на расчеты силовых электронных схем. Это помогает тем, кто проявляет интерес, например, любителям, сделай сам к электронным схемам, рассчитать схемы, как указано ниже.Тип издания: ProРелиз состоялся: 29.04.2023Разработчик: SolarElectroCalcПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CF33DCDCD2EC839B5C4DD7B02C03BB254D6B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631513   (198800) от 06.05.2023
 
 Alias - игра в слова v6.1.6 [Ru/Multi]
@@ -6,7 +110,7 @@ Alias - игра в слова v6.1.6 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198800.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198745.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198697.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Infinity Loop / Энергия: антистрессовая петля v6.7.8 [
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198610.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Photo Editor v8.6 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198488.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Search By Image v8.3.0 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198102.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Word Surf - Игра в слова v3.9.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198059.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198044.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197609.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197568.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197540.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197499.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197296.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197121.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197042.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196994.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196902.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Carista OBD2 v7.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196698.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196692.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Psiphon Pro 382 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196668.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Filmic Pro 7.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196623.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Reface v3.40.0 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196597.jpg" />
 </div>
 
 
@@ -565,113 +669,6 @@ Reface v3.40.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:795E59316363C262384A88F6EA7132CF8CD0D3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642216   (196578) от 26.06.2023
-
-Adobe Acrobat Reader для PDF 23.6.0.28101.Beta Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Reader - знаменитое приложение название которого стало практически нарицательным для процесса взаимодействия людей с PDF форматом во всех его проявлениях и задачах. Пользователи в данном случае получают возможность не только удобно открывать и просматривать документы на мобильных устройствах, но и вести полноценную деятельность с созданием, редактированием (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.06.2023Разработчик: AdobeПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491E70B057DE2B3932C3B41620AAD240C164852C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620095   (196573) от 24.06.2023
-
-SmartDriver: АнтиРадар ГИБДД v1.15.0.36616 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Driver – удобный радар камер и ДПС, а так же видеорегистратор в одном приложении. Покажет где камеры ГИБДД и ДПС на дорогах, в том числе укажет их тип:
-– камера только на скорость, в том числе "Стрелка"
-– камера на стоп–линию и проезд на красный
-– камера на полосу общественного транспорта и обочину(   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.06.2023Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7266E510641DD5D1AC8A0BAE3257AEBFF19939A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642299   (196554) от 26.06.2023
-
-Cx Проводник / Cx File Explorer 2.0.0 Mod by guf1990 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cx Проводник - это мощное приложение с интуитивно понятным интерфейсом для управления файлами. Это приложение поможет вам быстро просматривать файлы и управлять ими на вашем мобильном устройстве, ПК и в облачном хранилище, точно так же, как при использовании Windows Explorer или Finder на ПК или Mac. Программа также имеет богатый набор функций, которые придутся по (   Читать дальше...   )Тип издания: Mod (Тёмная тема)Релиз состоялся: 13.05.2023Разработчик: Cx File ExplorerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6352B7D5837F0F25D758270041D5513A620084DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642152   (196552) от 26.06.2023
-
-Kaspersky для Android 11.99.4.9878 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky для Android (Free, Standard, Plus, Premium) – мобильный Антивирус Касперского для смартфонов и планшетов. Комплексная защита от вредоносных приложений, спама, фишинга и опасных веб-сайтов на вашем мобильном устройствеТип издания: Free (С ключом)Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C936A7380EE2AF012FB134F96957B530F71F14A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

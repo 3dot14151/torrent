@@ -1,3 +1,32 @@
+###  Публикация: 1634493   (233363) от 20.05.2023
+
+Yes - Mirror To The Sky (2023) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233363.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cut From The Stars
+02. All Connected
+03. Luminosity(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B663E6298C343C2AA92193FFB0D1C51AB6700AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576896   (233362) от 17.09.2022
 
 Little Villains - Battle of Britain (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +35,7 @@ Little Villains - Battle of Britain (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233362.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Rain City Drive - Rain City Drive (2022) Deluxe Edition, 2023, Thriller Records 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233359.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Rites of Sin - Rites of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233356.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Omophagia - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Modern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233354.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Honey Revenge - Retrovision (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233351.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Sonce - Rising with the Moon (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stone
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233346.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Raider - Trial by Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233344.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Genesis - BBC Broadcasts (2023) Бокс-сет, 5 x CD, Compilation [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233342.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Behemoth - Opvs Contra Natvram (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233339.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Dodheimsgard - Black Medium Current (2023) [FLAC|Lossless|WEB-DL|tracks] <Avantg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233337.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Tiger Moth Tales - A Song Of Spring (2022) [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233333.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Saphath - Ascension Of The Dark Prophet (2022) [FLAC|Lossless|image + .cue] <Dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233332.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nektar - 4 Albums (2008-2023) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233324.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ XO Armor - Nublar (2023) [FLAC|24/44.1|WEB-DL|tracks] <Nu Metalcore, Rapcore, Al
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233319.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233318.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Wizard Master - Ablanathanalba (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233317.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Scar Symmetry - The Singularity (Phase II - Xenotaph) (2023) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233311.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Twilight Road - Trapped (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233308.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Skate (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233305.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Aura - Underwater (2022) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233302.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233301.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Big Big Train - Ingenious Devices (2023) [MP3|320 Kbps] <Crossover Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233298.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Riffobia - Riffobia (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233296.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Sovrag - Perfect Form from Chaos Born (2023) [FLAC|Lossless|WEB-DL|tracks] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233283.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Edenbridge - 3 Albums (2019-2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocals
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233282.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Edenbridge - 3 Albums (2019-2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocals
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D6FD2DF06B07A4531F5A2DACF25A73E1EC17D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628157   (233278) от 22.04.2023
-
-Wolfnaut - Return Of The Asteroid (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Of The Badlands [00:04:26]
-02. My Orbit Is Mine [00:03:07]
-03. The Mighty Pawns [00:05:43]
-04. Crash Yer Asteroid [00:02:47](   Читать дальше...   )Жанр: Heavy Rock, StonerПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF8C3C8F5C85E2C56710AFC35DCBEC802163C44
 ```
 
 https://mybot314.ru/tekegram_catalog/

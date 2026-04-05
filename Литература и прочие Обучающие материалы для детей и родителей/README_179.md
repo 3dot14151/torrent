@@ -1,3 +1,29 @@
+###  Публикация: 1030431   (674570) от 30.06.2016
+
+Вениамин Брагин | Юный моряк (1980) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674570.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, предназначенной для ребят, мечтающих о морской службе, рассказывается о назначении, устройстве и вооружении надводных и подводных кораблей, основах кораблевождения. Приводятся сведения об устройстве шлюпки, правилах гребли, такелажном делe. Даются рекомендации по обучению плаванию, оказанию первой помощи пострадавшим.Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4FECAF273E62C81B40874CD92860FE14A47003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290863   (674452) от 22.03.2019
 
 Мустай Карим | Радость нашего дома. Таганок. (1966) [DJVU]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674452.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674447.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674431.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674424.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674364.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674318.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674143.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673827.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673819.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673473.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673471.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673466.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673296.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673137.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673045.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672864.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672803.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672794.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672766.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672637.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672502.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672465.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672464.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672066.jpg" />
 </div>
 
 
@@ -636,54 +662,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 509866   (671782) от 13.06.2012
+###  Публикация: 337887   (671894) от 17.05.2011
 
-Бумажное моделирование | Canon. Объемные фигурки из бумаги (2007) [PDF]
+Бунеев Р.Н., Бунеева Е.В., Кислова Т.Р. | По дороге к азбуке. 2 часть [2008] [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
+>>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_671894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вашему вниманию представляется очередная подборка объемных моделей для детского творчества, намного обширнее по объему, чем предыдущая. Все что вам нужно сделать - это распечатать на листе А4 выбранный pdf и приступить к вырезанию, сгибанию, склейке и сборке очередной фигурки! Вы сможете собрать целую коллекцию фигурок животных, птиц, динозавров, различных транспортных средств(автомобилей, мотоциклов, самолетов, танков) и известных архитектурных сооружений! В наличии имеются как совсем простенькие модели, так и настолько сложные, что и взрослый человек провозится минимум день! Наверняка вы найдете что-нибудь на свой вкус!
+Пособие по курсу развития речи и подготовки к обучению грамоте для детей 4-5 лет является начальным звеном и непрерывного курса русского языка, чтения и литературы, входящего составной частью в комплект учебников и пособий Образовательной системы "Школа 2100".
 
-Советы для новичков и детей как легко собрать и склеить бумажную модель:
-Распечатай, вырежи, склей. Бумажные модели.Жанр: Поделки из бумагиФормат: PDF
+Пособие может использоваться для занятий с дошкольниками в детских садах,  а также для индивидуальной работы родителей с детьми.
+
+Допущено Министерством образования РФ.Жанр: Пособие для дошкольниковФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:260D40DD7ACBDA523CD1BFC00812EC388B53106B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223736   (671643) от 06.05.2018
-
-Фрэнк О'Коннор, Брайан Фрил | Протест настоящего мужчины (1981) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из семи рассказов известного ирландского прозаика Франка О'Коннора и семи рассказов известного ирландского драматурга Брайана Фрила о жизни ирландской провинции первой четверти XX века, о детях, о сложных взаимоотношениях с родителями.Жанр: Детская прозаПеревод: Инна  ЛевидоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405F46A1BBFE62EDE3643E20B161306B84FA42AC
+magnet:?xt=urn:btih:B3ECFABDB34C04E29B3756BCF0EEC3860FF8442E
 ```
 
 https://mybot314.ru/tekegram_catalog/

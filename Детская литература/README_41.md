@@ -1,32 +1,3 @@
-###  Публикация: 1377373   (852930) от 21.04.2020
-
-Михаил Вострышев (сост.) | 198 басен дедушки Крылова (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852930.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Во всех отношениях самый народный наш поэт…
-(А. С. Пушкин)
-…Его басни отнюдь не для детей. Тот ошибется грубо, кто назовет его баснописцем в таком смысле, в каком были баснописцы Лафонтен, Дмитриев, Хемницер и, наконец, Измайлов. Его притчи – достояние народное и составляют книгу мудрости самого народа.
-(Н. В. Гоголь)(   Читать дальше...   )Жанр: Русская классика для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6D5E921DAF1A9599DCB1B605B477BE7530BA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001290   (852200) от 29.03.2016
 
 Юрий Ермолаев | 106 пропавших часов (1965) [PDF]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852200.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851959.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851486.jpg" />
 </div>
 
 
@@ -114,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849439.jpg" />
 </div>
 
 
@@ -141,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849436.jpg" />
 </div>
 
 
@@ -167,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849294.jpg" />
 </div>
 
 
@@ -195,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848187.jpg" />
 </div>
 
 
@@ -223,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846743.jpg" />
 </div>
 
 
@@ -249,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845917.jpg" />
 </div>
 
 
@@ -278,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845831.jpg" />
 </div>
 
 
@@ -304,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845734.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845187.jpg" />
 </div>
 
 
@@ -358,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845158.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845046.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844304.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843391.jpg" />
 </div>
 
 
@@ -466,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843113.jpg" />
 </div>
 
 
@@ -493,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842604.jpg" />
 </div>
 
 
@@ -522,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842359.jpg" />
 </div>
 
 
@@ -548,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842131.jpg" />
 </div>
 
 
@@ -574,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841214.jpg" />
 </div>
 
 
@@ -601,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841211.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841210.jpg" />
 </div>
 
 
@@ -653,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841206.jpg" />
 </div>
 
 
@@ -680,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841205.jpg" />
 </div>
 
 
@@ -691,6 +662,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2A917A8075B561B94255C0922D63D4A54F155FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860784   (841122) от 09.03.2017
+
+В. Крепс, К. Минц | Клуб знаменитых капитанов [9 книг] (1963-1980) [FB2, PDF, DJVU] [Обновляемая]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841122.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Клуб знаменитых капитанов» — популярный многосерийный радиоспектакль для детей, выходивший в СССР с декабря 1945 года до конца 1970-х годов. Авторы сценария — Климентий Минц и Владимир Крепс. Персонажами спектакля были герои популярных приключенческих книг. капитан Немо, Гулливер, Робинзон Крузо, Тартарен из Тараскона, барон Мюнхгаузен, Дик Сэнд, капитан корвета (   Читать дальше...   )Жанр: Приключения литературных героев, радиопьесыФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D504E14C0E29CBA4F905C163B37FC3E893A854FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

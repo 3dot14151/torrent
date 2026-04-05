@@ -6,7 +6,7 @@ Nokemono-tachi no Yoru | The Tale of Outcasts | Сказание об отвер
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200376.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Majutsushi Orphen Hagure Tabi: Urbanrama Hen | Sorcerous Stabber Orphen: Chaos i
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200262.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tokyo Revengers: Seiya Kessen Hen | Tokyo Revengers: Christmas Showdown Arc | Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200160.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ UniteUp! | Объединяйтесь! [2023, TV, 12 +3R] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199688.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kuma Kuma Kuma Bear Punch / Ми-ми-ми-мишка 2 [2023, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196871.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ My Home Hero | Мой домашний герой [2023, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196857.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito | Хро
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196835.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Isekai wa Smartphone to Tomo ni. 2 | В другом мире со смартф�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196814.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Kizuna no Allele | Аллель Кидзуны [2023, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196764.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Skip to Loafer | Skip and Loafer | Долой безделье! [2023, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196763.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196747.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Konosuba: An Explosion on this Wonderful World! | Kono Subarashii Sekai ni Bakue
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196714.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Watashi no Yuri wa Oshigoto Desu! / Yuri Is My Job! / Юри — это моя �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196675.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Birdie Wing: Golf Girls' Story (2023) | История гольфисток [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196642.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tonikaku Kawaii 2 / Tonikawa: Over the Moon for You 2 / Красавица: Ун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196622.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196609.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Megami no Cafe Terrace / The Cafe Terrace and Its Goddesses / Терраса к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196596.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Mahou Shoujo Magical Destroyers | Magical Girl Destroyers | Девочки-во�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196595.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Edomae Elf | Otaku Elf | Эльф-отаку [2023, TV, 12 эп.] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196593.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Rokudou no Onna-tachi | Rokudo's Bad Girls | Плохие девчонки Ро�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196587.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо-сан �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196581.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Yamada-kun to Lv999 no Koi o Suru | Loving Yamada at Lv999! | Моя любов�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196568.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Otonari ni Ginga / A Galaxy Next Door / Галактика по соседств
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196567.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Isekai Shoukan wa Nidome Desu / Summoned to Another World... Again?! / Приз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196551.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196550.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ World Dai Star / Мир великих звёзд [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196546.jpg" />
 </div>
 
 

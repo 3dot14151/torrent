@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597094.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596035.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ The Sweet – Action (The Ultimate Story) (2015) DVDReMux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595606.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593352.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Melanie Martinez - Carousel (2014) MasterRip [ProRes/1080p] [10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590341.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ VA - Летний марафон № 176 / Видеоклипы (Самые Но
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590321.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588575.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ France Gall - видеозаписи (1963 - 1984)/ VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_588165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_588165.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585895.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580788.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579075.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ MEDINA - FOR ALTID (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578611.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Beyonce - Best Thing I Never Had (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576955.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576949.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573316.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570750.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567083.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ The Eagles - Hotel California (2005) HDTV [MPEG-2/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564934.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564326.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562894.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Avril Lavigne - Rock N Roll (2013) HDTV [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560052.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559355.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558877.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Летний марафон № 178 / Видеоклипы (Зажигат�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558871.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558870.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ VA - Летний марафон № 179 / Видеоклипы (Зарубеж�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
 </div>
 
 

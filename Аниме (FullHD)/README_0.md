@@ -6,7 +6,7 @@ Shuumatsu no Walkure III | Record of Ragnarok III | Повесть о конце
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049531.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ New Panty and Stocking with Garterbelt | Панти, Стокинг и Гарт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048368.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047880.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047839.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047154.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex | Доч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046410.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046390.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046383.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Eiga Go-Toubun no Hanayome | Пять невест (фильм) [2022, Movie] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046312.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045937.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hatena Illusion | Иллюзия Хатэны [2020, TV, 12 эп.] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045667.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Soredemo Ayumu wa Yosetekuru | When Will Ayumu Make His Move? | Аюму всё 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044830.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Strike the Blood Final | Удар крови OVA-5 [2022, OVA, 4 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044807.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Itou Junji: Maniac | Junji Ito Maniac: Japanese Tales of the Macabre | Дзюн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044692.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Gekijouban Karakai Jouzu no Takagi-san | Озорная Такаги (фильм
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044222.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | League of Nations Air Fo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043915.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043887.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Lapis Re:LiGHTs | Лазурные огни [2020, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042780.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Houkago Teibou Nisshi | Diary of Our Days at the Breakwater | Рыбалка д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042770.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Hachi-nantte, Sore wa Nai Deshou! | The 8th Son? Are You Kidding Me? | Вось�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042769.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Eikoku Koi Monogatari Emma | Emma: A Victorian Romance | Эмма: Виктор�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042110.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Dr. Stone | Доктор Стоун [ТВ-1][2019, TV, 24 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040732.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Takamiya Nasuno Desu! Teekyuu Spin-off | Я - Насуно Такамия! [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040628.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040619.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Toaru Kagaku no Railgun T | A Certain Scientific Railgun T | Некий науч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040488.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный к
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040474.jpg" />
 </div>
 
 

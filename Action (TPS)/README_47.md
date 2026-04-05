@@ -6,7 +6,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack FitGirl 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31712.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project Tower (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31711.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3411.0/1.70) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31648.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TankHead (2024) [En] (1.0.69881) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31341.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Manhunt (2004) [Ru] (1.1) Repack TaloN
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31289.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru] (1.03 update 3/dlc) Repack Oth
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31226.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Shadows of the Damned: Hella Remastered (2024) [Ru/Multi] (Build 15991776) Repac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31217.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FREEDOM WARS Remastered (2025) [Multi] (1.0/dlc) Repack FitGirl [Contribution Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31209.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30053.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29929.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29856.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.113.49697469) Repack Deceptic
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29764.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29743.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29730.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29535.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (build 17020908) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29514.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Thing: Remastered (2024) [Ru/Multi] (1.1.1609.1391) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29454.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29358.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlude 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29356.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Grand Theft Auto III (3) (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlude [T
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29337.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Silent Hill 2 (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Let'sРlay [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29330.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Eternal Strands (2025) [Multi] (1.0.12.8195) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29063.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Princess&Blade (2021) [Multi] (0.95.6) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29059.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28943.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Eternal Strands (2025) [Multi] (1.0.12.8195) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28941.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28926.jpg" />
 </div>
 
 

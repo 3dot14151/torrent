@@ -1,136 +1,3 @@
-###  Публикация: 1295846   (616832) от 14.04.2019
-
-В.Г. Давыдов, В.Н. Хохловский | Система супервизорного управления Citect SCADA. Базовый курс и язык Cicode (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для использования студентами при изучении дисциплин "Проектирование компьютерных систем управления" и «Компьютерные системы управления». Изложение материала в учебном пособии соответствует программе базового курса по системе супервизорного управления Citect SCADA и курса по языку программирования Cicode, изучаемых в центрах (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E5A97F9385C0EA910CD3DF96B63467DE6800E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523863   (616615) от 16.07.2012
-
-А.А.Ионина, А.С.Саакаян | How Articles Work in English. Как же все-таки употреблять артикли? [2002] [DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта полезная книга поможет сформировать, развить и закрепить навыки правильного употребления английских артиклей с самыми различными разрядами существительных. Материал книги поможет как учителю английского языка - проводить интенсивное обучение при индивидуальном подходе, так и всем тем, кто самостоятельно изучает английский язык - издание содержит ответы к упражнениям и тестам для самоконтроля.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A673ED7C3CB953BBEBA704D58C3699E86CCDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146141   (616482) от 28.06.2017
-
-Г. В. Плеханов | Воинствующий материализм (1931) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616482.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Воинствующий материализм» Плеханов собрал свои открытые письма к Богданову.
-
-Два из них были помещены в 1908 году в «Голосе социал-демократа», а последнее, третье написано специально для сборника «От обороны к нападению», вышедшего в 1910 г.
-(   Читать дальше...   )Жанр: История, политология, философия, науковедениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFD9CECA52BD9BC6C683D0C7088FED07D8DE979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911594   (616439) от 23.06.2015
-
-Андрей Тарасов | Что есть истина? Праведники Льва Толстого (2001) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616439.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге представлено монографическое исследование, посвященное духовно-религиозным аспектам художественного творчества Л. Н. Толстого. Большое значение придается практически не исследованным «малым» произведениям и наброскам писателя, имеющим принципиальное значение при изучении представлений Толстого о высшей жизненной правде. В отечественном сознании сложился (   Читать дальше...   )Жанр: Культурология, Языкознание, Биографии писателей и поэтовФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D804EB2A4266A8EA9D01770B00BC8113C51FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911067   (616434) от 23.06.2015
-
-М. И. Панова | «Народный капитализм» сегодня (1970) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В экономическом «фольклоре», созданном буржуазными идеологами, сказка о «народном капитализме» занимает далеко не последнее место. В ней говорится о том, что капитализм в ходе своего развития потерял присущую ему эксплуататорскую сущность. В буржуазном обществе якобы произошли три «революции» — в собственности, управлении и доходах,— результатами которых явились (   Читать дальше...   )Жанр: история, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A9049744A736023A424ED78393DEE307C8043F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911052   (616432) от 23.06.2015
 
 Виктор Живов | Из церковной истории времен Петра Великого. Исследования и материалы (2004) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616432.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616427.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616354.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616333.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616296.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616235.jpg" />
 </div>
 
 
@@ -295,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616212.jpg" />
 </div>
 
 
@@ -321,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616192.jpg" />
 </div>
 
 
@@ -347,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616187.jpg" />
 </div>
 
 
@@ -373,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616185.jpg" />
 </div>
 
 
@@ -400,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616183.jpg" />
 </div>
 
 
@@ -426,7 +293,7 @@ Tektronix | Руководство по проведению измерений 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616169.jpg" />
 </div>
 
 
@@ -452,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616158.jpg" />
 </div>
 
 
@@ -479,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616156.jpg" />
 </div>
 
 
@@ -505,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616088.jpg" />
 </div>
 
 
@@ -533,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616083.jpg" />
 </div>
 
 
@@ -559,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616064.jpg" />
 </div>
 
 
@@ -585,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616063.jpg" />
 </div>
 
 
@@ -611,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616059.jpg" />
 </div>
 
 
@@ -639,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616055.jpg" />
 </div>
 
 
@@ -665,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616051.jpg" />
 </div>
 
 
@@ -676,6 +543,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:972D4B99A89037F00809289711F26F1E6BAF6506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910914   (615942) от 23.06.2015
+
+М. П. Новиков (общ. ред.) | Атеистический словарь (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615942.jpg" />
+</div>
+
+
+###  Подробнее
+
+В словаре содержатся основные понятия марксистского атеизма, разъясняются термины, связанные с историей атеизма, религии и церкви, с современными религиозными направлениями, с проблемами атеистического воспитания. В создании словаря принимали участие советские ученые, а также исследователи из братских социалистических стран. В него включено около 2500 терминов. Второе (   Читать дальше...   )Жанр: история, религиоведение, словарьФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B8484A2C5B2259871E33000A36CFDC5CDF67D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910738   (615939) от 23.06.2015
+
+П. А. Баранов | Предупреждение аварий паровых котлов (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описаны наиболее часто встречающиеся повреждения элементов паровых и водогрейных котлов, вспомогательного оборудования, арматуры, трубопроводов пара и горячей воды. Дан анализ причин возникновения повреждений и аварий, рекомендованы мероприятия по их предотвращению.
+Книга рассчитана на инженерно-технический персонал промышленных и отопительных котельных и (   Читать дальше...   )Жанр: Техническая литература, Котельные установкиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AAC29364378FDE25F770AA807CEEDEB11A5C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910812   (615851) от 23.06.2015
+
+Томас Каткарт, Дэн Клейн | Как-то раз Платон зашел в бар… Понимание философии через шутки (2015) [PDF, DOC, FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарвардские профессора философии Том Каткарт и Дэн Клейн своей блестящей книгой подарили нам увлекательное путешествие по истории философских учений, проиллюстрировав ее самыми смешными и мудрыми на свете анекдотами. В компании с Платоном, Гегелем, Кантом, Декартом, Бартом и… авторами читатель сможет окунуться в философские дебри и при этом вдоволь посмеяться. Книга (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DOC, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C8A9C0C4252E1EE04A538C704868F04A828415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910806   (615846) от 23.06.2015
+
+Конфуций | Суждения и беседы (2015) [PDF, DOCX, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конфуций (Кун Цю) – древний китайский мыслитель. Его учение, позже названное конфуцианством, оказало огромное влияние на духовное и политическое развитие Китая и всей Восточной Азии, а с XVII в. началось его распространение и в Западной Европе.
+
+Основы конфуцианства изложены учениками мыслителя в сборнике афоризмов, диалогов и заметок, получившем название «Суждения (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DOCX, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976AE38D94EFFAE1781BF4130341C0C7BA766979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911194   (615844) от 23.06.2015
+
+Б.Ю. Семенов | Шина I2C в радиотехнических конструкциях  (+CD) (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615844.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о принципах построения и логике работы последовательной шины обмена данными Inter-Integrated Circuit Bus (I2C), разработанной фирмой Philips. Приводятся сведения о микросхемах, имеющих интерфейс I2C, а также несложные конструкции на их основе, доступные для повторения радиолюбителями. Книга может быть полезна радиолюбителям, инженерам, студентам (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2569FB21795B26316BD4C959B6D97F73F8B4E1C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 917086   (589579) от 11.07.2015
+
+Т. Папендик, Б. Столповский | Пчельник на лесной поляне (1926) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как организовать приусадебную пасеку, существенно повысить, медосбор, предотвратить роение и болезни пчел, правильно подготовить пчелиные семьи к зимовке, перерабатывать и хранить продукты пчеловодства рассказывает эта книга.Жанр: Пчеловодство, обучающая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F3BA1E1728CEC5B42B54735D6CB168692DFEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917087   (589562) от 11.07.2015
+
+В. Иванов | Коньки (1926) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделать самому настоящие коньки трудно, но подобие коньков можно соорудить и довольно легко. Ребята многое сами делают и так научаются кататься, что, пожалуй, по их словам, и с «настоящими» отстанешь. Материал для коньков — березовое хорошее полено без суков да полоса железа в 60 —70 сантиметров —вот и все.Жанр: Конькобежный спортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82149DF5755FBA239D5BC7B368E6C85D1FEB3852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917078   (589559) от 11.07.2015
 
 В. Яковлев | Учись плавать (1948) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589559.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589521.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589425.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589115.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589107.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588921.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588684.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588678.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588641.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588129.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588069.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588017.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587995.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587947.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587921.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587898.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587813.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587769.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587743.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587709.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587526.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587520.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587426.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587352.jpg" />
 </div>
 
 
@@ -637,59 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFCB99B3E6E503B16D14CA1B62F94BE58C5B9092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301115   (587223) от 09.05.2019
-
-Йозеф Аугуста , Зденек Буриан | Исчезнувший мир (1979) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор — известный чешский ученый, профессор, доктор наук, знакомит читателей с животным и растительным миром давно прошедших геологических эпох, отдаленных от нашего времени многими миллионами лет.
-Книга переносит нас в глубокие бездны бесконечно далекого прошлого, где столетия были ничем иным, как ничтожными песчинками гигантских песочных часов вечности, и где красота (   Читать дальше...   )Жанр: детская литература, образовательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14CF86958C2997A43A1DE02498170784F9D8165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945770   (587120) от 04.08.2016
-
-Книжная серия | Черный котенок [422 книги] [Обновляемая] (1996-2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои этой серии – школьники – ровесники юных читателей. Они, также как и все обычные дети, учатся в школе, делают уроки, в свободное время ходят на дискотеки и играют в компьютерные игры. А еще они занимаются настоящими расследованиями: сбор улик, слежказа подозреваемыми. Увлекательные, смешные, а порой и опасные приключения. Иногда первоначальные версии рушатся, (   Читать дальше...   )Жанр: Детская проза, детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02073A3060B353638FB090E2AF5F8EA388943845
 ```
 
 https://mybot314.ru/tekegram_catalog/

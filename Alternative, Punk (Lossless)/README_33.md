@@ -6,7 +6,7 @@ The Kills - Midnight Boom (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522327.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Kills - Ash & Ice (2016) [FLAC|Lossless|tracks + .cue] <Garage Rock, Lo-Fi, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522326.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Kills - No Wow (2005) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522324.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Kills - Keep On Your Mean Side (2003) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522269.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Kills - Future Starts Slow (2011) Single [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521431.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Fame on Fire - Levels (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520881.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Dead Can Dance - Anastasis (2012) [FLAC|Lossless]<Ambient, Ethereal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520854.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Blue October - I Hope You’re Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518350.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518258.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Overthrone - The Path of Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517807.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Blood Command - Praise Armageddonism (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517806.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Satyr - Totem (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progressive, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517802.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Superheist - MMXX (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517801.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Speaking With Ghosts - At Its End (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517721.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Bill Orcutt - "Solo CD" (Untitled) (1996) [FLAC|Lossless|tracks + .cue] <Noise R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517189.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Dreaming Awake - The Cold Approach (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516912.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Thursday - War All the Time (Live in Brooklyn) (2022) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515721.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlopho
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515588.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Greg Puciato - 3 Albums / 3 Singles (2020-2022)  Federal Prisoner Record [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514510.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Flaming Lips - King's Mouth (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513893.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Scott Stapp - The Space Between the Shadows (2019) Napalm Records [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513823.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ HER - Chain Reaction (2017) [FLAC|Lossless|tracks] <Alternative Rock, Hard Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513104.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Bad/Love - Life Imitates Art (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512515.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Greylotus - Dawnfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511557.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Machinist - All is Not Well (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511549.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511543.jpg" />
 </div>
 
 

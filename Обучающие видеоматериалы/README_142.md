@@ -1,3 +1,29 @@
+###  Публикация: 1054919   (485358) от 23.09.2016
+
+Зузка Лайт | ZCUT Kettlebell Start with Zuzka Light (2015) DVDRip [H.264] [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гиря является одним из самых динамичных, универсальных и полезных единиц оборудования на спортивном рынке.  Zuzka Light, знакомит вас с основными моментами гиревого спорта и ведет вас через 12 коротких, умеренной интенсивности тренировок, которые дадут вам  результаты в два раза быстрее чем  в тренажерном зале. Эти гиревые тренировки всего тела сочетают в себе все преимущества (   Читать дальше...   )Производство: СШАЖанр: Фитнес, гиревой спортПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834B0B789BB903C79797E6E2CD33B734B07726BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054815   (485357) от 23.09.2016
 
 Jillian Michaels | Killer Abs (2012) DVDRip [EN, POR]
@@ -6,7 +32,7 @@ Jillian Michaels | Killer Abs (2012) DVDRip [EN, POR]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485357.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485356.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485132.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485116.jpg" />
 </div>
 
 
@@ -120,7 +146,7 @@ SF Education | Финансы для нефинансистов (2016) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484702.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484273.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484224.jpg" />
 </div>
 
 
@@ -205,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483993.jpg" />
 </div>
 
 
@@ -234,7 +260,7 @@ Pixel, Софья Палюхина, Наталья Егорова | Рисова
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483976.jpg" />
 </div>
 
 
@@ -262,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483975.jpg" />
 </div>
 
 
@@ -291,7 +317,7 @@ Daily Burn | Power Cardio (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483729.jpg" />
 </div>
 
 
@@ -317,7 +343,7 @@ CG Boost, Zach Reinhardt | Cubic Worlds: Create Stunning Low Poly Animations in 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482033.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ HarvardX (Harvard University) | CS50 Разработка мобильных п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480779.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480504.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480494.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480492.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ SkillBox | Сквозная аналитика (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480486.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Udemy, Dzianis Matveyenka | Groovy (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479960.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ YouSmart, Нина Наумова | Курс Adobe Illustrator, Photoshop, InDes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479959.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479546.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ ITVDN | React Advanced (2017) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479532.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479040.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Frank Sepe | Met-Rx 180 Workout (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478938.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Maxim Jago | Adobe Premiere Pro CC: Learn by Video (2013) PCRec [H.264/720p] [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478769.jpg" />
 </div>
 
 
@@ -671,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478718.jpg" />
 </div>
 
 
@@ -683,33 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B39055F4F499582117EF88B9673CE8D3BF9D07CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405984   (478675) от 01.09.2020
-
-Creative Shrimp | Риггинг механизмов в Blender 2.83 / Hard Surface Rigging in Blender 2.83 (2020) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем привет и добро пожаловать в курс для начинающих по ригу механизмов в Blender.
-Этот курс предназначен для начинающих пользователей Blender, которые хотят усовершенствовать свои навыки риггинга и научиться настраивать роботов, механизмы, гидравлику и другие предметы с твердой поверхностью. Рекомендуются некоторые базовые знания пользовательского интерфейса Blender, (   Читать дальше...   )Производство: Creative ShrimpЖанр: 3D моделирование, РиггингПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 06:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62CB095FDB596209AA8637C0EFB1A7F0734AD08
 ```
 
 https://mybot314.ru/tekegram_catalog/

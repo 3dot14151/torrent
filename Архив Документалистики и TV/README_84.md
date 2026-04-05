@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788661.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788659.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788656.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Cкелетон. Кубок мира 2017-2018. Санкт-Мориц (Швей�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787708.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787706.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787702.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787698.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786386.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786369.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786292.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786286.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785841.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785838.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785826.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 7 - Texas. Гонка (2017) WEB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785819.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785678.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785657.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785656.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785598.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785399.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785398.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785357.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785145.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ AMA Supercross Championship: Salt Lake City (08.06.2020) WEB-DL [H.264/1080p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785140.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784958.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784950.jpg" />
 </div>
 
 

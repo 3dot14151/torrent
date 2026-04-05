@@ -6,7 +6,7 @@
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682910.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cash Cash - Blood, Sweat & 3 Years (2016) [MP3|320 кб/с] <Electronic, Pop, Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682478.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alle Farben - Music Is My Best Friend (2016) [MP3|320 кб/с] <Electronic, Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682133.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682081.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Ministry Of Sound-80S Soul Jams Vol. II (2019) [MP3|320 Kbps] <Post-Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_681979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_681979.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Mallorca Megaparty 2018 - Die WM Party! (2018) [MP3|320 Kbps] <Pop, Schlage
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681083.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Ultimate... Party Anthems (2018) 4CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681081.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Car Hits The Ultimate Collection (2019) 5CD [MP3|320 Kbps] <Pop, Dance, Clu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680127.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Gwen Stefani - Greatest Hits (2008) [MP3|320 kbps]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679287.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Comes The Fall - Adult Casual Vocals (2018) [MP3|320 Kbps] <Pop, Dance, Clu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677526.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Masterboy - Feeling Alright (1993) Polydor [MP3|320 Kbps] <Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677401.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Francois Feldman - 5 Albums (1987-1996) CD [MP3|320 Kbps] <Electronic, Pop, Chan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677289.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Masterboy - Different Dreams (1994) Polydor [MP3|320 Kbps] <Eurodance, Techno>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676857.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ S.E.X. Appeal - Sexy Boy... Best Of 1999-2018 (2018) [MP3|320 Kbps] <Eurodance, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676589.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Turbo Disco International Vol. 1-2 (2004) [MP3|320 Kbps] <Pop, Dance, Pop R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676580.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Dreamers Lounge (Easy Listening And Adult Casual Songs) (2018) [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673459.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Georges Rodi - Space (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672456.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Italo Holiday, New Generation Italo Disco Vol.11 (2019) [MP3|320 Kbps] <Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672226.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ London Aircraaft - Rockets (1984) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670876.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - 100 Greatest Acoustic Songs (2019) [MP3|320 Kbps] <Pop, Pop-Rock, Acoustic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670497.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sugar - 2 Albums (1981, 1982) [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670323.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Mastermix Pro Disc 256 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669321.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Script - Electronic And Spatial (unknown) LP [MP3|320 Kbps] <Electronic, Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669300.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Mastermix Pro Disc 258 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669260.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - 100 Greatest Breakfast Songs (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668805.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Omer Ozgur - As Is (2009) Reissue, 2016 [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668773.jpg" />
 </div>
 
 

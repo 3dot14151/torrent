@@ -1,3 +1,161 @@
+###  Публикация: 1376478   (830756) от 04.05.2020
+
+Adobe Photoshop 2020 v21.1.2.136 (x64) RePack by SanLex [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — лучшее в мире ПО для графического дизайна и обработки изображений, которое воплотит в реальность любые ваши идеи. Создавайте и улучшайте фотографии, иллюстрации и графические 3D-объекты. Разрабатывайте дизайн веб-сайтов и мобильных приложений. Редактируйте видео, моделируйте живые картины и т. д. Теперь у вас есть все необходимое для реализации (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F05133436E845A989EB74F480AFA62487ADC82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350023   (830751) от 04.05.2020
+
+Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack xatab [Director's Cut]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший оперативник Адам Дженсен занимал пост начальника охраны одной из крупнейших мировых корпораций, специализирующейся на биотехнологиях. И все шло хорошо, пока однажды офис компании не подвергся нападению. Большинство ученых погибло, а сам Адам был тяжело ранен. Чтобы сохранить ему жизнь, руководство приняло решение подвергнуть его механическому усовершенствованию.Тип издания: RepackРазработчик: Eidos MontrealЖанр: Action (Tactical), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BBA2DC73DF571CAFF2D84F86D1604D794D3467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004317   (830747) от 04.05.2020
+
+Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь с нуля в другом мире [2016, TV + Movie, 25 эп. + 2 MV] WEB-DL 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Нацуки Субару, геймер и домосед, особо не удивился, когда среди ночи вдруг оказался в фентезийном городе, полном странных существ. А чего бояться? Любой игрок знает, что по закону жанра в волшебном мире последний задохлик обрастает силами и способностями, а там и девушки подтянутся. Нацуки же не только чипсы ел за монитором, но и регулярно «качался». (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Ватанабэ МасахаруПеревод: #1 NT Subs (TV) + Big23 (SP) + zafhos (Movie 1) + SweetSweet & Rincewind (Movie 2); #2 HorribleSubs (TV)Язык субтитров: #1 Русский; #2 АнглийскийПродолжительность: 25 эп. по 25 мин. (первый эпизод - 50 мин., разбит на две части), фильмы - ~70 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE98DE55DD0878A8DC3B7E9C1A7A86BDB047089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367866   (830746) от 04.05.2020
+
+Мир Дикого запада /Westworld (2020) WEB-DL [H.264/720p] (сезон 3, серии 1-8 из 8) Кравец
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830746.jpg" />
+</div>
+
+
+###  Подробнее
+
+В третьем сезоне футуристического эпика создатели обещают поразить зрителя новым парком, посвященным Второй мировой войне. В актерском составе тоже любопытное пополнение — Аарон Пол, известный по роли Джесси Пинкмана в сериале «Во все тяжкие». Также к проекту присоединился Венсан Кассель, который сыграет, конечно же, злодея. Кроме прочего, новый сезон состоит из (   Читать дальше...   )Производство: США / Bad Robot, Jerry Weintraub Productions, Warner Bros. TelevisionЖанр: фантастика, триллер, вестернРежиссер: Джонатан Нолан, Джонни Кэмпбелл, Ричард Дж. ЛьюисАктеры: Эван Рэйчел Вуд, Тэнди Ньютон, Джеффри Райт, Аарон Пол, Джеймс Марсден, Бен Барнс, Ингрид Бульсё Бердал, Клифтон Коллинз мл., Люк Хемсворт, Сидсе Бабетт Кнудсен и др.Перевод: Дублированный (Кравец-Рекордз по заказу Amedia)Субтитры: русские (форсированные, полные), английскиеПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3666E08D39F2DA933B20FCAF78539D3F824104C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059260   (830745) от 04.05.2020
+
+Мир Дикого запада / Западный мир / Westworld (2016) HDTV [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) Кравец
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830745.jpg" />
+</div>
+
+
+###  Подробнее
+
+В футуристическом парке развлечений андроиды на фоне для исторических декораций становятся рабами людей, выполняя рутинные задания, пока в один момент сбой в программе не превращает их в опасных убийц.Производство: СШАЖанр: фантастика, триллер, вестернРежиссер: Джонатан Нолан, Джонни Кэмпбелл, Ричард Дж. ЛьюисАктеры: Энтони Хопкинс, Эд Харрис, Эван Рэйчел Вуд, Джеймс Марсден, Тэнди Ньютон, Джеффри Райт, Тесса Томпсон, Джимми Симпсон, Родриго Санторо, Шеннон Мари Вудворд и др.Перевод: Дублированный - Студия "Кравец" по заказу AmediaЯзык субтитров: русский, английскийПродолжительность: ~ 01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00658A6CACDDD5FD51D554572CB19637A542D376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773389   (830407) от 05.04.2014
+
+SamDrivers 14.4 - Сборник драйверов для Windows(DriverPack Solution 14.0.412/Drivers Installer Assistant 5.12.30/Snappy Driver Installer 0.1.44) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник драйверов от SamLab.ws для всех 32-х и 64-битных операционных систем Windows от Windows 2000 до Windows 8.1 Update 1 включая серверные платформы.
+В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы:
+DriverPack Solution 14.4 Revision 412 / Drivers Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D072BFA395C64969D19F583545BDDD6A641F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 647896   (830374) от 07.05.2013
 
 Возвращение героя / The Last Stand (2013) BDRip [H.264/1080p] [hand made 60fps]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830374.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830371.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830280.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ IP-TV Player 0.28.1.8845 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830184.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ Autodesk AutoCAD 2011 x32 x64 ISO (RU)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830130.jpg" />
 </div>
 
 
@@ -144,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830079.jpg" />
 </div>
 
 
@@ -170,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829981.jpg" />
 </div>
 
 
@@ -197,7 +355,7 @@ uTorrent Pro 3.4.6 Build 42178 Stable RePack (& Portable) by D!akov [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829974.jpg" />
 </div>
 
 
@@ -223,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829970.jpg" />
 </div>
 
 
@@ -249,7 +407,7 @@ Call of Duty: Black Ops (2010) [Ru/En] [sp/zm/mp] [+ Sherkan B2] (upd6/dlc) Rip 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829968.jpg" />
 </div>
 
 
@@ -275,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829965.jpg" />
 </div>
 
 
@@ -301,7 +459,7 @@ Call of Duty: Black Ops III (2015) [Ru] (59.4.12.6.0/dlc) Repack =nemos= [Digita
 >>29
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829963.jpg" />
 </div>
 
 
@@ -327,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>42
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829961.jpg" />
 </div>
 
 
@@ -353,7 +511,7 @@ PixelPhone PRO 3.9.9.3 [Ru/Multi] - Управление звонками и к�
 >>43
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829959.jpg" />
 </div>
 
 
@@ -379,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_829627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_829627.jpg" />
 </div>
 
 
@@ -405,7 +563,7 @@ Ventoy 1.0.54 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829539.jpg" />
 </div>
 
 
@@ -433,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829534.jpg" />
 </div>
 
 
@@ -459,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829529.jpg" />
 </div>
 
 
@@ -485,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829523.jpg" />
 </div>
 
 
@@ -511,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829352.jpg" />
 </div>
 
 
@@ -522,163 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:822D5DDA276AF172292874F69636EDF05640E8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114332   (829231) от 16.03.2017
-
-Минздрав выступил за жесткое регулирование электронных сигарет
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829231.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Минздраве заявили, что контроль за оборотом электронных сигарет не должен быть более мягким, чем за обычными. Об этом во вторник, 14 марта, РИА Новости сообщил официальный представитель ведомства Олег Салагай.«Мы не считаем, что электронные сигареты должны регулироваться более мягко. Они должны регулироваться так же, как регулируются обычные сигареты», — сказал (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880714   (829135) от 22.03.2015
-
-Promt Professional 10 Build 9.0.526 Final Portable by Sitego + Словари [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829135.jpg" />
-</div>
-
-
-###  Подробнее
-
-PROMT Professional 10 – бизнес-решение с максимальными возможностями для управления переводом. PROMT Professional способен быстро и качественно перевести документ, текст с интернет-сайта или сообщение, а также создать и объединить корпоративные базы переведенных текстов, что весьма удобно при работе с типовыми документами, такими как, например, договоры или инструкции. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF0446A2B435AAB08D91BB2325C1DEF7E983E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880742   (829126) от 22.03.2015
-
-Autodesk AutoCAD 2016 Version M.49.0.0 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829126.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD 2016 – это больше, чем проектирование. Придавайте форму окружающему вас миру с помощью мощных Интернет-ориентированных инструментов AutoCAD – САПР, которая разработана компанией Autodesk. Продукт позволяет создавать впечатляющие 3D-проекты, с высокой скоростью выпускать рабочую документацию и совместно работать в облаке. Доступ к проектам возможен не только (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2C8FD3F621116CCCCACB9A03499363FC38558F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114725   (829106) от 16.03.2017
-
-Need for Speed - Hot Pursuit 2010 (2010) [Ru] [macOS WineSkin]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829106.jpg" />
-</div>
-
-
-###  Подробнее
-
-PC-версия новой игры популярной мультиплатформенной серии Need for Speed, которая отличается от предшественниц переработанной игровой концепцией.
-Need for Speed Hot Pursuit создана студией Criterion Games — авторами легендарной гоночной серии Burnout. Признанные новаторы вновь изменяют основы жанра и представляют проект, который объединяет игроков и предлагает им (   Читать дальше...   )Тип издания: macOS WineSkinРазработчик: Criterion GamesПоддерживаемая ОС: 10.11+Жанр: Arcade / Racing (Cars) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6475E9BEC79944E23BF22861077EED9071F30BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115066   (829104) от 16.03.2017
-
-Just Cause 3 (2015) [Ru/En] (1.05/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829104.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Just Cause 3 – средиземноморская республика Медичи находится под контролем жестокого генерала Ди Равелло. Встречайте Рико Родригеза, чья миссия заключается в свержении генерала любыми доступными способами.В вашем полном распоряжении более 1000 квадратных километров территории, включая воздушное пространство и морское дно, а также огромный запас оружия, гаджетов (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C1FB4DC844A90A9C7EBD184B1521AAB2FB56C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380699   (829050) от 05.05.2020
-
-Virgin Galactic объявила о первом испытании нового космолета в небе над Нью-Мексико
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unity серии SpaceShipTwo отделился от самолета-разгонщика Eve на высоте 15,2 км и совершил планирующий полет, приземлившись в космопорте.Компания Virgin Galactic британского миллиардера Ричарда Брэнсона в пятницу провела первое летное испытание в небе над штатом Нью-Мексико космолета Unity серии SpaceShipTwo. Об этом говорится в сообщении, размещенном на сайте Virgin (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1681162   (132823) от 02.12.2023
+
+Turok 3: Shadow of Oblivion Remastered (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turok 3 Shadow of Oblivion Remastered - это точная реставрация классического шутера от первого лица, первоначально выпущенного в 2000 году для Nintendo 64, обновленного с помощью фирменного движка KEX от Nightdive Studios для игры на современных игровых устройствах с разрешением до 4K и частотой 120 кадров в секунду. Он присоединится к популярным ремастерам Turok (   Читать дальше...   )Тип издания: SceneРазработчик: Nightdive Studios, Iguana EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E11B2F591C61B56D5899053C73A930224CAFE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595240   (132375) от 28.12.2012
+
+Singularity [Ru/En] (L/1.1) 2009
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каторга-12 — советский научный центр, расположенный на небольшом острове у побережья Камчатки. В результате неудачного эксперимента остров попал во временную ловушку и теперь постоянно перемещается между 1950 и 2010 годами. Оказавшись в этом странном, постоянно меняющемся месте, где внезапно происходят скачки во времени, игроки пройдут серьезные испытания. Используя мощное оружие и уникальное экспериментальное устройство — мобильный временной преобразователь, они будут сражаться с врагами в прошлом и в настоящем, уничтожать кошмарных тварей в параллельных измерениях. Однако самая главная и сложная задача — найти способ предотвратить страшную катастрофу в 1950 году, чтобы в 2010 году все вернулось на круги своя.
+
+(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F2939D4F1B19CAACF6165B3877C56A4312CB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596215   (131221) от 30.12.2012
 
 Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru] (L) 2009
@@ -6,7 +60,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131221.jpg" />
 </div>
 
 
@@ -38,7 +92,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131194.jpg" />
 </div>
 
 
@@ -68,7 +122,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130631.jpg" />
 </div>
 
 
@@ -94,7 +148,7 @@ Global Operations [Ru] (RePack) 2002 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130114.jpg" />
 </div>
 
 
@@ -121,7 +175,7 @@ Clive Barker's Undying (2001) [En] (1.1hf) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129343.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128839.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127014.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125261.jpg" />
 </div>
 
 
@@ -225,7 +279,7 @@ S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124491.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124013.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ GoreBox (2023) [En] (14.9.3) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123604.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122863.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack Other s [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121480.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ Heretic + Heretic 2 (1994, 1998) [Ru/En] (1.0) Repack/Rip Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118212.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117894.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117125.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117097.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116819.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116793.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Ru/Multi] (1.1.2381.1623) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116631.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ The Carrier and Crows (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116623.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115957.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115951.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115657.jpg" />
 </div>
 
 
@@ -626,58 +680,6 @@ Seed of the Dead: Sweet Home переносит геймеров в сеттин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2905BDA3BBF0E5983E149444F954C4CF660D3CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702887   (115630) от 26.02.2024
-
-Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива. Вы скиталец, которому по силам решить судьбу Города, но ваши исключительные способности имеют (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Action, RPG, AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD356019D3D6F3E4804509467DDFC0DFACB39EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703220   (115269) от 28.02.2024
-
-Fossilfuel 2 (2024) [Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fossilfuel 2 забрасывает игроков в затопленный исследовательский центр на Аляске, кишащий доисторическими хищниками. Джек Аллен, участник злополучной экспедиции, должен проложить свой путь через опасные головоломки, затопленные туннели и пугающую темноту. Вооружившись арсеналом смертоносного оружия, геймеры прокладывают себе путь через динозавров в жутких деталях (   Читать дальше...   )Тип издания: RepackРазработчик: DangerousBob Studio LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE097DAFCD65F3D3B3DE7C42F2F390F34AF659F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

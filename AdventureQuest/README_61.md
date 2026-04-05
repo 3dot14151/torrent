@@ -1,3 +1,81 @@
+###  Публикация: 1654251   (190760) от 09.09.2023
+
+The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с историей Фортуны – ведьмы-прорицательницы, которую приговорили к изгнанию на уединённом астероиде. Создайте собственную колоду гадальных карт, верните себе свободу и определите будущее сообщества ведьм. The Cosmic Wheel Sisterhood – это повествовательная философская игра от создателей The Red Strings Club, которая, в частности, призывает поразмыслить (   Читать дальше...   )Тип издания: LicenseРазработчик: DeconstructeamЖанр: Приключение, Визуальные новеллыЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5AB3D4C0321909D42DB5D32028509C4BA54B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588931   (190757) от 07.11.2022
+
+Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.6) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saint Kotar: The Yellow Mask - хоррор-квест, представленный двумя главными героями - Бенедеком Дохнаном и Николаем Калякиным. Они расследуют таинственное дело о серии загадочных убийств. Постепенно улики приводят их к мистическим событиям, связанные с черной магией и самим Дьяволом. Два персонажа представлены двумя индивидуальными сюжетными линиями.Тип издания: LicenseРазработчик: Red Martyr EntertainmentЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE8756B2E17D96CF4956CC45A703B7715BB8C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589974   (189604) от 11.11.2022
+
+Christmas Massacre (2021) [En] (1.02) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рождественская елка Ларри велела ему убивать. Но на чьей стороне дерево на самом деле? И может ли он доверять тому, что слышит? Christmas Massacre - это игра в стиле стелс-слешера 80-х годов с низкополигональной графикой в стиле PS1. Подкрадывайтесь, преследуйте и убивайте свою жертву, не будучи пойманным. Вы должны убивать незаметно, чтобы пройти каждый уровень.Тип издания: LicenseРазработчик: Puppet ComboЖанр: Экшны, Приключение, ХоррорЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8647DA6C9CF651AACF2E405316B321907AA3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660616   (189141) от 13.09.2023
 
 Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189141.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ No Son of Mine (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189113.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (Build 11395309) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189098.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Seven Nights Ghost (2023) [Multi] (1.03) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188720.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188683.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Zniw Adventure (2020) [Multi] (1.3.4W) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188678.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Murder House (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188660.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188410.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188363.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Shore (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188350.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188328.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188144.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188138.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187983.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187842.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187836.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Sucker for Love: First Date (2022) [Multi] (2.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187654.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187337.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Heart of the Woods (2019) [Multi] (2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185849.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185634.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Paranormal VHS (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185043.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184832.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184233.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:972CA8C35BDF74FC9E1AC4BBBC4CCE7A3B3B5872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427281   (183850) от 27.11.2020
-
-DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183850.jpg" />
-</div>
-
-
-###  Подробнее
-
-«DEEMO -Reborn-» — это классическая игра DEEMO от Rayark, вернувшаяся на платформу STEAM в совершенно новой форме. Путешествие по полностью переработанным в 3D пространствам игры очарует вас изящным звучанием пианино и сказочными приключениями. Случайно встретились двое: девочка, упавшая с небес и утратившая свое прошлое, и Deemo, одиноко играющий на пианино в своем (   Читать дальше...   )Тип издания: RepackРазработчик: Rayark International LimitedЖанр: Adventure, Action, Puzzle, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32F7849396343403872DDACCF657C3F36149ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592179   (183333) от 22.11.2022
-
-EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мия Лоренсон - талантливый молодой ученый. Однажды она просыпается в заброшенной больнице и сталкивается со множеством вопросов. Драгоценных ответов очень мало. Что случилось с ней самой? Что случилось с миром? Edengate: The Edge of Life разработана во время пандемии. Это интерактивная игра, призванная передать ощущение неуверенности, изоляции, тоски и надежды.Тип издания: RepackРазработчик: HOOKЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0EBD2379A5659FD7CD3D5002D97C008AB09EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665093   (182868) от 29.09.2023
-
-The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.06) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182868.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Many Pieces of Mr. Coo - это сюрреалистическое графическое приключение в стиле point'n'click. Мистер Ку застрял в странном, бессмысленном мире, и ему нужна ваша помощь, чтобы выбраться из него - но прежде всего ему нужно найти все свои кусочки и снова стать целым! Возможно, за всей этой чепухой скрываются какие-то философские распри, но со всеми этими хаотичными (   Читать дальше...   )Тип издания: SceneРазработчик: Gammera NestЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BEC53DA7EDF39E4E9CE4CCE353F6293D923AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

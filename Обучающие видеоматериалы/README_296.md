@@ -1,3 +1,30 @@
+###  Публикация: 1721692   (55454) от 25.05.2024
+
+Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Nebula: Learn Volumes, GeoNodes & More (Eevee-Cycles) - Video Course for Blender (2024) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в удивительный мир трехмерных туманностей с помощью нашего видеокурса по Blender!
+Раскройте секреты визуализации потрясающих, полностью объемных туманностей, которые поднимут ваши цифровые творения на новую высоту.Производство: Creative ShrimpЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA7292BB634C4E5DFE5B18A2414110FF4AD7656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726509   (55176) от 28.05.2024
 
 Анатолий Шишонин | Самовосстановление. Азбука массажа (2023) PCRec [AD] [RU]
@@ -6,7 +33,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55176.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Josh W Comeau | CSS for JavaScript Developers (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55147.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Udemy, Алексей Леонтьев | Магия сводных таблиц 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55067.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ Network for Everyone (NFE, N4E) | Open Shortest Path First (2024) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55050.jpg" />
 </div>
 
 
@@ -120,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55029.jpg" />
 </div>
 
 
@@ -148,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54961.jpg" />
 </div>
 
 
@@ -177,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54761.jpg" />
 </div>
 
 
@@ -206,7 +233,7 @@ CORS Academy, Илья Отькало | Мини-курс «Начинающий
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54751.jpg" />
 </div>
 
 
@@ -234,7 +261,7 @@ Skillbox, Анастасия Полякова, Давид Медведик | А�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54745.jpg" />
 </div>
 
 
@@ -262,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54671.jpg" />
 </div>
 
 
@@ -290,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54657.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54616.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54613.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54590.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54554.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54007.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ ArtStation, Milad Kambari | Substance Painter Master Course (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53808.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53444.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ Udemy, 3D Tudor | Blender Basics Geometry Node Brick Walls Workshop (2024) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53396.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53286.jpg" />
 </div>
 
 
@@ -571,7 +598,7 @@ DoubleJump Academy, Post Processed | Unreal Engine Complete Automotive Mastercla
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53285.jpg" />
 </div>
 
 
@@ -598,7 +625,7 @@ fxphd, Liam Whitehouse | Automotive Cinematography in Unreal Engine, Part 1 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53267.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53264.jpg" />
 </div>
 
 
@@ -650,7 +677,7 @@ Udemy, Nick Stanchev | Unreal Engine 5 - The Complete Automotive Cinematic Cours
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53254.jpg" />
 </div>
 
 
@@ -676,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53223.jpg" />
 </div>
 
 
@@ -687,34 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B9A5AA7FCA8C2D9DFA3DF3DC22FEB4302076031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730679   (53045) от 17.06.2024
-
-Krav-maga, Антон Фарб  | Sucker Punch: Искусство подлого удара (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53045.jpg" />
-</div>
-
-
-###  Подробнее
-
-На улице правил нет. Можно все: бить в пах, выдавливать глаза, кусаться и даже ругаться матом. Решит ли это проблему само по себе? Нет. Подлянки – они как специи: добавляют вкуса, но из соли и перца обед не приготовишь.
-Сила, выносливость, чувство дистанции, опыт спаррингов не заменить пинком по яйцам. Но с подлянками дело пойдет веселее.
-Вот только почему-то люди (   Читать дальше...   )Производство: Krav-magaЖанр: СеминарЯзык озвучки: РусскийПродолжительность: 02:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58359D3137AA3B9F6D35AD4EB841FDC617B8B34D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1397279   (740290) от 20.07.2020
+
+Microsoft® Windows® 10 Professional VL x86-x64 2004 20H1 RU by OVGorskiy® 07.2020 2DVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740290.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Pro VL x86-x64 (20H1) от Microsoft с дополнительным материалом разных разрядностей (архитектуры) на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ADA2A26224F9AAEB3AB5FBCF379ADC65AEDDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282936   (740019) от 16.02.2019
+
+Джеймс Кэмерон объявил название нового "Терминатора"
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Кэмерон анонсировал рабочее название нового фильма из серии "Терминатор". В беседе с корреспондентами Yahoo! Entertainment создатель знаменитой фантастической франшизы объявил, что картина называется "Терминатор: Мрачная судьба". "Сейчас мы имеем дело с таким заглавием", - сказал он.Станет ли это же название прокатным, продюсер (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 166679   (740008) от 16.02.2019
+
+Юрий Петухов | Звездная месть (эпопея) [1990-1995] [FB2]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман “Звездная Месть” – грандиозное эпическое полотно (полный текст 2500 стр., общ. тир. свыше 10 млн.). События разворачиваются в ХХУ-ХХХ веках. Вместе с апогеем развития цивилизации наступает апогей её вырождения. Могущество Земной Цивилизации неизмеримо. Степень её духовной деградации ещё выше. Сверхкрутой сюжет, нетрадиционные повороты событий, десятки измерений, (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C413BF35E06C19351ACDB44FD2379FEA02EBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283115   (740006) от 16.02.2019
+
+Ace Combat 7: Skies Unknown (2019) [Ru/Multi] (1.0.1) License CPY
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам выпал шанс сесть за штурвал самых продвинутых военных самолетов и оказаться в эпицентре яростных воздушных сражений. Ace Combat 7: Skies Unknown – это фотореалистичная графика, высший пилотаж, невероятные современные и футуристические истребители, захватывающий сюжет и даже виртуальная реальность!Тип издания: LicenseРазработчик: BANDAI NAMCO StudiosЖанр: Action, SimulatorЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B509AC451136800C27E2BC6AC1525872F73AA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283122   (740005) от 16.02.2019
+
+KMS Tools Portable 15.02.2019 by Ratiborus [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740005.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B215ECDDF97AF6D2BAF922FBFBA0260C26FC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 777278   (739965) от 08.05.2014
+
+The Foundry Nuke/NukeX 8.0 v4 [En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокоуровневый программный продукт для композитинга и спецэффектов, созданный художниками для решения задач, возникающих в ходе процесса киновидеопроизводства. Программа применяется при обработке, наложении эффектов, финальной сборке и прочего отснятого видео и кино-материала, при создании рекламных роликов, а также для других задач. Продукт является явным представителем (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242F85312019F82ED9857A0D95F01536ED159C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217891   (739936) от 07.04.2018
 
 США забанили главу Роскомнадзора
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_739936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739936.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_739931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739931.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_739928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739928.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/Multi] (1.3.59.0) Repack Other s [VR]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739920.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739917.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Outlast 2 (2017) [Ru/En] (1.0.17518.0) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739916.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739915.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Windows XP SP3 Seven СD 2020.6 by OniS [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739632.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Microsoft уже начала тестировать крупное обновл
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_739472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739472.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Microsoft переходит от двух полугодовых каналов
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_739440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739440.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_739435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739435.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739432.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739429.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ Windows 10 Enterprise LTSC x64 by Zosma 16.02.2019
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739428.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 1809 RS5 RU by OVGorskiy® 02.2
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739427.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ Forza Motorsport 7 (2017) [Ru/Multi] (1.141.192.2/dlc) License CODEX
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739426.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ SteamOS 2014.05.07 [x86, x86-64] (1xDVD, 1xUSB)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739391.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739147.jpg" />
 </div>
 
 
@@ -487,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738855.jpg" />
 </div>
 
 
@@ -513,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_738612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_738612.jpg" />
 </div>
 
 
@@ -524,170 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525327   (738292) от 24.01.2022
-
-Настройка отображаемых  категорий на портале
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_738292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемые владельцы ресурса, а нельзя ли в профиле пользователя поставить галку "скрыть ***-релизы на главной"? Если справа сверху у каждой новости есть значок типа - значит, по этому значению их можно отфильтровать.
-Вы не раз задавали такие вопросы, а мы давно занимались этим, не спеша продумывая детали наперед.Так вот можно!  :cool:  Теперь для всех пользователей, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526000   (738291) от 24.01.2022
-
-8 стоящих сериалов, закончившихся 2021 году
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_738291.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2021 году было закрыто огромное количество сериалов. Некоторые не пережили коронавирус, некоторым уже давно пора было отправиться на покой, а какие-то из них ушли незаслуженно рано. Среди закрытых проектов оказалось несколько долгоиграющих сериалов (например, «Бесстыжие»), несколько ранее спасённых Netflix'ом проектов («Люцифер»), а также проекты, которые до конца держали планку качества, но ушли, чтобы не скатиться в бесконечное самоповторение («Голиаф»). О лучших сериалах, с которыми зрители попрощались в 2021 году.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522355   (738290) от 24.01.2022
-
-sPlan 8.0 (DC 13.01.2022г) Portable by Lin1980 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738290.jpg" />
-</div>
-
-
-###  Подробнее
-
-sPlan - если Вам нужно программное обеспечение для быстрого и простого проектирования ваших схем? Тогда нет причин пройти мимо sPlan! Независимо от того, хотите ли вы просто набросать небольшую схему, или это более крупный проект, состоящий из множества отдельных листов.
-
-С новой версией sPlan 8.0 появилось множество новых и усовершенствованных функций, которые помогут (   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0477DF35BCD940F624A06A5074D12551F01431E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313470   (738289) от 24.01.2022
-
-Пространство / Экспансия / The Expanse (2015-2020) BDRip, WEB-DLRip (сезон 1-6, серии 1-62 из 62) Alexfilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через двести лет от дня сегодняшнего некий сыщик, привыкший всё доводить до конца при любых обстоятельствах, в рамках расследования дела об исчезновении молодой женщины оказывается на борту звездолета, капитан которого решает помочь детективу в его непростом деле. Величайший заговор в истории человечества гарантируется, как и его непременное раскрытие.Производство: Канада, США / Alcon Entertainment, Sean Daniel CompanyЖанр: фантастика, триллер, драма, детективРежиссер: Брек Эйснер, Джефф Вулнаф, Терри МакДонафАктеры: Стивен Стрейт, Кэс Анвар, Доминик Типпер, Уэс Чэтэм, Шоре Агдашлу, Фрэнки Адамс, Томас Джейн, Шон Дойл, Флоренс Ванида Фэйвр, Чад Л. Коулмэн и др.Перевод: Многоголосый  закадровый, профессиональный - AlexfilmЯзык озвучки: РусскийСубтитры: русские, английскиеПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA6756814413D7E979D0C642CEF33A2AC6A9226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526546   (738000) от 25.01.2022
-
-Свежее обновление Windows 11 заставляет работать в браузере Edge и поисковике Bing
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_738000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторое время назад Microsoft приступила к распространению очередного обновления для Windows 11. Оказалось, что помимо ряда исправлений установка патча изменяет некоторые настройки операционной системы, делая Edge и Bing браузером и поисковиком по умолчанию.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485008   (737975) от 25.01.2022
-
-Кар-Мэн - Вокруг Света (1990) со вставками Студия Gala [DSD2.0|11,28MHz/1bit|image+.cue|Tape-Rip] <Synth-Pop, Electro-Pop, Disco, Dance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737975.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:04] 01. Кар-Мэн - Чио-Чио-Сан (с вставкой интро Gala)
-[4:20] 02. Кар-Мэн - Эй, ухнем
-[4:59] 03. Кар-Мэн - Дели (с вставкой интро Gala)
-[3:59] 04. Кар-Мэн - Знойный Истамбул(   Читать дальше...   )Жанр: Synth-Pop, Electro-Pop, Disco, DanceПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7413F89296E54E6986879705B0EEA1A1B01AC1E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

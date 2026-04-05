@@ -1,3 +1,55 @@
+###  Публикация: 919398   (584109) от 18.07.2015
+
+Иннокентий Жуков | Приключения пионеров в Египте (1926) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584109.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Приключения пионеров в Египте" – вторая фантастическая повесть Иннокентия Николаевича Жукова (1875-1948) – скульптора, педагога, писателя, одного из организаторов и идеологов сначала скаутского, а потом пионерского движения. В ней, в отличие от "Путешествие звена «Красной звезды» в страну чудес", пионеры попадают не в будущее, а в прошлое. Через (   Читать дальше...   )Жанр: Приключения, Детская литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E0472C0E97AA8921D2A021D925587A0AEF65DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919300   (584020) от 18.07.2015
+
+Игорь Стрелков | Сказки Заколдованного Замка (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже капризные принцессы иногда становятся романтичными и поклади­стыми девушками. Особенно если они оказываются в заколдованном замке, в котором живут волшебник, дракон, прекрасный рыцарь с портрета и семейство удивительных существ - снулей. Изменится ради принцессы волшебник? И почему одни и те же истории рассказываются разными геро­ями книги по-разному?Жанр: Сказки, Фэнтези для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5B35C2CA8FA157983100E698C408A8F8BBD29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301838   (583998) от 12.05.2019
 
 Астрид Линдгрен | Лучшие сказки [Сборник] (2019) [FB2]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583998.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583974.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583373.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583367.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583312.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583311.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583308.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583303.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583015.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583012.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582961.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582692.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582595.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582531.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582469.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582434.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582433.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582430.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582356.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582317.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582315.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582305.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582264.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582254.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C525C66B13FB804B27D71BDDED9A5B1AEB40E07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041682   (582245) от 09.08.2016
-
-Журнал | Санька в стране сказок №12 (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Санька в стране сказок замечательный развлекательно-познавательный журнал для младших школьников и старших дошкольников. Оригинальная идея журнал состоит в том, что задания надо делать на время и записывать сколько ушло времени, а затем в конце подчитать сколько времени ушло на весь журнал, что бы узнать быстро ли ты его прошел и не надо ли второй раз разбирать все (   Читать дальше...   )Жанр: Детский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122716A48A12F77E292033ED8785EC09C3A4DB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919718   (582004) от 20.07.2015
-
-Николай Григорьев | Избранное (1986) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582004.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу старейшего ленинградского писателя вошли лучшие повести и рассказы, посвященные В. И. Ленину, Октябрьской революции и героям нашей современности.
-Для среднего и старшего школьного возраста.Жанр: Повести, рассказы для детейФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89278516DAC293223809A9C684EE8D03DC80AC32
 ```
 
 https://mybot314.ru/tekegram_catalog/

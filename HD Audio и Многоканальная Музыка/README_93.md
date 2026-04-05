@@ -1,32 +1,3 @@
-###  Публикация: 1696819   (119341) от 04.02.2024
-
-James Blake - Playing Robots Into Heaven (Endel Focus Soundscape) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Neo-Soul, Future-Garage, UK-Bass>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me (Pt. 1 / Endel Focus Soundscape) [00:02:36]
-02. Tell Me (Pt. 2 / Endel Focus Soundscape) [00:03:30]
-03. Tell Me (Pt. 3 / Endel Focus Soundscape) [00:03:07]
-04. Tell Me (Pt. 4 / Endel Focus Soundscape) [00:03:16](   Читать дальше...   )Жанр: Electronic, Neo-Soul, Future-Garage, UK-BassПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77AF07F8BB83935BFA367C551868F754E8FEC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696815   (119308) от 04.02.2024
 
 Plantoid - Terrapath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive rock, fusion, fuzz rock>
@@ -35,7 +6,7 @@ Plantoid - Terrapath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119308.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ The Great Alone - Perception (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119306.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119305.jpg" />
 </div>
 
 
@@ -120,7 +91,7 @@ Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119292.jpg" />
 </div>
 
 
@@ -149,7 +120,7 @@ Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119132.jpg" />
 </div>
 
 
@@ -178,7 +149,7 @@ Jazzy - Constellations (Expanded) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119118.jpg" />
 </div>
 
 
@@ -207,7 +178,7 @@ Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119108.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119107.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ Ghost Atlas - Dust of the Human Shape (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119105.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ Background Music Masters, Smooth Jazz Family Collective - Bellissimo Jazz Italia
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119103.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ Code Elektro - Metal Heart (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119098.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ Modern Witchcraft - Modern Witchcraft (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119085.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119082.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119079.jpg" />
 </div>
 
 
@@ -437,7 +408,7 @@ South Of Sundays - Honey Tongue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119078.jpg" />
 </div>
 
 
@@ -466,7 +437,7 @@ Kmfdm - Hyëna (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119075.jpg" />
 </div>
 
 
@@ -495,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118941.jpg" />
 </div>
 
 
@@ -524,7 +495,7 @@ Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118923.jpg" />
 </div>
 
 
@@ -553,7 +524,7 @@ Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118921.jpg" />
 </div>
 
 
@@ -581,7 +552,7 @@ The Last Dinner Party - Prelude to Ecstasy (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118915.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118905.jpg" />
 </div>
 
 
@@ -639,7 +610,7 @@ Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118903.jpg" />
 </div>
 
 
@@ -668,7 +639,7 @@ Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118901.jpg" />
 </div>
 
 
@@ -697,7 +668,7 @@ Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Bla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118898.jpg" />
 </div>
 
 
@@ -726,7 +697,7 @@ VA, Marco Rinaldo - Saxophonic Haven: Sexy & Smooth Jazzed Up Evening (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118769.jpg" />
 </div>
 
 
@@ -740,6 +711,35 @@ VA, Marco Rinaldo - Saxophonic Haven: Sexy & Smooth Jazzed Up Evening (2024) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668D3A37E6D1ADFB197408B28246199191775483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697583   (118761) от 07.02.2024
+
+Love Music Zone - Sexy Valentine’s Day 2024 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy & Noir (3:29)
+02. Music for Quiet Moments (4:28)
+03. Jazz Mood – Erotic Dance (4:03)
+04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D858A6E132A8D5B69036A9BA508B1AD3ED95FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ WiFiSpoof 3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037249.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TunePat Amazon Video Downloader 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037248.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EdgeView 2 v2.912 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037247.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ URL Manager Pro 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037243.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ TunePat Apple Music Converter 1.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037241.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WidsMob Denoise 2.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037239.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Rhinoceros 7 v7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037215.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Lyn 2.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037206.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ TunePat Amazon Music Converter 2 v2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037198.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ RAR Extractor – The Unarchiver Pro 6.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037197.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wondershare Recoverit 9.5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037183.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wirecast 14.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037182.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ GarageSale 8 v8.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036967.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ GrandTotal 7 v7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036962.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ LuLu 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036951.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ iThoughtsX 5.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036672.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Overlay 3.80 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036671.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ QLab 4 v4.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036662.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036659.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AirMail 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036636.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036603.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tempomate 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036363.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Battery Charging Alert 3.00 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036360.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Adobe InCopy 2021 v16.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036359.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Adobe Prelude 2020 v9.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036354.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036336.jpg" />
 </div>
 
 

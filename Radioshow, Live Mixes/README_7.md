@@ -1,3 +1,61 @@
+###  Публикация: 1217647   (742265) от 05.04.2018
+
+VA - Dash Berlin @ Ultra Music Festival Miami (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dua Lipa - Homesick (Dash Berlin Rework)
+02.Clean Bandit ft. Zara Larsson - Symphony (Dash Berlin Remix)
+03.Dash Berlin ft. Jonathan Mendelsohn - Locked Out Of Heaven
+04.Above & Beyond ft. Richard Bedford - Sun & Moon (Dash Berlin Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F902A18C72035115D9B79EAE19354F30D6E28E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127079   (741126) от 20.04.2017
+
+VA - Ori Uplift & Shimotsukei - Uplifting Only 218 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Ribeca - Amoroso
+02. illitheas - Alive
+03. Naeba & Soundfly - Love Is Out There
+04. FAN FAVORITE: Tycoos - Things We Left Behind(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D487A336AF48F2C1046351C8E4D78DA56FB7C7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217775   (741040) от 06.04.2018
 
 VA - Ori Uplift & NaHiM - Uplifting Only 269 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Ori Uplift & NaHiM - Uplifting Only 269 (2018) [MP3|320 Kbps] <Trance,Uplif
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741040.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour Miami (2018) [MP3|320 Kbps
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741037.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Live @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15 [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739735.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ Kryder - Axtone House Party(Live @ Ministry Of Sound London 2021-11-19) (2022-01
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735868.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ Cosmic Gate - Live @ Sunset Set, Puerto Vallarta, Mexico (2022-01-19) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735866.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ KAAZE - Best Of 2021 Mashups (2021-12-27) [MP3|320 Kbps] <Electro House, Big Roo
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735392.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ Marc Benjamin - Nicky Romero & Friends Presents NYE (2021-12-31) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735391.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Goa Gil - Mahashivaratri (2002) Mixed Live In Goa [MP3|~245 Kbps (V0)] <Psy-Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734003.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731046.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Armin van Buuren - A State of Trance 751 - 765 (2016) [MP3|320 кб/с] <House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729173.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ aQuaLuna - Destination: Paradise 001 - 103 (2011-2016) [MP3|320 kbps]<Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729141.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ MORTEN - DJ Mag Italy Radioshow (2022-02-02) [MP3|~245 Kbps (V0)] <Electro House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729022.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Ben Nicky - Live @ Hellfire, Victoria Warehouse Manchester, United Kingdom (2022
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728993.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ JØRD - Live @ Laroc Club Sao Paulo, Brazil (2022-01-30) [MP3|320 Kbps] <Tech Ho
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726666.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Aly & Fila - Future Sound Of Egypt 493 (Live from Open To Close, Panama Amsterda
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726633.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720758.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719154.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Aly & Fila - Future Sound of Egypt 543 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717667.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Renton - Be Youself [Summer 2018 Mix] (2018) [FLAC|Lossless|WEB-DL|image + .cue]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716756.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Markus Schulz & Dennis Sheperd - Global DJ Broadcast (2018) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715855.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715085.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Giuseppe Ottaviani - Liberation V6: Wax Format 10 Years (Vinyl Set), Fabric Lond
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714746.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Aly & Fila - Future Sound Of Egypt 494 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714425.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ ROTANOV - DEEP DANCE 01 (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712055.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ ROTANOV - DEEP DANCE 01 (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309E83AE1F0A4E97ED4B98A9B12D81CD1E2D2120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532936   (710943) от 21.02.2022
-
-Vintage Culture B2B Meca - Live D-Edge Sao Paulo, Brazil (2022-02-17) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitesquare - Folded Reality
-02. James Burton - Breakfast Club (Dennis Ferrer Morning Mix)
-03. Felipe Puertes - Niyama
-04. Øostil & U S H N U - Safe (Hunter/Game Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BB1EADBF23E31BB896AA6A1EE60D675FD2CC4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131755   (707096) от 06.05.2017
-
-VA - Ori Uplift - Uplifting Only 221 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FAN FAVORITE 219: Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye
-02. Susana - Only Summer Knows
-03. Manuel Rocca & Illitheas - Enchanted
-04. Syntouch & Angel Falls - Alone (Plutian Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9BFAC008EFE0A593747A8C3B821CB218BBBCCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

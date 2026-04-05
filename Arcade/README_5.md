@@ -6,7 +6,7 @@ Sayaka (2017) [En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948395.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947020.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Doctor Who: The Eternity Clock (2012) [En/Multi] SteamRip Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946518.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Binding of Isaac: Rebirth (2017) [En/Jp] (1.0/upd3/dlc) Repack Other s [Comp
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943959.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Infinitesimal Point  (2016) [Ru/En] (1.0) Repack R.G. Жук в Муравейн
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943132.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cat and Ghostly Road (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941963.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Iris and the Giant (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940463.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ignition (1997) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939638.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dollar Dash [En/Multi5] (L) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939413.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Worms Revolution / Worms: Революция + 4 DLC [Ru/En/Multi7] (Steam-Rip/0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939349.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Heaven Dust (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939081.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936704.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/12.01.17/dlc) SteamRip R.G. Иг�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936574.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936228.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Worms Revolution + 4 DLC [Ru/En/Multi8] (Repack/0124) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934230.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Toricky (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933122.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Alien Shooter 2: Захват (L) [Ru] 2011
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933073.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.11.3102) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932998.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Brave: The Video Game / Храбрая сердцем (2012) [Ru/Multi] (1.0.0.3
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931588.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Tinertia (2015) [En/Multi] (1.0.9) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929962.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ RYAN BLACK (2017) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929843.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Soulcalibur VI / Soulcalibur 6 (2018) [Ru/En] (02.05.00/dlc) Repack xatab [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928574.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927185.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927175.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Murder by Numbers (2020) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926756.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Go Home Dinosaurs! [En] (Repack) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926071.jpg" />
 </div>
 
 

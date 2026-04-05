@@ -1,86 +1,3 @@
-###  Публикация: 1501896   (831663) от 12.10.2021
-
-Нинчуань Сяо | Алгоритмы ГИС. Теория и применение геоинформационных систем и технологий (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теория и применение геоинформационных систем и технологий
-
-Географические информационные системы (ГИС) приобретают все большее значение, помогая нам понять сложную социальную, экономическую и природную динамику в ситуациях, где ключевую роль играют пространственные компоненты. Однако фундаментальные алгоритмы, применяемые в ГИС, трудны для понимания и преподавания, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. А. СлинкинФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B7F8863374DCCD1C4DE2EDF77DCC0A477065A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113810   (831477) от 15.03.2017
-
-В. Потопахин | Романтика искусственного интеллекта (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о том, чем занимаются специалисты по искусственному интеллекту. О том, в решении каких задач умные машины уже заменили человека, и какие интеллектуальные технологии могут появится в обозримом будущем. О том может ли машина, стать равноценным партнером человека или даже превзойти его? Насколько реальна возможность бунта машин, так любимого писателями-фантастами? (   Читать дальше...   )Жанр: Программирование, Искусственный интелектФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7381F8B7033CC701B81AC2E7DCAD7BEF359C360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113839   (831378) от 15.03.2017
-
-Мэтт Фрисби | Сборник рецептов Angular 2 (2017) [PDF, EPUB] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831378.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора бестселлера AngularJS Web Application Development Cookbook, Angular 2 Cookbook - это новейшее издание серии Packt's Angular Сookbook.
-
-Особенности книги:
-— Более 70 обширных примеров: каждый рецепт предлагает вам стратегии для решения каждой проблемы в Angular 2.(   Читать дальше...   )Жанр: Веб-разработкаФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A09C0FD4FF9AE350DE8956DF86923C4FEEE44CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113576   (831258) от 15.03.2017
 
 А. Шень | Программирование: теоремы и задачи (2017) [PDF]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831258.jpg" />
 </div>
 
 
@@ -117,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831141.jpg" />
 </div>
 
 
@@ -145,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831131.jpg" />
 </div>
 
 
@@ -171,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830860.jpg" />
 </div>
 
 
@@ -197,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829528.jpg" />
 </div>
 
 
@@ -223,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829116.jpg" />
 </div>
 
 
@@ -249,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827880.jpg" />
 </div>
 
 
@@ -275,7 +192,7 @@ Fabien Potencier | Symfony 5. The Fast Track / Фабьен Потенсье | S
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827468.jpg" />
 </div>
 
 
@@ -301,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827364.jpg" />
 </div>
 
 
@@ -328,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825969.jpg" />
 </div>
 
 
@@ -354,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825877.jpg" />
 </div>
 
 
@@ -380,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824487.jpg" />
 </div>
 
 
@@ -406,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824252.jpg" />
 </div>
 
 
@@ -432,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822439.jpg" />
 </div>
 
 
@@ -458,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820972.jpg" />
 </div>
 
 
@@ -485,7 +402,7 @@ Nate Murray и др. | ng-book 2: The Complete Book on Angular 2 [+ Code] (2017)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820343.jpg" />
 </div>
 
 
@@ -514,7 +431,7 @@ Mark J. Collins | Pro HTML5 with CSS, JavaScript, and Multimedia: Complete Websi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820328.jpg" />
 </div>
 
 
@@ -542,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820222.jpg" />
 </div>
 
 
@@ -568,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818917.jpg" />
 </div>
 
 
@@ -594,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816759.jpg" />
 </div>
 
 
@@ -621,7 +538,7 @@ Sam Newman | Monolith to Microservices: Evolutionary Patterns to Transform Your 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815738.jpg" />
 </div>
 
 
@@ -647,7 +564,7 @@ A.M. Елизаров и др. | Веб-технологии для матема
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815510.jpg" />
 </div>
 
 
@@ -674,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814995.jpg" />
 </div>
 
 
@@ -685,6 +602,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9219E43398C6AF3D32320EA4C815D7173D96A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117825   (814770) от 24.03.2017
+
+H. P. Langtangen | A Primer on Scientific Programming with Python [+ Code] (2016) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга служит введением в программирование научных приложений, использующих язык высокого уровня Python. В книге представлено проблемно-ориентированное изложение и множество примеров, где приложения взяты из математики, статистики, физики, биологии и финансов. Книга учит «Matlab-style» и процедурному, а также объектно-ориентированному программированию. Знания (   Читать дальше...   )Жанр: Программирование на PythonФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C2B7FA300DF2ED4FBB89C00D5EDA0C622DE74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117176   (814756) от 24.03.2017
+
+Kristian Rother | Pro Python Best Practices: Debugging, Testing and Maintenance (2017) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите разработку программного обеспечения и лучшие практики программирования, чтобы писать код Python правильно и без ошибок. В этой книге вы увидите, как правильно отлаживать, организовывать, тестировать и поддерживать ваш код, что поможет вам лучше и эффективней писать код.
+
+Разработка программного обеспечения является сложной задачей. Программы любой существенной (   Читать дальше...   )Жанр: Программирование на PythonФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D175D97A1C6632105E070DE34B71D47D418B78D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117906   (814634) от 24.03.2017
+
+Magnus Lie Hetland | Beginning Python: From Novice to Professional (2017) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите фундаментальное понимание синтаксиса и функций Python с помощью этого современного введения и практического руководства в программирование. Охватывая широкий круг вопросов программирования на языке Python, включая внутреннюю структуру языка, интеграцию баз данных, веб-программирование и веб-службы, вы будете руководствоваться принципами гармоничного развития. (   Читать дальше...   )Жанр: Программирование на PythonФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB3E1BAFDC614AE769686DC567FB2E3C0A57463
 ```
 
 https://mybot314.ru/tekegram_catalog/

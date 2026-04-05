@@ -1,3 +1,90 @@
+###  Публикация: 957886   (325839) от 19.11.2015
+
+VA - Bonzai & Friends 500 (2015) [MP3|320 кб/с]<Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airwave - Vega Shining [10:09]
+02. John 00 Fleming - The Dark Ranger [08:11]
+03. Audio Noir - Apodyopsis [06:34]
+04. Manu Riga - A Sense Of Hope [09:58](   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 06:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1B78203A77C63161CD2B4956BE8B85CE0318B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181390   (323837) от 07.11.2017
+
+VA - Sunrise Blend - 2017 (Compilation) [MP3|320 Kbps] <House, Deep House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Goldin - Heartbeat (feat. Rob Hazen) (Friendz by Chance) 03:23
+02. Valentino Favetta - Caribbean Love 03:30
+03. Denis Goldin, Rob Hazen - Endless Summer (T3rminal Remix) 03:06
+04. Lucky Vegas - Higher 05:20(   Читать дальше...   )Жанр: House, Deep House, Big RoomПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC3C5A6923D4BFA4B3448D9BB69F3BDD1801E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075318   (323717) от 21.11.2016
+
+VA - Armada Deep - Best Of 2016 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Steppa - Runnin' (Feat. Kelli-Leigh) 02:18
+02. Cropper - Straight Wylin' 03:16
+03. Embody - Remember Us (Feat. Fein) 03:21
+04. Robbie Rivera - Come Back To Me 02:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948A9442AE1EDA9F4672689BB0C3D4A7BCB18237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075014   (323706) от 21.11.2016
 
 VA - Deep and Tropical Selection: The Best Deep House and Tropical Selection for Your Dancefloor (2016) [MP3|320 Kbps] <Deep House>
@@ -6,7 +93,7 @@ VA - Deep and Tropical Selection: The Best Deep House and Tropical Selection for
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323706.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Stress Free: Deep House Laidback Beats (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323580.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Only Silk 05 (Mixed by Max Flyant & Vintage & Morelli) (2018) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323533.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - 50 Top House Tracks For Christmas (Special Collection Of Best House And Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323438.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Ibiza Forever (2018) [MP3|320 Kbps] <House,Deep House,Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323073.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Luxury Disco - Ultimate House Grooves 2017 [MP3|320 Kbps] <Funky, Club Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322024.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Chillout Ibiza (2017) 2CD [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322017.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - This House Is Hot - Pumpin Electro House Smashers For Top Clubbers (2016) [
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321413.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Eau Solaire: Deep and Love Sensations (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321298.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Tiesto & Steve Aoki - Tornado (Remixes) (2012) [MP3|320 кб/с]<House, Dubstep>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320519.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Vicetone feat. Barack Obama - Hope (Single) (2012) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320155.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Scatman John - 2 Single, 3 Albums (1994-1999) [FLAC|Lossless]<Eurodance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320010.jpg" />
 </div>
 
 
@@ -357,7 +444,7 @@ VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319437.jpg" />
 </div>
 
 
@@ -386,7 +473,7 @@ VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319337.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Deep House Hits: Winter 2018 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319045.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Milk & Sugar Winter Sessions 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318685.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - 55 Dancefloor Minimal Hits (2015) [MP3|320 кб/с]<House, Tech House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317381.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - 55 Bombs Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317316.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - 55 Hits Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317303.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Progressive Beach House (2017) [MP3|320 Kbps] <House, Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317170.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - 5 Years With Stellar Fountain - The Must Hear Selection (2016) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316573.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Voyeur – I  (2016) [MP3|320 kbps] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316392.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ VA - Zumba & Fitness 2020 [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315307.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ VA - Zumba & Fitness 2020 [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC20AC2F0248510B4BEC66F335FB91EC55C8B4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182798   (315173) от 11.11.2017
-
-VA - Ultimate Downbeat Electro, Vol. 1 (2017) [MP3|320 Kbps] <House, Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electronic Yellow Jammer - Love Buzz (Helms remix) 05:29
-02. Ivo Deutschmann - Destroyed 02:56
-03. Massivan - That Day (Olson Remix) (feat. Bea Luna) 03:09
-04. Landhouse & Raddantze - Emmsenboma 07:24(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4018D42C68206BA84E7F0107AC6623A7DC53CF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182767   (315006) от 11.11.2017
-
-VA - Dance Hits 2018 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Redhead Roman - Werk (Original Mix)  4:19
-02.  Marco V - We Will Be (Clash Of '97 Remix)  5:40
-03.  Alex Gaudino - I'm Movin' (Alex Gaudino & Dyson Kellerman Mix)  4:44
-04.  Sean Finn - For Tonight (feat. Amanda Wilson) (Sean Finn's Festival Edit)  4:07(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32504A50FEB8EFB239A67947DF7249B060A4452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182693   (315002) от 11.11.2017
-
-VA - Deep & Future House Box (4 CD) (2017) [MP3|320 Kbps] <Deep House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315002.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. Dj Antoine - Thank You (Jerome Tropical Radio Edit) 03:29
-02. Lea Rue - I Can't Say No! (Broiler Remix) 03:24(   Читать дальше...   )Жанр: Deep House, Future HouseПродолжительность: 05:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB69F8772AFFA2F34E0205CF57805605CAAD8C91
 ```
 
 https://mybot314.ru/tekegram_catalog/

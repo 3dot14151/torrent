@@ -1,29 +1,3 @@
-###  Публикация: 1021376   (732554) от 29.05.2016
-
-Сергей Михалков | Стихи (2005) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732554.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту книгу вошли самые любимые не одним поколением детворы стихи Сергея Владимировича Михалкова: "Одна рифма", "Под Новый год", "Рисунок", "Мой щенок", "Котята", "А у вас?", "Песенка друзей", "Прививка" и другие.Жанр: Детская литература, стихи и сказки для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51F7F6C66FA79755C2B82A89970A5467384D1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127551   (732171) от 21.04.2017
 
 Инна Гамазкова и др. | Веселая переменка (2011) [DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732171.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731982.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731981.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731896.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731139.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731117.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730786.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730712.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730079.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730067.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729012.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729011.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729007.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729006.jpg" />
 </div>
 
 
@@ -404,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728999.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728946.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728716.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728424.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727883.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727881.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727859.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727843.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727771.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727691.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726817.jpg" />
 </div>
 
 
@@ -681,6 +655,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FFAEB51B7E8A29D468BF1ACF420AC4C187F102E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531046   (726692) от 13.02.2022
+
+Доминик Валенте | Старфелл. Ива Мосс и Утраченное Заклинание. Книга 2 (2022) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726692.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как Ива Мосс спасла мир и вернула пропавший вторник, она не стала знаменитой. Даже её родные по-прежнему думают, что её магический дар – самый слабый в семье. Но хуже всего, что магия Ивы вдруг перестала её слушаться. Теперь из-за девочки пропадают вещи – уже вся деревня осталась без чайных ложек. И эта беда приключилась именно в тот момент, когда магия (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: В.А. ИоноваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEB5BE867CA112687EA7D3F17CEE7032BA43270
 ```
 
 https://mybot314.ru/tekegram_catalog/

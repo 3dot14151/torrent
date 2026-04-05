@@ -6,7 +6,7 @@ VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9735.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8936.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8680.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7769.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - LOVE - Love Songs - Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6918.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6012.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ V.A. - The Best Female Vocalists (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4969.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 80s Music - 150 Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4697.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Teddy Swims - I've Tried Everything But Therapy (Part I) (2023) [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3328.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Teddy Swims - I've Tried Everything But Therapy (Part 2) (2025) [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3322.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1983.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - cool hits and cosy music 100 songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1842.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Barbra Streisand - A Collection-Greatest Hits ... And More - 1989, FLAC (image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1517.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kylie Minogue - Tension Tour//Live 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_982.jpg" />
 </div>
 
 

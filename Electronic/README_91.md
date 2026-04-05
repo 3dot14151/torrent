@@ -1,3 +1,61 @@
+###  Публикация: 1103748   (885465) от 12.02.2017
+
+VA - Motivation Training Music 2017 Best Aerobic & Fitness Gym Songs  [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oktavio Grind - Seiko (3:37)
+02. Pacey Rookz - Novak (3:37)
+03. Page Two - Nutri (4:35)
+04. Naci Brix - Dude (3:14)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 03:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D09D5CE5D2051DC157DA4906AE4888076196BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372213   (885459) от 03.04.2020
+
+Peter Pearson - Dancing with the Clouds (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Dream (4:57)
+ 02. Perdu Dans Tes Yeux (5:07)
+ 03. Dancing with the Clouds (5:17)
+ 04. The Night We Danced (3:51)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, DowntempoПродолжительность: 01:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70496B2C00C0C1BAE4A060882278B950BADB63D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372483   (885437) от 03.04.2020
 
 VA - Trip to Paris Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +64,7 @@ VA - Trip to Paris Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885437.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885389.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ The 5th Galaxy Orchestra - Utopia Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885369.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Psytrance 2020 Volume 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885365.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Msdos - Goes Funky Town (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884770.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Scorchin' Sessions Vol. 1 (Mixed by Super8 & Tab) (2021) DJ Mix [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884539.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Johnny Hates Jazz - Turn Back The Clock (1988) [FLAC|Lossless|tracks] <Europop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884500.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Gregory - Unknown Universe (2021) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884450.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Lou Karsh | Reptant - Discography 14 Releases (2016-2021) LKR Records, X-Kalay, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884429.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Man Of No Ego - Blinkers Removed (2015) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Amb
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884329.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Sven Weisemann (Desolate, Jouem, Phidias) - Discography 43 Releases (2006-2021) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884292.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Dan Abrams (Shuttle358, Fenton, Dabrams) - Discography 12 Releases (1999-2021) 1
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884132.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Ocoeur | Franck Zaragoza - Discography 13 Releases (2010-2021) Música Vermella,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884128.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Lovely Mood Music presents: Airport Lounge Series (Chill Out & Lounge Tunes
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884005.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Gabriel Le Mar - Shared Fictions (Beatless Mixes) (2020) Le Mar Production [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883990.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883988.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Gabriel Le Mar - Shared Fictions (2020) Le Mar Production [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883856.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Kuni - Monolith (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883849.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Simon Le Grec - Singles (Unique Lounge Music) (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883845.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ SUN (GR) - Sonic Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883844.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ M.A.S.S. - The Music of Jean-Michel Jarre (2000) [FLAC|Lossless|tracks + .cue] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883806.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Astral Industries - Label-Pack 24 Releases (2014-2021) [FLAC|Lossless|WEB-DL|tra
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883777.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ Boytronic - The Robot Treatment (2019) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883744.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ VA - The Best Of Silver Waves Recordings 2016 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883720.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ VA - The Best Of Silver Waves Recordings 2016 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:022E379F191986D742433255C80F43FECB24D0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099675   (883714) от 10.09.2021
-
-Side Liner - Discography 75 Releases (2005-2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Psybient, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Translippers - Shimmer (06:18)
- 02. Essence Project - Fly In Nature (04:52)
- 03. Obsqure - Airborn Memories (04:25)
- 04. Earth Connect - Inside The Rabbit Hole (08:25)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psychill, Downtempo, Psybient, Ambient, Progressive Trance •Продолжительность: 51:43:12 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E8E4727C535302F4C712C43AC8868AE00FE29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103686   (883633) от 13.02.2017
-
-VA - TranceMission 2017 (Mixed by Feel & Roman Messer) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vadim Bonkrashkov - AION (Radio Edit)  2:29
-02.  Denis Sender & Cari - Don't Give Up (Radio Edit)  3:05
-03.  Moonlight Tunes - As Long As You With Me (Radio Edit)  3:11
-04.  Moonlight Tunes - Little Star (Original Mix)  5:06(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 05:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E946B4097797BCDDB2F822386047CF955316C63
 ```
 
 https://mybot314.ru/tekegram_catalog/

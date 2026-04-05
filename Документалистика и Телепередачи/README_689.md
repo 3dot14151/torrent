@@ -1,3 +1,162 @@
+###  Публикация: 1599924   (159315) от 25.12.2022
+
+Битва экстрасенсов (2022) WEBRip [H.264/1080p] (сезон 23, выпуск 16)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159315.jpg" />
+</div>
+
+
+###  Подробнее
+
+23-й сезон легендарного проекта «Битва экстрасенсов». В новом сезоне участникам придётся столкнуться с тяжелыми и загадочными испытаниями, которые проверят их экстрасенсорные способности, ведь создатели внесли ряд изменений в отборочный этап. Задача скептиков и приглашенных гостей раскусить шарлатана и выгнать его с проекта. Ведущим проекта стал бессменный Марат (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EB2607AA26C59A2BBB643F1E21908D49857391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675922   (159285) от 11.11.2023
+
+Супер-слизь / Super Slime (2022) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Органическая слизь — удивительное вещество. Она увлажняет кожный покров саламандр, чтобы им было легче дышать через кожу, создает защитные пузыри для икринок лягушек и даже помогает улиткам передвигаться из пункта А в пункт Б.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A99B6602AAB41AE5396B7EEFEF80C82E43BFA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676128   (159272) от 11.11.2023
+
+Следствие вели... (11.11.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159272.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Семейка монстров». Сложное дело с целой вереницей кровавых эпизодов — в новом фильме из цикла «Следствие вели…»
+1989 год, Волгоградская область. Рыбаки обнаружили в реке тело маленькой девочки. Ее мать исчезла, а дедушку нашли мертвым в подвале. Сколько всего преступных эпизодов оказалось в этом деле? Как докопаться до правды помогли продуктовые талоны и свадебные (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C2BA427148974F941C801B54A089420D5FBDFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675994   (159270) от 11.11.2023
+
+Главная дорога (11.11.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удар автобуса без шанса на выживание, падение легковушки с рухнувшего моста и огненный стритрейсинг.
+ Пополам или по-братски: как в судах делят вину за ДТП, если виноваты оба участника. Почему даже пострадавшего могут обвинить в аварии?
+ Скупой платит трижды: почему копеечная экономия на обслуживании заканчивается дорогим ремонтом? Андрей Федорцов и Денис Юченков подготовили (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A96ECF7308D337116818F8463AFE380D8BC479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676127   (159266) от 11.11.2023
+
+Валле-д'Аоста: альпийская Италия / Val d'Aoste, l'Italie alpine (2021)  HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы расскажем вам об уникальном уголке Альп: области Валле-д'Аоста. Это самый французский край Италии. Он окружен одними из самых высоких горных вершин Европы, от Монблана до Монте-Роза. В этих долинах говорят на франкопровансальском, ставшем частью местной культуры, которая также нашла отражение в архитектуре и гастрономии. В отличие от французских долин Монблана, (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, познавательный, путешествияРежиссер: Эрик БакоПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E870F7E033755A5BD654EDA6E1AEC9DF13E4E8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594902   (159264) от 25.12.2022
+
+Игрушки, которые построили Америку / The Toys That Built America (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4) OMSKBIRD [AD]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал рассказывает о малоизвестных историях, стоящих за самыми культовыми игрушками и играми Америки.Производство: США / Six West MediaЖанр: ДокументальныйРежиссер: Стюарт ДжонсАктеры: Йен Карр, Jordan Hembrough, Саймон Харрисон, Дэниэл Тетсэлл, Jackie Breyer, Джулс Найт, Tom Nunez, Бен Менсфилд, Стивен Самсон, Lewis GoodyПеревод: Многоголосый (OMSKBIRD)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:42:00 серияРеклама: Релиз содержит рекламные аудио вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036D60F57B92F277CCDF04F9BC9BFF49577822D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676015   (159257) от 11.11.2023
 
 Вселенная Стивена Кинга / King on Screen (2022) WEB-DL [H.264/1080p]
@@ -6,7 +165,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159257.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159251.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159250.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159245.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159218.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159202.jpg" />
 </div>
 
 
@@ -163,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159179.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159130.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159129.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159113.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159093.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159014.jpg" />
 </div>
 
 
@@ -320,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158998.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158985.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158977.jpg" />
 </div>
 
 
@@ -402,7 +561,7 @@ Pablo Hasel письмо из тюрьмы. (11.11.2023) WEBRip [H.264/1080p-LQ]
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158947.jpg" />
 </div>
 
 
@@ -428,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158912.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158905.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158798.jpg" />
 </div>
 
 
@@ -506,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158791.jpg" />
 </div>
 
 
@@ -517,163 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F8718D9AE3AA3C5CFDE8E198F9BF4FB4B2E3BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314854   (158746) от 12.11.2023
-
-Нерассказанная история Украины (В борьбе за Украину) / Revealing Ukraine (2019) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остановить войну в Донбассе – такую цель преследовали создатели этого фильма, который получил специальный гран-при на кинофестивале в итальянском городе Таормина. Оскароносный режиссер Оливер Стоун и украинский документалист Игорь Лопатенок сняли картину о том, как развивались события в стране после Майдана, и попытались разобраться в причинах затянувшегося кризиса (   Читать дальше...   )Телекомпания: США, Another WAY productionsЖанр: Документальный, политика и экономикаРежиссер: Игорь ЛопатенокУчастники: Оливер Стоун, Виктор Медведчук, Оксана Марченко, Владимир ПутинЯзык озвучки: Русский (местами закадровый перевод на англоязычные фрагменты комментариев и интервью)Субтитры: Украинские (hardsub)Продолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DC8962E8AD1E9E8A421C4E7296DF5ECC6A5AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 51171   (158729) от 12.11.2023
-
-Деньги как долг / Money as Debt (2006) DVDRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм разрушает стереотипы, касающиеся денег, и в наглядной форме объясняет, как сложились и действуют два принципа современного банкинга, и почему они фактически являются узаконенной формой мошенничества.Телекомпания: Канада / Lifeboat News, Moonfire StudioЖанр: Документальный, мультфильмУчастники: Paul Grignon / Пауль Григнон, Bob Bossin / Боб БоссинПеревод: АвторскийПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBE65DF911342575768CFDCDB27F7BE485A362E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967286   (158718) от 20.12.2015
-
-Главная дорога (19.12.2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158718.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF45F8998F0CE1D4148371B1C5044A670309D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967282   (158695) от 20.12.2015
-
-Первая передача на НТВ. Автомобильная передача. Выпуск №232 (20.12.2015) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158695.jpg" />
-</div>
-
-
-###  Подробнее
-
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046D3D172BF8EB6437A5822C3C42AE478C135F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967299   (158687) от 20.12.2015
-
-НашПотребНадзор. Не дай себя обмануть! (2015.12.20) SATRip
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели нового потребительского проекта «НашПотребНадзор» проведут журналистские расследования на волнующие каждого зрителя темы, в деталях расскажут, как не попасться на уловки мошенников, обличат виновных и на ярких примерах объяснят, как отличить качественное от низкосортного.
-Для того чтобы максимально полно и объективно раскрыть тему каждого выпуска и защитить (   Читать дальше...   )Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E7C1798E375E611C453FEC08B89DBB3FDE96F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967406   (158683) от 20.12.2015
-
-Вести недели (20.12.2015) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158683.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AAD4B87F8E26DE9A92AF4D18E419BE5434495F
 ```
 
 https://mybot314.ru/tekegram_catalog/

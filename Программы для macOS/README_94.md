@@ -1,3 +1,55 @@
+###  Публикация: 1571662   (431774) от 22.08.2022
+
+AICopy - Docs, Article Creator 2.9 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение AICopy - это улучшенный инструмент AI Creatio, Essay, Summary и Copywriting. Независимо от того, пишете ли вы электронные письма, эссе или сообщения в социальных сетях, инструмент перефразирования AICopy вам поможет.Тип издания: macOS SoftwareРелиз состоялся: 21.08.2022Разработчик: ©️ 2022 TanFoxПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024D3D2A02CD4F9CFFCB4E0875948B3D3EE641E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571661   (431763) от 22.08.2022
+
+Word Counter Pro 3.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Word Counter Pro - это простое и мощное приложение для писателей. С помощью Word Counter Pro вы можете просматривать статистику вашего письма, такую ​​как количество слов, количество символов, количество предложений, количество строк, количество абзацев и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: © 2015 Writes for All Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BE1AC32C869F99EBD8084786A1A715E3171E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571664   (431762) от 22.08.2022
 
 Folder 1.0.3 [En]
@@ -6,7 +58,7 @@ Folder 1.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431762.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ popCalendar 1.8.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431375.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ iNet Network Scanner 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431200.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Mindjet MindManager 11 v11.2.111 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430552.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Raya Pro 2.0 & InstaMask 1.0 fix - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430039.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ Antivirus Zap Pro 3.10.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429829.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ IconJar 2.11.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429768.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ WaterMarker 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429329.jpg" />
 </div>
 
 
@@ -226,7 +278,7 @@ Money 4.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429288.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ CCleaner Professional Edition for Mac 1.18.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429240.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ QR Factory 2.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429179.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ OmniPlan Pro 3 v3.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429133.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ AirBeam Pro 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428945.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ Hear 1.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428817.jpg" />
 </div>
 
 
@@ -389,7 +441,7 @@ ForkLift 2.6.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428645.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ Audulus 3 v3.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427553.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ TotalFinder 1.12.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427342.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ iVolume 3.7.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427065.jpg" />
 </div>
 
 
@@ -499,7 +551,7 @@ BiglyBT 1.0.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426679.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Magnet 1.9.13 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425667.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Curio 9.4.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425054.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Adobe Acrobat Pro DC 20.012.20043 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424773.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Xee 3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424708.jpg" />
 </div>
 
 
@@ -633,7 +685,7 @@ DAEMON Tools iSCSI for Mac 6.3.419 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424109.jpg" />
 </div>
 
 
@@ -645,62 +697,6 @@ DAEMON Tools iSCSI for Mac 6.3.419 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E32EA5DC6BAF94CB5E9DE3BAEA2AB14D833DE15A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166531   (424073) от 17.09.2017
-
-TunesKit 3.5.1 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424073.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit - простой в использовании и мощный iTunes DRM медиа конвертер
-Tuneskit конвертирует MP4 видео файлы ,поможет любителям iTunes легко обойти Fairplay DRM защиту от iTunes приобретенных и арендованных фильмов / телевизионных шоу в том числе 1080P HD фильмов и телевизионных шоу, конвертируя быстро и без потерь iTunes зашифрованные M4V в формат MP4 с сохранением (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.9 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6148A70DDCBF4EA76339BCDD78326E048A0F3E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064755   (424068) от 21.10.2016
-
-ImaPic Pro 1.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424068.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImaPic простой редактор изображений, который позволяет обрезать, вращать, изменять размер, конвертировать изображения с легкостью!
-Просто перетащите изображения на иконку в строке меню и редактируйте их с парой щелчков мыши.
-
-Функции редактирования включают в себя:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июня 2016Разработчик: mymixapps.comПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FFFF932462E05D991BC3902E58C90486A6CD38
 ```
 
 https://mybot314.ru/tekegram_catalog/

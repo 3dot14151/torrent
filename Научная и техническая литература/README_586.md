@@ -1,135 +1,3 @@
-###  Публикация: 1532729   (127009) от 20.12.2023
-
-Книжная серия | «Скандинавские боги» [12 книг] (2018-2023) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Скандинавские боги" для тех, кто увлекается скандинавской мифологией. Вы познакомитесь со множеством удивительных сказочных героев из северных стран - водяные, заколдованные девы Хюльдры, злые ведьмы и бессмертные, величественные драконы, отважные принцы, зачарованные принцессы, очаровательные тролли, лесные колдуньи. В серии собраны наиболее известные (   Читать дальше...   )Жанр: Мифы / легенды / эпосИздательство: АСТФормат: PDFКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20E4F38E240849C198941C7CADA27343BA8ACBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685989   (126940) от 20.12.2023
-
-С.Л. Беляков и др. | Основы разработки программ на языке С++ для систем информационной безопасности (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены необходимые для освоения курса сведения — краткий конспект лекций, методические указания к выполнению лабораторных работ, индивидуального задания, а также образцы тестовых вопросов. Направление подготовки «Защита информации».Жанр: Компьютерная литератураИздательство: Южный ФУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037E3605A14B4EDD5D4096BCD0AD055D0126B43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685805   (126935) от 20.12.2023
-
-М.К. Ефимчик, С.С. Шушкевич | Основы радиоэлектроники (1986) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник для студентов физических специальностей университетов, написан в соответствии с программой одноименного курса. Содержит последовательное изложение теоретических основ радиоэлектроники и описание комплекса лабораторных работ. Может быть использован как учебное пособие для студентов технических специальностей вузов.Жанр: ЭлектроникаИздательство: Издательство "Университетское" (Минск)Формат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53060310687C8CDB0CC3BF8442E13551146A09A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168172   (126818) от 21.12.2023
-
-Георгий Вернадский | сборник книг [2000-2009] [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернадский Георгий Владимирович (20.VIII.1888-12.VI.1973), выдающийся русский историк, сын известного ученого В.И. Вернадского (1863-1945). Ученик В.О. Ключевского, С.Ф. Платонова, Р.Ю. Виннера. Эмигрировал из России в 1920 году.
-
-Профессор Йельского университета, читал курсы лекций в Гарвардском, Колумбийском, Чикагском университетах. В США и Европе признан крупнейшим (   Читать дальше...   )Жанр: историяФормат: FB2Качество: изначально электронное (EPUB)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A4307BFEE93A10CC8C18DED1854C153CC58370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686180   (126790) от 21.12.2023
-
-И.А. Волкова и др. | Основы объектно-ориентированного программирования. Язык программирования С++ (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126790.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии кратко рассматривается объектно-ориентированный подход к программированию на примере языка программирования C++.Жанр: Компьютерная литератураИздательство: Факультет ВМК МГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186C2E61F9362850690F2DF08F5B1F05D4E05110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686105   (126782) от 21.12.2023
 
 Н.В. Вдовикина и др. | Программирование в ОС Unix на языке Си (2009) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126782.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126774.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126754.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126753.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126636.jpg" />
 </div>
 
 
@@ -272,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126517.jpg" />
 </div>
 
 
@@ -298,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126513.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126296.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126289.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126287.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126280.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126254.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126047.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125993.jpg" />
 </div>
 
 
@@ -509,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125990.jpg" />
 </div>
 
 
@@ -535,7 +403,7 @@ J.R. Waldram | The Theory of Thermodynamics (1987) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125867.jpg" />
 </div>
 
 
@@ -561,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125863.jpg" />
 </div>
 
 
@@ -590,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125634.jpg" />
 </div>
 
 
@@ -617,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125616.jpg" />
 </div>
 
 
@@ -643,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125599.jpg" />
 </div>
 
 
@@ -670,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125598.jpg" />
 </div>
 
 
@@ -682,6 +550,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA73851CBA116FA2E20DD2C3DB6F92F33D058744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687438   (125590) от 26.12.2023
+
+Ф.Н.X. Робинсон | Шумы и флуктуации в электронных схемах и цепях (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены основные виды шумов в электронных устройствах (в частности, в входных каскадах линейных усилителей, генераторах и т. п.). Достижение малого уровня шума в этих устройствах — один из определяющих факторов получения хорошего амплитудного и временного разрешения в спектрометрии ионизирующих излучений и одна из важнейших проблем радиоэлектроники. Книга предназначена (   Читать дальше...   )Жанр: ЭлектроникаИздательство: АтомиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AC16091A6B8C86A85748D12EFD08D54C010FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687928   (125519) от 27.12.2023
+
+Н.А. Калинина, Н.И. Костюкова | Основы программирования на языке C 2-е изд. (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дается формальное изложение всех конструкций языка программирования C. Материал проиллюстрирован примерами и задачами. Все конструкции языка С, независимо от частоты использования, синтаксической и семантической сложности, описаны одинаково кратко, но исчерпывающе.Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAC1BF262C7EF710897EA85078D5C9B3CBDE912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687900   (125494) от 27.12.2023
+
+К.И. Зырянов, Н.П. Кисленко | Зырянов К.И., Кисленко Н.П. Программирование на C++ (v.3017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются основы языка C++ и методы процедурного программирования на этом языке.
+Пособие соответствует программе дисциплины «Языки программирования», читаемой студентам, обучающимся по направлению подготовки «Информационные системы и технологии».
+Также оно будет полезным для всех студентов и специалистов, интересующихся современным программированием.Жанр: Компьютерная литератураИздательство: НГАСУ (Сибстрин)Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49601CE405256E37A9CDE2A6D1C5E44D83DDD4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688281   (125384) от 28.12.2023
+
+Д.Р. Кувшинов, С.И. Осипов | Основы программирования. Язык C++ (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125384.jpg" />
+</div>
+
+
+###  Подробнее
+
+На примере языка программирования C++17 вводятся основные концепции структурного программирования. Рассматривается широкий спектр тем: базовые конструкции C++, концепция неопределенного поведения, управление памятью, форматы представления чисел, концепция объекта, си-строки, конечные автоматы, простые структуры данных и алгоритмы сортировки, введение в вопросы организации (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Урал.ФУФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A13788A716B08402992EAAED1905FE43F32828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688421   (125275) от 29.12.2023
+
+Мария Серова | Учебник-самоучитель по графическому редактору Blender 3D. Моделирование и дизайн (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для начинающих моделлеров и дизайнеров. Она открывает путь в профессию путем самостоятельного изучения самого современного графического редактора Blender 3D и интеграции его с программой Sweet Home 3D.
+В книгу вошли теоретические и практические материалы по трехмерному моделированию, основам физики и анимации в 3D-пространстве, развитию пространственного (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Солон-ПрессФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1737566B5446E4B78CB9AE2B8FF9F0FCA46F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

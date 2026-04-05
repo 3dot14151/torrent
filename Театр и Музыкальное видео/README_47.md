@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767161.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767015.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766963.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766748.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766735.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766670.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ J.J. Cale - In Session at the Paradise Studios '1979 (2002) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766170.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766158.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Duran Duran - Lollapalooza Brazil (2017) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766156.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Alestorm - Концерт в Тилбурге / Alestorm - Live in Tilburg (2021
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766104.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765964.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Max Raabe & Palast Orchester - Heute Nacht oder Nie (2009) 2xDVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765711.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Karnivool - Концерт в театре Хита Леджера / Karnivool -
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765140.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Epica - Концертное шоу Omega Alive / Epica - Omega Alive (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765088.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765080.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765062.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764572.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764265.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Axel Rudi Pell - Live on Fire (2013) 2xDVD9 <Hard rock, Melodic heavy metal>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763926.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Axel Rudi Pell - Knight Treasures (Live and More) (2002) 2xDVD9 <Heavy Metal, Ha
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763899.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763375.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763277.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763225.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Everest of Rock - 4 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762638.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ A MusiCares' Tribute to Paul McCartney (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762377.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761841.jpg" />
 </div>
 
 

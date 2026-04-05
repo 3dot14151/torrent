@@ -1,3 +1,29 @@
+###  Публикация: 1066311   (412379) от 26.10.2016
+
+Silverstein - Ghost (2016) Single [MP3|320 Kbps] <Alternative Rock, Post Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost   (03:31)Жанр: Alternative Rock, Post HardcoreПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B148AFD8551EF54E726FC4BA25D1E893AFA6A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066558   (412377) от 26.10.2016
 
 Morning Dwell - The Guardians of Time (2016) [MP3|320 Kbps] <Power Metal>
@@ -6,7 +32,7 @@ Morning Dwell - The Guardians of Time (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412377.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Being As An Ocean - 5 альбомов + 2 сингла (2012-2019) [MP3|320 Kbp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412108.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Dan McCafferty (Ex. Nazareth) - Last Testament (2019) [FLAC|Lossless|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412102.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ Memphis May Fire - Challenger (2012) [MP3|320 кб/с]<Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412035.jpg" />
 </div>
 
 
@@ -128,7 +154,7 @@ Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmosp
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_412029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412029.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Echolot - Destrudo (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412028.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Methodica - Clockworks (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412026.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Legion Of The Damned - Slaves Of The Shadow Realm (2019) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412023.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Marco Bernard and Kimmo Porsti (The Samurai Of Prog ) - Gulliver (2020) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412020.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ Marco Bernard and Kimmo Porsti (The Samurai Of Prog) - La Tierra (2020) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412019.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ Corey Taylor - CMFT (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412017.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ The Samurai Of Prog - The Demise Of The Third King's Empire (2020) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411924.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ Legends Never Die - Rise and Awaken: An a Cryptic Ending Album (2020) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411918.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ Sarah Jezebel Deva - The Corruption Of Mercy (2011) [FLAC|Lossless]<Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_411914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411914.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Elvis Presley - Elvis His First Christmas Album Now in Stereo (2020) New Mono to
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411742.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Accept - The Undertaker (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411741.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Nickelback ‎ - All The Right Reasons (2005) 15th Anniversary Expanded Edition,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411740.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Queen + Adam Lambert - Live Around The World (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411739.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Roger Waters - Us + Them (2020) Live [FLAC|Lossless|WEB-DL|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411730.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ So Hideous - Laurestine (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Shoega
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411618.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ Roger Waters - Us + Them (2020) Live, 2CD [FLAC|24/48|Lossless|WEB-DL|tracks] <P
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411558.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ Louna - Начало нового круга (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411557.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ Leo Sayer - Restless Years (2015) [FLAC|Lossless]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411386.jpg" />
 </div>
 
 
@@ -686,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411331.jpg" />
 </div>
 
 
@@ -715,7 +741,7 @@ Bon Jovi - 2020 (2020) [FLAC|24/96|Lossless|WEB-DL|MQA|tracks] <Rock, Hard Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411316.jpg" />
 </div>
 
 
@@ -729,35 +755,6 @@ Bon Jovi - 2020 (2020) [FLAC|24/96|Lossless|WEB-DL|MQA|tracks] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:928185F697338CD2A3132C54BED6D3C5F1EF593E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252196   (411310) от 04.10.2018
-
-VA - Gods Of Darkness (1997) [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimmu Borgir - Moonchild Domain (5:21)
-02. Emperor - The Loss And Curse Of Reverence (6:07)
-03. Cradle Of Filth - Malice Through The Looking Glass (5:30)
-04. Agathodaimon - Banner Of Blasphemy (5:38)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8C4C0A4A00C110631532F5BF6C8516BCEA1676
 ```
 
 https://mybot314.ru/tekegram_catalog/

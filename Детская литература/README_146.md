@@ -1,29 +1,3 @@
-###  Публикация: 729315   (309497) от 02.12.2013
-
-А. Барто | Младший брат (1968) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи для детей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD23BAFB03123BF07EB3D0E28C548AD845F780A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 729331   (309494) от 02.12.2013
 
 Михаил Булатов | Солнце, Месяц и Ворон Воронович (1977) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309494.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309492.jpg" />
 </div>
 
 
@@ -91,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309489.jpg" />
 </div>
 
 
@@ -117,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309483.jpg" />
 </div>
 
 
@@ -143,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309475.jpg" />
 </div>
 
 
@@ -169,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309470.jpg" />
 </div>
 
 
@@ -196,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309303.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309292.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309290.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309246.jpg" />
 </div>
 
 
@@ -305,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309102.jpg" />
 </div>
 
 
@@ -331,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308861.jpg" />
 </div>
 
 
@@ -360,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308850.jpg" />
 </div>
 
 
@@ -386,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308692.jpg" />
 </div>
 
 
@@ -412,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308686.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308454.jpg" />
 </div>
 
 
@@ -464,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307706.jpg" />
 </div>
 
 
@@ -490,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307700.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307658.jpg" />
 </div>
 
 
@@ -543,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307649.jpg" />
 </div>
 
 
@@ -569,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307647.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307481.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307480.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307464.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307315.jpg" />
 </div>
 
 
@@ -689,6 +663,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA35CCB6EBBAC54401873826B01075D3A93BC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729970   (307312) от 03.12.2013
+
+В. Дитякин | Леонардо да Винчи (1959) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307312.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о замечательной жизни гениального итальянского художника и ученого Леонардо да Винчи (1452 — 1519). Леонардо да Винчи жил и творил в эпоху итальянского Возрождения, о которой Фридрих Энгельс писал: «Это был величайший прогрессивный переворот из всех пережитых до того времени человечеством, эпоха, которая нуждалась в титанах и которая породила титанов по силе мысли, страсти и характеру, по многосторонности и учености». Таким титаном эпохи Возрождения и был Леонардо да Винчи. Он вошел в историю человечества не только как художник и ученый, но и как инженер, строитель, писатель и архитектор. Юный читатель с интересом прочитает эту книгу о гениальном художнике и ученом Леонардо да Винчи.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA21FED7265CFE2B26BD17A10808BA69BBABD24
 ```
 
 https://mybot314.ru/tekegram_catalog/

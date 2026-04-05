@@ -1,177 +1,3 @@
-###  Публикация: 1261232   (305204) от 10.11.2018
-
-VA - 80s Symphonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie – Let’s Dance
-02. a-ha – Take On Me
-03. Simple Minds – Alive & Kicking
-04. Ultravox – Vienna(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E675B7629C000E39B635D60443FD662C98DE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960638   (305151) от 29.11.2015
-
-VA - Golden Memories - The...Gold Party Collection (2012) 4CD [FLAC|image + .cue]<Pop, Blues, Oldies, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever Will Be, Will Be (02:08)
-02. Magic Moments (02:43)
-03. Sway (02:45)
-04. Nel Blu, Dipinto Di Blu (02:04)(   Читать дальше...   )Жанр: Pop, Blues, Oldies, RetroПродолжительность: 03:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC0BC2B7C2D2A3BFB1F50A997651872D271BC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960832   (304812) от 29.11.2015
-
-Mylene Farmer - The Best Of (2007) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Mots (04:52)
- 02. Fuck Them All (04:39)
- 03. Sans Contrefacon (04:20)
- 04. Xxl (04:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFF995EFF3CB20A032D17A96FA56C0554BEFD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078112   (304633) от 29.11.2016
-
-VA - Hits of the 80s, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graham Blvd - Dancing in the Dark [3:46]
-02. Knightsbridge - Pour Some Sugar On Me [4:26]
-03. Ellis Wright - You Drive Me Crazy [2:40]
-04. Chateau Pop - Take On Me [3:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAB0907AEC40AB50E274C80A43A3CC2434FA00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078091   (304630) от 29.11.2016
-
-VA - Hits Of The 80s, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graham Blvd - Everywhere [3:18]
-02. Fresh Beat MCs - Rapper's Delight [3:57]
-03. The Overseers - Boys (Summertime Love) [3:09]
-04. Silver Disco Explosion - Fame [3:54](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0206334E83C5AED66D16A0658DE297390501407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078012   (304465) от 29.11.2016
-
-Italoconnection - Remixes (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Rocca & Fred Ventura - Looking For Love (Italoconnection Remix) 4:05
-02. Fred Ventura - The Years (Go By) (Italoconnetion Remix 2) 5:10
-03. Out Of Limbo - Cold Stars (Italoconnection Remix) 5:48
-04. Ryvon - Fade Out The Lights (Italoconnection Remix) 5:18(   Читать дальше...   )Жанр: Italo-Disco, Italodance, Nu-DiscoПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA7DEDE7E6076972B093F4ACE00AAA627E090AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078067   (304462) от 29.11.2016
 
 Vavan ака Вова Селиванов - Женщины. Свобода (2016) [MP3|320 Kbps] <Pop>
@@ -180,7 +6,7 @@ Vavan ака Вова Селиванов - Женщины. Свобода (2016)
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304462.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304192.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Workout Music Tv - Best Of 128 Bpm Songs 2020 For Fitness & Workout [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304171.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304027.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ VA - Serious Beats 95 (2020) 4CD [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, House
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304015.jpg" />
 </div>
 
 
@@ -322,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303894.jpg" />
 </div>
 
 
@@ -351,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303889.jpg" />
 </div>
 
 
@@ -380,7 +206,7 @@ MØ - When I Was Young (2017) (EP) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303602.jpg" />
 </div>
 
 
@@ -409,7 +235,7 @@ Rare Gems - Million Dollar Disco (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303538.jpg" />
 </div>
 
 
@@ -438,7 +264,7 @@ Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303522.jpg" />
 </div>
 
 
@@ -467,7 +293,7 @@ Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303488.jpg" />
 </div>
 
 
@@ -496,7 +322,7 @@ VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303479.jpg" />
 </div>
 
 
@@ -525,7 +351,7 @@ Nick Kamen - 4 Albums (1987-1992) Collection [MP3|320 Kbps] <Electronic, Pop, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303417.jpg" />
 </div>
 
 
@@ -554,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303289.jpg" />
 </div>
 
 
@@ -583,7 +409,7 @@ Vera - The Collection: Take Me to the Bridge / Joey (2018) 2CD [MP3|320 Kbps] <D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303273.jpg" />
 </div>
 
 
@@ -612,7 +438,7 @@ Boney M. - Worldmusic for Christmas (2017) 2CD [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303210.jpg" />
 </div>
 
 
@@ -641,7 +467,7 @@ Mireille Mathieu - Mes classiques (2018) [MP3|320 Kbps] <Pop, Classical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303137.jpg" />
 </div>
 
 
@@ -670,7 +496,7 @@ VA - Top Of The Pops '1979 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303095.jpg" />
 </div>
 
 
@@ -700,7 +526,7 @@ Fancy - Greatest Hits (2004) [FLAC|image + .cue]<Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303087.jpg" />
 </div>
 
 
@@ -729,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302730.jpg" />
 </div>
 
 
@@ -743,6 +569,180 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92445C57B1D9C2736AF57F64DE95821C573CBCF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078153   (302423) от 30.11.2016
+
+VA - Nostalgie Disco Fever: Les 50 Plus Grands Titres Disco-Funk ! (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ottawan - Disco 03:15
+02. Amii Stewart - Knock On Wood 04:10
+03. Barry White - You're The First, The Last, My Everything 04:31
+04. Donna Summer - Hot Stuff 05:18(   Читать дальше...   )Жанр: PopПродолжительность: 03:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954AE1BC9FEAAEF68BC30DCF83544B114414C040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423318   (302218) от 12.11.2020
+
+Disco Circus - 2 Albums (1978, 1980) Reissue CD, Lollipop Records [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In A Gadda Da Vida/Garden Of Eden  (7:15)
+02. Dig It  (6:26)
+03. Soul Sister  (3:51)
+04. Over And Over  (6:07)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B859D5A18D468160954619B4144ECC8DC90E5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 267285   (301853) от 07.12.2010
+
+E-Type - Greatest Hits / Greatest Remixes (1999) 2CD [FLAC|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301853.jpg" />
+</div>
+
+
+###  Подробнее
+
+E-Type (Bo Martin Erik Eriksson) - Профессионально занимается музыкой уже давно, но его успешная сольная карьера началась в 1994 году.01. This Is The Way (Waterdreamix)
+02. Back In The Loop (Antiloop Snap Out Of It Mix)
+03. I Just Wanna Be With You (Andre's Boogie Buster Short Mix)
+04. Calling Your Name (Antiloop Garage Club Mix)(   Читать дальше...   )Жанр: EurodanceФормат: 2 х CD, CompilationПродолжительность: 02:02:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333746   (301583) от 26.10.2019
+
+VA - Ballermann Frühlingsalarm 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tobee - Cordula Grün
+02. Almklausi,Specktakel - Mama Laudaaa (Harris & Ford Remix)
+03. Honk! - Joana
+04. Peter Wackel - I Love Malle(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C8EDC1697C7E18FB0A440E54454D7CBABB435F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333925   (301459) от 26.10.2019
+
+Tanja Lasch - Lebensecht (2015) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Du lebst gefahrlich neben mir
+02. Ich fall aus den Wolken
+03. 7 Tage 7 Nächte
+04. Vagabund(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9DD8DCAF5ECBE90202D6D4363EF1308E1D14B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333633   (301455) от 26.10.2019
+
+Chameleon - Superdoop (1981) LP [MP3|320 Kbps] <Electronic, Disco, Space-Age>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superdoop (2:25)
+02. Expedition (2:58)
+03. Savage (2:28)
+04. Balladette (2:40)(   Читать дальше...   )Жанр: Electronic, Disco, Space-AgeПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0597318C9288C41E912EB1514D4245A79EFC4BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

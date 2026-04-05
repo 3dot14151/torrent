@@ -1,3 +1,81 @@
+###  Публикация: 1147510   (609252) от 02.07.2017
+
+П. В. Албычев | Самодельные приборы по физике [Часть 1] (1950) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609252.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге даны указания, как изготовить в школьном кружке самодельные физические приборы и как ими пользоваться. Книга содержит следующие главы: Измерительные приборы (с включением геодезических), Приборы по механике (с включением рецептов изготовления механических игрушек), Приборы, демонстрирующие колебания и волны (с включением приборов по акустике), Приборы по (   Читать дальше...   )Жанр: История, науковедение, физика, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EBE82476FCB253434B1CD59F7201E96B852AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912334   (609225) от 27.06.2015
+
+И. М. Распопов и др. | Ладога (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о географических и климатических особенностях Ладоги - одного из самых крупных озер севера России. В книге затронута история приладожских земель и главные достопримечательности этих мест.Жанр: Естественные науки, Науки о ЗемлеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08E6A9D92B1A8DD50828C0E70DCC86AF03E4E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912960   (609006) от 27.06.2015
+
+Э. Шеклтон | В сердце Антарктики (2014) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написанная популярным языком, книга «В сердце Антарктики» содержит интересные и ценные сведения об особенностях природы и животного мира южного полярного континента. Эта познавательность в сочетании с описаниями множества захватывающих опасных приключений, пережитых путешественниками на суше, на глетчерных льдах и в морях Антарктики, делает труд Э. Шеклтона одним (   Читать дальше...   )Жанр: Биографии и Мемуары, Документальная литература, ГеографияПеревод: Петр Шмидт, А. Бурашко, В. Житомирский, З. ЖитомирскаяФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B287E1E55A74BDFF288BFDF708D7AB50D0F70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912828   (608821) от 27.06.2015
 
 Б. Е. Райков | Очерки по истории гелиоцентрического мировоззрения в России. Из прошлого русского естествознания (1947) [DJVU]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608821.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608792.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602929.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602648.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602526.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602525.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602521.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600920.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596490.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595815.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593704.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593536.jpg" />
 </div>
 
 
@@ -332,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591555.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590923.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580805.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580428.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579374.jpg" />
 </div>
 
 
@@ -469,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575698.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572158.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570652.jpg" />
 </div>
 
 
@@ -549,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570497.jpg" />
 </div>
 
 
@@ -575,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566878.jpg" />
 </div>
 
 
@@ -601,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565223.jpg" />
 </div>
 
 
@@ -614,88 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36819B1A92890BA350778405DEAA4C752ACE6E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043615   (561396) от 22.08.2016
-
-Степан Александрович Богомолов | Актуальная бесконечность. Зенон Элейский, Исаак Ньютон, Георг Кантор (1934) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые „апории“ Зенона Элейского более 2000 лет привлекают к себе внимание ученых и философов; всё снова и снова стараются их опровергнуть. Пройти мимо апорий Зенона, объявив их пустыми софизмами, было бы совершенно неправильно; здесь элейская школа с необыкновенной силой и глубиной критиковала возможность движения; а ведь понятие движения лежит в основе механики (   Читать дальше...   )Жанр: История, философия, науковедение, математикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4CAEDF0140548FE0276CE1A55FB8E0B97EED80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045079   (561002) от 22.08.2016
-
-Нил Деграсс Тайсон, Дональд Голдсмит | История всего. 14 миллиардов лет космической эволюции (2016) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше происхождение началось не на Земле, а, на самом деле, в космосе. Основываясь на научных открытиях и исследованиях, где пересекаются несколько наук — геология, биология, астрофизика и космология, — вы узнаете, как сформировались наши знания о космосе.
-В этой книге Нил Деграсс Тайсон и Дональд Голдсмит отправят вас в космический тур, где вы узнаете о рождении (   Читать дальше...   )Жанр: АстрономияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB03352363F10E668D1E01E2FD5DFB3AA01106EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045037   (559421) от 23.08.2016
-
-Н. И. Арепьева, Т. А. Романова (ред.) | Ливия. Справочная карта (1979) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559421.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Ливии (масштаб 1:2 500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D94A11E900DD9A847DA5A07E770F67E1C9E0C7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

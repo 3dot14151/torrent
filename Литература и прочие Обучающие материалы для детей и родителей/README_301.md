@@ -1,3 +1,55 @@
+###  Публикация: 950170   (372202) от 25.10.2015
+
+Dorling Kindersley | Человек. Наглядный словарь (1996) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загляните внутрь человеческого организма! Эта книга рассказывает о строении и функциях внутренних органов, скелета, мозга, о тканях, клетках и многом другом. Около 3000 специальных терминов. Более 200 поразительных фотографий и рисунков. Детальное изображение всех систем и структур организма. Совершенно новый тип словаря. В Наглядном словаре можно своими глазами (   Читать дальше...   )Жанр: Научно-познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97627E43BDD93FD71EA1717B5E29BDE3A35638E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950242   (372179) от 25.10.2015
+
+Жан-Клод Корбей, Арман Аршамбо | Пятиязычный визуальный словарь / The Firefly Five Language Visual Dictionary (2009) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспрецедентный по обилию информации и деталям, "The Firefly Five Language Visual Dictionary" содержит 6.000 цветных иллюстраций и 35.000 терминов на каждом из пяти европейских языков. Каждое ключевое слово или фраза связаны с иллюстрацией, которая делает перевод быстрым и точным.Жанр: Научно-познавательная литература для детейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5087C75DA4F61907429FF6C8A068F66D801A81CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327724   (372155) от 26.09.2019
 
 Майк Барфилд | Испытай эту книгу… во имя науки. Часть 2 (2018) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372155.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371909.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371862.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371802.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371761.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371644.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371616.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371581.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371406.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371149.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370975.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370965.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370963.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370944.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370839.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370189.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370077.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369744.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369510.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369464.jpg" />
 </div>
 
 
@@ -548,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369378.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369328.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369146.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369106.jpg" />
 </div>
 
 
@@ -640,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90F2744A90B3EAEE6EA166B4A343898DD9FDC520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070156   (369012) от 06.11.2016
-
-Василий Авенариус | Необыкновенная история о воскресшем помпейце (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказочных и фантастических произведений.Жанр: Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC54A3D7FD8DB9C8106569B26B3AAAB4C0727D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576226   (368614) от 13.09.2022
-
-Эзра Виленский | Возвращение папанинцев (1939) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Был декабрь 1937 года.
-Кончался седьмой месяц жизни на дрейфующей льдине четверки отважных советских полярников — Папанина, Ширшова, Кренкеля и Федорова.
-Льдина ушла далеко от Северного полюса. Она плыла между Гренландией и Шпицбергеном. Зимовщики продолжали свою героическую работу. Они всё время проводили научные исследования и наблюдения, аккуратно передавали в (   Читать дальше...   )Жанр: Повесть, ДокументалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A181936A060EAC9A08AF53291D671FF0E9C3537
 ```
 
 https://mybot314.ru/tekegram_catalog/

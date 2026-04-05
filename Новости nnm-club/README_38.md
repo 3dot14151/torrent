@@ -1,3 +1,29 @@
+###  Публикация: 613829   (926029) от 16.03.2013
+
+Dead Space 3 (2013) [Ru/En] (1.0.0.1/3dlc) Repack R.G. Revenants [Limited Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926029.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dead Space 3 Айзек Кларк и суровый солдат Джон Карвер отправляются в космическое путешествие, чтобы узнать о происхождении некроморфов. После жесткой посадки на ледяной планете Тау Волантис Айзек прочесывает окрестности в поисках материалов и деталей, чтобы создать и модифицировать оружие и средства выживания. У Айзека есть возможность навсегда покончить с некроморфами, но для этого нужно пережить лавины, восхождения на ледяные вершины и другие опасности замерзшей планеты. Враги сильны как никогда, но бороться за выживание человечества можно не только в одиночку, но и вместе с другом. В каждом режиме есть свои сюжетные и геймплейные нюансы, а новая технология позволяет быстро войти и выйти из многопользовательской игры.(   Читать дальше...   )Тип издания: LossLess RePackРазработчик: Visceral GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4741C69E329D56511CD78526984D87FCC9EBBBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987431   (925647) от 17.02.2016
 
 Технология Eternal 5D позволит записать на один носитель всю историю человечества и хранить ее бесконечно долгое время
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925647.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925589.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ TimeShift (2007) [Ru] (1.02) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925585.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Apple Final Cut Pro X 10.3.2, Motion 5.3.1 & Compressor 4.3.1 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925576.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Boom 2 v1.4.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925519.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Corel VideoStudio Ultimate X9 19.1.0.12 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925508.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Layers of Fear (2016) [Ru/Multi] (5.1.3.48304) License RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925483.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925480.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Adobe After Effects CC 2017.1 14.1.0.57 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925470.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Adobe Audition CC 2017.0.2 10.0.2.27 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925462.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [Ru/En] (1.3.0.x) Repack/Mod Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925449.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925444.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Adobe Premiere Pro CC 2017.0.2 11.0.2.47 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925437.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ WhatsApp 0.4.1299 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924904.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924729.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924355.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924098.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924010.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923714.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Street Fighter V (2016) [Ru/Multi] (1.0) Repack SEYTER
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923686.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923631.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923274.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (1.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923233.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/En] (1.5.1/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923229.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Solid Converter PDF 7.0 build 830 [Мультиязычный (русский п
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923219.jpg" />
 </div>
 
 
@@ -646,35 +672,6 @@ Solid Converter PDF 7.0 build 830 [Мультиязычный (русский п
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365465   (923207) от 11.03.2020
-
-Windows 10 2in1 VL (x64) (v.1909 Build 18363.657) Elgujakviso Edition (v.07.03.20) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN:
-   Установлен NET Framework 3.5 (включает .NET 2.0 и 3.0); включен стандартны просмотр фото. Для получения полной информаций об изменениях, читайте раздел "дополнительная информация".
-
-Образ включает в себя:(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8A772D56DEB5C5A8A97F83602523154F47B5FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

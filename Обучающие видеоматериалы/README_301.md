@@ -1,3 +1,32 @@
+###  Публикация: 1751194   (42696) от 23.09.2024
+
+Вольница, Андрей Шкиль | BLNDR - База v2 (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это база! И этим все сказано!
+38 бесплатных уроков про Blender, которые не только помогут вам сделать первые шаги в этой программе, но и научат полезным навыкам!
+Вы сделаете авторскую low poly модель и освоите базовый 3D моушн дизайн.
+Главное, вы пройдете этот путь не одни! А с объемными фидбеками от автора курса и коллегами в чате!Производство: ВольницаЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 13:17:29Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02987F6BECD9E2BDDCA0214F352F42D94F4E589C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751195   (42691) от 23.09.2024
 
 Вольница, Андрей Шкиль | BLNDR 6.0 Новая эра. Тариф Базовый (2024) PCRec [AD] [RU]
@@ -6,7 +35,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42691.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ George Vondriska | Основы изготовления шкафа (2015) WEBRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42083.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41546.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41488.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ George Vondriska | Делайте качественные двери (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41244.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ Udemy, GameDev.tv Team, Gary Pettie, Ben Tristem | Математика для �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41234.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ Udemy, GameDevHQ Team, Jonathan Weinberger | The Complete Unity C# Game Develope
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41219.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Udemy, GameDevHQ Team, Jonathan Weinberger  | The Complete Unity C# Game Develop
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41211.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Linkedin.com, Brenda Romero | Основы игрового дизайна, ча
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41096.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ Udemy, Pete Jepson | Make a Multiplayer Game in Unity 2024-1 (2024) WEBRip [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41092.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39802.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ remontkv.pro, Александр Смолин | Новейший курс по �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39446.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ EducationMarine, Василий Березовский | Chief officer on oil ta
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39432.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39408.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ George Vondriska | Необходимые техники заточки (2015) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39314.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39252.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ VFX Grace | Blender Creature Effects - The Complete WorkFlow - Modeling (2024) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39230.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Взрослые и
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39153.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39147.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Coursera, Dr. Tim Chamillard | C++ Programming for Unreal Game Development Speci
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39129.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Udemy, Code Monkey | Ultimate Unity Overview (70+ Tools and Features Explained!)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39128.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ Coursera, Dr. Tim Chamillard | C# Programming for Unity Game Development Special
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39127.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39049.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39031.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ Skillbox, Павел Баракаев, Владислав Малыхин | Пр�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37634.jpg" />
 </div>
 
 
@@ -673,35 +702,6 @@ Telegram — не просто мессенджер. Это мощный инс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B1A480E750C172D4570213C9C3172D6A4E88E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760090   (37540) от 12.11.2024
-
-Ольга Шульдешова | Сборник вебинаров по выполнению архитектурных решений зданий в программе ArchiCAD 25 (2022-2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37540.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вебинар мастер-класс на тему: "Решение вопросов при работе в программе ArchiCAD".
-Часть 1
-2. Вебинар мастер-класс на тему: "Решение вопросов при работе в программе ArchiCAD".
-Часть 2(   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 29:34:48Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6BE4930C51C96F20E1D67E785934007E437EAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

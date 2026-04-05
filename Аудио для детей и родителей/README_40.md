@@ -1,3 +1,29 @@
+###  Публикация: 344788   (653213) от 01.06.2011
+
+VA - Sweet Dreams: Baby's First Mozart (2000) [MP3|320 kbps]<Классика  для детей>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Классика  для детейПродолжительность: 02:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2CB07FC8DB8E96ED0F8CC0E3ADB6E69C7B545E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540544   (652723) от 30.03.2022
 
 Кэти Ист Дубовски | История игрушек (2021) [MP3, Андрей Лёвин]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652723.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652717.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652710.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652409.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651436.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651064.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651013.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649542.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649069.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647632.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647121.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646848.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645118.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644113.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643797.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643600.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643182.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643075.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643049.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641543.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639803.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ VA - Лето на Детском радио FM (2011) [MP3|256 kbps]<Детск
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639420.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639235.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638812.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636141.jpg" />
 </div>
 
 
@@ -674,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E528C6A0A2280009FF258267F2087B207FAF20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033846   (636137) от 12.07.2016
-
-Пауль Маар | Семь суббот на неделе (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Субастик - волшебный персонаж, выдуманный великолепным немецким писателем Паулем Мааром, - стал героем его нескольких детских книг. Это необычное существо, не переставая удивлять всех своей находчивостью и изобретательностью, меняет жизнь и характеры окружающих его людей - и детей, и взрослых.Жанр: Повесть-сказкаПродолжительность: 03:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422040E9A74FEEC8C3110A20130CC83A322A698C
 ```
 
 https://mybot314.ru/tekegram_catalog/

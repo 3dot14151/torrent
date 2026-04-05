@@ -1,3 +1,55 @@
+###  Публикация: 1329854   (347306) от 07.10.2019
+
+Алюминиевые батарейки оказались намного лучше литий-ионных
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Физики утверждают, что аккумуляторы на основе ионов алюминия намного эффективнее и безопаснее для экологии, чем популярные сегодня литиевые батареи.Прогресс невозможно остановить, и сегодня все мы зависим от батареек, нравится нам это или нет. Все, от смартфонов до автомобилей, требует для работы аккумулятор. Однако современные литий-ионные обладают рядом очевидных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579619   (347072) от 23.11.2012
+
+Патруль / End of Watch (2012) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они были лучшими копами Лос-Анджелеса. Бесстрашные и везучие напарники, они стали друг другу как братья. Но однажды парни залезли в самое логово преступного мира города, по-глупому подставились и сами стали мишенью… Кто успеет первым разрядить обойму?Производство: Crave Films / Exclusive Media Group / Emmett/Furla Films / Envision Entertainment CorporationЖанр: Триллер, драма, криминалРежиссер: Дэвид ЭйрАктеры: Джейк Джилленхол, Майкл Пенья, Анна Кендрик, Натали Мартинез, Америка Феррера, Фрэнк Грилло, Дэвид Харбор, Кле Шахид Слоун, Джейм Фицсаймонс, Коуди ХорнПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68A21FD9B44DC334CBD29609CA9AA904CDF8A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256841   (347044) от 25.10.2018
 
 Из-за ошибки приложение Google News сжигает гигабайты мобильного трафика
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347044.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mozilla Firefox 50.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346766.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dishonored (2013) [Ru/En] (1.4.1/dlc) Repack =nemos= [Game of the Year Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346743.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Assassin’s Creed: Rogue [Region Free] [ENG] [LT+3.0] (XGD3 / 16537) (2014) [XB
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346398.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/Multi] (1.03/dlc) SteamRip Let's
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346381.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ AusLogics BoostSpeed 8.1.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346202.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346186.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346175.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346171.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Windows 8.1 PE (x64) v.3.4 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346074.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ WWE 2K15 (2015) [Multi] (v.1.0) Repack R.G. Games
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346072.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346067.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346065.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345960.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ XIII (2003) [En] (1.0upd) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345109.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344717.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ King's Bounty: Воин Севера - Коллекционное Издание
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344529.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Assassin's Creed III/3 [Ru/En/Multi18] (L/1.01) 2012 l RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344523.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_344482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344482.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Adobe Photoshop CS6 13.0.1.3 Extended [Multi] [x86, amd64] (wine)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344357.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344001.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ Adobe Illustrator CC2018 v22.0.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343998.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343985.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ Windows 10 Pro 2004 b19041.572 x64 ru by SanLex (edition 2020-10-26) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343714.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ Windows 10 Pro 2004 b19041.572 x64 ru by SanLex (edition 2020-10-26) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD24C1953D4B78E5DDAE6B34DBDB29E6487B8796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639789   (343709) от 26.10.2020
-
-Самсара / Samsara (2011) BDRip [1080p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, снятый полностью на 70-миллиметровую пленку, представляет собой полуторачасовое путешествие по самым удивительным местам планеты (всего в фильме покажут 25 стран на 5 континентах). Действие «Самсары» переносит зрителя на священные земли и в зоны стихийных бедствий, в сердце промышленных объектов и природных чудес.Производство: СШАЖанр: Документальный, видовойРежиссер: Рон ФрикеПеревод: Не требуетсяПродолжительность: 01:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E20DCC98620A49DCD93FC2C41C787D9E6EF746C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954037   (343703) от 06.11.2015
-
-Горные акулы / Avalanche Sharks (2013) BDRip [H.264/720p-LQ] [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отпуск в горах: катание на сноуборде, пиво и девочки. Что может быть лучше? Однако неожиданно происходит то, что портит отдых. Сошедшая с гор лавина пробуждает ужасного доисторического хищника — Снежную акулу. Очнувшемуся после многовекового сна чудовищу приходит по вкусу человеческая плоть и хищник превращает горнолыжный курорт в кровавую баню. Местный шериф вместе (   Читать дальше...   )Производство: Канада, Odyssey Media, Pulser Productions, Rogue StateЖанр: Ужасы, Фантастика, БоевикРежиссер: Скотт ВилерАктеры: Александр Менделюк, Кейт Наута, Бенжамин Истадэй, Эрик Скотт Вудс, Келли Кентвелл, Ричард Глисон, Джина Холден, Джек Коллисон, Джеймс Оуме, Николь ХеленПеревод: Одноголосый закадровый (den904)Продолжительность: 01:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21B3F045905334E2B764C89C126EA55C4D5916A
 ```
 
 https://mybot314.ru/tekegram_catalog/

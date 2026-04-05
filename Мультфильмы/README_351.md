@@ -1,3 +1,136 @@
+###  Публикация: 1272634   (142295) от 28.12.2018
+
+Приключения Икабода и мистера Тоада / The Adventures of Ichabod and Mr. Toad (1949) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шедевр мультипликации — «Студия Уолта Диснея» («Walt Disney Pictures») под одной обложкой в едином живописном стиле поместила две сказочные истории по классическим произведениям:
+1. «Ветер в ивах» («The Wind in the Willows») — об одном из самых удивительных и забавных персонажей английской литературы, о жабе Джее Тадеуше Тоаде, а проще — о мистере Тоаде, потомственном (   Читать дальше...   )Производство: Walt Disney PicturesЖанр: Рисованная анимация, Приключения, Комедия, ФентезиРежиссер: Джеймс Алгар / James Algar, Клайд Джероними / Clyde Geronimi, Джек Кинни / Jack KinneyПеревод: Дублированный, многоголосый закадровый, одноголосый авторскийСубтитры: русские (форс., полные), английские (полные)Продолжительность: 01:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B20D13FB27F45CB2170312D6841DE9F70B51580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590162   (142247) от 17.12.2012
+
+Слон по имени Элмер / Elmer Elephant (1936)  [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слон Элмер приносит цветы на день рождения тигрице Тилли. Она оставляет его на мгновение и все другие животные дразнят Элмера за его длинный хобот. Он уходит, и встречает старого мудрого жирафа. Между тем, дом на дереве Тилли загорелся. Элмер, жираф, и несколько пеликанов объединяються, чтобы спасти Тилли от огня.Жанр: короткометражный анимационный фильмРежиссер: Уилфред ДжексонПеревод: ДублированныйПродолжительность: 00:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA8E62D54E9DE81274B84C9D90DC36B13B15656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272539   (142178) от 28.12.2018
+
+Принц Египта / The Prince of Egypt (1998) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история случилась на заре цивилизации в Древнем Египте. Стремительный и величавый Нил вынес на берег перед дворцом фараона корзину с младенцем. Могущественный правитель усыновил крошечного мальчика и дал ему имя Моисей.
+Шли годы… Моисей и его брат Рамзес росли вместе. Но придет день, когда один из братьев станет владыкой величайшей империи на земле, а другой (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: Мюзикл, Приключения, Семейный, ИсторияРежиссер: Бренда Чепмен, Стив Хикнер, Саймон УэллсАктеры: Вэл Килмер, Рэйф Файнс, Мишель Пфайффер, Сандра Буллок, Джефф Голдблюм, Дэнни Гловер, Патрик Стюарт, Хелен Миррен, Стив Мартин, Мартин Шорт, Офра ХазаПеревод: Дублированный, многоголосый закадровый, одноголосый авторскийСубтитры: русские (полные), английские (полные)Продолжительность: 01:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55C816D290988EDB4E75D8F9363F0C0D15A0E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272723   (142134) от 28.12.2018
+
+Суперсемейка 2 / Incredibles 2 (2018) DVD9
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142134.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БёрдПерсонажи: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (лицензия)Субтитры: Русские, английскиеПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8654B5B2A0C8DDECA004BB602605DBD007808D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853854   (141968) от 29.12.2014
+
+Книга жизни / The Book of Life (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая история любви на фоне празднования Дня мертвых в Мексике.
+Тореадор Маноло разрываясь между  ожиданиями его семьи и  зовом сердца, пускается в приключение, которое охватывает три фантастических мирах, где он должен встретиться со своими страхамиПроизводство: США |  Reel FX Animation Studios, Twentieth Century Fox, ChatroneЖанр: мультфильм, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Хорхе Р. ГутьерресПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4497C7CB8E4437D2E93D113013B5CE7B1D0FDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520421   (141722) от 28.12.2021
 
 Подозрительная сова (2016-2020) WEBRip (сезон 1-8, серии 1-164 из 164)
@@ -6,7 +139,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141722.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141433.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141427.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141302.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141210.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141201.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141194.jpg" />
 </div>
 
 
@@ -191,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141146.jpg" />
 </div>
 
 
@@ -217,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141129.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140953.jpg" />
 </div>
 
 
@@ -270,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140835.jpg" />
 </div>
 
 
@@ -296,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140827.jpg" />
 </div>
 
 
@@ -323,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140748.jpg" />
 </div>
 
 
@@ -349,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140729.jpg" />
 </div>
 
 
@@ -378,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140704.jpg" />
 </div>
 
 
@@ -404,7 +537,7 @@ Web-зона (2018) WEB-DLRip [H.264/720p-LQ] (Сезон 1-2, Серии 1-24 �
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140659.jpg" />
 </div>
 
 
@@ -430,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140543.jpg" />
 </div>
 
 
@@ -456,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140365.jpg" />
 </div>
 
 
@@ -482,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140343.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140187.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140170.jpg" />
 </div>
 
 
@@ -547,136 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54BC4A0EBBDC55D2AF502EB17C0EA97D94FAC1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520212   (139794) от 29.12.2021
-
-Двенадцать месяцев (1956) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снежной холодной зимой, в январе, под вечер, когда люди сидят в домах, прислушиваясь к треску поленьев в печках, злая мачеха отправила свою падчерицу в лес, чтобы та набрала корзину подснежников. Бедной девочке ничего не оставалось делать, как исполнить прихоть мачехи...Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, детский, семейныйРежиссер: Иван Иванов-Вано, Михаил БотовСубтитры: отсутствуютПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EACDCFCD649A0E2F848606BE9049B90FDA695AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351120   (139651) от 29.12.2021
-
-Три богатыря: Полная коллекция (2004-2018) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139651.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данный сборник вошли 9 частей мультфильмов студии анимационного кино «Мельница»: Алеша Попович и Тугарин Змей, Добрыня Никитич и Змей Горыныч, Илья Муромец и Соловей Разбойник, Три богатыря и Шамаханская царица, Три богатыря на дальних берегах и Три богатыря: Ход конем, Три богатыря и Морской царь, Три богатыря и принцесса Египта, Три богатыря и Наследница престола.Производство: Россия / Кинокомпания CTB, Анимационная студия МельницаЖанр: Рисованная анимация, Комедия, Семейный, Мультфильм, Приключения, ФэнтезиРежиссер: Константин Бронзит, Илья Максимов, Владимир Торопчин, Сергей Глезин, Константин ФеоктистовПеревод: ОригиналЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:51 | 01:08:08 | 01:19:31 | 01:16:32 | 01:11:18 | 01:14:43 | 01:13:37 | 01:11:46 | 01:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65D9F6747B60E41AB5342C0BAE5E5F36A973234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436096   (139072) от 30.12.2020
-
-Случилось это зимой (1968) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм для детей по рассказу Н. Носова. Шутка из серии "охотничьих рассказов" - приключения охотника и очень умного медведя.Производство: СССР, СоюзмультфильмЖанр: Мультфильм,КороткометражныйРежиссер: Владимир Попов, Владимир ПекарьСубтитры: отсутствуютПродолжительность: 00:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3DDC7CBC71CF23E4ECA47ABEE8EFFF37421515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349117   (139068) от 30.12.2019
-
-Тайная жизнь домашних животных 2 / The Secret Life of Pets 2 (2019) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хозяева Макса уезжают за город в гости на ранчо и берут с собой Макса. Тем временем, в городе у Снежка и Гиджет свои приключения.Производство: США, Франция, Япония / Universal Pictures, Illumination Entertainment, DentsuЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Крис Рено, Джонатан дель ВальПеревод: Дублированный (русский и украинский), многоголосый профессиональный (HDRezka)Субтитры: руcские, английскиеПродолжительность: 01:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DDFA9162F6B13B698C1482937349DE3CC2DD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520493   (138876) от 30.12.2021
-
-Легенда о волках / WolfWalkers (2020) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландия, 1650 год. Вокруг города Килкенни идёт вырубка лесов, участились случаи нападения волков, поэтому вызванному из Англии охотнику приказано истребить хищников. Несмотря на строгий запрет отца, дочь охотника Робин не может усидеть дома и, желая помочь, пробирается в лесную чащу, где сталкивается со странной девочкой Мейв. Вскоре с Робин произойдёт удивительное (   Читать дальше...   )Производство: Ирландия, Люксембург, Франция, США, Великобритания /  Apple Original Films, Cartoon Saloon, Mélusine ProductionsЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Томм Мур, Росс СтюартАктеры: Онор Нифси, Эва Уитэйкер, Шон Бин, Саймон Макберни, Томми Тирнан, Мария Дойл Кеннеди, Джон Кенни, Джон Мортон, Нора Туми, Оливер МакГратПеревод: Дублированный | AppleTV+ (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), украинские (Full, SDH), английские (Full, SDH)Продолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC4A727712C60056D59B965425184EA3F6D858F
 ```
 
 https://mybot314.ru/tekegram_catalog/

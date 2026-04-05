@@ -6,7 +6,7 @@ John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133194.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133191.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - The Birth Of Bop: The Savoy 10-Inch LP Collection (1944 - 1949) 2CD, 2023, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133181.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Kenny G - Innocence (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133095.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132771.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Norah Jones - Little Broken Hearts (2012) 2023, 2CD Japan Deluxe Edition, SHM-CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132702.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ahmad Jamal - Emerald City Nights: Live At The Penthouse (1963, 1964) 2CD, 2022,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132416.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Lowell Hopper - Soul Fingers (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132137.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Clifford Jordan - Highest Mountain (1975 - 1978) 2CD, 1999, Camden Deluxe [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132135.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dave Sereny - Talk to Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132091.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132081.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Andrew Hill - The Complete Blue Note Sessions (1963 - 1966) 7CD, 1995, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131864.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Smooth Jazz Music Ensemble - Warm Winter Wine (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131852.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Coffee Jazz Melody - Autumn Colors (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131850.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Scott Henderson, Steve Smith, Victor Wooten - Vital Tech Tones (1998) [WavPack|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131613.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - JazzCD.no - Jazz From Norway 5th set (2012) 3CD[FLAC|Lossless]<Abstract, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131562.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Toshiyuki Miyama & The New Herd - A Love Story: This Is Latin Music (1970) 2006,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131491.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Toshiyuki Miyama & His New Herd - Beat Generation (1994) 2015, King Record [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131199.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Anita O'Day - Complete Signature & London Recordings (1942 - 1950) 2CD, 2001, Th
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130327.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Askold Buk - Askold Buk (1999) [FLAC|Lossless]<Fusion, Crossover Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130301.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ The Swing Session - Whispering Grass (2001) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130251.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ George Williams - Swing Classics In Stereo and Put On Your Dancing Shoes (2003) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130245.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Teddy Edwards Octet - Back to Avalon (1960) [FLAC|Lossless]<Bop, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130234.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ VA - Smooth Jazz - Sexual Healing (2000) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130215.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Lionel Hampton - The Complete Lionel Hampton Quartets And Quintets With Oscar Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130017.jpg" />
 </div>
 
 
@@ -777,7 +777,7 @@ Thomas Anders - Songs Forever (2006) Remastered 2023 [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129969.jpg" />
 </div>
 
 

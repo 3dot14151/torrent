@@ -1,3 +1,55 @@
+###  Публикация: 479493   (87094) от 07.04.2012
+
+Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 | R.G. Origami
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой – талантливый граффити-художник Трейн, который отличается от сотен других граффитистов прекрасным знанием улочек города New Radius, задатками отличного спортсмена и невероятной страстью к любимому делу. Каждый день он рискует жизнью, чтобы попасть в труднодоступные места и украсить их ярким граффити. По мере «карьерного роста» Трейн превратится из новичка с горстью разноцветных маркеров в непревзойденного мастера, чьими руками (а также баллончиками и прочими граффити-инструментами) будут созданы шедевры во всех районах огромного города. Разумеется, о такой роскоши, как спокойное творчество придется забыть сразу и навсегда. На пути к вершинам мастерства стоят не только надоедливые городские власти, но и конкуренты – такие же нелегальные художники. И с теми, и с другими можно при встрече ввязаться в драку или незаметно пробраться мимо... чтобы, подкравшись со спины, оглушать врага ударом по голове. Наконец, помимо уличных потасовок и рисования граффити Трейну придется совершать маленькие акробатические (   Читать дальше...   )Тип издания: RePackРазработчик: The CollectiveЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E46C6FDBD124AB4E98C1046BEFDBF15BDD55F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479857   (87054) от 07.04.2012
+
+Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переиздание Civilization 2. Test of Time включает оригинальную кампанию, присутствовавшую в Civilization II, с рядом небольших изменений. Особенно сильны внешние различия — в игре почти полностью переделана графика и появилась анимация юнитов. Появилась также расширенная оригинальная кампания, в которой «розовый» слот занимает цивилизация центавриан с которыми вступает в войну игрок, пославший к Альфе Центавра космический корабль. Игрок также может играть за инопланетян, но тогда придётся долго ждать прибытия землян.Тип издания: RipЖанр: Глобальная пошаговая стратегияЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479412   (87009) от 07.04.2012
 
 Witchaven [En] (RePack) 1995 | Pilotus
@@ -6,7 +58,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87009.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Morpheus [Ru] (P) 1998
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86985.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86971.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86947.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86630.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Tomb Raider 4: The Last Revelation [En] (L) 1999
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86616.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Darkened Skye [Ru] (RePack) 2002 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86398.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85785.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85187.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84202.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84192.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84178.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84177.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83515.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82764.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82170.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81919.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ The Shield: The Game / The Shield: На страже порядка [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81893.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81511.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81482.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81445.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80890.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79698.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65800.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Warhammer 40,000: Dawn of War - Soulstorm - самостоятельное до�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF4CA4D223ACBE10A6DFB1E38676340BE599A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803857   (65796) от 25.06.2025
-
-Questron II (1988) [En] (1.2) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение классической игры Questron от SSI для Apple II и духовный родственник Legacy of the Ancients от EA, Questron II продолжает историю спустя годы после окончания предыдущей игры. На этот раз Mesron the Great Wizard отправляет вас в путешествие в прошлое, чтобы помешать Безумным Колдунам создать Книгу Злой Магии. Отличный сюжет, головоломки и множество приятных (   Читать дальше...   )Тип издания: LicenseРазработчик: SSIЖанр: Ролевые игры, ФентезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803747   (65795) от 25.06.2025
-
-Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniversary, состоит из восьми новых захватывающих эпизодов, действие которых происходит после окончания пятилетней миссии. Вы - капитан Джеймс Т. Кирк, и вместе со своей командой вы посетите загадочные миры и встретите странных противников в обстоятельствах, неподвластных логике. Неужели это древний триплан (   Читать дальше...   )Тип издания: LicenseРазработчик: Interplay Entertainment Corp.Жанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
 ```
 
 https://mybot314.ru/tekegram_catalog/

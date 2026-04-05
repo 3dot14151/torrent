@@ -1,161 +1,3 @@
-###  Публикация: 1271398   (149156) от 23.12.2018
-
-Ильяс Низамутдинов | Азбука расширений конфигураций 1С (2017) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149156.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в доступной форме подробно шаг за шагом даются основы работы с этим интересным механизмом. После её прочтения вы сможете самостоятельно использовать технологию расширения конфигураций 1С в своей работе, выведете свой профессионализм на новый уровеньЖанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DF9BB7343B55F0EA71303D487313F9D7BBD89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434768   (149057) от 25.12.2020
-
-А.А. Маркелов | OpenStack. Практическое знакомство с облачной операционной системой (2018, 4-е изд.) [PDF, RTF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга знакомит читателя с основными сервисами облачной операционной системы OpenStack на начало 2018 года (версия Queens). Рассмотрены вопросы интеграции Open-Stack и системы работы с контейнерами Docker, программно-определяемой системы хранения данных Ceph, настройки производительности и высокой доступности сервисов. Издание рассчитано на ИТ-специалистов (системных (   Читать дальше...   )Жанр: Компьютерная литература, Операционные системыФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E729F335D3B3154D2F9FAB79C41482633887457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677746   (148331) от 19.11.2023
-
-Артем Демиденко | Всё об ИИ чат-боте ChatGPT (2023) [PDF, FB3, TXT, EPUB]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которая представляет собой обзор и практическое руководство по использованию мощного инструмента искусственного интеллекта - чат-бота ChatGPT. Книга содержит 100 бизнес-идей, которые можно реализовать, используя возможности ChatGPT, а также 100 запросов для автоматизации задач и 100 примеров бытовых запросов для улучшения жизни и повышения эффективности работы. (   Читать дальше...   )Жанр: Бизнес-стратегии, Компьютерная справочная литература, ПрограммированиеИздательство: ЛитРесФормат: PDF, FB3, TXT, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F1A346CA10BA50955AFE796EE1AACAE44CD8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969148   (148045) от 26.12.2015
-
-Теро Карвинен и др. | Делаем сенсоры: проекты сенсорных устройств на базе Arduino и Raspberry Pi (2015) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датчики расширяют возможности по взаимодействию микроконтроллерных платформ с внешним миром, открывая новые горизонты в разработке принципиально новых устройств. Детальный анализ среды и обработка полученных данных позволяют микроконтроллерной системе принимать эффективные решения и выполнять требуемые действия. Укомплектовав свои устройства недорогими компьютерными (   Читать дальше...   )Жанр: Программирование, аппаратураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D9A3C050FB1F27386B250A5EB3F92BA142369E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434889   (147572) от 26.12.2020
-
-Юси Лю | Обучение с подкреплением на PyTorch. Сборник рецептов (2020) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека PyTorch выходит на передовые позиции в качестве средства обучения с подкреплением (ОП) благодаря эффективности и простоте ее использования. Эта книга организована как справочник по работе с PyTorch, охватывающий широкий круг тем – от самых азов (настройка рабочей среды) до практических задач (рассмотрение ОП на конкретных примерах).
-Вы научитесь использовать (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282D9E54B03F1FED618824928B99FD7FD323BF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434884   (147462) от 26.12.2020
-
-Шон Льюис, Майк Данн | Нативная разработка мобильных приложений. Перекрестный справочник для iOS и Android (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147462.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы познакомитесь с простыми подходами к разработке мобильных приложений для iOS и Android. Если вашей команде приходится разрабатывать проекты сразу для двух этих систем или вы планируете перейти с одной системы на другую, это практическое руководство покажет вам, как решаются наиболее распространенные задачи на каждой из этих платформ.
-В первой части (   Читать дальше...   )Жанр: Программирование, Разработка ПОПеревод: А.Н. КиселевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434895   (147389) от 26.12.2020
 
 Brett McLaughlin | Programming Kotlin Applications / Программирование приложений Kotlin (2021) [PDF, EPUB] [EN]
@@ -164,7 +6,7 @@ Brett McLaughlin | Programming Kotlin Applications / Программирова�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147389.jpg" />
 </div>
 
 
@@ -191,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147244.jpg" />
 </div>
 
 
@@ -217,7 +59,7 @@ Acronis | Acronis True Image 2013. Руководство пользовател
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147199.jpg" />
 </div>
 
 
@@ -243,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147143.jpg" />
 </div>
 
 
@@ -269,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147053.jpg" />
 </div>
 
 
@@ -295,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146814.jpg" />
 </div>
 
 
@@ -321,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146641.jpg" />
 </div>
 
 
@@ -347,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146509.jpg" />
 </div>
 
 
@@ -373,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146484.jpg" />
 </div>
 
 
@@ -399,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146450.jpg" />
 </div>
 
 
@@ -426,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146343.jpg" />
 </div>
 
 
@@ -452,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146318.jpg" />
 </div>
 
 
@@ -478,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146276.jpg" />
 </div>
 
 
@@ -504,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146047.jpg" />
 </div>
 
 
@@ -530,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145626.jpg" />
 </div>
 
 
@@ -559,7 +401,7 @@ Marin Todorov | Modern Concurrency in Swift, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145496.jpg" />
 </div>
 
 
@@ -585,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145455.jpg" />
 </div>
 
 
@@ -611,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145025.jpg" />
 </div>
 
 
@@ -637,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144864.jpg" />
 </div>
 
 
@@ -664,7 +506,7 @@ David Sandilands | Puppet 8 for DevOps Engineers (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144662.jpg" />
 </div>
 
 
@@ -675,6 +517,165 @@ David Sandilands | Puppet 8 for DevOps Engineers (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3885D9AF1147AA6F981190D9F9D820D944AE06C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272112   (143837) от 27.12.2018
+
+А. Вторников | Стек, или путешествие туда и обратно (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена простой и удивительно элегантной структуре данных – стеку. Описаны скобочные структуры, подпрограммы (в том числе рекурсивные), передача параметров, разбор и вычисление выражений, распознавание последовательностей символов. Также рассмотрено описание устройства и реализация простой, но достаточно мощной стековой машины; приведены многочисленные примеры (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B730FE3353E90C26AE70F81261BC2FF13DF14B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678719   (143598) от 22.11.2023
+
+Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет вам создать одно реальное приложение, написанное на разных архитектурах, и получить практический опыт работы с различными архитектурами. Кроме того, в этой книге вы получите теоретические знания, необходимые для создания прочного фундамента архитектурных концепций, что позволит вам принимать обоснованные решения о том, как использовать их в своей (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Kodeco IncФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678729   (143512) от 22.11.2023
+
+Cesar Bravo, Desilda Toska | The Art of Social Engineering (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Социальная инженерия - один из наиболее распространенных методов, используемых злоумышленниками для кражи данных и ресурсов у частных лиц, компаний и даже государственных структур. Эта книга представляет собой исчерпывающее руководство по пониманию атак социальной инженерии и способам защиты от них.
+
+В начале книги дается обзор современного ландшафта киберугроз, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A7E20204E415343416C5FCD08EA8DB06F006A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435392   (143307) от 28.12.2020
+
+Мориц Ленц | Python. Непрерывная интеграция и доставка (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите методы и инструменты, которые обеспечивают плавный и эффективный процесс разработки программного обеспечения, с помощью этого краткого и практического руководства по непрерывной интеграции и непрерывной доставке с использованием Python. В книге представлены различные виды тестирования и показано, как настроить автоматизированные системы, которые выполняют (   Читать дальше...   )Жанр: Информационные технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4518C6DCD9A1119593A822B8E008DC47728F1FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435414   (143252) от 28.12.2020
+
+Бриан Тоуманнен | Программирование GPU при помощи Python и CUDA (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предлагает быстрое погружение в программирование GPU. Вы узнаете, как применять закон Амдала, использовать профилировщик для определения узких мест в коде на Python, настроить окружения для программирования GPU. По мере чтения вы будете запускать свой код на GPU и писать полноценные ядра и функции на CUDA C, научитесь отлаживать код при помощи NSight IDE и (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B2F3FF65596599565C3563E4E73CEA9F98085A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435564   (143198) от 28.12.2020
+
+Андреа Лонца | Алгоритмы обучения с подкреплением на Python (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет читателю овладеть алгоритмами обучения с подкреплением (ОП) и научиться реализовывать их при создании самообучающихся агентов.
+В первой части рассматриваются различные элементы ОП, сфера его применения, инструменты, необходимые для работы в среде ОП. Вторая и третья части посвящены непосредственно алгоритмам. В числе прочего автор показывает, как (   Читать дальше...   )Жанр: Информационные технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B16021E43FB43B056C3084FA0B5220B3BFA3206
 ```
 
 https://mybot314.ru/tekegram_catalog/

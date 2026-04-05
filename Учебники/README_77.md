@@ -1,3 +1,56 @@
+###  Публикация: 1081918   (276934) от 13.12.2016
+
+А.В. Кузнецов | Элементарная электротехника (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276934.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приводятся основные понятия об элементах электрических и магнитных цепей. Объясняются физические процессы, происходящие в этих цепях. Излагается методика их расчета. Книга содержит основные сведения об электростатике и электромагнитной индукции, о действиях электрического тока, постоянном и переменном токе, об электрохимии.
+Материал изложен простым и доступным (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C555267C1ACA4CA205AA94DE56F23BEDF082E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265232   (276415) от 26.11.2018
+
+С.В. Лукинских и др. | Инженерная графика. Разработка конструкторской документации с элементами конструирования (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276415.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии представлен материал, имеющий важное практическое значение при разработке конструкторских документов: элементы конструкций, соединения деталей, сборочные операции. Рассмотрены положения стандартов Единой системы конструкторской документации (ЕСКД), касающиеся общих правил выполнения конструкторских документов на изделие, приведены примеры создания различных (   Читать дальше...   )Жанр: Инженерная графикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2167D807AE57B9EDD4410DDECEFE57F05F90E49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082914   (275698) от 14.12.2016
 
 В.А. Матвиенко | Основы теории цепей (2016) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275698.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274349.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273096.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272954.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271964.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271958.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271728.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271430.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270750.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269697.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269494.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269409.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269170.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269168.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267869.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267667.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266671.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_265852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_265852.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265015.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265006.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264418.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263956.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263514.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263222.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EAAAADED311F55665E22F85D85B616A5DC51690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192372   (263068) от 17.12.2017
-
-А.В. Пантелеев, Т.А. Летова | Методы оптимизации в примерах и задачах (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены аналитические методы решения задач поиска экстремума функций многих переменных на основе необходимых и достаточных условий. Изложены численные методы нулевого, первого и второго порядков решения задач безусловной минимизации, а также численные методы поиска условного экстремума. Описаны алгоритмы решения задач линейного программирования, целочисленного (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C67BC11408AB407753A95AEC1C0BB28EB9F02F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192361   (263043) от 17.12.2017
-
-Е.А. Карелин | Заочное обучение печников 3 разряда (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучение состоит из теоретического курса и лабораторно-практических работ (макетирование печей). Теоретический курс и лабораторно-практические работы содержат в себе освоение кухонных очагов, отопительно-варочных (в том числе, дачных), отопительных, русских, банных печей, каминов и печей-каминов, что соответствует квалификации - печник 3-4 разряда.Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C05D4E994FD893E628FD40DC98AD4E5A6154FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

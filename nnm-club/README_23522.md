@@ -1,25 +1,22 @@
-###  Публикация: 1696280   (119451) от 03.02.2024
+###  Публикация: 1695893   (119922) от 31.01.2024
 
-Olhava - Sacrifice (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
+Ника Атлас | Дракон попаданке не товарищ (2024) [MP3, Лоза]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forever with You [00:16:22]
-02. Ageless River VI [00:06:44]
-03. I See Myself in Your Eyes [00:17:02]
-04. Ageless River VII [00:05:37](   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 01:26:29
+Попасть в другой мир и оказаться редким магом света, которые не появлялись уже сотню лет? Могу! В первый же вечер столкнуться с сильнейшим драконом из нового поколения и шлёпнуть его по мягкому месту? Умею! Поступить в лучшую магическую академию и поучаствовать в смертельно опасном соревновании? Практикую. Влюбиться в того самого дракона? Всегда пожалуйста. А как (   Читать дальше...   )Жанр: Любовное фэнтези, Юмористическое фэнтезиИздательство: ЛитРес: Чтец, АвторПродолжительность: 05:57:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFF040F76FE94E35E773D6EC491D57139C7A9E98
+magnet:?xt=urn:btih:C307685E40EFE691A12479B38DE4D6DE912B6079
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,428 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696619   (119450) от 03.02.2024
+###  Публикация: 1696029   (119921) от 31.01.2024
 
-Larmet - Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Start Me Talking (3:23)
-02. Stormy Monday (5:57)
-03. Stop Breaking Down (6:41)
-04. Long Grey Mare (2:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E7D1A948D71C82F6D34FDB3B044DADCAFB0542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696483   (119448) от 03.02.2024
-
-Batushka - Black Rituals (Liturgy in Budapest – Live 2021) (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live 2021) [00:04:47]
-02. Irmos I (Live 2021) [00:04:11]
-03. Irmos III (Live 2021) [00:04:39]
-04. Irmos IV (Live 2021) [00:07:18](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014DF9306059D9F20055B6282EF036613618EA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696627   (119447) от 03.02.2024
-
-The Tibbs - Keep It To Yourself (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't It Funny (3:19)
-02. Can't Teach an Old Dog New Tricks (3:33)
-03. For Lack of Better Words (3:30)
-04. Give Me a Reason (2:59)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F15640D5B0DF97DB63E0ADA3E24210FEE680E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696524   (119446) от 03.02.2024
-
-PowerPhotos 2.5.6 U2B [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119446.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EE91AF9757824DEA1420A1AC02F11B5F4026F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696507   (119445) от 03.02.2024
-
-June Ryah - Inspired Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Incomplete [00:02:56]
-02. Black Cat [00:03:09]
-03. Used to Happen [00:03:10]
-04. Tell Me How [00:02:48](   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1954AD4B01C73B21E58249F1E07477EEE3A59C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696572   (119444) от 03.02.2024
-
-Brookwood Drive - Take A Ride On The Drive (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Baby Why (6:57)
-02. I Ain't Waiting (5:48)
-03. Let Freedom Ring (5:23)
-04. Spend The Night (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C07E772A6C95CB0467DFC5B19417256ADCFE979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696516   (119443) от 03.02.2024
-
-Axwell - Axtone House Party (Dance Tent, MDLBEAST SOUNDSTORM, Saudi Arabia) (2024-02-01) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID w/Moska - House Religion
-02. Axwell Λ Ingrosso ft. Sanjin - How Do You Feel Right Now w/Hakim - El Salamou Aliekom w/Yeah Yeah Yeahs - Heads Will Roll (A-Trak Remix)
-03. D-Jastic - Up To No Good (MAKJ Booty Remix)
-04. Axwell - Barricade w/Axwell Λ Ingrosso ft. Kristoffer Fogelmark - More Than You Know(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD75756AB910A7013D3DEDD3F161B37D46D61BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696734   (119442) от 03.02.2024
-
-Алексей Абрамов - LOVEушка (2024) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - У меня в голове [00:03:49]
-02 - Думать о тебе [00:04:44]
-03 - Прости за страх [00:04:23]
-04 - Бежать [00:03:01](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968B432C97896C7590D5A3F2BC45A29F28EE5989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696631   (119441) от 03.02.2024
-
-Время Сов - 2 Albums (2019-2024) [MP3|320 Kbps] <Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Среди Песков (05:53)
-02. Маяк (04:20)
-03. Скелеты В Шкафу (03:18)
-04. Проклятие Полной Луны (Рассвет) (06:25)(   Читать дальше...   )Жанр: Rock, Female-VocalПродолжительность: 01:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E56D1B82524AC5A3CFEFDDEC89BDFC482C8544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696505   (119440) от 03.02.2024
-
-Nekonomicon - Choose Your Fighter! (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Approaching the Void (03:38)
-02. Race of Life (03:30)
-03. Castlevanian Hunger (03:16)
-04. Fog of War (03:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EBCBF5E5131229F44A4BBF37E81493C39ED155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696612   (119439) от 03.02.2024
-
-Минтранс (03.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119439.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 15 суток. Что ждет водителя при административном аресте? За какие нарушения применяется арест вместо штрафа?
-🔸 Модная штучка: тест-драйв Омода S5 GT 2023. Чем удивляет горячий китайский лифтбэк?
-🔸 Балансировка колес: для чего нужна и что будет, если не делать?
-🔸 Скребок-телескоп: пластмасса против зимы. Выдержит ли китайский гаджет (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3215C14F7FD510C28C785400F32999DB5EC0113D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696568   (119438) от 03.02.2024
-
-Leo - Leo Metal, Vol. 45 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Metal, Nu Metal, Covers>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Barracuda (Metal Version) [4:58]
-02 - Paint the Town Red (Metal Version) [4:36]
-03 - Oops! I Did It Again (Metal Version) [5:01]
-04 - Now and Then (Metal Version) [4:27](   Читать дальше...   )Жанр: Modern Metal, Nu Metal, CoversПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB25E064D1EEDB9F1D1611490667E511CFCC6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696582   (119437) от 03.02.2024
-
-Anita O'Day - Live At Ronnie Scott's (1986) Wadham [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [2:41]
-02. You'd be so nice to come home to [4:37]
-03. On Green Dolphin Street [5:26]
-04. I can't get started [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEEDDF40FBF908EB7E7D2C7C58D15E214330FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696447   (119436) от 03.02.2024
-
-Lethargy of Death - Necrology (2010) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damnation (05:30)
-02. Death (08:22)
-03. Remains of a Remembrance (09:21)
-04. The Treason (13:05)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED190E35B6BE63FC19032932D918C2E91184F624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696589   (119435) от 03.02.2024
-
-Video Cut&Crop&Join for Mac 3.7 [En]
+EdgeView 4.4.8 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Удобный инструмент для обрезки и обрезки видео. С его помощью можно вырезать интересные видеоклипы и сжимать их до небольших размеров и различных форматов, а также делиться ими на веб-сайтах.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: © 2021 dummyapps.Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и Упрощенный китайский
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60A446299CE26488937D86AA8B0D93274BCD2C95
+magnet:?xt=urn:btih:20A85324F27ED37BF1DB445822C1A2F50F0DFCE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696579   (119434) от 03.02.2024
+###  Публикация: 1696004   (119920) от 31.01.2024
 
-Abdullah Ibrahim & The NDR Big Band - Ekapa Lodumo (2001) Tiptoe [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
+Sound Siphon 3.6.6 [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kramat [7:43]
-02. Announcement [0:15]
-03. Mindif [12:04]
-04. Announcement [0:10](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:11:15
+Sound Siphon делает аудиовыход вашего Mac доступным в качестве устройства ввода звука. Приложение позволяет отправлять аудио из одного приложения в другое, где его можно обрабатывать, транслировать или записывать. Это так же просто, как выбрать микрофон в вашем любимом приложении. Sound Siphon работает с Core Audio, чтобы предоставить эту возможность всем вашим аудио (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2022 Static Z SoftwareПоддерживаемая ОС: macOS 11.4+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECE92E0A235305E57F77C03F206A21DBA5214EB5
+magnet:?xt=urn:btih:A0D7B6E297B7E914D03F8D4465C4EBC2DBBAF3E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,28 +76,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696628   (119433) от 03.02.2024
+###  Публикация: 1696008   (119919) от 31.01.2024
 
-Thomas Frank Hopper - Paradize City (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+Dato 5.2.0 [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Troublemaker (3:09)
-02. Tribe (3:41)
-03. A Song for the Devil (3:03)
-04. Chimera (5:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:55
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 14.1Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1E5A34AB456E14D91DC70A702F1E29D12E8521C
+magnet:?xt=urn:btih:9DAD1A5EAED2824E88445EA743E02A1B3657ABD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +103,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696596   (119432) от 03.02.2024
+###  Публикация: 1695723   (119918) от 31.01.2024
 
-Kelp - Datcho Dr (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Sergio Rowles & The Cinnamon Souls - Sergio Rowles & The Cinnamon Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Better Off Dead (Cigarettes) (4:34)
-02. French Café (3:57)
-03. Traffic Stop (2:21)
-04. Youth (6:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:33
+01. Enjoy the Silence (2:55)
+02. Billiard Chalk (4:07)
+03. Hopeless Mind (4:40)
+04. Love That Something You've Got (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2F4063317A92F483C546B5250674B8F72D4AF8E
+magnet:?xt=urn:btih:1C52C9AE57F527FA03AB0517604BC747531AE32C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,144 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696626   (119431) от 03.02.2024
+###  Публикация: 1695915   (119917) от 31.01.2024
 
-Drip Fed Empire - Revolutionist (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wandering Soul [00:01:38]
-02. Give Me More [00:03:15]
-03. MK4 [00:04:25]
-04. The Work Of God [00:04:08](   Читать дальше...   )Жанр: Rapcore, MetalcoreПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840446A2F087AF4344B98BAD9A8BD2A9C8FCFC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696609   (119430) от 03.02.2024
-
-Art Blakey & The Jazz Messengers - Cu-Bop (1957) 1989, Fresh Sound Records [FLAC|Lossless|image + .cue] <Hard Bop, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woodyn' You [6:15]
-02. Sakeena [12:00]
-03. Shorty [4:39]
-04. Dawn on the Harvest [12:49]Жанр: Hard Bop, Afro-Cuban JazzПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561A2F7DAD105EDEFFB44F8104D009D86F631D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696638   (119428) от 03.02.2024
-
-Dominia - Timeless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man With a Heart-Crumb Within
-02. The Weeping Beauty
-03. Illusion
-04. Vikarma(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE605C40197E28CFC4D7DEE2491C73045EC770B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696621   (119427) от 03.02.2024
-
-Rumboat Chili - All The Time In The World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. While You Got It (5:39)
-02. City Of Lights (3:35)
-03. Livin' My Fantasy (3:52)
-04. Shot Down (5:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499E4C06BF8079658019991008E215ED11D42EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696496   (119426) от 03.02.2024
-
-Minenwerfer - Feuerwalze (2023) [FLAC|Lossless|WEB-DL|tracks] <Black metal>
+JvlKvlt - Worshipping Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cemetery Fields (06:07)
-02. Feuerwalze (06:48)
-03. Eternal Attrition (08:00)
-04. Nachtschreck (07:51)(   Читать дальше...   )Жанр: Black metalПродолжительность: 00:48:36
+01. Suffering Veins (05:06)
+02. Silhouettes of Broken Bonds (04:26)
+03. Transient Embrace (05:38)
+04. Sacrifice (06:27)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0266CB009F2611E814000C65B9D8B59D3D20D35B
+magnet:?xt=urn:btih:DF5C82C9FA17230A6AF8E9A014A99E8488066B78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,28 +161,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696452   (119425) от 03.02.2024
+###  Публикация: 1695967   (119916) от 31.01.2024
 
-Mental Destruction - Road of Redemption (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+CopyQueue Evaluation for Mac 3.1E [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119916.jpg" />
+</div>
+
+
+###  Подробнее
+
+CopyQueue позволяет вам контролировать передачу файлов, например копирование на USB-накопители и с них, в общие сетевые ресурсы, загрузку из «Интернета» и выгрузку на FTP-сайты. Большие файлы и медленные соединения — вот где CopyQueue действительно хорош. Никогда не беспокойтесь о том, что передача файла снова прервется, поскольку с помощью CopyQueue вы можете возобновить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.05.2023Разработчик: © 2023 Benjamin SmithПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A3AA067445E81C381D25E09F53A7CD8BF38265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648201   (119915) от 01.02.2024
+
+One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геймплей One Military Camp предлагает игроку построить собственный военный лагерь. В игровом процессе предстоит грамотно использовать ресурсы и постепенно наращивать экономику, открывая больше возможностей и элементов. Понадобится набирать подходящих кандидатов и тренировать их, повышать характеристики и предоставлять больше инструментов, чтобы они превратились в (   Читать дальше...   )Тип издания: SceneРазработчик: Abylight BarcelonaЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EDC5F16A79206E322CA74E7E5D236FB98505EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663101   (119914) от 01.02.2024
+
+Маскарад / Mascarade (2022) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адриен, танцор, прервал карьеру из-за аварии. С этого момента он праздно проводит время на Лазурном берегу, используя поддержку бывшей киноактрисы Марты. Жизнь Адриена меняется после встречи с Марго — красивой девушкой, добывающей деньги с помощью мошенничеств и связей с богатыми мужчинами. Молодые люди придумывают дьявольский план, чтобы обеспечить себя.Производство: Франция / Les Films du Kiosque, Pathé, Orange StudioЖанр: Драма, криминалРежиссер: Николя БедосАктеры: Пьер Нинэ, Изабель Аджани, Франсуа Клюзе, Марина Вакт, Эммануэль Дево, Лаура Моранте, Шарль Берлен, Джеймс Уилби, Николя Бриансон, Мари ФабрПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, французскийСубтитры: Русские, английские, французскиеПродолжительность: 02:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEA9B0864042179F472AADA89178EF64BCB487E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 398473   (119913) от 01.02.2024
+
+Lynch Mob - 12 Albums, 3 EP (1990 - 2023) 18 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Purifire (04:11)
-02 - Dark Passenger (05:50)
-03 - Road of Redemption (05:41)
-04 - Road Life (05:29)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:55
+Lynch Mob - хард-рок группа из США, образованная в 1989 году бывшим участником легендарного хард-рок коллектива Dokken гитаристом Джорджем Линчем (George Lynch). Джордж Линч, известный и талантливый гитарист, отличавшийся своеобразной техникой игры, пришел в Dokken в 1979 году. С ним группа записала ряд успешных “платиновых” альбомов, таких как Under Lock and Key, (   Читать дальше...   )Список альбомов:
+Wicked Sensation (1990)
+Lynch Mob (1992)
+Syzygy (1998)Жанр: Hard RockПродолжительность: 16:25:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8E3A5B1A348289248E75EB1C2C2884D49CA843F
+magnet:?xt=urn:btih:B01C78B16CE0AE3056C90CDF6B1F932C57590C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,28 +268,418 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696624   (119423) от 03.02.2024
+###  Публикация: 1695919   (119912) от 01.02.2024
 
-Suicide Bombers - All For The Candy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam, Hard Rock>
+Самой передовой стране Европы срочно требуются спецы по MS-DOS и Windows 3.11. На них работает железнодорожная сеть.
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_119912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. iNTRO: Candy Girls Worldwide (0:29)
-02. Dynamite Playboys (4:02)
-03. Take It Off (3:44)
-04. Tonight Belongs To Us (4:35)(   Читать дальше...   )Жанр: Glam, Hard RockПродолжительность: 00:45:00
+Германия остро нуждается в системных администраторах, владеющих MS-DOS и Windows 3.11. Эти операционные системы морально устарели 30 лет назад, но все еще используются в работе немецкой сети железных дорог. Поиск специалистов осложняется тем, что многие современные администраторы еще не родились, когда Windows 3.11 и тем более MS-DOS были в ходу. Те, кто умеет с (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8EC5C634F9777B2B926DB1089B5888A2BFA7FB9
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696103   (119911) от 01.02.2024
+
+Обречённый / Impuratus (2022) WEB-DLRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1920-е, США. Детектива Клэйтона Дугласа приглашают в психиатрическую клинику к пожилому ветерану Дэниелу Глассману, жить которому осталось совсем недолго. На смертном одре Глассман признаётся, что в далёком 1862 году в него вселилось мистическое зло. Погружаясь в историю старика, сыщик понимает, что тёмные силы совсем не утратили своего могущества.Производство: США / ScreenGage Development, Thunder Smoke Media, ThunderSmoke MediaЖанр: ужасы, детективРежиссер: Майк ЮринкоАктеры: Том Сайзмор, Лью Темпл, Роберт Миано, Сильвия Спросс, Лорна Ларкин, Айрен ДеЛаМатер, Рафаэль Портильо, Джоди Куигли, Кари Харбор, Чак ПресслерПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 02:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CD197A628B150C27DEDBD97F2D44286D0E5D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696040   (119910) от 01.02.2024
+
+Том-коротыш / Menique y el espejo magico / The Princess and the Magic Mirror (2014) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький, но смелый Том-коротыш находит волшебное зеркало, которое показывает, что ему суждено влюбиться в принцессу. Он решает освободить королевство от проклятия и завоевать сердце красавицы.Производство: Куба, Испания / Ficción ProduccionesЖанр: мультфильм, приключенияРежиссер: Эрнесто ПадронАктеры: Карлос Бланко, Монти Кастиньейрас, Мария Кастро, Луис Иглесиас, Керемджем, Мария Пухальте, Хавьер РейПеревод: Дублированный (Официальный, ОККО)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CB99C7FE8BA48D9D2FBE31A022157335B4F5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696038   (119909) от 01.02.2024
+
+Золушка и заколдованный принц / Cinderella and the Secret Prince (2018) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119909.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью феи Кристал Золушке и трем мышкам удается выбраться из чердака, где они живут, и попасть в Королевский дворец на бал. Там им открывается страшная тайна: настоящий принц был превращен в мышь Злой ведьмой, а тот, кто возглавляет бал — самозванец. Золушка и ее верные друзья отправляются в опасное приключение, чтобы вернуть настоящему принцу самого себя и помочь (   Читать дальше...   )Производство: США / Gold Valley FilmsЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Линн СаузерлендАктеры: Кассандра Моррис, Крис Ниоси, Роберт Мартин Клейн, Тони Аццолино, Кирстен Дэй, Уэнди Ли, Стивен Мендел, Терренс Стоун, Стефани Сандиц, Полетт Виктор-ЛифтонПеревод: Дублированный (Lucky Production)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: 01:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934EBFE6CE5F7C3A28AFF34E5476133E64CCC708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696105   (119908) от 01.02.2024
+
+Обречённый / Impuratus (2022) WEB-DLRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119908.jpg" />
+</div>
+
+
+###  Подробнее
+
+1920-е, США. Детектива Клэйтона Дугласа приглашают в психиатрическую клинику к пожилому ветерану Дэниелу Глассману, жить которому осталось совсем недолго. На смертном одре Глассман признаётся, что в далёком 1862 году в него вселилось мистическое зло. Погружаясь в историю старика, сыщик понимает, что тёмные силы совсем не утратили своего могущества.Производство: США / ScreenGage Development, Thunder Smoke Media, ThunderSmoke MediaЖанр: ужасы, детективРежиссер: Майк ЮринкоАктеры: Том Сайзмор, Лью Темпл, Роберт Миано, Сильвия Спросс, Лорна Ларкин, Айрен ДеЛаМатер, Рафаэль Портильо, Джоди Куигли, Кари Харбор, Чак ПресслерПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C86C4D74DA9860A9098EB11016C602F5377462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677949   (119907) от 01.02.2024
+
+Монарх: Наследие монстров / Monarch: Legacy of Monsters (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-10 из 10) NewComers, TVShows, Lostfilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пережив нападение Годзиллы на Сан-Франциско, Кейт в очередной раз потрясена шокирующей тайной. Окруженная чудовищными опасностями, она отправляется в путешествие по миру, чтобы узнать правду о своей семье и таинственной организации, известной как «Монарх».Производство: США, Япония / Legendary Television, Safehouse Pictures, Toho CompanyЖанр: фантастика, боевик, приключенияРежиссер: Майрзи Алмас, Джулиан Холмс, Хироми КаматаАктеры: Анна Саваи, Кирси Клемонс, Рэн Ватабэ, Джо Типпетт, Уайатт Рассел, Курт Рассел, Мари Ямамото, Элиза Ласовски, Мирелли Тейлор, Андерс ХолмПеревод: Многоголосый профессиональный (NewComers, TVShows, Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A95EB81BFF59C13497F4C885A365B3528981386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696102   (119906) от 01.02.2024
+
+Грязные прелести / Dirty Pretty Things (2002) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подпольный мир Лондона. Здесь всё продается и покупается. Молодой человек и девушка работают в одном отеле, в очаге преступной деятельности. Они практически незнакомы до того момента, пока один из них не делает леденящее душу открытие. Герои не могут сообщить об этом ни коррумпированному боссу, ни полиции. Они будут счастливы, если им удастся остаться в живых...Производство: Великобритания / BBC Films, Celador Films, Jonescompany ProductionsЖанр: драма, детектив, триллерРежиссер: Стивен ФрирзАктеры: Одри Тоту, Чиветел Эджиофор, Серхи Лопес, Софи Оконедо, Бенедикт Вонг, Кенан Худаверди, Дэймон Янгер, Пол Баттачарье, Даррелл Д’Силва, Сотиги Куяте, Эби Гоухад, Исраель Адурамо, Еми Аджибаде, Барбер Али, Юсуф АлтинПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские (два варианта), английскиеПродолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE37244B74ED342187D7EDA85FB3FC46833F86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696076   (119905) от 01.02.2024
+
+Крик. Ночь перед Рождеством / It's a Wonderful Knife (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119905.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества убийца в костюме Рождественского ангела убил лучшую подругу и напал на брата Винни, но бесстрашная девушка прикончила злодея. Им оказался местный мэр Генри Уотерс. Год спустя никто не хочет говорить о произошедшем, Винни грустит по подруге и, когда узнаёт, что её парень ей изменяет, решает, что жизнь не удалась, и загадывает желание, чтобы она вообще (   Читать дальше...   )Производство: Великобритания, США, Канада / Divide/Conquer, Fourth Culture FilmsЖанр: Ужасы, комедия, фантастикаРежиссер: Тайлер МакИнтайрАктеры: Джейн Уиддоп, Джоэл Макхэйл, Джастин Лонг, Джессика Маклауд, Кэтрин Изабель, Эйден Ховард, Эрин Бойес, Шон Депнер, Зэния Маршалл, Джейсон ФернандесПеревод: Дублированный (CPI Films), Профессиональный многоголосый (TVShows, NewStudio), Любительский двухголосый (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28CE8184802C929B3FC9A05E101535D6B219E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696200   (119904) от 01.02.2024
+
+Зачистка / The Clearing (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы наладить отношения и провести время вместе, Том с дочерью-подростком едет на природу. Они останавливаются в кемпинге, общаются с другими туристами, отец обучает девочку индейским премудростям. Но в одно ужасное утро, проснувшись один в фургоне, Том обнаруживает, что все превратились в кровожадных агрессивных зомби, и что самое страшное — дочь оказалась одна (   Читать дальше...   )Производство: США / Alpha Studios (II), Core Vision Films, Lexicon EntertainmentЖанр: ужасыРежиссер: Дэвид М. МаталонАктеры: Лиам Макинтайр, Ондреа Смит, Стивен Суодлинг, Сидель Ноэль, Naosheen Ahmed, Erica Allseitz, Shayanne Andujar, Mackenzie Augustin, Silky Bell, Julius Yates BrownПеревод: Многоголосый профессиональный (ОККО)Язык озвучки: Русский, УкраинскийСубтитры: НемецкиеПродолжительность: 01:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76674A3D2FA1393C0828FEACB184424285FE4A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684544   (119903) от 01.02.2024
+
+Нефариус / Nefarious (2023) BDRip [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119903.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день запланированной казни осужденного серийного убийцы к нему в тюрьму приезжает врач, чтобы провести психиатрическую экспертизу. Тот с порога заявляет, что умереть всё равно не сможет, так как является демоном, а психиатр перед уходом совершит три убийства.Производство: США / Believe Entertainment (II)Жанр: ТриллерРежиссер: Чак Конзелман, Кэри СоломонАктеры: Джордан Бэлфи, Шон Патрик Флэнери, Том Омер, Гленн Бек, Дэниэл Мартин Берки, Марк Де Алессандро, Камерон Арнетт, Джеймс Хили мл., Сара Эрнандес, Джаррет ЛеМастерПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (SDH), Английские (Full, SDH)Продолжительность: 01:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3C3661B17E00B8FB928FC250B86BC970D3C4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696152   (119902) от 01.02.2024
+
+Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный творец Хидэо Кодзима представляет окончательную версию DIRECTOR’S CUT знаковой для жанра игры. Таинственное событие, известное как Death Stranding, в будущем открыло дверь между миром живых и миром мертвых. Как результат, уродливые потусторонние твари отправились бродить по падшему миру, в котором почти не осталось людей. Действуя от лица Сэма Бриджеса (   Читать дальше...   )Тип издания: RepackРазработчик: KOJIMA PRODUCTIONSЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F060E1E7B0884BF7D8B1AA60258294BDBE8019F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696101   (119901) от 01.02.2024
+
+Тёща (2023) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ольга Николаевна — волевая женщина и начальница ЖКХ, которая вполне довольна своей жизнью. Она хозяйка дома и на работе, полностью контролирует своего мужа Романа Павловича и оберегает дочь Варю. Единственный, кто не вписывается в её счастливую картину мира, — это зять Виктор, от которого на днях должна родить горячо любимая дочка. И вот однажды шквал взаимных претензий (   Читать дальше...   )Производство: Россия / Берг Саунд, Кинокомпания «Темп»Жанр: комедияРежиссер: Аскар УзабаевАктеры: Лариса Гузеева, Гарик Харламов, Настасья Самбурская, Александр Лыков, Марк Богатырев, Никита Тарасов, Анна Уколова, Толепберген Байсакалов, Жаныл Асанбекова, Ёла СанькоСубтитры: РусскиеПродолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07E65AD8AEF7E5FC5ACD6CC498B6A4D459BAD7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692249   (119900) от 01.02.2024
+
+О, женщины! / Fallo! (2003) BDRip [H.264/1080p] [Handmade correction AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть комедийных эротических эпизодов о влюбленных парах, наскучивших друг другу.
+1. Алиби
+2. Крест накрест
+3. С милым рай и в шалаше(   Читать дальше...   )Производство: Италия, Italgest Video, Letizia CinematograficaЖанр: драма, мелодрама, эротикаРежиссер: Тинто БрассАктеры: Сара Косми, Массимилиано Каролетти, Уильям Де Вито, Гульельмо Ару, Сильвия Росси, Федерика Томмази, Марио Пароди, Андреа Нобили, Раффаелла Понцо, Стефано ГандольфоПеревод: Многоголосый профессиональныйЯзык озвучки: русский, итальянскийСубтитры: русские (PGS)Продолжительность: 01:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A4966CAFBDAD388519E157D85F7ADE25AC6B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355655   (119899) от 01.02.2024
+
+Factorio  v.1.1.104 (2020) [Multi/Ru] [macOS Native game]
+
+>>Игры для macOS
+>>Strategy, RPG для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Factorio — это игра про добычу ресурсов, постройку заводов, автоматизацию производства и борьбу с агрессивной фауной на чужеродной планете. Вы - одинокий выживший в космической экспедиции, оказавшийся на поверхности чужого и враждебного мира. Единственно с камнями и залежами руд под ногами, ваша последняя надежда на выживание - отстроить с нуля автоматические механизмы (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2020Разработчик: Wube Software LTDПоддерживаемая ОС: 10.9+Жанр: СтратегииЯзык интерфейса: русский, английский, французский, итальянский +
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903F8F885474D008556369DA8234C81C83129BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696032   (119898) от 01.02.2024
+
+Пчеловод / The Beekeeper (2024) WEBRip [H.265/1080p] [10-bit]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Клэй живет в тихом пригороде, занимается разведением пчел и не распространяется о своей прошлой жизни. Пожилая соседка рада, что в их край приехал заинтересованный человек, улучшающий природу и экологию. Пасечник часто общается с милой миссис Паркер, которая однажды становится жертвой финансовых мошенников. Аферисты похищают деньги со всех счетов женщины, и (   Читать дальше...   )Производство: Великобритания, США, Cedar Park Entertainment, Miramax Films, Punch Palace ProductionsЖанр: боевик, триллерРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рэвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филисия Рашад, Джемма РедгрейвПеревод: Многоголосый профессиональный (Jaskier), двуголосый профессиональный (ViruseProject)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AACE55D08C2A0B599DF08A5FDF8514965B839B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677477   (119897) от 01.02.2024
+
+Монарх: Наследие монстров / Monarch: Legacy of Monsters (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) LostFilm, HDRezka, NewComers, TVShows, ColdFilm
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пережив нападение Годзиллы на Сан-Франциско, Кейт в очередной раз потрясена шокирующей тайной. Она отправляется в путешествие по миру, чтобы узнать правду о своей семье и таинственной организации, известной как «Монарх».Производство: США, Япония / Legendary Television, Safehouse Pictures, Toho Company, Warner Bros.Жанр: фантастика, боевик, приключенияРежиссер: Майрзи Алмас, Джулиан Холмс, Хироми КаматаАктеры: Кристофер Хейердал, Мари Ямамото, Джесс Салгейру, Кёко Саито, Доминик Типпер, Сёта Цудзи, Курт Рассел, Джош Коллинз, Чарли Хьюсон, Дзюнъити ТадзириПеревод: Многоголосый профессиональный (LostFilm, HDRezka Studio, NewComers, TVShows), Многоголосый любительский (ColdFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Forced, Full, SDH), французские, испанские, немецкие, итальянскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A06F0A3F948B2CB69FF08907DEAD9843C9AD6D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

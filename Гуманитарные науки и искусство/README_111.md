@@ -1,83 +1,3 @@
-###  Публикация: 969595   (147682) от 27.12.2015
-
-В. С. Нечаева | Ранний Достоевский 1821-1849 (1979) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147682.jpg" />
-</div>
-
-
-###  Подробнее
-
-В публикуемом исследовании рассматриваются некоторые спорные или малоизученные, но имеющие принципиальное значение факты и события жизни и творчества Достоевского с 1821 по 1849 г.
-Значительное место в книге о раннем творчестве Ф. М. Достоевского отводится его брату — М. М. Достоевскому.
-Устанавливается принадлежность писателю нескольких новых страниц текста.Жанр: Литературоведение, монографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894D68D10BCE8A948076C067FA155972A5AF96F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969408   (147669) от 27.12.2015
-
-А. В. Никольский (ред.) | Борьба коммунистов против идеологии троцкизма (1973) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147669.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике статей видных партийных и научных работников ряда коммунистических и рабочих партий разоблачаются реакционная сущность и взгляды современного троцкизма, подрывная деятельность его организаций.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F731513EC1FA700BA68D9A70622227E1FCF3F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969592   (147654) от 27.12.2015
-
-Л. Сараскина | Фёдор Достоевский. Одоление демонов (1996) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147654.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Трудно было быть более в гибели, но работа меня вынесла…» Литературное признание Достоевского, воспринятое им со всей страстностью, со всем присущим ему фанатизмом и нарушением чувства меры, в конечном счёте спасло его — дало силы выжить, не затерявшись в трагическом хаосе бытия, высвободило энергию сопротивления житейским невзгодам и страшным ударам судьбы, помогло (   Читать дальше...   )Жанр: Литературоведение, монографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C84B3629263D08279F76655723D81074185CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271485   (147613) от 25.12.2018
 
 Ф. Кенэ | Избранные экономические произведения (1960) [DJVU]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147613.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147253.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147222.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147214.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147187.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147079.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146842.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146539.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146435.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146037.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145927.jpg" />
 </div>
 
 
@@ -374,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145726.jpg" />
 </div>
 
 
@@ -400,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145621.jpg" />
 </div>
 
 
@@ -426,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145159.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145151.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144830.jpg" />
 </div>
 
 
@@ -506,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144760.jpg" />
 </div>
 
 
@@ -532,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144752.jpg" />
 </div>
 
 
@@ -558,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144739.jpg" />
 </div>
 
 
@@ -585,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144660.jpg" />
 </div>
 
 
@@ -613,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144624.jpg" />
 </div>
 
 
@@ -639,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144300.jpg" />
 </div>
 
 
@@ -665,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144216.jpg" />
 </div>
 
 
@@ -676,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D48F7662359D14601262784851479D738F61E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195286   (144094) от 28.12.2017
+
+Е.В. Афонасин, А.С. Афонасина | IATPIKH TEXNH. Очерки истории античной медицины (2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть книги представляет собой серию очерков по истории античной медицины. Подробно рассматривается связь античной традиции врачевания с культом Асклепия, а также эволюция медицинской науки с древнейших времен до периода поздней античности. Во второй части публикуются переводы двух трактатов Галена (О толках, для начинающих и О моих воззрениях) и трактат Порфирия (   Читать дальше...   )Жанр: История медициныФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9D1048D81BFFB5B83ACA235B41B371EFD153AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195216   (144038) от 28.12.2017
+
+Е.В. Афонасин и др. | Античный космос. Очерки истории античной астрономии и космологии (2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена античной астрономии, метеорологии и космологии. В разделе Переводы публикуются три античные учебника астрономии – Введение в явления Гемина, Учение о круговращении небесных сфер Клеомеда и астрономический раздел Изложения математических предметов, полезных для изучения Платона Теона Смирнского. В разделе Исследования подробно рассматриваются античные (   Читать дальше...   )Жанр: Античность, астрономия, метеорология, космологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705927EA60BD7194E18CB5277154E235041D8EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272283   (144029) от 27.12.2018
+
+Лаура Магни | Легендарные фотографы современности и их шедевры (2018) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто-то из них говорил, что рожден фотографом, другие же выбирали этот путь позже. Они могут быть бесстрашными или эксцентричными, веселыми или грубыми, идеалистами. Но объединяет их одно: все они охвачены глубокой, непреходящей страстью к своей профессии. И они – величайшие фотографы своего времени. Фотография для них – это вся жизнь, а иногда и смерть.
+Эта книга (   Читать дальше...   )Жанр: Изобразительное искусство, Искусство фотографииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:295B9A4167A8EB67F0FE974113CB54B6C7FE94C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

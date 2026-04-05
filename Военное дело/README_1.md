@@ -1,3 +1,29 @@
+###  Публикация: 989694   (915436) от 23.02.2016
+
+Полигон. Большой десантный корабль (2015) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа о современных военных разработках, новейших видах вооружения, средствах ведения боя и индивидуальной защиты! В "боевых условиях" ведущие попытаются выяснить, как устроены и работают современные бронеавтомобили и снайперские винтовки, ударные вертолеты и боевые корабли. С любознательностью новобранцев они будут рассматривать каждый винтик и интересоваться (   Читать дальше...   )В этом выпуске: Алексей Громыко побывает на большом десантном корабле, чтобы рассказать, как проходит десантирование подразделений морской пехоты с техникой на морское побережье и как выполняется условное задание.Телекомпания: Т24Жанр: ТелепередачаПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1023BF755688EA5CBCE6A8AB7F85EC9E0B2EB9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989598   (915395) от 23.02.2016
 
 Мария Полякова. Своя среди чужих (2015) DVB
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915395.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915227.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910493.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Viasat History.  Величайшие военные ошибки / Great Milita
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907848.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905985.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903054.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900718.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897666.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895894.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893706.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892157.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891536.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889540.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880471.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879478.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869796.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869659.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868314.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867863.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867848.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861543.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Discovery Channel. Военный архив: под грифом «Топ-10» 
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860034.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859954.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859736.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857802.jpg" />
 </div>
 
 
@@ -646,33 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08D1B3AF06D048D1FD703057A488BEFAF20F8B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001684   (851928) от 29.03.2016
-
-Балтфлот / The Baltic Fleet (2016) HDTVRip [720p-LQ] [Серии: 1-12 из 12] [RU/EN]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моряки Балтийского флота - это особое братство. И новобранцам приходится очень нелегко. От покраски корпуса корабля до отработки тактических приёмов боевых действий – моряки Балтфлота должны уметь всё.
-А уровень подготовки команды покажут боевые учения. По сценарию в схватку вступят корвет «Сообразительный», на стороне которого вся мощь современных вооружений, и (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПеревод: ОтсутствуетЯзык субтитров: английскийПродолжительность: каждая серия ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95F723DA5BFFECC12BC45C1F70B479136E5AA70
 ```
 
 https://mybot314.ru/tekegram_catalog/

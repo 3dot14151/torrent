@@ -1,3 +1,111 @@
+###  Публикация: 1586166   (204733) от 26.10.2022
+
+Windows DesktopPack 22.10 [Multi/Ru]  (Авторская раздача)
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор программного обеспечения (офисный пакет, графические и музыкальные редакторы, антивирусы, архиваторы, интернет-браузеры, программы верстки и дизайна и другие) для MS Windows, которые имеют открытый исходный код или бесплатны для распространения.
+В его состав входят программы для решения широкого круга задач, являющихся свободными функциональными аналогами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF782504F2142C574A388836BE4514D1BD6E18C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655022   (202189) от 24.08.2023
+
+АРГО - Программный комплекс для кадастровых инженеров 7.1.10227 Personal Edition [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202189.jpg" />
+</div>
+
+
+###  Подробнее
+
+АРГО - недорогое, но функциональное решение для индивидуальных кадастровых инженеров и крупных организаций. Все функции для подготовки межевого и технического планов, карты(плана) границ, проекта межевания и других документов. Формирование печатных форм и XML, обработка исходных данных и ведение учёта работы организации. Специализированный для кадастровых задач полнофункциональный (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF14B4F37F5BD72FFF6105AC29C006A3656B5200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615920   (202076) от 28.02.2023
+
+Resistor 2.1.1.6 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resistor - калькулятор цветовой маркировки резисторов, который поможет расшифровать по цветным кольцам на резисторе его номинал и допустимое отклонение сопротивления от его номинального значения.
+Цветную маркировку на резисторах следует читать слева направо. Как правило, первое кольцо расположено ближе к одному из выводов или шире чем остальные.
+С помощью данной (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7DA71A88E00EAA8E028BE4813CD092A52ED666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617336   (201624) от 06.03.2023
+
+Embarcadero RAD Studio 11.3 Alexandria 28.0.47991.2819 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среда быстрой разработки приложений фирмы Embarcadero Technologies, работающая под Windows.
+Текущая версия RAD Studio 11.3 объединяет Delphi и C++ Builder в единую интегрированную среду разработки. В новом выпуске улучшено удобство использования, производительность и стабильность компиляторов IDE и наборов инструментов, UX, RTL, баз данных и интернет-библиотек как (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563D61403F740D2494063CCCE75BE83A6996E542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617413   (201603) от 07.03.2023
 
 CADopia Pro 22 v.21.2.1.3514 (x64) [Multi/Ru]
@@ -6,7 +114,7 @@ CADopia Pro 22 v.21.2.1.3514 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201603.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ NHV-BOOT-2023-V1415-EXTREME [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201426.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ LeoCAD 23.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201035.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ AWR Design Environment 17.02R Build 17492 Rev2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200711.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Pulsonix 10.5 build 7883 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200707.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ Altium CircuitStudio 1.1.0 build 44421 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200672.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ NI Circuit Design Suite 14.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200639.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ SAP Adaptive Server Enterprise 16.0 SP02 (Developer Edition) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200626.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Micro-Cap 12.2.0.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200496.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ SIMetrix/SIMPLIS 8.40 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200390.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ Simulia Abaqus 6.13-1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200380.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ OrCAD Capture PSpice Lite 17.2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200273.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ JetBrains RubyMine 2023.1
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200117.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ JetBrains CLion 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200071.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ JetBrains DataGrip 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200064.jpg" />
 </div>
 
 
@@ -401,7 +509,7 @@ OriginPro 2022 v.9.9.0.225 (SR1) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200018.jpg" />
 </div>
 
 
@@ -427,7 +535,7 @@ JetBrains GoLand 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200006.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ EarthView 7.7.1 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199143.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ VectorWorks Design Suite 2023 SP4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198385.jpg" />
 </div>
 
 
@@ -505,7 +613,7 @@ Fujikura Data connection 12 series 1.0.3.0 + Manual [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198308.jpg" />
 </div>
 
 
@@ -531,7 +639,7 @@ BlueStacks Tweaker 6.9.2 beta Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198081.jpg" />
 </div>
 
 
@@ -559,7 +667,7 @@ X-Mouse Button Control 2.20.5 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196548.jpg" />
 </div>
 
 
@@ -570,113 +678,6 @@ X-Mouse Button Control позволяет создавать профили уп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A641585B41348FDAE741859162A80BBBC97F2598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645679   (195924) от 10.07.2023
-
-IronCAD 2023 v25.0 Product Update 1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195924.jpg" />
-</div>
-
-
-###  Подробнее
-
-IRONCAD - это доступное и мощное программное обеспечение для работы в среде 2D CAD с простым в освоении пользовательским интерфейсом и уникальными возможностями интеграции с 3D. С помощью IRONCAD можно анализировать, использовать, визуализировать и ссылаться на 3D-модели, созданные заказчиками и коллегами, работая при этом в среде 2D CAD с привычным пользовательским (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24689352129627531505B29BB71BD778A575949C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647003   (195595) от 16.07.2023
-
-Autodesk DWG TrueView 2024 (x64) [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk DWG TrueView - удобная программа для просмотра файлов DWG и DXF-формата, которые чаще всего используются в CAD-приложениях.
-
-Выбранные проекты отражаются в 3D-режиме, c возможность их конвертации. Присутствует возможность масштабирования и управления слоями, а также измерения объема, площади, радиуса углов и прочих параметров модели.
-(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D60DDB3AEBFCBEC9B3457B126DE05893453EF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647517   (195535) от 19.07.2023
-
-Siemens Simcenter FloEFD 2021.2.1 Build 5446 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195535.jpg" />
-</div>
-
-
-###  Подробнее
-
-FloEFD – представляет собой пакет инструментов, который специализируется на решении задач термического обмена и гидрогазоодинамики. Приложение заточено специально под интеграцию с современными системами автоматического проектирования.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52CCA2BC9C882012913CDF11AAFB11CE1D9F21E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648979   (195279) от 25.07.2023
-
-QuarkXPress 2023 v19.2.1.55827 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A777AFDEFD709F38C78A0993E8E3B8171C384B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

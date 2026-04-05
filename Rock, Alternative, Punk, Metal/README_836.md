@@ -1,3 +1,32 @@
+###  Публикация: 1548463   (240834) от 03.05.2022
+
+Gary Schutt - The Beautiful Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Beautiful Darkness (00:04:07)
+02 - Fly Interstellar (00:01:18)
+03 - U F O (00:05:22)
+04 - Fading Light (00:06:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6E3E64E903B95F9A8606FCEBA9A1E19007B0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636485   (240830) от 30.05.2023
 
 Eleni Drake - Surf The Sun (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie>
@@ -6,7 +35,7 @@ Eleni Drake - Surf The Sun (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240830.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ G-Hard - μ-sick (2022) [MP3|320 Kbps] <Nu-Metal, Oriental Metal, Progressive Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240825.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Rampage - Asgard (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240823.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240817.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Antagonist - Spawn Of Evil (2022) [MP3|320 Kbps] <Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240809.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Mick White - Something's Got To Give (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240801.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Blanc Faces - Blanc Faces (2005) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240799.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ bar italia - Tracey Denim (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240795.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Rock Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240791.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240788.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Holy Moses - Invisible Queen (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240782.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240778.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Oryad - Sacred & Profane (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240771.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Beyond The Mist - Symbiosis (2022) [FLAC|Lossless|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240770.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Rockets - Another Future (1992) Reissue 2008, Recording Arts AG [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240766.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Infestum - Ta Natas (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240764.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Nektar - ...Sounds Like This (1973) 2CD, Remastered, 2022, Esoteric Recordings [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240762.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ MNRVA - Hollow (2022) [MP3|320 kbps] <Doom, Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240758.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ i-Ten - Taking a Cold Look (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240751.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Helms Alee - Keep This Be the Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240747.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Holy Moses - Invisible Queen (2023) [MP3|320 kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240742.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Pain - Nothing Remains The Same (2002) [FLAC|Lossless|image + .cue] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240740.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ And Hell Followed With - Quietus (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240739.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240737.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Reflections - The Fantasy Effect (2022) Redux [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240732.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Reflections - The Fantasy Effect (2022) Redux [FLAC|Lossless|WEB-DL|tracks] <Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C705C1E67D21EE0BBE4B5C8F2CEC777D4611376F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406968   (240731) от 05.09.2020
-
-Taake - Over Bjoergvin Graater Himmerik (2002) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part I 04:53
-02. Part II 06:42
-03. Part III 06:13
-04. Part IV 06:32(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33FF71033E079B027098E7D06266DD88788EBD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

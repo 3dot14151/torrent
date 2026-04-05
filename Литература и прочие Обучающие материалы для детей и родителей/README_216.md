@@ -1,3 +1,55 @@
+###  Публикация: 1039568   (595818) от 01.08.2016
+
+Джеймс Саймон | Древний Рим (1994) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595818.jpg" />
+</div>
+
+
+###  Подробнее
+
+В седьмом веке до н.э. Рим был небольшим итальянским поселением на реке Тибр. Со временем он превратился в огромный миллионный город, который стал главенствовать над большей частью окружающих его земель. В книге описана история Древнего Рима от рождения до заката великой Империи. Красочное и познавательное издание. Перевод Левиной Марии и Нониной Аллы. Художественный (   Читать дальше...   )Жанр: ИсторияПеревод: М. Левина, А. НонинаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEA98CBFAF1966D10C51EDEFF23FD59A137AC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039459   (595806) от 01.08.2016
+
+М. Салье (пер.) | Тысяча и одна ночь. Арабские сказки (2001) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга из серии «Лучшие сказки мира». Пересказ с арабского Салье М. из книги «Тысяча и одна ночь». Иллюстрации Чекмарёв П. Мы благодарим наших читателей за поддержку. Приятного Вам чтения!Жанр: Детская проза, сказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81C52F4910F53E67F78320C0184D2EFFC3091A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039495   (595700) от 01.08.2016
 
 Б.С. Иванов | Самоделки юного радиолюбителя (1988) [DJVU]
@@ -6,7 +58,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595700.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595605.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595217.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595184.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595175.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595141.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595137.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595135.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595130.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595092.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595070.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595069.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595047.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595038.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595037.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595036.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594930.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594924.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594920.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594919.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594917.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594916.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594830.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594781.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257AAB11AE9A6A193BFBDDFAB1262A866C9F16B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915198   (594769) от 04.07.2015
-
-Е.В. Васильева | Развиваем речь ребенка с помощью стихов (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие предназначено для работы учителей-логопедов, воспитателей, гувернеров и родителей, которые хотят, чтобы их дети лучше овладели звуковым анализом слов, развили фонематический слух, чувство мелодики и ритма родного языка, грамотность и творческие способности. Приведенные в книге речевые игры могут использоваться как на занятиях по развитию речи, так и в сценариях (   Читать дальше...   )Жанр: Общая психология, Детская психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAC856D54A3745EB8A767B1D0C8A8D2A43124A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039878   (594681) от 02.08.2016
-
-Владимир Мирнев | Живое дерево (1988) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о жизни мальчика в сибирской деревне о его стремлении к справедливости, жажде приключений и подвига. Психологическая линия в повести (общение мальчика с отцом, мамой, товарищами) сочетается с приключенческой - похищением красавца коня и возвращением его колхозу.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75383DA5BF6872484929EBA6F49062211164602D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Zoot Sims - Quartets (1950 - 1951) 2008, Prestige [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496201.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Vocal Refrain (1993)  BoxSet 5CD[FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496083.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Gold - Jazz Divas (2007) 2CD [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495961.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Duke Pearson - Sweet Honey Bee (1966) 1993, Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495864.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Kenny G & Rahul Sharma - Namaste (2012)[FLAC (tracks+cue)|Lossless]<Smooth Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495737.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ NEONNOONE - Noir & Jazz & Dark & Slow... (2022) [FLAC|Lossless|Web-DL|tracks] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494905.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Don Byas - Midnight at Minton's (1941) 1999, HighNote [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494834.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Lennie Tristano & Buddy DeFranco - Cool & Quiet (1949) /2015, Universal/ [FLAC|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494505.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ John Coltrane - Jupiter Variation (1967) /2015, Universal/[FLAC|tracks+.cue]<Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494462.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Bill Evans - Montreux II (1970) /2013, King Records/[FLAC|tracks+.cue]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494458.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Art Blakey And The Jazz Messengers Big Band - Live At Montreux And Northsea (198
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494457.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Big John Patton - Oh Baby! (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz-Funk,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494455.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Masayoshi Takanaka - The White Goblin (1997) [FLAC|Lossless|tracks + .cue] <Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494417.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Warne Marsh & Kenny Drew Trio - I Got A Good One For You (1980) 1999, Storyville
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494231.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Edna McGriff - Start Movin' In My Direction (1954 - 1959) 2012, Bear Family Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493836.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - The Best of Big Band (2008) [FLAC|Lossless]<Jazz, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493738.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - The Smooth Jazz Piano - Ebony & Ivory (2001) 3 CD[FLAC|Lossless]<Piano Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493601.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Max Roach His Chorus And Orchestra - It's Time (1962) 1996, Impulse! [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493348.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Pete Candoli & Conte Candoli - Two Brothers (1999) Hindsight Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492920.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Stefano Cantini - L'amico del vento (2005) Egea [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492683.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Louis Armstrong - The Hot Fives & Hot Sevens, volume III (1927, 1928) 1989, CBS 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492569.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Dave Burrell & Billy Martin - Consequences (2006) Amt [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492099.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Stefan Kaempfert - Kaempfert Plays Kaempfert (2011) Edel Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492098.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Lionel Hampton And His All-Stars - Air Mail Special (1953, 1954) 2007, Membran M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491590.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Stefon Harris & Blackout - Sonic Creed (2018) Motema [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491187.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ VA - Jazz and Beatles Part Two (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491142.jpg" />
 </div>
 
 

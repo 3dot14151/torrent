@@ -6,7 +6,7 @@ Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043943.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043749.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ricchi E Poveri - Mamma Maria (1986) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043719.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Pupo - Porno Contro Amore (2016) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043514.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sarah McCoy - High Priestess (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043314.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Shania Twain - Queen Of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043226.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - timeless pop songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043144.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Bryan Adams - Cuts Like A Knife - 40th Anniversary, Live From The Royal Albert H
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042899.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Karizma Duo - Late Night Karizma (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042555.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VA - From Sweden With Love - The Next Generation (2006) [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042535.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Janet Jackson - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041889.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ V.A. - The Best Valentines Album In The World...Ever! (2023) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041419.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Seemone - Seemone (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal, Instrumental
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041146.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Barry Gibb & Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021) 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041076.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - 80s Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041069.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Italian Classics (1998) 2CD [FLAC|Lossless|image + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040890.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Tennis - Pollen (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040865.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040613.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - I Singoli di Sanremo 2023 (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040523.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Rauw Alejandro - Afrodisíaco / Afrodisiaco (2020) [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040379.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Barry Gibb and Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039530.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Roxette - Tourism (1992) 30th Anniversary Edition, 2023, Parlophone UK[FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039352.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Showaddywaddy - Under The Moon Of Love (1993) [FLAC|Lossless|image + .cue] <Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039336.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Showaddywaddy - Greatest-Hits-Medley (1991?) [FLAC|Lossless|image + .cue] <Rock 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039332.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - Vintage Café – The Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ea
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039288.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ The Archies - Sugar Sugar (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039160.jpg" />
 </div>
 
 

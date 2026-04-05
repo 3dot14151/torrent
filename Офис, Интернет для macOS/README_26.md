@@ -6,7 +6,7 @@ Mail Designer Pro 3 v3.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526942.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526290.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Things 2.8.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526002.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Proxie: HTTP debugging proxy 2.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525171.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Periodic Table Explorer 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524758.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Corporate Packs for Pages 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524279.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Translate Tab 2.0.17 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524145.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Screens 3.6.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523288.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Resume Templates - Design 3.2.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522600.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ RapidWeaver 8 v8.9.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521991.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ MacGourmet Deluxe 4.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521989.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ start 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519828.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ SignFlow - eSign PDF Editor for Mac 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519773.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ IconFly 3.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518867.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Typed for Mac 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516136.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Microsoft Office 2021 for Mac LTSC v16.62 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513317.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Troga - Translate. Forget. Recall. Repeat 1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512868.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Paragraphs 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507066.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Kingpin Private Browser 2.0.24 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501671.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Project Office Pro 10.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500583.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Smarky 2.12.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499751.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Clobbr - test endpoint speed 1.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499713.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ FTP Disk for Mac 1.4.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499708.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ MDB ACCDB Viewer 2.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498579.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ PCalc 4.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497782.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ eMail Address Extractor 3.5.9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497655.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1073078   (243917) от 19.11.2016
-
-О. М. Бескин | Кулацкая художественная литература и оппортунистическая критика (1931) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Статьи этой книжки объединены общей литературно-политической задачей: разоблачить кулацкие тенденции в художественной литературе. Написаны они в разное время. Первая, под названием «Россеяне», была опубликована мною в переодической печати в 1928 г. С тех пор имел место целый ряд «вылазок» правооппортунистической критики и анализируемых мною писателей как в связи (   Читать дальше...   )Жанр: История, политология, литературоведение, поэзия, философия, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F582AA0E77F7C0047D78E4153FFEA23BFC97808C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073091   (243891) от 19.11.2016
-
-М. Ф. Быкова | Гегелевское понимание мышления (1990) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243891.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге предпринята попытка провести целостный критический анализ «Философии духа» и других текстов Гегеля сквозь призму понятия мышления. Предлагается общая схема, позволяющая вычленить и систематизированно представить основные взаимосвязанные смысловые характеристики гегелевского понимания мышления в их реальном проблемном содержании. Представлены новейшие результаты (   Читать дальше...   )Жанр: История, философияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6302C1A81D34FE2753CE75264BAC5C5D2BA955D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074644   (243878) от 19.11.2016
-
-А.П. Каждан | История византийской литературы [2 книги] (2002 - 2012) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243878.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представлены две книги по "Истории византийской литературы", которые будут интересны для воспитанников и студентов духовных академий, студентов и аспирантов богословских и гуманитарных вузов и факультетов, специалистов по истории и культуре Византии, агиологии, общей церковной истории, всеобщей истории, филологов-литературоведов.Жанр: История; КультуроведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBF11318333EBB4DD1DA8FC90876AA929AD00EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074355   (243870) от 19.11.2016
 
 Н. С. Маслова | Производительность труда в социалистическом обществе (1953) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243870.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243546.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243300.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241797.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240365.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238837.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ Marcos Mateu-Mestre | Framed Drawing Techniques: Mastering Ballpoint Pen, Graphi
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238345.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237526.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237474.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235165.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232585.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232502.jpg" />
 </div>
 
 
@@ -408,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231568.jpg" />
 </div>
 
 
@@ -434,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230239.jpg" />
 </div>
 
 
@@ -461,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230050.jpg" />
 </div>
 
 
@@ -489,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230037.jpg" />
 </div>
 
 
@@ -517,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229981.jpg" />
 </div>
 
 
@@ -543,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229963.jpg" />
 </div>
 
 
@@ -571,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229650.jpg" />
 </div>
 
 
@@ -597,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229635.jpg" />
 </div>
 
 
@@ -623,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229227.jpg" />
 </div>
 
 
@@ -651,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229082.jpg" />
 </div>
 
 
@@ -679,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229002.jpg" />
 </div>
 
 
@@ -690,6 +612,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A9C87114D461FF0D42C10FDF62F0E31CE0560A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424270   (228908) от 16.11.2020
+
+К. Крауфорд | Методика умственной работы (1928) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необходимость соответствующей тренировки в методах умственной работы была признана уже давно. Сравнительно недавно, однако, пришли к убеждению в том, что одним из существенных недостатков наших программ является отсутствие в них раздела о рацио­нальных методах умственной работы, подлежащих усвоению учащимися наряду с другими школьными навыками.
+
+В целях устранения (   Читать дальше...   )Жанр: История, психология, педагогика, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599B88A0B6A5DAB8AA0E55738899F325F1B06E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512877   (228768) от 26.11.2021
+
+Кеннет Кларк | Цивилизация (2021) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228768.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1969 г. телеканал Би-би-си представил зрителям документальный сериал «Цивилизация. Личный взгляд Кеннета Кларка». Скептики были озадачены: кого, в самом деле, в 60-х могли заинтересовать взгляды на историю западной цивилизации лорда Кларка – историка искусства, без малого ровесника века, ученого эстета, любителя твидовых костюмов и обладателя собственного замка (   Читать дальше...   )Жанр: Культурология, Искусствоведение, История искусстваПеревод: Наталия РоговскаяФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48291E8AD56D7D5E90DDADE1032A7B08DAF2D771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964807   (228695) от 13.12.2015
+
+К. Н. Акбардия | Карл Маркс - основоположник учения о взаимосвязи диалектики и материализма (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228695.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается гениальное философское открытие основоположника научного коммунизма Карла Маркса о взаимосвязи диалектики и материализма, являющееся коренным переворотом в философии. В труде особое место занимает проблема изучения специфической особенности марксистского диалектического метода по сравнению с теорией философского материализма. Излагая революционное (   Читать дальше...   )Жанр: История, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631F962C8E22B4881A6563A2F97BC8818966649C
 ```
 
 https://mybot314.ru/tekegram_catalog/

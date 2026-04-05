@@ -1,3 +1,29 @@
+###  Публикация: 1491876   (904987) от 28.08.2021
+
+Adobe Photoshop 2021 22.5.0.384 (Win10) Portable by syneus [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2021 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FBA91DB8E069DE35C2C5FEB732D1F768431387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215206   (904930) от 28.08.2021
 
 Tamas Olejnik (Dublicator, MetaComplex, Antendex, Astral Travel Agency, Organit, Auto Reverse, etc.) - 2006-2021 [FLAC|Lossless] <Dub Techno, Ambient, Electro, Psybient, Synthwave, Psy-Trance>
@@ -6,7 +32,7 @@ Tamas Olejnik (Dublicator, MetaComplex, Antendex, Astral Travel Agency, Organit,
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904930.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904680.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904572.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904525.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Bandicam 3.3.2.1195 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904247.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.01.31 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904229.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ iБой / iBoy (2016) WEB-DL [H.264/720p-LQ] [AD]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904227.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903943.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903595.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ uTorrent 3.4.5 Build 41865 Stable Portable by A1eksandr1 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903589.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Windows 98 — теперь и в браузере
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903542.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ AusLogics BoostSpeed 8.2.1.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903504.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903125.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Microsoft может выпустить облачную версию Windows 10
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902855.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Need For Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902658.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902655.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Avira Phantom VPN Pro 2.4.3.30556 RePack by D!akov [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902632.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902356.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902289.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902157.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902135.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901838.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Wurm Unlimited (2015) [En] (2016-03-01) SteamRip GameComa
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901837.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2071465/dlc) SteamRip =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901726.jpg" />
 </div>
 
 
@@ -634,39 +660,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901683.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Добро пожаловать в Чикаго 30-х годов - столицу гангстеров Северной Америки! Разыскиваемый властями Нью-Йорка за двойное убийство, начинающий гангстер Альфонсо Капоне перебирается сюда, чтобы продолжить криминальную карьеру под руководством Джонни Торрио, своего старого приятеля и одного из молодых главарей Чикаго.Тип издания: ЛицензияРазработчик: Byte EnchantersЖанр: гангстерская стратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181981   (901678) от 12.03.2010
-
-New Super Mario Bros.Wii [Wii] [PAL] [Русский (R.G. DShock)] (2009)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: 2.5D PlatformerФормат: Образ в формате
 
 ## Скачать торент
 ```bash

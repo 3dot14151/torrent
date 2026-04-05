@@ -1,3 +1,32 @@
+###  Публикация: 1600162   (159081) от 26.12.2022
+
+Thammuz - Sons of the Occult (2022) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Electric Sheep [00:02:49]
+02 - Sons of the Occult [00:03:17]
+03 - Guayota [00:04:18]
+04 - Had a Blast [00:04:35](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4BF8A20D3DAFF078B5952EF417270879F8819A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600158   (159079) от 26.12.2022
 
 Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
@@ -6,7 +35,7 @@ Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159079.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Arctic Winter - CCCXXXIII (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159077.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ FRAGILE ART - The World You Wanted (2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159071.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Aidan Black - About Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159065.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Various Artists - Gods Of Grind (1992) Japanese Ed. [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159063.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Xenoform - Zombietown (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Elect
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159057.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159055.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Werewolf Jones - Rot Away (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159053.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Bethzaida - Nine Worlds (1996) [FLAC|Lossless|image + .cue] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159037.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Casus Belli - In the Name of Rose (2005) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159033.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Neopera - Tuba Mirum (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159028.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Meshuggah - Immutable (2022) [FLAC|Lossless|image + .cue] <Death Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159019.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Joe Cocker - Joe Cocker! (1969) Reissue, 2017, Audio Fidelity [OGG Vorbis|480 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159017.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ VA - Fallen Angels: Bad Girl Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158989.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Cheap Trick - Live At The Whisky (1977) 4 x CD, Limited Edition, Reissue, 2022, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158984.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ VA - Heavy Queens (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158972.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Overlord SR - Medieval Metal Too (2012) [FLAC|Lossless|image + .cue] <Heavy/Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158956.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Mater a Clivis Imperat - Atrox Locus (2022) [MP3|320 Kbps] <Progressive Rock, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158954.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158952.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Radioactive - Yeah (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158945.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ VA - The Very Best of Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158916.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ The Beatles - The Beatles 1962 – 1966 (Red Album) (1973) 2CD, 2023 Edition, Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158891.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Jared James Nichols - 3 Albums (2014-2023) [FLAC|Lossless|image + .cue|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158877.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ The Beatles - The Beatles 1967 – 1970 (Blue Album) (1973) 2CD, 2023 Edition, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158855.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Assumption - The Three Appearances (2014) EP [FLAC|Lossless|image + .cue] <Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158755.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Assumption - The Three Appearances (2014) EP [FLAC|Lossless|image + .cue] <Doom,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13EF2A078D3FC2E28C73C4B79D4A8FB1BB150973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600411   (158753) от 27.12.2022
-
-Shallow Black - Maladroit Matter (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158753.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Some of the Old Songs, Sam 03:16
-2. Digital Bath 04:08
-3. I Feel You 04:39
-4. Closure 05:45(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2CCACDB236399CB3D5D0F97BB9C060540E7B78
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1170234   (400608) от 30.09.2017
-
-Нора Робертс | Лицо в темноте (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмма Маккавой, дочь легендарного рок-музыканта, живет в блистательном и сумасшедшем мире шоу-бизнеса. Она знает цену популярности — телохранители за спиной, навязчивое внимание репортеров… А ей так хочется свободы! Вырвавшись из-под опеки, Эмма за два года успела влюбиться, выйти замуж и узнать горечь разочарования. Уход от мужа едва не стоил ей жизни. Но всегда (   Читать дальше...   )Жанр: Остросюжетный любовный романПродолжительность: 17:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0993EF28E39DEBA4243E576E1D0420B4CA407FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170416   (399815) от 01.10.2017
-
-Всеволод Соевый и др. | Солнце во все небо (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399815.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли произведения, наиболее ярко раскрывающие красоту и богатство дальневосточной природы.Жанр: Хрестоматия о природе Дальнего востокаПродолжительность: 11:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7970413CC1AB8A45A21D9DDC119DF74A9951E166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170408   (399814) от 01.10.2017
 
 Михаил Рощин | Повести (2017) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399814.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397767.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395027.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393226.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391900.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389026.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388986.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388046.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387962.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387816.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387806.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387551.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387413.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385702.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384236.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383848.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383742.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381769.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381761.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381531.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380867.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380739.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380600.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380595.jpg" />
 </div>
 
 
@@ -675,6 +623,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0790CA4EA40A991B147A314CEB635A44C1806838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007279   (380008) от 01.11.2016
+
+Василий Аксенов | Таинственная страсть. Роман о шестидесятниках. [Книга 1-2] (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами полная версия нашумевшего романа Василия Аксенова "Таинственная страсть". Он впервые публикуется в том виде, в каком его передал нам автор. Герои "Таинственной страсти" - кумиры шестидесятых: Булат Окуджава. Роберт Рождественский. Белла Ахмадулина, Владимир Высоцкий, Андрей Вознесенский, Андрей Тарковский, Евгений Евтушенко, Иосиф Бродский (   Читать дальше...   )Жанр: Современная проза, РоманПродолжительность: 22:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD943B9D758264533DC36B6EE28F8AE32309896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253929   (379511) от 11.10.2018
+
+Александр Морозов | Московский Джокер (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Морозов автор романов «Программист» и «Центр».
+В его новом романе события развиваются драматично: на запасных путях одного из московских вокзалов стоит вагон, в котором 10 миллиардов долларов. В течение ночи и утра эти настоящие, но «помеченные» доллары должны быть «вспрыснуты» во все рестораны, обменные пункты и т. п. Так планируется начать сначала в Москве, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA1FFAC9398C8B8B840EE2DBD76DBAE67422659
 ```
 
 https://mybot314.ru/tekegram_catalog/

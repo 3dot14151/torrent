@@ -1,136 +1,3 @@
-###  Публикация: 1777749   (28338) от 07.02.2025
-
-Ю.А. Урманцев (ред.) | Система. Симметрия. Гармония (1988) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28338.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге на базе ОТС Ю.А.Урманцева раскрывается практическое и теоретическое значение системного подхода для решения разнообразных философских и естественнонаучных проблем. Об этом рассказывают авторы - философы, биологи, геологи, химики, кристаллографы, физики, математики.
-Книга рассчитана на ученых - обществоведов, естествоиспытателей, аспирантов, студентов, а также (   Читать дальше...   )Жанр: Естественные наукиИздательство: МысльФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C84F7A8793B1B90ED63B7DCA973CE8DFA88F855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778533   (28292) от 08.02.2025
-
-К. Саган | Космос (2024) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космос» – одна из самых продаваемых научно-популярных книг всех времен. В ней прослеживается почти четырнадцать миллиардов лет космической эволюции, превративших материю в сознание, и исследуются такие темы, как происхождение жизни, человеческий мозг, египетские иероглифы, миссии космических кораблей, смерть Солнца, эволюция галактик, а также обстоятельства и личности, (   Читать дальше...   )Жанр: История, науковедение, астрономия, астрофизика, астробиологияИздательство: Альпина нон-фикшнФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB21B267057502CCD7793521AE3F934328A691A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778537   (28253) от 08.02.2025
-
-Ю. Борхардт | Исторический материализм (1923) [DJVU] [Введение в материалистическое понимание истории]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемой популярной работой Юлиана Борхардта издательство „Буревестник“ открывает намеченную им серию популярной марксистской литературы.
-
-В конце брошюры приложены примечания и указатель литературы, по независящим обстоятельствам не просмотренные редактором перевода.Жанр: История, науковедение, политология, философияИздательство: БуревестникФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C35E1014F423B55BCBB6801AD7575B78EF4735B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779459   (27749) от 13.02.2025
-
-Ольга Москвина | Покупка квартиры на вторичном рынке (2024) [PDF, EPUB, FB2, FB3, RTF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27749.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выбора квартиры и принятия решения о покупке, встает вопрос, что делать дальше. Обычно, от стадии “определился с квартирой” до стадии “подписание договора купли-продажи” проходит в среднем один месяц. И что мы делаем весь этот месяц? Знакомимся ближе с Собственником (продавцом) выбранной квартиры и конечно же проводим юридический анализ документов на квартиру, (   Читать дальше...   )Жанр: недвижимость, юриспруденция, учебное руководствоИздательство: LitresФормат: PDF, EPUB, FB2, FB3, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E0940DD1D95FE06EFBCCD0417A0434A76BA81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779617   (27615) от 14.02.2025
-
-Гэри Шайнер | Протокол диабета. Методики, позволяющие взять заболевание под контроль (2024) [PDF, EPUB, FB2, FB3, RTF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллионы людей по всему миру страдают диабетом. Из смертельной болезни в прошлом он превратился в вялотекущее и планомерно разрушающее здоровье заболевание, с которым все-таки можно жить. Но, несмотря на все достижения современной медицины, врачи часто оказываются недостаточно чуткими или вовлеченными в процесс, чтобы оценить часто меняющиеся потребности в инсулине (   Читать дальше...   )Жанр: здоровье, диабетПеревод: А. УсачеваИздательство: БомбораФормат: PDF, EPUB, FB2, FB3, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F067044736ADD9301C7562103C92B19F946206A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780282   (27365) от 17.02.2025
 
 Ольга Деревянко | Сахар, вес, давление, холестерин (2024) [PDF, EPUB, FB2, FB3, RTF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27365.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27295.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27221.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27202.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27198.jpg" />
 </div>
 
 
@@ -274,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27183.jpg" />
 </div>
 
 
@@ -300,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27111.jpg" />
 </div>
 
 
@@ -327,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27097.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27034.jpg" />
 </div>
 
 
@@ -381,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26937.jpg" />
 </div>
 
 
@@ -407,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26927.jpg" />
 </div>
 
 
@@ -434,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26924.jpg" />
 </div>
 
 
@@ -460,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26894.jpg" />
 </div>
 
 
@@ -486,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26865.jpg" />
 </div>
 
 
@@ -515,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26809.jpg" />
 </div>
 
 
@@ -543,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26714.jpg" />
 </div>
 
 
@@ -570,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26710.jpg" />
 </div>
 
 
@@ -597,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26708.jpg" />
 </div>
 
 
@@ -623,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26600.jpg" />
 </div>
 
 
@@ -652,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26503.jpg" />
 </div>
 
 
@@ -678,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26481.jpg" />
 </div>
 
 
@@ -689,6 +556,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EFE8FC12346C53575B927EEC18B4D0E5427A1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781773   (26479) от 25.02.2025
+
+Роман Бузунов, София Черкасова | Преднамеренное спокойствие (2024) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тревожность – диагноз или черта характера? Почему от алкоголя, табака и кофе становится только хуже? Отчего пресловутый тайм-менеджмент неэффективен? Можно ли избавиться от навязчивых мыслей и наслаждаться моментом? Нужны ли вам антидепрессанты и снотворные, или обойдемся без них?
+Роман Бузунов и София Черкасова, терапевты с обширным опытом лечения стресса, тревоги, (   Читать дальше...   )Жанр: Психология, ЗдоровьеИздательство: ИД Комсомольская правдаФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894D7B621841A0AE7772D25837E95985A714D485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782041   (26362) от 26.02.2025
+
+Кристиаан Л. Харт Ниббриг | Эстетика смерти (2005) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Кристиаана Л. Харт Ниббрига (р. 1944), профессора Лозаннского университета (Швейцария), обращена к «последним вопросам бытия» и к непрекращающимся усилиям искусства изобразить конец жизни, воспроизвести и повторить «невероятный фокус умирания». Мировая литература, живопись, скульптура и музыка участвуют в «пляске смерти», пронизывающей текст своими ритмами (   Читать дальше...   )Жанр: Философия, искусствоПеревод: А. БелобратовИздательство: Ивана ЛимбахаФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B88A9470244AF52F68351EEFC00EA3A61176825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782084   (26348) от 26.02.2025
+
+Л.А. Альсевич, С.А. Мазаник, Г.А. Расолько и др. | Дифференциальные уравнения. Практикум (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даны краткие теоретические сведения и решения типовых задач. Задачи повышенной трудности сопровождаются указаниями. Представлено большое количество задач прикладного характера, снабженных необходимыми сведениями из соответствующих областей физики, механики, биологии, экономики. Приведены задания для контрольных и лабораторных работ.
+Для студентов математических, (   Читать дальше...   )Жанр: МатематикаИздательство: Вышэйшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375553BE8C2FCAD61E577256E5ABCCBE763B00FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782234   (26318) от 27.02.2025
+
+Карлос Маригелла | Бразильская герилья. Краткий учебник городского партизана (1969) [PDF, EPUB, DOC]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находясь в подполье, Карлос Маригелла написал множество работ по теории революционной борьбы. Наиболее известная из них — «Краткий учебник городской герильи», написанный в июне 1969 года. Едва эта небольшая книжка вышла из печати, как её тут же перевели на все основные языки мира (а много позже – даже на русский). Эту книжечку зачитывали до дыр и тщательно конспектировали (   Читать дальше...   )Жанр: Военная история. Политология. РуководстваИздательство: Самиздат (данные не указаны)Формат: PDF, EPUB, DOCКачество: Изначально электронное (ebook), обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A1DFF500126244B7F78232B18DA4E6EA8F9FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782185   (26281) от 27.02.2025
+
+М. Эйген, П. Шустер | Гиперцикл. Принципы самоорганизации макромолекул (1982) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26281.jpg" />
+</div>
+
+
+###  Подробнее
+
+М. Эйген, известный ученый из ФРГ, лауреат Нобелевской премии, уже знаком советскому читателю по книге "Самоорганизация материи и эволюция биологических макромолекул" (М.: Мир, 1973). В настоящей книге, написанной совместно с австрийским ученым П. Шустером, М. Эйген развивает теорию гиперцикла как одного из принципов самоорганизации макромолекул. Последовательно (   Читать дальше...   )Жанр: БиохимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB663F0F2DB688E49C23749192F5B6C9BF1EE98C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628186.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Крупные рыбы Зэба: нашествие акул-молото�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628077.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Империя гризли / Grizzly Empire (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628065.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627677.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Шершни из ада / Hornets from hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627462.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: С точки зрения науки. Тайна возникновения
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626591.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626330.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626175.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626165.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NGW: Дикая природа Ирана / Iran's Wild Side (2018) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625808.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG. Осушить Титаник / Drain the Titanic (2015) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625423.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624435.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NGW: Гризли Аляски бросают вызов. Арктические
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624369.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NGW: Акулотрас / Sharkatraz (2016) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624365.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624335.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NGW: Дикая природа: Остров Воскресения / Wild Life:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623978.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG. Бушующие миры. Космический ветер / Storm Worlds.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623539.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622348.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NG. Осушить Бермудский треугольник / Drain the Bermu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621561.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621008.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NG: Когда сталкиваются континенты / When Continents C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620928.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620738.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ NG: В пещере кристаллов / Into the Crystal Cave (2010) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619502.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ NG.Запреты: Экстремальное лечение / NG.Taboo: Freaky 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619126.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618968.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618964.jpg" />
 </div>
 
 

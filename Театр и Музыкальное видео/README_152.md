@@ -6,7 +6,7 @@ Party at The Palace (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45718.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45712.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45640.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Kiss: "Rock the nation. Live!" (2005)  DVD9x2
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45636.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45615.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45526.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45426.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ AC/DC - Stiff Upper Lip Live 2001 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45425.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45404.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45326.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45324.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45221.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45209.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45192.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45117.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Helloween - Live on 3 Continents (2007) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45115.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45113.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Halford - Live In Anaheim (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45083.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44884.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44873.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Mylene Farmer - Avant que l'ombre A Bercy (2006) BDRip [H.265/1440p] [10-bit] [A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44776.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44747.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44700.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44588.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44566.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44451.jpg" />
 </div>
 
 

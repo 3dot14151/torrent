@@ -1,31 +1,31 @@
-###  Публикация: 605717   (995330) от 21.01.2013
+###  Публикация: 604639   (996163) от 18.01.2013
 
-Mark Hunton - Annapurna: The Towering Sky (1999) [MP3|320 кб/с]<New age, World Fusion>
+VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(5:12) 01. In the Shadow of Everest
-(5:01) 02. Annapurna: The Towering Sky
-(4:45) 03. Trekking
-(6:42) 04. Out on the Edge
-(5:32) 05. Waterfalling Before the Storm
-(6:37) 06. Mysteries Of The Mountains
-(5:22) 07. 15k To Lhasa
-(1:23) 08. Rendezvous At Sherpa's Teahouse
-(5:44) 09. Doorways Beyond
-(5:11) 10. Sunrise(   Читать дальше...   )Жанр: New age, World FusionПродолжительность: 01:09:56
+01. Luchian Cris feat. Loly - All My Love
+02. The Weeknd - Enemy
+03. Scooter - What Time Is Love
+04. The Weeknd - Twenty Eight
+05. Sergio DN feat. Khristeen - Can You Feel (Radio Edit)
+06. Adam Lambert - Trespassing (Vanity Machine Remix)
+07. Andy M. feat. Ellise - Beautiful Day (Radio Edit)
+08. Anastacia - Dream On
+09. Anna Lesko - Ia-Ma (Radio Edit)
+10. Delerium feat. Jael - Light Your Light(   Читать дальше...   )Жанр: PopПродолжительность: 06:18:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C15A2CED3574EBAB948AAC7DD00C74AF75D7BB69
+magnet:?xt=urn:btih:C8CF3D6AD1931154FF04E5511DB6CFCEB08BAE0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,51 +33,127 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 606530   (995325) от 21.01.2013
+###  Публикация: 602955   (996160) от 18.01.2013
 
-Газета | Твоя судьба № 08 (65) [сентябрь 2000] [PDF]
+Fantasy Wallpapers (13.01.13) [Wallpapers]
 
->>Журналы
->>Другие журналы
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ежемесячный альманах необычных судеб, занимательных фактов и разнообразных гороскопов. Частное издание, издаётся в Краснодаре.
-Подзаголовок - "Ежемесячный альманах познавательного и развлекательного чтения".
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B768FF1EFEBBA2A4D4E019691385C9460A6A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602918   (996159) от 18.01.2013
+
+Incredible Mixed Wallpapers (2/2013) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный сборник обоев для рабочего стола от FedExe ®
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49349582E4A85028437CEDD422FD35C15F4A14ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605085   (996158) от 18.01.2013
+
+И.Б. Мощанский | Прорыв блокады Ленинграда. Эпизоды великой осады. [2010] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996158.jpg" />
+</div>
+
+
+###  Подробнее
+
+С сентября 1941 года, когда кольцо блокады вокруг Ленинграда окончательно замкнулось, советское военно-политическое руководство неустанно разрабатывало и проводило все новые и новые операции по деблокаде города. Однако успех пришел не сразу. Синявинская операция (19 августа - 1 октября 1942 года) значительно потрепала германские силы, но планируемого результата не дала. И только в январе 1943 года план под кодовым наименованием "Искра", реализованный войсками Ленинградского и Волховского фронтов, Балтийского флота и Ладожской военной флотилии завершился успехом.  Наземная связь и страны была восстановлена.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897D517B3BE2614AF51490836AACC318AA24D047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602965   (996157) от 18.01.2013
+
+Horses Wallpapers (13.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E564782CA3790C4152629956A24ACEDF1DA2090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604795   (996155) от 18.01.2013
+
+Wise Care 365 Pro 2.19 Build 170 Final [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа включает в себя технологию быстрого сканирования и набор важных утилит для реестра, дисков вашего компьютера. Эффективный и простой в использовании инструмент – лучшее решение для увеличения производительности вашего ПК. Запустите нашу программу и забудьте про медленную работу системы! Вобрав в себя все высокоэффективные особенности Wise Registry Cleaner и Wise Disk Cleaner, программа очищает диск и рееестр, оптимизирует систему, защищает личные данные и т.д. Этот инструмент выделяется в лучшую сторону на фоне других утилит по обслуживанию и оптимизации ПК, доступных сейчас.
 
-В номере 12 страниц, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FB8FC7EF538C59B2978DBCE099BD9970E308ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605719   (995324) от 21.01.2013
-
-Basic Perspective - Small Step On The Other Side (2006) [FLAC|Lossless]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Small Step On The Other Side (Original Mix) (8:04)
-02. - Small Step On The Other Side (Elevation Remix) (8:58)Жанр: Progressive TranceПродолжительность: 00:17:03
+(   Читать дальше...   )Название программы: Wise Care 365 ProЯзык интерфейса: MULTi / Русский
 
 ## Скачать торент
 ```bash
@@ -89,85 +165,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603649   (995323) от 21.01.2013
+###  Публикация: 602968   (996154) от 18.01.2013
 
-VA - Trance Remixes: Volume Two (2012-17-12) [MP3|320 kbps] <Uplifting/progressive trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Lukosz - Watch Your Step (Cressida remix) (08:13)
-02. Gabriel Batz - Inner Touch (Mike Shiver Catching Sun remix) (07:49)
-03. Sunny Lax - Always (Colonial One remix) (07:18)
-04. Mark Eteson - Universal Language (Tritonal club mix) (07:42)
-05. Sneijder - We Are Living (feat Elsa Hill - Sneijder remix) (07:56)
-06. Cold Blue - Paradise (Anhken remix) (08:00)
-07. ReOrder & Stine Grove - Seize The Day (Timur Shafiev remix) (07:52)
-08. Hydro Aquatic & Vir2l Vision - Vigor (Cold Blue remix) (08:12)
-09. Digitalis - Memento (Suncatcher remix) (08:45)
-10. Brisky - Celestial (John O'Callaghan Presents Mannix remix) (08:17)(   Читать дальше...   )Жанр: Uplifting/progressive tranceПродолжительность: 02:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A4FD16FE000BB6FD93C93241BA7BFF36B20ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603648   (995322) от 21.01.2013
-
-VA - Vocal Passion Vol.51 (2012) [MP3|320 kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Devant feat. Emma Hewitt - Take Me With You (05:51)
-02. Omnia & IRA - The Fusion (Original Mix) (06:08)
-03. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Club Mix) (05:47)
-04. Susana & Rex Mundi - All Time Low (Original Mix) (08:03)
-05. The Attic feat. Oh Laura - Release Me (Kevin Sunray Remix) (07:20)
-06. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix) (06:40)
-07. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix) (06:08)
-08. Protoculture - Ode To The Ocean (Original Mix) (07:54)
-09. W&W feat. Bree - Nowhere To Go (Shogun Remix) (06:36)
-10. Roger Shah feat. Inger Hansen - Dance With Me (Extended Mix) (06:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCB5DDE4D478C67BA848996977B70A7B30BE9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606272   (995317) от 21.01.2013
-
-Rabbit Wallpapers (21.01.13) [Wallpapers]
+HQ Wallpapers for a desktop (13.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996154.jpg" />
 </div>
 
 
@@ -177,7 +183,7 @@ Rabbit Wallpapers (21.01.13) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA230DE6882BD91BCBEE2F0C6D5DE0AA7AFA67F2
+magnet:?xt=urn:btih:7F331D5DE92FE80769EF46FE762804060D38C776
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,43 +191,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 606413   (995315) от 21.01.2013
+###  Публикация: 602913   (996153) от 18.01.2013
 
-Дуги Бримсон | Убийцы футбола. Почему хулиганство и расизм уничтожают игру [2007] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лучших исследователей феномена футбольного хулиганства Дуги Бримсон продолжает разговор, начатый в книгах «Куда бы мы ни ехали» и «Бешеная армия», ставших бестселлерами.
-
-СМИ и власти постоянно заверяют нас в том, что война против хулиганов выиграна. Однако в действительности футбольное насилие не только по-прежнему здравствует и процветает, создавая полиции все больше трудностей, но, обогатившись расизмом и ксенофобией, оно стало еще более изощренным. Здесь представлена ужасающая правда о футбольном безумии, охватившем Европу в последние два года. В своей бескомпромиссной манере Бримсон знакомит читателя с самой страшной культурой XXI века, зародившейся на трибунах стадионов и захлестнувшей улицы.Формат: FB2.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851580AFD25DAE6115A9038D391D1EC1A789D0EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606264   (995310) от 21.01.2013
-
-Desktop Wallpapers (21.01.13) [Wallpapers]
+Computer Desktop Wallpapers Collection (2/2013) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный сборник Computer Desktop Wallpapers Collection для рабочего стола от FedExe ®Разрешение файлов: 1600X1200 - 7500x4219
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950812E1B322EC0C61F6B53E813E0B66C2F6455C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602967   (996151) от 18.01.2013
+
+Macro Wallpapers (13.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996151.jpg" />
 </div>
 
 
@@ -231,7 +235,7 @@ Desktop Wallpapers (21.01.13) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FE8A1BC46B13EE99C35193362F3FFF5CEA53D78
+magnet:?xt=urn:btih:C261CA70EE8E8F41F236E0C198390D74ADF7077B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,150 +243,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603361   (995307) от 21.01.2013
+###  Публикация: 604751   (996149) от 18.01.2013
 
-VA - Trance. Vocal Fascination 43 (08.01.2013) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995307.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Neev Kennedy - The Unknown (DNS Project Extended)
-002. Kenneth Thomas feat. Colleen Riley - The Heart Speaks (Swab & Joey Mova Remix)
-003. Lemon & Einar K - We Are What We Are (Original Mix)
-004. Mark Eteson & MerEdith Call - Together (Original Mix)
-005. Michael Angelo feat. Melissa Loretta - Hearts Unspoken (Original Mix)
-006. Miroslav Vrlik - See The Sun (Original Mix)
-007. Ralphie B. - Massive (James Dymond Rework)
-008. Roger Shah feat. Inger Hansen - Dance With Me (Pumpin Island Mix)
-009. Norin & Rad - Zion (Original Mix)
-010. Omnia & IRA - The Fusion (Eximinds Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE4E647DDA63994B24A8B5E157ABCA49AFD3B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603644   (995305) от 21.01.2013
-
-VA - Whisper of Consciousness Volume 38 (2012) [MP3|320 kbps] <Uplifting Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Distance & Dimension feat. Cami - Promise You (Original Mix) (08:28)
-02. Gareth Emery feat. Christina Novelli - Concrete Angel (John O'Callaghan Remix) (07:31)
-03. Jordan Suckley feat. Leanne Thomas - Thunder (Original Mix) (06:59)
-04. Maksim Palmaxs feat. Simon Latham - Falling (Original Mix) (06:50)
-05. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Original Mix) (06:06)
-06. Michael Angelo feat. Melissa Loretta - Hearts Unspoken (Original Mix) (07:59)
-07. Max Graham & Susana - Down To Nothing (Original Mix) (06:56)
-08. Ferry Corsten feat. Shelley Harland - Holding On (Ferry's Flashover Mix) (06:37)
-09. Ferry Corsten vs. Armin van Buuren - Brute (Darren Porter Remix) (07:49)
-10. Hannah - Falling Away (Armin Van Buuren Remix) (07:45)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC63647490CC95D96FBDA5AC44BDDCFB8429A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606502   (995302) от 21.01.2013
-
-Журнал | Современный дом №6 [июль-август 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специализированный информационно-аналитический цветной иллюстрированный журнал Современный дом посвящен всему комплексу вопросов, связанных с недвижимостью, строительством, дизайном, архитектурой.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAB5DC2EB387B1813D36A212610164A6A91AC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606138   (995301) от 21.01.2013
-
-Газета | Газета эзотерических учений в княжестве Юрия Харчука № 02 (05) [июль 2008] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета, посвящённая эзотерике.
-Издаётся в станице Кущёвская (Краснодарский край).
-
-В газете 8 страниц формата А3, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B190750BFDD57F20BB27C74DF847B96A946AEAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606260   (995300) от 21.01.2013
-
-Interior Wallpapers (21.01.13) [Wallpapers]
+Рисованная графика - Artworks by Ise Ratta Ananphada
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Работы художника-иллюстратора Ise Ratta Ananphada.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF67740085E1FB0738EEAE36E91B43796B2E8B66
+magnet:?xt=urn:btih:69F46D45139F7BB756B5CA7A08AE16905AB2CEF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +269,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 606271   (995296) от 21.01.2013
+###  Публикация: 604215   (996148) от 18.01.2013
 
-Fantasy Wallpapers (21.01.13) [Wallpapers]
+Копия верна / Certified Copy / Copie conforme (2010) [H.264] BDRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Джеймс — британский писатель, приезжает в Италию на конференцию, посвященную проблеме подлинников и копий в искусстве. Там он знакомится с француженкой, владелицей картинной галереи, которая делает вид, что писатель — это ее частенько отсутствующий муж. Писатель подыгрывает очаровательной женщине, но эта невинная игра вскоре становится опасной.Жанр: ДрамаРежиссер: Аббас КиаростамиАктеры: Жюльет Бинош, Уильям Шимелл, Жан-Клод Карьер, Агата Натансон, Джанна Джакетти, Адриан Мур, Анджело Барбагалло, Андреа Лауренци, Филиппо Трояно, Мануэла БалсинеллиПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:46:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC57738C10C2F667BEF36FF070285BEB4A7CFC8A
+magnet:?xt=urn:btih:C36708C86E9A86551E7F759EB91AA4A9EF85A619
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,346 +295,420 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605952   (995295) от 21.01.2013
+###  Публикация: 604726   (996147) от 18.01.2013
 
-VA - Клубный суперсборник. Муз кураж 50/50 (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Next Feat. Dj Solar Explosion - Жажда Танца (Dance Club)
- 002. Dj Tiesto & Allure Feat. Jes - Show Me The Way
- 003. Пачуля - Ты И Я (Radio Mix)
- 004. Aruba Ice & Greysound - Hold Me
- 005. Zedd Vs. Bingo Players Vs. Alesso - Spectrum Rattle Pressure (Kitsch 2.0 Boolteg)
- 006. Reggaer - Я Тебя Люблю (Spinafly & Dj Kann Club Mix)
- 007. Ева Польна - Je T'aime (Я Тебя Тоже Нет) (Fresh Tunes Radio Edit)
- 008. Aksioma Project - Без Тебя (D'marzio Remix)
- 009. Светлана Лобода - Облака (Dj Ozeroff & Dj Sky Feat. Lebedev Radio Mix)
- 010. Nikita - Авокадо (Dj Jedy Radio Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40839019EA58713361E4F3EE92782C8BC978A277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606265   (995293) от 21.01.2013
-
-Waterfalls Wallpapers (21.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3399ADFE9CDA2E5505B1B4F46367D9235F2FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606447   (995292) от 21.01.2013
-
-Йен Броган | Конфиденциальный источник [2008] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький городок — лучшее место, где может пережить личную и профессиональную катастрофу талантливая журналистка Хэлли Ахерн.
-Но неожиданно в этом тихом городке происходит громкое убийство.
-Жертва — известный игрок, оказавшийся на мели и вынужденный взять в долг очень крупную сумму.
-Полиция предполагает, что цель убийства — ограбление. Однако профессиональная интуиция подсказывает Хэлли: все не так просто.
-Вместе с Леонардом, ведущим скандального ночного ток-шоу, она начинает собственное расследование — и проникает в опасный криминальный мир игрового бизнеса…Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB236A667D696E4C94A7B7A6CAB19463A10DE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606606   (995291) от 21.01.2013
-
-Газета | Знак судьбы № 2 (9) [2000] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета о чудесах, пророчествах и знамениях.
-Подзаголовок - "Газета для тех, кто хочет стать хозяином своей жизни".
-
-В номере 16 страниц формата А3, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE123F86202C110CDE5D78F4A654362C0474FF51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606263   (995288) от 21.01.2013
-
-Animal Wallpapers (21.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EF63B5B4FC6C6E663B59145A41B01981DAE056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605956   (995278) от 21.01.2013
-
-VA - Дискотека 2013 Dance Club Vol. 100 (2013) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna feat. Daddy Yankee - More Than Friends
- 02. Нико и Марина - Что Тебе Надо
- 03. Arianna feat. Pitbull - Sexy People (All Around The World) (Original Version)
- 04. Francesca - Paradise (Radio Edit)
- 05. Руки вверх и Бьянка - И каждую минуту
- 06. Play & Win - Don't Try To Stop This (Radio Edit)
- 07. Michel Telo - Love Song
- 08. Мохито & NT Lex - Слёзы Солнца (Sasha Abzal Radio Edit)
- 09. Dj Viduta - Bulgarian (Original Mix)
- 10. Размер Project - Это Я(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B3682F5A08F53D46AD138D07D654179B5C337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606763   (995277) от 21.01.2013
-
-[Wallpapers] The magnificent collection of wallpaper №10 [1530 шт.]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995277.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] The magnificent collection of wallpaper №10Название: The magnificent collection of wallpaper №10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 7000х4500
-Количество: 1530 шт.
-Расширение (тип) файлов: jpgСкриншоты:
-  
- Время раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4178DFFD7A0316F8D336AA3B7480BA70780287B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606469   (995275) от 21.01.2013
-
-Газета | Альфа-миР № 3 (3) [1999] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета эзотерического содержания.
-Подзаголовок - "Газета о тайнах мироздания".
-
-В номере 16 страниц формата А3, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539491F618E7EF671FBD08C7E56F591521F8B792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606679   (995272) от 21.01.2013
-
-[Wallpapers] Wallpapers Fantasy №21(Pavel)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 шт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C932912500A10CAE4E0CC639577E0DA5D98CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606262   (995271) от 21.01.2013
-
-Winter Landscapes Wallpapers (21.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304ED415C1FFBE23032A6FCB5D408B74D8D94345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606040   (995270) от 21.01.2013
-
-Matt Lange - Avalon / Griffith Park (2012) [FLAC|Lossless]<Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Avalon (7:59)
-02. - Griffith Park (7:46)Жанр: Progressive HouseПродолжительность: 00:15:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606702   (995267) от 21.01.2013
-
-[Wallpapers] Wallpapers Fantasy №22(Pavel)
+Рисованная графика - Artworks by Nocturnal Moth
 
 >>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола 50 шт
+Nocturnal Moth – псевдоним 19-летней Элис М. С., художницы и фотографа из Норвегии. Особенно полюбились пользователям Интернет сюжетные фото Элис, главные действующие лица которых - апельсинки, куриные яйца и вообще все, что попадется под руку. Nocturnal Moth творит свои оригинальные и экспрессивные шедевры буквально из того, что найдет в холодильнике.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F07F79706E82483A63DE35B60C62656F889AF71
+magnet:?xt=urn:btih:A0DC3978CE36F91A222EF38245000BAC0EB53DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602964   (996146) от 18.01.2013
+
+Tank Wallpapers (13.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA67D6B706BD04E291F4721C1E0C21539EA6246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604942   (996145) от 18.01.2013
+
+Простые истины / Straight A's (2013) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек на протяжении десяти лет регулярно проходил курс лечения в реабилитационном центре. По настоянию духа его покойной матери он возвращается к родным, от которых отдалился много лет назад. В результате он встречается со своим братом и его женой, которая до сих пор в него влюблена.Жанр: Драма, КомедияРежиссер: Джеймс КоксАктеры: Анна Пэкуин, Райан Филипп, Люк Уилсон, Пауэрс Бут, Райли Стюарт, Урсула Паркер, Криста Кэмпбелл, Тесс Харпер, Симона Левин, Джонни БраннонПеревод: ОтсутствуетПродолжительность: 01:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2CE4101852E981356D3A215996C6128911C100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602962   (996144) от 18.01.2013
+
+Majestic castles of the world Wallpapers (13.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E2E6873CB2D899694F33FB6B1592D19DCF9D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604864   (996139) от 18.01.2013
+
+Андрей Прусаков | Я – утопленник [2012] [FB2][TXT][JAVA (jar+jad)]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питерский студент Андрей Бойцов всегда был склонен к неординарным поступкам. Это его и подвело. Местный бандитский авторитет Темный положил глаз на подружку Андрея Юлю. А когда Андрей попытался выяснить с ним отношения, Темный взял его «на слабо», предложив прыгнуть в Неву с Литейного моста. Андрей приходит в себя в воде, благополучно выбирается на берег и возвращается домой. Он и не подозревает, что прошло уже два дня и что теперь он… живой утопленник. У Андрея нет пульса, он не дышит, не чувствует запахов, не нуждается в пище, но остро нуждается в воде, причем способен поглощать ее даже кожей. Однако окружающие поначалу не замечают в нем никаких перемен. Да и сам Андрей далеко не сразу осознает, что он теперь обитатель двух миров, что ему скоро придется выбирать: умереть окончательно или жить, но за счет смерти других…Формат: FB2,TXT,JAVA (jar+jad).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEF1F311C7A299FCCB10EA9E892C0B54CE75FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604561   (996134) от 18.01.2013
+
+Francesco Napoli - Disco Italiano (2010) [MP3|~225 кб/с (V1)]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Americano 03:28
+02. Balla... Balla Vol. 1 05:43
+03. Balla... Balla Vol. 2 06:44
+04. Ma Quale Idea 04:28
+05. Lady Lay 03:12
+06. Torner· 03:04
+07. Hay L'amore 03:07
+08. Lady Fantasy 03:09
+09. Marina 02:44
+10. Vamos A La Playa 03:43(   Читать дальше...   )Жанр: popПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635044622E30383A77728FBB5E9FDF8374265CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605029   (996131) от 18.01.2013
+
+Офицер ранен / Officer Down (2013) BDRip [1080p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив расследует серию изнасилований и убийств молодых девушек. У него самого довольно темное прошлое: когда-то он много пил, ходил по русским притонам и проститутками, попал из-за этого в мафиозную перестрелку, после чего кардинально поменял взгляды на жизнь и теперь старается быть примерным семьянином. Но собственное расследование заводит его не туда, и он начинает понимать, что его информаторы преследуют какие-то личные цели.Жанр: Драма, КриминалРежиссер: Брайан А МиллерАктеры: Стивен Дорфф, Доминик Пёрселл, Дэвид Бореаназ, Стивен Лэнг, Джеймс Вудс, Уолтон Гоггинс, Томми Флэнаган, Элизабет Рём, АннаЛинн МакКорд, Лора ХаррисПеревод: ОтсутствуетПродолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F99803744EA91296B21763E1669CDD54313D3C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604747   (996130) от 18.01.2013
+
+Рисованная графика - Artworks by Alex Pardee (Нorror)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Alex Pardee.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB4DCCA34D88DDF8EEAD9EF69D4A2D57204A2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604680   (996129) от 18.01.2013
+
+VA-Charles Ives Symphony No 4 and No 2 (1999) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орманди обладал очень хорошей памятью и быстро запоминал все сочинения непосредственно по партитуре. Обычно при дирижировании он не пользовался ни палочкой, ни нотами. Звучание оркестра под его управлением отличалось чувственностью и точностью исполнения...
+(   Читать дальше...   )Symphony No 4 
+1. Prelude - Maestoso    [03:16]
+2. Allegretto    [11:24]
+3. Fugue - Andante moderato    [09:21]
+4. Largo maestosao    [09:01]
+
+
+Symphony No 2 
+5. Andante moderato    [05:52]
+6. Allegro    [13:27](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1363B3AE3F107AEF13E3D6D342CA32623B4046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602919   (996128) от 18.01.2013
+
+Abstract HD Wallpapers (2/2013) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный сборник обоев для рабочего стола от FedExe ®
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BCDE9895957742CAE8923597BAE21108755892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604893   (996127) от 18.01.2013
+
+Windows Repair (All In One) 1.9.6 + Portable [Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Repair - инструмент все-в-одном для ремонта системы . Предназначен для восстановления различных параметров Windows к их значениям по умолчанию. Помогает исправить большинство известных проблем, в том числе ошибки реестра и права доступа к файлам, а также проблемы с Internet Explorer, Windows Update, Windows Firewall и многое другое.
+
+Перед запуском Windows Repair будет предложено выполнить 4 простых действия предупреждающие ошибки в работе системы: проверка на вирусы, проверка жесткого диска, проверка на поврежденные файлы системы и создание точки восстановления. Затем можно выбрать один из трех режимов Basic, Advanced и Custom, каждый из которых предлагает различные варианты ремонта системы.Название программы: Windows Repair (All In One)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604724   (996126) от 18.01.2013
+
+Ива́н Кири́ллович Кири́лов | Атлас на некоторые наместничества Российской Империи. [1722 - 1731 гг.] [Jpg]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атлас составленный Ива́ном Кири́лловичем Кири́ловым в 1722 - 1731 гг. Содержит 9 карт. В данное время находится в библиотеке Иркутского государственного университета.
+1.Белоозерский уезд
+2.Достоверная всего Выборского уезду новая карта , содержащая в себе кирки, погосты, мысы, деревни и мельницы. А так же реки, озера, болота и на море острова.
+3.Кагропольский уезд
+4.Новая и достоварная княжества Корельского анне Кехгольмскаго уезду ландкарта.
+5.Новая ланткарта разгрантичения между Российской империи Сибирскими землями, Китайского владения землицами
+6.Олонецкий уезд
+7.План города Иркутска
+8.Разграничения земель Вечного мира между Российским и Шведским государствы от рождества Христова 1722 года
+9.Сибирь(   Читать дальше...   )Жанр: картаФормат: jpg
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71FAEB9169289B7E9C5CF4DA0B1CBE411673483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604714   (996123) от 18.01.2013
+
+Сергей Малицкий | Треба [2012] [FB2][TXT][JAVA (jar+jad)]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996123.jpg" />
+</div>
+
+
+###  Подробнее
+
+3-я книга из серии «Пепел богов»
+О нем многие забыли, но воин, по вине которого случилась Пагуба, затопившая Салпу болью и смертью, воин, благодаря которому Пагуба отступила, все еще жив. Он продолжает путь, который может как уничтожить мир под раскаленным небом, так и спасти его.Формат: FB2,TXT,JAVA (jar+jad).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D534D99FE4C7A12EA4F8E69C8E2355D9A4FE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602172   (996121) от 18.01.2013
+
+Discovery: Красота змей / The Beauty Of Snakes (2003/2008) BDRip [720p/H.264]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Змеи вызывают страх, ненависть и восхищение. В некоторых культурах они воплощение чистого зла, в других им поклоняются как богам. Змеи, как никто другой, соблазнительны, очарованы и смертельно опасны. Их гладкие, сильные тела, выкрашенные самыми великолепными цветами природы, скользят по планете быстро и элегантно. Мы исследуем каждый аспект их таинственной жизни. Как они рождаются, охотятся и ощущают мир вокруг них - все в потрясающих деталях. От пустынь Намибии до лесов Амазонки мы покажем вам красоту змей, как ее никогда не показывали прежде.Жанр: ДокументальныйРежиссер: Джоан Скофилд / Joanne ScotfieldПеревод: Дублированный (одноголосый)Язык субтитров: АнглийскийПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046CA3074C204DDFCDBEB0FC9B342F5C10BF4306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602963   (996120) от 18.01.2013
+
+Space Wallpapers (13.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE584AD5636282C8E4127EE7BDB6DAB09DD3ADA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1764042   (34654) от 10.12.2024
+
+Враг у ворот (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сентябрь 1941 года. Несправедливо осужденного следователя МУРа Захара освобождают из заключения, чтобы организовать борьбу с преступностью, возросшей с началом наступления немецких захватчиков на Москву. Ему поручают возглавить отдел спецрасследований и распутать клубок загадочных преступлений, совершенных пособниками фашистов. Оказавшись на свободе, он встает на (   Читать дальше...   )Производство: Россия / Институт развития интернета, Иви, Третий РимЖанр: детектив, военный, драмаРежиссер: Никита ГрамматиковАктеры: Александр Новин, Филипп Янковский, Кристина Работенко, Сергей Варчук, Заза Чантурия, Ольга Ефремова, Дмитрий Журавлев, Мария Смольникова, Сергей Гурьев, Никита АбдуловПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AFA8B6881A35281BA244BC9E7A996C0AD0F27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764919   (34580) от 11.12.2024
+
+Минцифры предложило ограничить использование иностранных мессенджеров в рабочих целях
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министерство цифрового развития предлагает установить ограничения на использование мессенджеров для служебной переписки в нескольких отраслях.Соответствующие меры предусмотрены в законопроекте о поправках к ряду законов, подготовленном ведомством, сообщил "Интерфаксу" источник, осведомленный о содержании документа.Согласно сведениям источника, планируется (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764845   (34576) от 11.12.2024
 
 Новый удар по Intel. Производители настольных ПК переходят на процессоры с архитектурой ARM
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34576.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2605 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34570.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5247 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34464.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34371.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34258.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34251.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ YouTube  научился переводить видео
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34160.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34146.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Google Play отключает российских разработчиков �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34053.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34040.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33920.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33845.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33837.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.83/dlc) Repack Decepticon [Digital C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33734.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33715.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33634.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Dan Da Dan | Дандадан [2024, TV, 12 из 12] WEBRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33626.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ Windows 11 Pro x64 Version 24H2 Build 26100.2605 by Igors_VL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33531.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33425.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33313.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.15.24357.8705766150) License GOG (обно
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33311.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33273.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Max Payne: Anthology / Max Payne: Антология (2001-2012) (1.05/1.01/1.0.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33209.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33120.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 https://www.sciencealert.com/the-magnetic-north-pole-has-officially-changed-position
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768021   (33091) от 25.12.2024
-
-Сознание против алгоритмов: как теизм примиряет науку и душу
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грань между философией и наукой постепенно стирается, особенно в вопросах изучения человеческого сознания. Такой вывод сделала журналистка Аманда Гефтер в своём недавнем исследовании экспериментальной метафизики для журнала Quanta Magazine. По её мнению, именно феномен сознания, интуиции и человеческого опыта поднимает новые вопросы о фундаментальной природе мира (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767074   (33002) от 26.12.2024
-
-Microsoft® Windows® 11 Professional VL x64 24H2 RU by OVGorskiy 12.2024
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33002.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов новой версии 24H2 операционной системы Windows 11 Pro VL x64 от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки и меню "Пуск", гаджеты для (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD292C379C1BACC4D8A1059B7BB9077A4F32F17F
 ```
 
 https://mybot314.ru/tekegram_catalog/

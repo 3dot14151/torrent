@@ -1,138 +1,3 @@
-###  Публикация: 1759788   (37671) от 10.11.2024
-
-Г.В. Анцев и др. (ред.) | Оптикоэлектронные системы самонаведения высокоточного оружия. Введение в теорию (2017) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37671.jpg" />
-</div>
-
-
-###  Подробнее
-
-На примере оптикоэлектронных систем самонаведения высокоточного оружия впервые показана возможность создания теории для радиоэлектронных информационных систем, функционирующих с координатными и некоординатными характеристиками объектов внешней среды. Основное внимание уделено особенностям и теоретическим основам построения оптикоэлектронных систем самонаведения, (   Читать дальше...   )Жанр: монографияИздательство: РадиотехникаФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B576312BC302C712FEB7AAB4008793F81469FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760909   (37074) от 16.11.2024
-
-В.М. Чхиквадзе | Советское военно-уголовное право (1948) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советское военно-уголовное право выражает волю советского народа, политику большевистской партии и советского правительства в области охраны от преступных посягательств боевой мощи Вооруженных Сил СССР, воинской дисциплины и установленного порядка несения военной службы.
-
-Советское военно-уголовное право определяет воинские преступления, как деяния, посягающие на (   Читать дальше...   )Жанр: История, политология, социология, правоведениеИздательство: ЮриздатФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70C7C21485FD808297DC26ACE395B6766F7CADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764130   (35141) от 05.12.2024
-
-В.В. Ликсо | Револьверы и пистолеты (2009) [PDF, JPG]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35141.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании для читателей, интересующихся историей военного дела и стрелковым оружием, предложено описание лучших револьверов и пистолетов от момента их создания до наших дней. В книге представлена подробная информация об истории создания и применения этого вида стрелкового оружия, описаны отличительные свойства, основные достоинства и существенные недостатки (   Читать дальше...   )Жанр: военное дело, стрелковое оружие, энциклопедииИздательство: ХарвестФормат: PDF, JPGКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA48A8AC4056A085CD346EC3983BAA0AA3579FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764314   (35071) от 06.12.2024
-
-М. Горбатенко | Диверсант. Искусство активной разведки (2024) [FB2, EPUB, RTF, MOBI]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диверсионно-разведывательная работа — неотъемлемая часть современной войны. В этой книге описаны методы работы современных диверсионно-разведывательных групп, их способы комплектования, вооружения, особенности конспирации и незаметного перемещения, действия в городе и сельской местности.
-Окутанное завесой тайны на протяжении многих лет искусство разведчика-диверсанта (   Читать дальше...   )Жанр: публицистика, история, разведка, пособиеИздательство: РодинаФормат: FB2, EPUB, RTF, MOBIКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413EBF993AE40333A2EF9D5DAE94905CA68D8E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764794   (34827) от 08.12.2024
-
-Д.Е. Юрков | Стратегические бункеры Москвы. Краткая история рассекреченных подземных сооружений (2019) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные фортификационные сооружения сталинских времен окружены легендами и мифами. Данное издание представляет первую в своем роде попытку описать историю этих интересных исторических объектов достоверно, опираясь исключительно на рассекреченные документы из отечественных архивов.
-
-Тираж книги - всего 300 экз. Представляет собой библиографическую редкость.Жанр: военная история, фортификацияИздательство: Музей современной фортификацииФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53F599021A4EC14C0240E4C36E69E37DDDFE111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764787   (34824) от 08.12.2024
 
 Д.Е. Юрков | Советские «секретные бункеры». Городская специальная фортификация 1930-1960-х годов (2021) [DJVU, PDF, DOC]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34824.jpg" />
 </div>
 
 
@@ -169,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34209.jpg" />
 </div>
 
 
@@ -195,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33388.jpg" />
 </div>
 
 
@@ -222,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33380.jpg" />
 </div>
 
 
@@ -248,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32622.jpg" />
 </div>
 
 
@@ -274,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31609.jpg" />
 </div>
 
 
@@ -300,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29783.jpg" />
 </div>
 
 
@@ -326,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26318.jpg" />
 </div>
 
 
@@ -352,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25787.jpg" />
 </div>
 
 
@@ -378,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25339.jpg" />
 </div>
 
 
@@ -404,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25301.jpg" />
 </div>
 
 
@@ -433,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25007.jpg" />
 </div>
 
 
@@ -459,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24897.jpg" />
 </div>
 
 
@@ -486,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24831.jpg" />
 </div>
 
 
@@ -513,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23456.jpg" />
 </div>
 
 
@@ -539,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23230.jpg" />
 </div>
 
 
@@ -567,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22201.jpg" />
 </div>
 
 
@@ -594,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18546.jpg" />
 </div>
 
 
@@ -620,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18137.jpg" />
 </div>
 
 
@@ -646,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17903.jpg" />
 </div>
 
 
@@ -674,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17814.jpg" />
 </div>
 
 
@@ -686,6 +551,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A1AEA8FFB517C8EAAF39CC354BD8033EF160B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798005   (17760) от 19.05.2025
+
+В.И. Соловьёв, П.Н. Квасов, С.А. Абрамов | Содержание автомобильной техники в парках воинских частей Вооружённых Сил РФ (2024) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17760.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены основные положения по устройству парка воинской части, основных его элементов, предназначенных для содержания и технического обслуживания автомобильной техники. Раскрыт порядок организации внутренней службы в парке и использования военной автомобильной техники.
+Учебное пособие предназначено для студентов военных учебных центров, обучающихся (   Читать дальше...   )Жанр: учебное пособиеИздательство: МАДИФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B411A1800CE0EB0595B219C5C864909C811CB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799903   (16096) от 31.05.2025
+
+В.В. Бурьян, С.А. Кузенков, Т.А Темирханов и др. | Горная подготовка (2022) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник «Горная подготовка» предназначен для слушателей и курсантов Военного института физической культуры. Он имеет своей целью помочь слушателям и курсантам овладеть программным материалом по горной подготовке. Может быть использован специалистами по физической подготовке и спорту, преподавателями, инструкторами горной подготовки в организации и проведении обучения (   Читать дальше...   )Жанр: УчебникИздательство: ВИФКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939A480F32258AE20FAB7DFB5A232705760D9525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800253   (15873) от 02.06.2025
+
+А.А. Гофман, К.В. Родионов, К.С. Колочихин и др. | Огневая подготовка [2 книги] (2022, 2024) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гофман А.А., Родионов К.В., Колочихин К.С., Колеватов А.В. Огневая подготовка. Современное стрелковое оружие, стоящее на вооружении силовых структур России
+ВЮИ ФСИН России. Учебное пособие
+Содержит сведения об общем устройстве, принципах действия, основных тактико-технических характеристиках новых видов стрелкового оружия, стоящего на вооружении силовых структур (   Читать дальше...   )Жанр: учебное пособиеИздательство: ВЮИ ФСИН РоссииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4917A672A83A14BEBD0100EE8DCF9F8CD82D20E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802507   (14327) от 17.06.2025
+
+В.Д. Горев, Н.А. Поздняков, Н.Е. Голёнко  и др. | Справочник по блоку НАТО и вооружённым силам стран - членов НАТО (2017) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит справочный материал по вооружённым силам стран – членов блока НАТО, краткие сведения о военном блоке НАТО и организациях, примыкающих к блоку НАТО.
+Справочник разработан коллективом авторов: Горевым В.Д., кандидатом военных наук (руководитель авторского коллектива), разделы 5, 6; Поздняковым Н.А., разделы 1–4; Голёнко Н.Е., разделы 10–12, (   Читать дальше...   )Жанр: военная литература, учебное пособие, справочникИздательство: Томский политехнический университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1150167BE0FA8FFD9AA07121191204981C767C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802602   (14225) от 18.06.2025
+
+Тимофей Медведев | Истребительные батальоны НКВД в период Великой Отечественной войны (2025) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14225.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге научного сотрудника Санкт-Петербургского института истории РАН, кандидата исторических наук Т.Д. Медведева рассматривается один из малоизученных аспектов истории Великой Отечественной войны: формирование, комплектование, служебно-боевая деятельность истребительных батальонов НКВД. Явившись примером эффективной советской мобилизационной модели военного времени, (   Читать дальше...   )Жанр: историческая литература, военная литератураИздательство: ЦентрполиграфФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F67158979EB6E856BBA8F3068A38CBEEBD0AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1631723   (254523) от 07.05.2023
+
+Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complete Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте за викинга по имени Эйвор, которого с самого детства готовили стать бесстрашным воином. Вам предстоит повести свой клан из безжизненной ледяной Норвегии, чтобы обрести новый дом на плодородных землях Англии IX века. Вы должны основать селение и любыми средствами обуздать этот непокорный край, чтобы обеспечить себе место в Вальгалле. В те времена Англия представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: RPG, 3rd Person, Action, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37DDD1F76472E3A872619CF748A2112B55C5115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632165   (254478) от 09.05.2023
+
+Darkest Dungeon II (2023) [Ru/Multi] (1.0.49820) Scene Fairlight
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkest Dungeon 2 - сиквел готической ролевой игры, объединяющей в себе механики метроидвании и сурвайвал хоррора. Игровой процесс представляет собой динамичный экшен, в котором вы путешествуете по мрачному фэнтезийному миру и сражаетесь с многочисленными врагами. Каждый враг представляет серьезную угрозу. Все противники имеют уникальные паттерны атак и движений. (   Читать дальше...   )Тип издания: SceneРазработчик: Red Hook StudiosЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B984D8A43824CC8B4B896921155E762DE07889E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836581   (254361) от 11.11.2025
 
 Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Edition]
@@ -6,7 +58,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254361.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (Build 20761750) Repack Let's�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254199.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253980.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Diablo III/3 [Multi9] (L) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252787.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252531.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252483.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (Build 20347223) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252482.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252481.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Atelier Resleriana: The Red Alchemist & (and) the White Guardian (2025) [Multi] 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252471.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252288.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Mortal Sin (2023) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252274.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Sunless Sea (2015) [En] (2.2.11.3212/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252252.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252171.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Greedventory (2023) [Multi] (1.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252123.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064/dlc) Repack DjDI [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252004.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251879.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064) Scene FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251836.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251789.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ DELTARUNE (2025) [Ru/Multi] (1.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251701.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250517.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250339.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Citizen Sleeper 2 Starward Vector (2025) [Ru/Multi] (1.2.21/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248545.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247446.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ God of War (2022) [Ru/Multi] (1.0.13) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246956.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ God of War – новый взгляд на популярную серию, г�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDFDBA4498DA3280836B70EAA3B685E0440AFC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585320   (246737) от 26.07.2023
-
-The Valiant (2022) [Ru/Multi] (1.5c) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246737.jpg" />
-</div>
-
-
-###  Подробнее
-
-В The Valiant вы перенесетесь в XIII век и с горсткой соратников отправитесь в поход сквозь всю Европу. Ведите своих рыцарей в бой и прокачивайте их навыки в этой тактической RTS. Пройдите эпическую кампанию и сражайтесь по сети против общего врага или друг с другом.Тип издания: LicenseРазработчик: Kite GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AC56B805E6485C529650BB7FE61A4C622E77A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492086   (246580) от 04.05.2012
-
-Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в фэнтезийном мире, ваш герой – принц, правитель государства под названием Алония, задачей которого является победа над страшным злодеем Гримнотом, наславшим на его земли Тёмную Чуму, истребляющую жителей, для чего нужно собрать пять Сфер (к сожалению, сюжет в игре нельзя назвать действительно проработанным). Одним словом, перед нами очередной пример чудовищно недооценённой по неизвестным причинам ролевой игры, которая наверняка способна доставить любому поклоннику старых ролевых игр много-много радости.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

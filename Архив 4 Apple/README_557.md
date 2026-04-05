@@ -6,7 +6,7 @@ Slidepad 1.0.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219219.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ RAW Power 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219177.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ SiteSucker 3.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219170.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ GraphicConverter 10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219153.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ MacX MediaTrans 7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219150.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ TinkerTool System 7 v7.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219141.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Moom 3.2.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219115.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Tri-BACKUP Pro 8.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219093.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.135 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219078.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Colibri 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219064.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ SQLPro for Postgres - PostgreSQL database manager 1.0.100 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219047.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ djay Pro AI 3.0.2  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219045.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Pixelmator Classic 3.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219036.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Mactracker 7.12.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219029.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Big Sur Cache Cleaner 16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219016.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ MacCleanse 12 v.12.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219006.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ DjVu Reader Pro 2.6.0 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218985.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Rhinoceros 7 v.7.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218901.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe Prelude 2020 v9.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218895.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Boinx FotoMagico 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218889.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ CloudMounter 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218809.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ FontDoctor 10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218803.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ PowerPhotos 2.4.3b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218802.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Beamer 4 v.4.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218784.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Wondershare Filmora Х v10.1.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218722.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Battery Health 2 v1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218686.jpg" />
 </div>
 
 

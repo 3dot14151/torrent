@@ -1,3 +1,107 @@
+###  Публикация: 1459830   (1022962) от 03.04.2021
+
+Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невест [ТВ-2] [2021, TV, 12 ep] WEB-DL 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футаро Уэсуги является старшеклассником. В школе к нему обращается миленькая девочка с просьбой о помощи. Она не сильна в некоторых школьных дисциплинах и не отказалась бы от репетитора. Но Футаро довольно резко реагирует на обращение девушки и даже грубит ей. Неудивительно, что они поругались. Парня ждало неприятное известие о том, что постигло его семью. Банкротство (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: КаориЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3535D4ED143D9325A8F2357FC60CA70CB08FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438568   (1022851) от 03.04.2021
+
+Сага о Гортензии [ТВ-1] | Hortensia Saga [TV-1] [2021, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022851.jpg" />
+</div>
+
+
+###  Подробнее
+
+История королевства Гортензия насчитывает не менее семи сотен лет! На её плодородные земли многие годы точат зубы соседние страны, которые нет-нет, да пытаются оторвать себе кусочек… Но путь вражеским войскам всегда преграждают два герцогства — Оливье и Камелия. Они являются верным мечом и надёжным щитом древнего государства и всегда верой и правдой служат своему (   Читать дальше...   )Производство: Япония, студия Liden FilmsЖанр: Боевик, Драма, Приключения, ФэнтезиРежиссер: Нисиката ЯсутоЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639EEAD353908F22A19447251DC9F207BC82E284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439972   (1022850) от 03.04.2021
+
+Лог Горизонт [ТВ-3] | Log Horizon: Entaku Houkai [TV-3] [2021, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершенно неожиданно несколько десятков тысяч игроков оказались заперты в мире популярной ММОРПГ Elder Tale! Они были шокированы этим, ведь их окружают жуткие монстры и магия. А город авантюристов-игроков, Акиба, превратился чёрт знает во что… Среди угодивших в ловушку оказался и Сироэ — юноша, которому трудно общаться с людьми. Вместе со своими верными друзьями (   Читать дальше...   )Производство: Япония, студия Studio DeenЖанр: Боевик, Магический, Приключения, ФэнтезиРежиссер: Исихира СиндзиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70313635B692754FBAD5FCED994C6F8B571E6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461845   (1021529) от 11.04.2021
+
+Boku no Hero Academia | My Hero Academia | Моя геройская академия [ТВ-1] [2016, TV, 13 из 13] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если большинство людей владеет суперспособностями, то и воинов правосудия надо много. Школы для одаренных есть везде – а вот Идзуку Мидории, истовому фанату геройских дел, способностей не досталось, о чем он очень жалеет. Но ничего, судьба и храброе сердце однажды свели Мидорию с Всемогущим, сильнейшим героем на свете. Ветерану парень понравился – настолько, что (   Читать дальше...   )Производство: Студия Bones / ボンズЖанр: приключения, комедияРежиссер: Нагасаки КэндзиЯзык озвучки: Японский, РусскийСубтитры: Русские, ASS, Внешние, Полные + надписи |Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B758422C1E62AFCC363B4AA9217466762461E0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462457   (1021191) от 14.04.2021
 
 Рок-шоу! | Show by Rock!! Mashumairesh!! [2020, TV, 12 из 12] WEBRip 1080p rus
@@ -6,7 +110,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021191.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021171.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриот Мориарти [ч
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021057.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Domestic na Kanojo | Домашняя девушка [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020758.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Sankarea | Санка Рэа [2012, TV, 12 эп. + 1 SP +2 OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020591.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Btooom! | Взрыв! [2012, TV 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020434.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Rosario to Vampire | Розарио + Вампир [TV1 + TV2] [2008, TV, 26 э�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020399.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020252.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019932.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019443.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019440.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Ishuzoku Reviewers | Interspecies Reviewers | Межвидовые реценз�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019209.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Enen no Shouboutai | Пламенная бригада пожарных [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019193.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Obsolete (2020) | Устаревший (2020) [2020, Web, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018708.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018689.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017882.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017868.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017330.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017038.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016564.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016507.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016344.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A59085E236D1F489C5E0D398C5BD7EE6458EE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471113   (1015282) от 19.05.2021
-
-Mach Go Go Go | Speed Racer | Гонщик Спиди [1967, TV, 52 из 52] BDRip 1080p rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Го Мифунэ (более известный русскому зрителю, как Спиди) – сын талантливого авто-конструктора и непревзойденный гонщик. Юный Го мечтает стать профессионалом и выиграть мировое золото в спортивных гонках на отцовском шедевре – супер-машине Mach 5. Для этого ему придется совершить массу подвигов, как на трассе, так и вне ее, победить множество честных и вероломных соперников, (   Читать дальше...   )Производство: Tatsunoko Production / タツノコプロЖанр: приключения, спортРежиссер: Сасагава ХиросиЯзык озвучки: русский (многоголосый, закадровый), английскийСубтитры: отсутствуютПродолжительность: 52 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1962CAEC11B275F9D80DB7DAFEF4D460057111A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473783   (1013521) от 30.05.2021
-
-Eizouken ni wa Te o Dasuna! | Keep Your Hands Off Eizouken! | Руки прочь от киноклуба! [2020, TV, 12 из 12 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир аниме поразителен. Асакуса с детства мечтает создавать аниме, но, к сожалению, в одиночку ей не справиться. Хотя бы потому, что концепт-арты и задники у нее получаются гораздо лучше, чем люди. Но вот судьба случайно сводит ее с Цубамэ, которая тоже хочет стать аниматором вопреки желанию родителей, которые запрещают ей даже вступать в мульткружок. Асакуса, её (   Читать дальше...   )Производство: Япония, Science SaruЖанр: Комедия, приключения, повседневностьРежиссер: Масааки ЮасаПеревод: MVOЯзык озвучки: Русский, японскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4BC98BDB409C118278C9334081FF52C3783C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477012   (1011272) от 13.06.2021
-
-Рок-шоу! Звёзды | Show by Rock!! Stars!! [2021, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочки из «Масюмайреш» получают заманчивое предложение: перебраться в большой город и выступить на Всемирном рок-фестивале Миди-Сити! Но не всё идёт гладко: не успели они прибыть в город, как на них напало загадочное чудовище…Производство: Япония, студия EngiЖанр: комедия, музыкальныйРежиссер: Икэдзоэ ТакахироЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9A101CC029FB841CE90009B448ABBD881B8C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477123   (1011093) от 14.06.2021
-
-Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Меллоулинк [1988, OVA, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011093.jpg" />
-</div>
-
-
-###  Подробнее
-
-В галактике Астрагиус уже начинает утихать столетняя война между империями Гильгамеш и Баларант. За неподчинение приказу лейтенанта Швеппса и его взвод пилотов ВОТОМов отправляют на передовую в качестве бронебойщиков для прикрытия отступления своих войск. Вооружённые старыми противотанковыми винтовками и не имея поддержки союзных ВОТОМов, бойцы Швеппса были уничтожены. (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Канда ТакэюкиПеревод: TancistЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5859C46BA670614DCAD4035928D3A12654F315FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1048742   (545593) от 03.09.2016
+
+Этажом ниже / The Ones Below  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545593.jpg" />
+</div>
+
+
+###  Подробнее
+
+У семейной пары Кейт и Джастина, ждущей желанного и уже любимого первого ребенка, появляются этажом ниже соседи, тоже в ожидании первенца. Беременная соседка теряет ребенка в результате несчастного случая, обвиняя в этом своих новых друзей сверху. А дальше в жизни у Кейт и Джастина начинают происходить странные вещи...Производство: ВеликобританияЖанр: триллерРежиссер: Дэвид ФаррАктеры: Клеманс Поэзи, Дэвид Моррисси, Стивен Кэмпбелл Мур, Лаура Бирн, Дебора Файндлей, Наташа Алдерслэйд, Лайла Ай, Фрэнсис Эшман, Алекс Эйвери, Грэйс Калдер, Туен До, Джонатан ХарденПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076E78C9B00D1DECF7FABC8DF0807102F118F99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048677   (545590) от 03.09.2016
 
 Флоренс Фостер Дженкинс / Florence Foster Jenkins  (2016) BDRip [H.264/1080p] [EN / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545590.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544558.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544337.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543384.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542723.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542527.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540648.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538580.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537881.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537533.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536989.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536758.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534872.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534754.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534371.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534276.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534273.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533577.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533403.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532883.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531985.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529662.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529545.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529538.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529145.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7764498D73D9FF4AAA49552FF71B9D758CCF0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240338   (528605) от 11.08.2018
-
-Логово Монстра / Bad Samaritan  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое парней, работая парковщиками у элитного ресторана, успешно обчищают дома богатых посетителей, пока те наслаждаются изысканной кухней. Однажды один из подельников, вломившись в чужой особняк, кроме богатой добычи обнаруживает истерзанную пленницу, крепко связанную и скованную цепями. Пытаясь спасти девушку, он сам все глубже попадает в западню жестокого монстра.Производство: США / Electric EntertainmentЖанр: ужасы, триллерРежиссер: Дин ДевлинАктеры: Дэвид Теннант, Роберт Шиэн, Керри Кондон, Карлито Оливеро, Жаклин Байерс, Трэйси Хеггинс, Роб Нэгл, Лоррэйн Бар,  Дэвид Мейерс, Тони Дуп, Лиза БреннерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60CC9A977F5F7011B7C10069C41BB8E4A6CB848
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1631526   (235844) от 06.05.2023
+
+VA - Trap (2023) [MP3|320 Kbps] <Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apashe - Gasoline (ft. Raga) (2:38)
+02. Yellow Claw - Twitter (2:45)
+03. Vanic - Sick of It (3:43)
+04. The FifthGuys - Seizure (2:51)(   Читать дальше...   )Жанр: TrapПродолжительность: 03:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FD7F8435E095AC4923BB6AB0076D106AE4F956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458269   (235743) от 28.03.2021
+
+VA - Record Super Chart 27.03.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
+02. Tiesto - The Business (2:44)
+03. Phao KAIZ Remix - 2 Phut hon (3:03)
+04. Eneli, Monoir - 3 to 1 (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A8D1305B9DF3CA7EE627617A298A4E6484E732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530757   (235280) от 12.02.2022
 
 VA - Moon Light: Exotic Psy Trance Mystery (2022) [MP3|320 Kbps] <Psychedelic Trance, Electro>
@@ -6,7 +64,7 @@ VA - Moon Light: Exotic Psy Trance Mystery (2022) [MP3|320 Kbps] <Psychedelic Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235280.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Synthesis (2022) [MP3|320 Kbps] <Synthwave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233959.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Bass House NNM 2 (2023) [MP3|320 Kbps] <Bass House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233161.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Ibiza Summer (2023) [MP3|320 Kbps] <Electronica, Soulful, Beach House, Deep
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232644.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Best tracks of Way Out There by Jody Wisternoff. Volume 1 (2001-2008) 2022 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230553.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Hot Unkle T - Stay In A Club (2023) [MP3|320 Kbps] <Nu Disco, Funky House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230465.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Record Super Chart 565 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229895.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Big Room 3 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229847.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Big Bass: Drum Sound Musical Collection Vol.01 (2020) [MP3|320 Kbps] <Drum 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229481.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Options Remake 150 Tracks (2018 November) (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229303.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Trance Desire Volume 58 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228873.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Chillout Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228633.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Private Lounge Cafe, Vol 2 (25 Delicious Lounge Anthems) (2015) [MP3|320 к
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228509.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Keep Shelly In Athens - Collection (2010 - 2015) [OGG|441-503 кб/с]<Alternati
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228461.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Electro Life 40 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Progressive Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228372.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Erotic Taboo Tunes XXX Pleasures and Chillout (2015) [MP3|320 кб/с] <Dow
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227897.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Sensual Lounge Chillout Your Mind (2022) CD, Compilation [MP3|320 Kbps] <Do
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227591.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Various Artists - The Best Of Energy Trance (2012) [MP3|320 кб/с]<Hard Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227563.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Clubbing Electro House: E-Dance Mix (Vol.06) (2021) [MP3|320 Kbps] <Club, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227513.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Record Super Chart 615 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227509.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Club Sunday Superfunk (09.12.2012) [MP3|320 кб/с]<Club, Progressive, Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227497.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ VA - Uplifting Trance: Beach Dance Classics Mix (2021) [MP3|320 Kbps] <Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227424.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ VA - Beatport Trance: Sound Pack #373 (2021) [MP3|320 Kbps] <Trance, Electro, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227332.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ VA - Beatport Chill Electronic: Sound Pack #374 (2021) [MP3|320 Kbps] <Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227200.jpg" />
 </div>
 
 
@@ -699,76 +757,6 @@ VA - Beatport Chill Electronic: Sound Pack #374 (2021) [MP3|320 Kbps] <Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C7898640E8312C11D2E2BD9D5E2D87A42D8C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586415   (227111) от 09.12.2012
-
-VA - Milf Lounge: Selected Chillout for Sensual Emotions (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cool John - With the Trumpet (5:30)
-2. Magic Mike - Mb (3:26)
-3. Aperitif Quartet - Another Drink (5:20)
-4. Lu Zana - Umm (3:40)
-5. Light from Azure - Tranquilidad (5:43)
-6. Chill Institute - Immagini (5:02)
-7. Chill Art - Runi (5:07)
-8. Key Of Dreams - Lean On Me (3:23)
-9. Chill Love - Zip (5:19)
-10. Cut Groove - Yedeka (4:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8074074E88CAF045E4EB883B673FB1BC1147D0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587197   (226993) от 09.12.2012
-
-VA - Electro Life 20 (by ZiP) (2012) [MP3|320 kbps]<Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Stan - Lemonade (Cahill Club Mix)
-02. Alex Gaudino ft. Taboo - I Don't Wanna Dance (Bottai Remix)
-03. Alex Kunnari ft. Jon Hall - Sweet Melody (Maison & Dragen Remix)
-04. Avicii vs. Nicky Romero - Nicktim (Original Mix)
-05. Belinda Arlisle - Heaven Is A Place On Earth (Greysound Remix)
-06. Diss BoyZ - Love (Original Mix)
-07. DJ Demon Rs & DJ Velchev Pavel - Veter (Extended Finale Version)
-08. DJ JIM & Greysound - Who Is It (Original Mix)
-09. DJ Mixon & DJ Sveta ft. Dmitriiev - Irish (Original Mix)
-10. DVJ Electra - I Feel You (Fast Foot Remix)Жанр: Electro House, Electro Progressive, DubstepПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70AC96BC58E1C1E1D298A58C3C0CBCA36C9EFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

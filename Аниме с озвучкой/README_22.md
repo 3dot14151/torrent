@@ -1,3 +1,137 @@
+###  Публикация: 1128097   (728086) от 24.04.2017
+
+Tales of Zestiria: The X / Сказания Зестирии [2016, TV, 13 эп.] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гринвуд - один из немногих континентов, на котором живут люди. Но и тут не обошлось без конфликтов. Из-за вражды, Гринвуд был поделен на две части, а люди жившие на нем, стали врагами и воевали друг с другом. Ненависть, злоба, вражда породили не только войну, но и чудовищ, которых прозвали Хайома. Они стали нападать на поселения и уничтожать людей и никто, не мог (   Читать дальше...   )Производство: Жанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоЯзык озвучки: Русский (Ban)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECCD9C5864EE3785E4E87A7B33A892513F177CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667658   (727896) от 12.06.2013
+
+Argento Soma / Аргенто Сома [2000, TV, 26 эп.] DVDRip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727896.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2054 году человечество было втянуто в войну с бесчисленными пришельцами, которые внезапно атаковали Землю.
+В 2059 году, когда Земля всё еще пыталась освободиться от захватчиков, доктор Ногучи и его ассистенты Маки Агата и Такуто Кениширо ведут исследование, которое помогло бы человечеству узнать больше об инопланетных врагах. Суть эксперимента заключается в том, (   Читать дальше...   )Жанр: приключения, драма, фантастика, мехаРежиссер: Катаяма КадзуёсиЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4FC3F6D797EEEE264CF16089F57B99BC157585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525295   (727285) от 12.02.2022
+
+Tokyo Ghoul:Re | Токийский гуль: Перерождение [ТВ-3] [2018, TV, 24 из 24] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два года прошло с тех пор, как CCG (служба по борьбе с гулями) накрыла кафе «Антэйку». Хотя атмосфера в Токио существенно изменилась, из-за возросшего влияния организации CCG гули продолжают создавать проблемы. Они становятся более осторожными, в частности — террористическая организация «Древо Аогири», которая позиционирует CCG как угрозу их существованию.
+Особая (   Читать дальше...   )Производство: Studio PierrotЖанр: приключения, мистикаРежиссер: Ватанабэ ОдахироЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF453698E0F5D1119EEBD9638E720F829D760B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531110   (722229) от 15.02.2022
+
+Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [ТВ-1] [2019, TV, 26 эп.] WEBRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722229.jpg" />
+</div>
+
+
+###  Подробнее
+
+С незапамятных времён земля японская полнится слухами о демонах-людоедах, что скрываются в лесной чаще. В страхе перед ними обычные селяне предпочитают не покидать свои жилища после захода солнца. Быть может, именно эти чувства и породили легенду об охотниках на демонов, истребляющих нечисть по ночам. С тех пор, как погиб его отец, Тандзиро в одиночку добывает хлеб (   Читать дальше...   )Производство: Япония, студия UFO TableЖанр: Сёнен, экшен, сверхъестественноеРежиссер: Сотодзаки ХаруоПеревод: ASS, Русские YakuSub Studio - SeshaRim, Minamikaze, Akutagawa Yuki | Внешним файлом
+ASS, Русские SovetRomantica - DaunAutist, Satanika | Внешним файлом
+ASS, Crunchyroll - English, Spanish, Portuguese | В составе контейнера (отключаемые)Язык озвучки: Японский и РусскийСубтитры: Русские, English, Spanish, Portuguese (в контейнере отключаемые)Продолжительность: 26 эпизодов по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB133736C3E719BC342904AFAB71D7840ABB766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128105   (717874) от 30.04.2017
+
+Tales of Zestiria the Cross / Сказания Зестирии [ТВ-2] [2017, TV, 13 из 13 эп.] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели франшизы сказаний о.. пафосных названиях, подарили в этом сезоне сказания Зестирии. Конечно же, снова фэнтези, где героев хлебом не корми, а дай спасти мир. Сорэй - человек, выросший среди "серафимов", духовных сущностей, невидимых для большинства людей. Но Сорэй верит в правдивость легенды о том, что когда-то давно все люди могли видеть серафимов. (   Читать дальше...   )Производство: Жанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоЯзык озвучки: Русский (Ban)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56CFB08DB534DFB1E698B20C84DFD8924C324E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791276   (715405) от 30.05.2014
 
 Straight Jacket / Смирительная рубашка [2007, OVA, 3 из 3] DVDRip 480p rus
@@ -6,7 +140,7 @@ Straight Jacket / Смирительная рубашка [2007, OVA, 3 из 3] 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715405.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712597.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru / NouCo
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709686.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ Selector Infected Wixoss / Заражённый селектор WIXOSS [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707125.jpg" />
 </div>
 
 
@@ -112,7 +246,7 @@ Coluboccoro / Колубоккоро [2007, Movie] BDRip 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706225.jpg" />
 </div>
 
 
@@ -140,7 +274,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704683.jpg" />
 </div>
 
 
@@ -168,7 +302,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703852.jpg" />
 </div>
 
 
@@ -194,7 +328,7 @@ Yuuki Yuuna wa Yuusha de Aru / Yuuki Yuna is a Hero / Герой Юки Юна (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702845.jpg" />
 </div>
 
 
@@ -223,7 +357,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700885.jpg" />
 </div>
 
 
@@ -249,7 +383,7 @@ Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698579.jpg" />
 </div>
 
 
@@ -275,7 +409,7 @@ Sangatsu no Lion (2017) / Мартовский лев [ТВ-2] [2017, TV, 22 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698283.jpg" />
 </div>
 
 
@@ -301,7 +435,7 @@ Hakata Tonkotsu Ramens / Тонкоцу-рамен из Хакаты [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698140.jpg" />
 </div>
 
 
@@ -327,7 +461,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku / Death March to the Parallel Worl
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698139.jpg" />
 </div>
 
 
@@ -353,7 +487,7 @@ Citrus / Цитрус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698138.jpg" />
 </div>
 
 
@@ -380,7 +514,7 @@ Garo: Vanishing Line / Гаро: Линия Схода [2017, TV, 24 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698136.jpg" />
 </div>
 
 
@@ -406,7 +540,7 @@ Walkure Romanze / Романс Валькирий [2013, TV, 12 ep] BDRip Hi10p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697467.jpg" />
 </div>
 
 
@@ -434,7 +568,7 @@ Gakuen Babysitters / Школьные няньки [2018, TV, 12 ep] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696643.jpg" />
 </div>
 
 
@@ -460,7 +594,7 @@ Ryuuou no Oshigoto! / The Ryuo's Work is Never Done! / Работёнка для
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696621.jpg" />
 </div>
 
 
@@ -486,7 +620,7 @@ Dagashi Kashi 2 / Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696366.jpg" />
 </div>
 
 
@@ -512,7 +646,7 @@ Hataraku Onii-san! / Коты-Работяги! [2018, TV, 13 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696364.jpg" />
 </div>
 
 
@@ -538,7 +672,7 @@ Karakai Jouzu no Takagi-san / Насмешница Такаги-сан [2018, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696360.jpg" />
 </div>
 
 
@@ -549,137 +683,6 @@ Karakai Jouzu no Takagi-san / Насмешница Такаги-сан [2018, TV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E7C6CF60AF3C38D771D140BD83E0C28D521D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201250   (696358) от 23.04.2018
-
-Killing Bites / Смертельный укус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соблазнившись на предложение друзей подцепить девчонку, Юя Номото согласился одолжить им свою машину и побыть для них в качестве водителя. Он думал, они сейчас поедут знакомиться с девушками, но итог оказался куда неожиданнее. Его друзья похитили школьницу и намерились её изнасиловать, а потом выбросить в безлюдном месте. Несмотря на то, что Юя был против такого, (   Читать дальше...   )Жанр: ужасы, фантастика, экшен, эттиРежиссер: Нисиката ЯсутоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D5FF527B33D340CA7EA909475B7AC38B70F354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201252   (696354) от 23.04.2018
-
-Kokkoku / Миг за мигом [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Юкава владеет потрясающей способностью, у них есть артефакт, умеющий останавливать время! Этот артефакт передаётся из поколения в поколение, а сама способность является строгой тайной, настолько, что даже не все члены семьи в курсе, как уникальны их родственники. Конечно, Джури Юкава могла ещё очень нескоро узнать о таинственном камне, дарующем такую способность, (   Читать дальше...   )Жанр: приключенияРежиссер: Охаси ЁсимицуЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD4631D2806724AADD35D984D4EE2D33F9F0848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201251   (696352) от 23.04.2018
-
-Koi wa Ameagari no You ni / After the Rain / Любовь - словно прошедший дождь [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученица старшей школы Акира Тачибана — тихая любезная девушка, которая раньше состояла в клубе лёгкой атлетики, но из-за перенесённой травмы потеряла былую форму. Она нашла прибежище в семейном ресторанчике, устроившись туда на подработку. Неожиданно для себя она понимает, что вопреки собственной воле влюбилась в своего начальника Масами Кондо — разведённого мужчину (   Читать дальше...   )Жанр: романтикаРежиссер: Ватанабэ АюмуЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B3366EA94B84D4EB607BC949F3331FE98A9CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201008   (696346) от 23.04.2018
-
-Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзюндзи [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошие истории ужасов должны пугать или отталкивать, атакуя свою аудиторию невообразимым арсеналом резких пугающих моментов, ещё пульсирующих внутренних органов и непобедимых врагов. Талантливый мангака Джунджи Ито выводит всё это на новый уровень.
-Широко публикуемый известный в Японии, но, к сожалению, менее известный во всём остальном мире, Джунджи Ито спокойно (   Читать дальше...   )Жанр: ужасыРежиссер: Тагасира СинобуЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93DABBF3F595EDA43BF9B6C0707D8AE28FCCD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173701   (696344) от 23.04.2018
-
-Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея [2017, TV, 24 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько стоит жизнь человека? Имеет ли она вообще цену? А если имеет, то какую цену можно считать приемлемой? Но, даже получив ответы на эти вопросы, вряд ли кому-то захочется, чтобы его продали. Но если твоя жизнь тебе не принадлежит, то и спрашивать никто не станет. Так случилось и с пятнадцатилетней девочкой Чисэ Хатори. У неё не было ничего своего, лишь только (   Читать дальше...   )Жанр: приключения, фэнтези, повседневность, сёнэнРежиссер: Наганума НорихироЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FCA62B8C0BCFBCB80CFB0245427267FA0C24905
 ```
 
 https://mybot314.ru/tekegram_catalog/

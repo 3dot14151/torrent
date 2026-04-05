@@ -1,3 +1,107 @@
+###  Публикация: 892106   (721328) от 25.04.2015
+
+ClockSync 1.2.5 [Ru] - Синхронизация времени телефона с атомными часами через NTP
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ручная или автоматическая синхронизация системного времени устройства через NTP.  ClockSync синхронизирует системное время устройства через Интернет по протоколу NTP с серверами точного времени. Программа будет полезна если ваш сотовый оператор не поддерживает NITZ (автоматическую синхронизацию времени) или посылает неверное время, а также если часы сильно убегают вперед или отстают. Доступно 2 режима работы: автоматический, для тех у кого есть root; и ручной, для пользователей без прав root.Тип издания: FreeРелиз состоялся: 25.10.2014Разработчик: Sergey BaranovПоддерживаемая ОС: Android 1.5+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25731C8E591618C26B2838258B669F3221107BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804658   (720144) от 16.02.2022
+
+iMuscle 2 v1.9 [En] (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Android приложение - помощник для фитнес тренировок. Станет незаменимым для тех, кто решил начать следить за собой и заняться спортом. С помощью графической 3D модели тела человека можно выделить все мышцы, а также получить подробную информацию о них, узнать какие нужны упражнения для развития каждой группы мышц.  Приложение очень удобно в использовании: анимация (   Читать дальше...   )Тип издания: Купленная версия с Маркета (Paid)Релиз состоялся: 04.07.2019Разработчик: 3D4Medical.com, LLCПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180840A38843A3FFEEA474857580984ABDED4AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459877   (716445) от 06.08.2020
+
+AdAway 4.3.6 и 5.0.6 Beta [Ru] - Блокировщик рекламы
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блокировщик рекламы с поддержкой белых и чёрных списков. HTC с S-ON напрямую не поддерживаются, поскольку нужна возможность записи в системный раздел. Поддерживает работу на планшетах.Релиз состоялся: 06.08.20Разработчик: Dominik SchrmannПоддерживаемая ОС: Android 4.1 + Android 8.0 для 5.0.4Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54AB0B15657CAAE05993578920B510C05FEB899C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130371   (716050) от 01.05.2017
+
+AutoBoy v3.5.1 AdFree [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеорегистратор AutoBoy BlackBox просто необходим в наши дни. Теперь AutoBoy будет вашим личным опекуном и помощником. Autoboy будет постоянно защищать вас от дорожно-транспортных происшествий.Тип издания: Пиратка (удалена реклама)Релиз состоялся: 26.04.2017Разработчик: HappyConzПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14E504E03168C7E1F4DE896E059BF93F0ACC234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019635   (715874) от 01.05.2017
 
 MScopesPro for USB Camera v1.28 [En/Rus] - запись видео с внешней веб камеры
@@ -6,7 +110,7 @@ MScopesPro for USB Camera v1.28 [En/Rus] - запись видео с внешн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715874.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714536.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714408.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Infinite Design v3.4.21 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714310.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Gboard – Google Клавиатура 6.2.34.154174348 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712176.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711768.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711608.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711569.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ MyTV v2.0.0-beta+1244 [Ru] - приложение для просмотра ТВ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711053.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Paper Camera v4.4.231 [Ru/Multi] - фотографии в виде рисунк
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711049.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707675.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Audiomack v5.7.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707516.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Persona: Бьюти-камера v1.3.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706699.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Remotix VNC RDP Remote Desktop v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706318.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ SURE Universal Remote v4.11.90 [Ru/Multi] - Универсальный пуль�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706313.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ USB Camera Standard 2.1.2 [En] - запись видео с внешней ве�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702880.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Vocaberry  v2.7.3 [Ru] - научиться петь 0+ (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701582.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ Vocal Range Vocaberry v0.8.0 [Ru] - Диапазон Голоса (обновл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701581.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Vocaberry Karaoke v0.22.1 [Ru] - Научиться петь популярны�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701412.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701168.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ Lumii v1.483.106 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700886.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ PowerTube v3.7.3 Ad-Free [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700797.jpg" />
 </div>
 
 
@@ -575,110 +679,6 @@ PowerTube - является мобильным клиентом консоль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CCAAE86047B2B1300B8E5E2289973572D89C556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402582   (699248) от 15.08.2020
-
-BitVPN - Fast VPN Proxy Master v1.3.2 [En] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699248.jpg" />
-</div>
-
-
-###  Подробнее
-
-BitVPN является одним из лучших неограниченных прокси-серверов VPN для частного и безопасного доступа в Интернет без каких-либо ограничений. Много серверов различных стран, в том числе и России!Тип издания: Пиратка (открыт Premium)Релиз состоялся: 07.08.2020Разработчик: TOP Blockchain Crypto Wallet Exchange App LtdПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF3980C6A590366D0B729894D02A75E53BBBC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064395   (698398) от 22.04.2018
-
-Региональные монеты v2.0 Full [Ru] - региональные монеты царского периода России (Царская Финляндия, Польша и др.)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение-справочник послужит хорошим инструментом как для нумизматов, так и для людей увлекающихся кладоискательством. Каталог содержит региональные монеты царского периода России (Царская Финляндия, Польша и др.).Тип издания: Пиратка (Full)Релиз состоялся: 26.01.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D5D4175FCD5A9BF1AB69870BBD592B4BDAACDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064379   (698273) от 22.04.2018
-
-Драгоценные монеты России v2.1 Full [Ru] - Более 1200 памятных и инвестиционных монет России и СССР из драгоценных металлов
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для нумизматов и просто интересующихся. Может использоваться как инструмент для работы с коллекцией, либо как справочник. Содержит полный перечень памятных и инвестиционных монет России и СССР из драгоценных металлов. Более 1200 монет! Реализована возможность экспорта различных списков в excel. Есть возможность отключать из учета серии и номиналы. Пользователи (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 02.02.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DC4DAFE9354386251D036DDEDF397D4C670537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893167   (698268) от 10.05.2017
-
-InternetRadio 2.0.1 [Ru] (Авторская раздача)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень простое приложение для прослушивания интернет радио. Это первый мой шаг в сторону андроид, если пользователям понравится идея, то буду и дальше развивать этот проект. Программа пока тестируется. Все пожелания и предложения буду стараться учитывать. Программа проверена  на Android 2.3+.Тип издания: FreeРелиз состоялся: 28.04.2015Разработчик: alekseih09Поддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA7C5E7176A97911B98047FA7456B1DE6E76523
 ```
 
 https://mybot314.ru/tekegram_catalog/

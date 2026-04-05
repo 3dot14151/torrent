@@ -1,29 +1,3 @@
-###  Публикация: 965001   (228239) от 13.12.2015
-
-Нестихийное бедствие Китая: Слезы провинции Сычуань / China's Unnatural Disaster the Tears of Sichuan Province (2009) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о последствиях чудовищного землетрясения в Китае 12 мая 2008 года, в котором погибли 70 тысяч человек, из них 10 тысяч — дети. В провинции Сычуань родители оплакивают своих погибших детей. Учитывая действующую в Китае политику одного ребенка, многие потеряли единственных сына или дочь. Как уверяют авторы, причина такого числа жертв — коррупция (   Читать дальше...   )Телекомпания: США, HBO Documentary FilmsЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (AMedia)Продолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D45422C97DC250D568762D5653344CE149D6FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965100   (228185) от 13.12.2015
 
 Чудо техники (2015.12.13) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228185.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227755.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227433.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227383.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227270.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226272.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225702.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225608.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225596.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225489.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224420.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223888.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222534.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221107.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221099.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220974.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220895.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220738.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220023.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219437.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219021.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218945.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218943.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218924.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218726.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72FC695E54BCA04B2FFB237E06CF90CC6361FE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966711   (218553) от 18.12.2015
+
+Голливудская мадам / Heidi Fleiss: The Would-Be Madam of Crystal (2008) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о новом увлечении бывшей дивы Голивуда Хайди Флайсс — расположенном в Неваде мужском публичном доме под названием «Конюшня Хайди», который обслуживает прекрасную половину человечества.Телекомпания: США,  HBO Films, World of WonderЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (AMedia)Продолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B6DAE864417BB70AFA84A86D13CC33E12B43E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

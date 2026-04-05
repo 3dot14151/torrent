@@ -1,3 +1,107 @@
+###  Публикация: 1096859   (917520) от 25.01.2017
+
+Журнал | Наша Психология №1 (101) (январь-февраль 2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предлагает своим читателям материалы, которые опираются исключительно на практическую психологию. Здесь вы найдёте советы на все случаи жизни. Ведущие эксперты в области психологии и психотерапии рассказывают о том, как добиться успеха, правильно построить взаимоотношения с друзьями, коллегами, родственниками и с самим собой. Что такое практическая психология, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA136EB8424223390D649307E97E753A06A01265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096903   (917474) от 25.01.2017
+
+Журнал | ADD. Архитекторы, дизайнеры, декораторы. Приложение к журналу Жилая среда. Выпуск №5 (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами пятый выпуск ежегодного каталога «ADD. Архитекторы, дизайнеры, декораторы». Главными героями этого выпуска стали архитекторы, дизайнеры и декораторы, одаренные как минимум еще одним чувством — чувством прекрасного. Убедиться в этом можно в новом разделе каталога «TOP-50», который включил лучшие работы участников Международной профессиональной премии ADD (   Читать дальше...   )Жанр: Дизайн интерьеровФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36845D7D80AAFF689DD0FA5049089E1743BB27DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367039   (917427) от 15.03.2020
+
+Журнал | Isabellas №2 (март-апрель 2020) [PDF] [Dk]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изабелла была большой частью моей жизни в течение последних многих лет, где я работала сначала в качестве редактора жилья, а затем в качестве главного редактора для всей этой прекрасной вселенной. И я хочу извлечь из этого пользу возможность сказать спасибо всем вам удивительным читателям, которые пришли с похвалой и советами. Это было великолепно и абсолютно необходимо. (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8A42E4E0D8E53569233EA3B6EEF9774C64E58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096802   (917347) от 25.01.2017
+
+Журнал | Арсенал-Коллекция №1 (43) (январь 2016) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арсенал-Коллекция - ежемесячный военно-исторический журнал. Объем - 64 страницы (тираж - 600 экз.), разбитые примерно поровну на три блока - сухопутный, авиационный и морской.Жанр: военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCFB9DA1F75CA2F44D96CD5167F7190BEA78495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367036   (917324) от 15.03.2020
 
 Журнал | Gardens Illustrated - A Year of Plants №1 (2019) [PDF] [En]
@@ -6,7 +110,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917324.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917309.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917298.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917296.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917292.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917247.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917238.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917160.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916971.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_916932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_916932.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916846.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916792.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916760.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916615.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916434.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915925.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915918.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915897.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915866.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915777.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915581.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915560.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:453854FBC214902D4E407A284AE0F360712BED7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989437   (915559) от 23.02.2016
-
-Журнал | Дом в саду. Спецвыпуск №6 Овощная экзотика (2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Садоводство, огородничествоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A434CBAEE3B656E5733998DEADEF39D5035C8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097138   (915557) от 26.01.2017
-
-Журнал | Burda №2 (февраль 2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. На страницах журнала Burda — самые последние тенденции мировой моды, новости с европейских подиумов, советы по стилю и модные торговые марки. Это европейская мода высокого класса.Жанр: Мода, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640022EC3FCBC6DFC0F41DC352F2C385A8BE1F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989434   (915532) от 23.02.2016
-
-Журнал | Дом в саду. Спецвыпуск №5 Пряные корнеплоды (2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Садоводство, огородничествоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7B2F73596C845186BEB9EA62E865DD8A81D0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989643   (915515) от 23.02.2016
-
-Журнал | Приготовь. Спецвыпуск №3. На масленицу (март 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масленицу в этом году мы отмечаем 7-13 марта Перед тем, как войти в Великий пост, принято прощаться с зимой, радоваться первым погожим денькам, выпекая традиционные блины, ходить друг к другу в гости и готовиться к очищению души и тела Поэтому в мартовском номере журнала мы собрали для вас рецепты масленичных блюд.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8296C36EA4B93F43341948AAC30F58B6AD65260
 ```
 
 https://mybot314.ru/tekegram_catalog/

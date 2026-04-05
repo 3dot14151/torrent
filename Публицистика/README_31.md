@@ -1,3 +1,31 @@
+###  Публикация: 1131673   (707108) от 06.05.2017
+
+Р. М. Бравая | Охрана материнства и младенчества на Западе и в СССР (1929) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707108.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Всякому особенному историческому способу производства свойственны в действительности свои особенные, имеющие историческое законы народонаселения»,—так формулировал Маркс свой закон народонаселения.
+
+Марксов закон народонаселения дает ключ к пониманию отношения общества к женщине и к ребенку в разные исторические эпохи. Их участь, как и вся область семейных отношений (   Читать дальше...   )Жанр: История, политология, экономика, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77525EA0128DB5E0F1F2C6A8397506F93EC6C2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287151   (707093) от 05.03.2019
 
 Ю. Е. Ивонин, Н. А. Гусакова (ред.) | И живы памятью столетий. Очерки о вождях народных движений в средневековой Европе (1987) [PDF]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707093.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705866.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705607.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705223.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704956.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704711.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704502.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704310.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703549.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703542.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703468.jpg" />
 </div>
 
 
@@ -302,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702448.jpg" />
 </div>
 
 
@@ -330,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701892.jpg" />
 </div>
 
 
@@ -356,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701886.jpg" />
 </div>
 
 
@@ -384,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701769.jpg" />
 </div>
 
 
@@ -410,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701488.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701483.jpg" />
 </div>
 
 
@@ -465,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701352.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700723.jpg" />
 </div>
 
 
@@ -517,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700302.jpg" />
 </div>
 
 
@@ -543,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699769.jpg" />
 </div>
 
 
@@ -571,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699324.jpg" />
 </div>
 
 
@@ -598,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699253.jpg" />
 </div>
 
 
@@ -626,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698712.jpg" />
 </div>
 
 
@@ -654,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698705.jpg" />
 </div>
 
 
@@ -668,32 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F27B4C8D77C590A800E0CA6C59C5D744F911E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220647   (698700) от 22.04.2018
-
-Семен Багдасаров | Ближний Восток. Перезагрузка (2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ближний Восток трещит по швам. Карта региона, сложившаяся после Первой мировой войны, стремительно теряет актуальность. На наших глазах возникают новые квазигосударства, имеющие все шансы со временем превратиться в государства настоящие, всё новые области требуют от центральных правительств своих стран предоставить им автономию, а на юго-востоке Турции курды начали (   Читать дальше...   )Жанр: Публицистика, Современное политическое положениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55EE37E7B6040CE410D2C3F88AB5EC4E8840DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

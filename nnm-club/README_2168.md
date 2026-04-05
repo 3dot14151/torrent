@@ -1,23 +1,23 @@
-###  Публикация: 1484343   (1006289) от 18.07.2021
+###  Публикация: 1483571   (1006791) от 14.07.2021
 
-Айелет Гундар-Гошен | Лгунья (2021) [MP3, Анна Геллер]
+reaConverter Pro 7.657 (Repack & Portable) by elchupacabra [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За все семнадцать лет жизни с Нофар ни разу не случилось ничего интересного. На летние каникулы она устроилась в кафе-мороженое, надеясь завести друзей или познакомиться с симпатичным парнем.
-В один из последних августовских дней в кафе зашел некогда известный, но давно забытый эстрадный певец Авишай Милнер. Он был в дурном настроении и решил отыграться на молоденькой (   Читать дальше...   )Жанр: Современная зарубежная литератураПродолжительность: 09:28:41
+reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
+Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9AA6B108F30C688158E240256C741207E3E88DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +25,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484108   (1006288) от 18.07.2021
+###  Публикация: 1483090   (1006790) от 14.07.2021
 
-The Dead Daisies - Holy Ground (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Sananda Maitreya - Pandora's PlayHouse (2021) [FLAC|Lossless|WEB-DLL|tracks] <Funk, Soul, R&B, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006790.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pandora's Plight
+02. Time Is On My Side
+03. Don't Break My Balls(   Читать дальше...   )Жанр: Funk, Soul, R&B, RockПродолжительность: 00:56:43+00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08264CF9AFAD7613B1F695B4A3FF91717FB20E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483582   (1006789) от 14.07.2021
+
+RogueKiller Anti-Malware 15.0.8 + Portable [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006789.jpg" />
+</div>
+
+
+###  Подробнее
+
+RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1379A92AC7C44F3D149246855A2C7311CAEE809A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483618   (1006788) от 14.07.2021
+
+Истоки анимации. Мэри и Гретель / Mary and Gretel (1916) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006788.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вот еще один из зачинателей жанра, жанра кукольной анимации. Для своего времени фильм был весьма новаторским. По художественным и техническим приемам и т.д. Наверное в те годы несложно было быть новатором, все внове, чуть-чуть фантазии и ты уже новатор. :)
+Сюжет таков - Мэри и Гретель это куклы бездушные, их оживляет фея и сулит долгую и интересную жизнь, ну и (   Читать дальше...   )Производство: США, Peter Pan Film Corp.Жанр: Кукольная анимация, фэнтезиПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7F727F45675358BFD0C33F6BF4DF77B607F22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483443   (1006787) от 14.07.2021
+
+Got no ego - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Holy Ground (Shake The Memory)
-02. Like No Other (Bassline)
-03. Come Alive
-04. Bustle and Flow(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:40
+01 - Anti-De Sitter Space (00:04:15)
+02 - Banana (00:04:13)
+03 - Fortune Cookie (00:04:18)
+04 - Consequences (00:04:12)(   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:41:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A5F51478FFC5A3B511F79AF45975536519E4A33
+magnet:?xt=urn:btih:17B5FD0A6A170ED626B6F1618ED9330BD0CE1446
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484307   (1006287) от 18.07.2021
+###  Публикация: 1483561   (1006786) от 14.07.2021
 
-Наталия Антонова | Частный детектив Мирослава Волгина (Книга 13). Фурия XXI века (2021) [MP3, Синяя Краска]
+Mythologyca - Corner Of Hell's Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тоня Духанина, единственная дочка владельца сети продуктовых магазинов, выходит замуж по любви. Но, увы, счастье оказалось недолгим – ее жених Анатолий Мерцалов убит во время медового месяца, его выбросили на ходу из собственной машины. Сначала подозрение полиции и следователя Александра Наполеонова падает на конкурентов отца жениха, которых тот безжалостно разорил. (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:28:52
+01. Mythologyca
+02. Evil Polish Woman
+03. Intergalactic Love
+04. Dracula(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A96EAE2E579DFF3B340100F06E686D316322D81
+magnet:?xt=urn:btih:FFBE48BAA7FEBBD205E77AE1D2007028A7E83576
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484239   (1006286) от 18.07.2021
+###  Публикация: 1483645   (1006785) от 14.07.2021
 
-Inhmost - The Meaning Of...... (2021) re:st [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunrise Meditation (04:47)
- 02. Healing Hand (05:32)
- 03. Outer Thoughts Dub (06:59)
- 04. Outside Space (04:56)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:00:46
+01. Ulearum (04:47)
+ 02. Callopsis (05:57)
+ 03. Protarum (06:31)
+ 04. Gorgonidium (06:14)Жанр: Ambient, TechnoПродолжительность: 00:23:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D4246E3B77BB0DFF033F620981A3A9C7D3DC056
+magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,28 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484068   (1006285) от 18.07.2021
+###  Публикация: 1483649   (1006784) от 14.07.2021
 
-Blutengel - Erlosung - The Victory of Light (2021) 2CD, Deluxe Edition [MP3|320 Kbps] <Darkwave, Gothic Rock, Industrial>
+Sincere Trade - Between You And Me (2007) Sublight Records [FLAC|Lossless|tracks+.cue] <IDM, Glitch, Experimental>
 
->>Electronic
->>Industrial, EBM, Dark Electro
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Herrschaft [00:05:04]
-02. Freak Out [00:04:38]
-03. She's Not a Saint [00:04:17]
-04. Purple Sky [00:04:19](   Читать дальше...   )Жанр: Darkwave, Gothic Rock, IndustrialПродолжительность: 2 CD, 01:48:11
+01. Turn (03:07)
+ 02. Forsas (06:12)
+ 03. Creeping Serif (04:52)
+ 04. Extract Exume (04:24)(   Читать дальше...   )Жанр: IDM, Glitch, ExperimentalПродолжительность: 00:45:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEA94DF39FBFAE959FC948E486B13AFAF7F357EB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484170   (1006284) от 18.07.2021
+###  Публикация: 1483461   (1006783) от 14.07.2021
 
-Jon Hassell - Seeing Through Sound (Pentimento Volume Two) (2020) Ndeya [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Contemporary Jazz, Tribal>
+VA - Best New Hype Techno (2021) [MP3|320 Kbps] <Techno, Minimal>
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fearless (08:02)
- 02. Moons of Titan (04:19)
- 03. Unknown Wish (02:57)
- 04. Delicado (04:02)(   Читать дальше...   )Жанр: Ambient, Experimental, Contemporary Jazz, TribalПродолжительность: 00:38:16
+001. Briarcliff - One Direction
+002. Obstructor - Recession
+003. Chris Lehmann - Drive
+004. Dhalgren - Bad Trip(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 11:54:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92EF7CBC1116D599ECAAD48314E1519770B65B75
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,26 +252,457 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484297   (1006283) от 18.07.2021
+###  Публикация: 1483343   (1006782) от 14.07.2021
 
-Sumatra PDF 3.4.13724 Pre-release + Portable [Multi/Ru]
+VA - Guido's Lounge Cafe, Vol. 4 (2020) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillson, Marc Hartman - Smiling Faces (Original Mix) (4:09)
+02. Mo'jardo, Tim Gelo - Midnight in Paris (4:43)
+03. Florzinho, Euphonic Traveller - Like the First Moment (Original Mix) (5:33)
+04. Martin Liege - Balearic Jazz (Original Mix) (3:43)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483640   (1006781) от 14.07.2021
+
+Potlatch - On The Cloud (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Cloud (02:25)
+ 02. The Old Mirrorball (02:32)
+ 03. Glass Shoes (02:21)
+ 04. Water Trip (02:18)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:19:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483344   (1006780) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 5 (2020) [AAC|~330 Kbps] <Chillout, Lounge, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - Late Night Neon (Original Mix) (3:39)
+02. CaPa - Time Is All We've Got (4:32)
+03. Tigerforest - Azure (4:02)
+04. Kevin Paczesny, Jani R. - Winter Lights (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483476   (1006779) от 14.07.2021
+
+Истоки анимации. Басня о полной женщине. Басня о неудавшемся романе / The Phable of the Phat Woman. The Phable of a Busted Romance (1916) DVDRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две коротенькие мультипликационные басни. Ничего особенного, просто две незатейливые шутки, типичный пример анимации тех лет.Производство: США, International Film ServiceЖанр: Рисованная анимация, короткометражныйРежиссер: Том Э. Пауэрс, Рауль БаррПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:02:20 - часть (2 части)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483456   (1006778) от 14.07.2021
+
+VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006778.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peetu S - Afterlife
+002. Human Force - Sun Rising High
+003. Green Court - Silent Heart
+004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483341   (1006777) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 3 (2019) [AAC|~338 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincent Boot - Code (Original Mix) (6:00)
+02. Weathertunes - Take It Easy (Original Mix) (4:08)
+03. Marga Sol - Night Sky (Original Mix) (4:17)
+04. Michael e - With Each Passing Moment (Guitar Mix) (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C529261DA3619FBBCD05FA6521E656B102E90579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483349   (1006776) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 7 (2020) [AAC|~327 Kbps] <Chillout, Lounge, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)
+02. Roberto Bronco, The One Lavic - Day After Day (Original Mix) (3:42)
+03. Chillson, Marc Hartman - With You (4:36)
+04. Roberto Bronco - Come Together (Original Mix) (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:45:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483347   (1006775) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 6 (2020) [AAC|~326 Kbps] <Chillout, Lounge, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage Of Deep - Forbidden Perfume (5:28)
+02. Dellasollounge - Show Me the Stars (Original Mix) (4:47)
+03. Chillson, Marc Hartman - Crash & Burn (4:08)
+04. Peter Pearson - Lead Me On (Original Mix) (4:27)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:49:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483648   (1006774) от 14.07.2021
+
+Blochemy - Aithem (2021) whitelabrecs [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Field Recording>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guis (04:54)
+ 02. Feal (04:31)
+ 03. Ange (04:52)
+ 04. Lues (04:18)(   Читать дальше...   )Жанр: Ambient, Field RecordingПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483334   (1006773) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 2 (2019) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - I Did You Wrong (Original Mix) (3:26)
+02. Dreamhunter - Boarding Gate (Original MIx) (4:27)
+03. Marc Hartman - Leave the World Behind (Original Mix) (5:30)
+04. Pier-O - Lady Fantasy (The Next Summer) (5:37)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BE3D545334FCBACC805E36F46E4A0CF477DD0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483439   (1006772) от 14.07.2021
+
+41 South - Are We There Yet? (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Rocks 07:14
+02. Night Creatures (It Is Time!) 02:31
+03. Night Creatures - Come On My Children (Let's Dance) 08:30
+04. Who Left The Gate Open? 04:32(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483485   (1006771) от 14.07.2021
+
+Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sliding Doors (00:03:10)
+02 - 1961 (00:03:42)
+03. Aftermath (00:03:46)
+04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483328   (1006770) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 1 (2019) [AAC|~348 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Ibiza Blue (Original Mix) (5:02)
+02. Solar Music Club - It's All Right (Original Mix) (5:04)
+03. Marga Sol - Butterflies (Project Blue Sun Rmx) (7:30)
+04. Sky Spirit - Beautiful Day (Original Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75041E6DD28FC5BAB2090BA839FB0068D8006652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483352   (1006769) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 8 (2021) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weber & Weber - Frozen in Time (4:32)
+02. Simply Chill - Fire (Costa del Mar edit) (5:22)
+03. Patiotic - Timeless (Original Mix) (4:06)
+04. J. R. Haim - Wanderlust (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3E7347E800A1A8E26EE1CD7A47A8C0ABCEC865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483436   (1006768) от 14.07.2021
+
+Goad - La Belle Dame (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Haunted Palace In The Poe' Land
+02. The Queen Of The Valley
+03. The Man In The Dreamland
+04. Magic Stairway pt. 1(   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFB0ADC653CAA745F7571FF8CC14638703D1154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483585   (1006767) от 14.07.2021
+
+Mozilla Thunderbird 78.12.0 [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB95874627C1507045551B140F0112EB472AF9F3
+magnet:?xt=urn:btih:43562F00524A0380602EFB855CD680160D67B5F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,513 +710,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483517   (1006282) от 18.07.2021
+###  Публикация: 1483573   (1006766) от 14.07.2021
 
-Joy - The Original Maxi-Singles Collection And B-Sides (2015) [AAC|~336 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost In Hong Kong (12“ Version) (4:48)
-02. Lucky Star (3:48)
-03. Touch By Touch (12“ Version) (5:25)
-04. Fire In The Night (12“ Version) (5:16)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8965620C1588F7244538FA8E41417C5A2B8525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484303   (1006281) от 18.07.2021
-
-Людмила Мартова | Проклятие брачного договора (2021) [MP3, Любовь Дымина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Резникова следовала по привычному маршруту – ночным поездом в Москву, где она подрабатывала переводчиком на переговорах. Ее соседом оказался мертвецки пьяный тип, разбросавший вещи по купе. Собирая их, Дина заметила старинный документ на непонятном языке, но в тот момент не придала ему значения, ведь вскоре в купе появился ее друг детства Борис Посадский, тоже (   Читать дальше...   )Жанр: Современные детективыПродолжительность: 08:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A879DBC4306CBD2C210711B8B0E2A50042B83315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482763   (1006280) от 18.07.2021
-
-Александр Пушной - АЛЬ-БОМ! Народных Песен (2012) [AAC|~336 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Во поле береза... (3:51)
-02. Барыня, барыня (5:25)
-03. Валенки, валенки (3:12)
-04. Черный ворон (3:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA8330C3927A9573B5F3A258EFE64485755BCFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482765   (1006279) от 18.07.2021
-
-Браво - Жанна Агузарова и Браво (1987) [AAC|~349 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Открытие (1:54)
-02. Жёлтые ботинки (3:27)
-03. Звёздный каталог (4:13)
-04. Розы (3:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF9535A7E04E0BBAAF40363E34B7C27E947B1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484293   (1006278) от 18.07.2021
-
-Future Synth - Exoplanet (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Space-Disco>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Horizon of the Galaxy (6:01)
-02. Touch of Light (5:52)
-03. Exoplanet (6:38)
-04. Dreaming of Space (6:26)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Space-DiscoПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484213   (1006277) от 18.07.2021
-
-Мелисса Медина, Фредрик Колтинг | «Вокруг света за 80 дней» Жюля Верна (2019) [PDF, FB2, EPUB, MOBI]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые произведения многих взрослых теперь можно читать вместе с детьми. Пересказанные в понятной и интересной форме и дополненные потрясающими иллюстрациями, эти истории помогут детям оценить и полюбить классику и сохранить эту любовь до той поры, когда они сами смогут прочитать произведения в оригинале.
-
-«Вокруг света за 80 дней» Жюля Верна – самая известная история (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Зарубежная классика, Зарубежные детские книгиПеревод: Анастасия А. МаркеловаФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484311   (1006276) от 18.07.2021
-
-Надежда Мамаева | «Магометрия» (Книга 1) Институт благородных чародеек (2021) [MP3, Нелли Новикова]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006276.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Институт благородных чародеек" – фантастический роман Надежды Мамаевой, первая книга цикла «Магометрия», жанр любовное фэнтези, приключенческое фэнтези.
-
-Питер обыденный и магический. Один мир живет, не зная о существовании другого. Обычная студентка Светлана отнюдь не желала быть посвященной в чародейские законы, но приговор коллегии волшебников обжалованию (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтези, Магические академииПродолжительность: 09:17:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484155   (1006275) от 18.07.2021
-
-Семья почемучек / The Why Why Family (1996) DVB
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дети должны знать ответы на свои "почему?" Малыш Виктор не так давно научился говорить, и первым его вопросом было: "почему?". С этого момента ежедневно Виктор обрушивает на всю свою семью: маму, папу, дедушку, бабушку, - сотню "почему?". Виктор еще слишком мал, чтобы ходить в школу, но хочет уже сейчас узнать всё самое важное и интересное (   Читать дальше...   )Производство: Франция, France 3 (FR 3), Saban InternationalЖанр: Детский, Обучающий, РазвивающийРежиссер: Бруно Бьянчи, Дора Кейс, Рич МиэнПеревод: ДублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:20:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD80688FB0B931EA21B9198CBCFF3B9160B790C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484256   (1006274) от 18.07.2021
-
-Владимир Кунин | Мика и Альфред (2017) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий талантливый художник Мика обладает удивительным даром – он может убивать людей, обидевших его, силой своей энергии. А еще у Мики есть удивительный друг Альфред. Он носит потрепанный тренировочный костюм, чешки со стоптанными задниками и летный шлемофон. И он не просто друг, он – домовой. И хотя кошки, собаки и женщины, очень точно ощущали его присутствие, (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 14:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74D8A099096BA8B00230EE15BBE3C28FA2ED64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484254   (1006273) от 18.07.2021
-
-Дюма Александр | Чёрный тюльпан (2021) [MP3, Илья Акинтьев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиостудия «Ардис» предлагает вашему вниманию исторический роман Александра Дюма «Чёрный тюльпан», посвящённый драматическим событиям 1672 года, вошедшего в голландскую историю как «год бедствий». Французская армия вторглась на территорию Объединенных провинций, разъяренные голландцы линчуют главу своего правительства и его брата. Кроме того, страну охватила настоящая (   Читать дальше...   )Жанр: Зарубежная классика, Зарубежные приключения, Исторические приключенияПродолжительность: 07:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF219C08B055F418A7B36A1E40E06EBFD617B04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484194   (1006272) от 18.07.2021
-
-СуперБобровы (2016) BDRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместо десерта на ужин семейство Бобровых получило... метеорит. Настоящий, большой, из космоса. Благодаря ему Бобровы вдруг приобретают немыслимые сверхспособности. Дед становится бессмертным, а отец теперь может телепортироваться. Сын начинает понимать собачий язык, а его сёстры получают суперсилу, возможность летать и быть невидимой. Единственное ограничение - (   Читать дальше...   )Производство: Россия / Yellow, Black & WhiteЖанр: комедия, семейный, фантастикаРежиссер: Дмитрий ДьяченкоАктеры: Павел Деревянко, Оксана Акиньшина, Роман Мадянов, Ирина Пегова, Владимир Толоконников, Даниил Вахрушев, Софья Мицкевич, Михаил Шамигулов, Елизавета Кононова, Виталий КищенкоСубтитры: отсутствуютПродолжительность: 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716661A39CCDE20A12A014DE3C01E7106A684AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484326   (1006271) от 18.07.2021
-
-Древние конструкторы. Тайны Нотр-Дам / Ancient Engineering. Secrets Of Notre Dame (2021) HDTV [H.264/1080i] (Сезон 1, серия 5 из 10)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя новейшие технологические достижения, этот сериал проливает новый свет на то, как были воздвигнуты невероятные памятники древней инженерии.
-Строительство для Бога достигло апогея в средние века, когда в Европе возникло новое инженерное движение, навсегда изменившееся правила. Он был направлен на использование новаторских методов строительства и архитектуры, (   Читать дальше...   )Производство: Великобритания, ZDF, Off the Fence production, Planete+Жанр: Документальный, познавательный, историяРежиссер: Саймон ДэвисПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70821BCD215D3E48880DAB686F1D0E19FCF12113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484251   (1006270) от 18.07.2021
-
-Telegram Desktop 2.8.11 + Portable [Multi/Ru]
+IObit Uninstaller 11.0.0.40 RC [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8534CBEAFA8712224BFF6D00B64BAA17002AE00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484308   (1006269) от 18.07.2021
-
-Андрей Ливадный | Экспансия. История Галактики. Транспорт до Везелвула (2020) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпоративная Окраина, живущая по своим законам, на протяжении сотен лет являлась пространством, подчинённым власти денег. Однако всему когда-то приходит конец. Закон «О правах разумных существ» приходит сюда вместе со сменой колониальной администрации. Однако корпорации Окраины не собираются сдавать свои позиции без боя, тем более, когда речь идёт о сверхприбылях, (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 13:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484C923A919D636C9A57AB572E8B0F28BF5CFF2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484298   (1006268) от 18.07.2021
-
-Золушка / Cendrillon (1907) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Та-ак, как бы так описание составить, чтобы не заспойлерить, не засветить вам сюжет до просмотра. Ну короче, это история про несчастную девушку, которую угнетали и обижали мачеха и сводные сестры. Экранизация одной очень старой сказки.  :umnik:Производство: Франция, Pathé FrèresЖанр: Короткометражный, немое кино, экранизацияРежиссер: Альбер КапелланиАктеры: Луиз ЛагранжПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88CAD0611B87A02339778C418015DA6B4B8C94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484259   (1006267) от 18.07.2021
-
-Формула-2. Сезон 2021. 4-й Этап. Гран-при Великобритании. Гонка 3 (18.07.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006267.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 июля 2021, воскресенье. 12:50 МСК. Этап 4, Сильверстоун, Великобритания. Гонка 3 (29 кругов)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52B54ABA2861F5CFC001567CBA3EDE17AD89903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484190   (1006266) от 18.07.2021
-
-Формула-2. Сезон 2021. 4-й Этап. Гран-при Великобритании. Гонка (17.07.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006266.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 июля 2021, суббота. 10:50 МСК. Этап 4, Сильверстоун, Великобритания. Гонка (21 круг)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484263   (1006265) от 18.07.2021
-
-Саккара: тайные иероглифы пирамид / Decoding Saqqara, The Secret hieroglyphs of the Pyramids (2020) HDTVRip [H.264/720p-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесчисленные тайны древнего Египта продолжают завораживать исследователей. Некрополь Саккара, расположенный в 30 км от Каира, содержит одно из самых удивительных сокровищ Египта: пирамиду фараона Пиопи II. О ней знают немногие, потому что она закрыта для посещения. Здесь хранится самая обширная коллекция текстов в истории пирамид. Впервые за 90 лет команда археологов (   Читать дальше...   )Производство: Франция / Label News, RMC DécouverteЖанр: Документальный, историяРежиссер: Julien BalestierПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484262   (1006264) от 18.07.2021
-
-Дженнифер Макмахон | Темный источник (2021) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеки возвращается в дом детства на похороны сестры, которая при загадочных обстоятельствах утонула в бассейне.
-У дома дурная слава. Его бассейн с темными водами построили на месте старинного источника; в нем утонуло немало людей.
-С момента приезда Джеки чувствует непреодолимую тягу к воде, иногда ей кажется, что она слышит голос сестры.
-Что это – страшные фантазии (   Читать дальше...   )Жанр: Зарубежные детективы, Мистика, Триллеры, УжасыПеревод: Владимир ГришечкинФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCEDA5FB7C44F7BCC1CAE8E9E487B791024DD29
+magnet:?xt=urn:btih:59F22CE2D05015325FB15313337BE84FE275B294
 ```
 
 https://mybot314.ru/tekegram_catalog/

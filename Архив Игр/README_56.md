@@ -1,3 +1,61 @@
+###  Публикация: 566261   (398875) от 27.10.2012
+
+King's Bounty: Warriors of the North [Ru] (RePack/1.3.1) 2012 | SEYTER
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398875.jpg" />
+</div>
+
+
+###  Подробнее
+
+King’s Bounty: Воин Cевера - продолжение культовой приключенческой саги.
+
+Действие игры пройдет в уже известном вам мире Эндории: в Дарионе, в подземельях гномов, а также на землях викингов, куда не заплывал даже знаменитый Билл Гилберт.
+(   Читать дальше...   )Тип издания: RepackРазработчик: 1C-SoftClub/Katauri InteractiveЖанр: Tactical role-playing gameЯзык озвучки: РусскийСубтитры: РусскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0FF89C0EF0BE5C538E0EE1CCF3D00F70A64182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566240   (398859) от 27.10.2012
+
+King's Bounty: Warriors of the North [Ru] (Repack) 2012 |  DangeSecond
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398859.jpg" />
+</div>
+
+
+###  Подробнее
+
+King’s Bounty: Воин Cевера - продолжение культовой приключенческой саги.
+
+Действие игры пройдет в уже известном вам мире Эндории: в Дарионе, в подземельях гномов, а также на землях викингов, куда не заплывал даже знаменитый Билл Гилберт.
+(   Читать дальше...   )Тип издания: RepackРазработчик: 1C-SoftClub/Katauri InteractiveЖанр: Tactical role-playing gameЯзык озвучки: РусскийСубтитры: РусскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E24CE29D79B92881FC92A8D6CF42A5DA34DA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566216   (398723) от 27.10.2012
 
 Madagascar 3: Europe's Most Wanted [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
@@ -6,7 +64,7 @@ Madagascar 3: Europe's Most Wanted [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398723.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ Worms Revolution [Ru/En] (Repack/0061/2 DLC) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398720.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ King's Bounty: Warriors of the North [Ru] (Repack/1.3.1+DLC) 2012 | R.G Repacker
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398673.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ DragonFlight [En] (RePack) 1991 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398051.jpg" />
 </div>
 
 
@@ -117,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397998.jpg" />
 </div>
 
 
@@ -155,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397856.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ DeadLight [En] (RePack) 2012 | big_buka
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397680.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ XCOM. Enemy Unknown [Ru/En] (RePack/1.0.0.11052) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397595.jpg" />
 </div>
 
 
@@ -243,7 +301,7 @@ Borderlands 2 [En/Ru] (Repack/1.1.3.0.u.6/2 DLC) 2012 | R.G. ILITA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397594.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ Medal of Honor Warfighter - Limited Edition [Ru/En] (RePack/1.0.0.2) 2012 l R.G.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397479.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.0) 2012 l =Чувак
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395718.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.0) 2012 l SeregA-Lus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395668.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (Lossy RePack) 2012 l DangeSeco
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395608.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.0) 2012 l Samodel
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395596.jpg" />
 </div>
 
 
@@ -405,7 +463,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack) 2012 l R.G. REVOLUTION
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395565.jpg" />
 </div>
 
 
@@ -432,7 +490,7 @@ The Testament of Sherlock Holmes [Ru/En] (RePack/1.0.2) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395556.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ King's Bounty: Warriors of the North [Ru/Multi3] (Steam-Rip) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395555.jpg" />
 </div>
 
 
@@ -501,7 +559,7 @@ Star conflict [Ru] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395549.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Medal of Honor Warfighter: Limited Edition [Ru] (Repack/1.0.0.2) 2012 | SHARINGA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395506.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Prime World [Ru] (L/9.4.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395501.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Magicka. Ну очень эпическая игра [Ru/En] (Repack/1.4.10.0/DL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394569.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ XCOM: Enemy Unknown [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394568.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack) 2012 l Truerip
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_394475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394475.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ Need for Speed: Most Wanted [Ru/En] (Repack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394467.jpg" />
 </div>
 
 
@@ -678,62 +736,6 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA6E9E6A9E1DEE38B5412E0454808D8A9B4154D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565188   (394386) от 31.10.2012
-
-Blade and Soul [Kr] (L/1.3.8.632) 2012 | {24 октября 2012}
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых ожидаемых корейских онлайн-игр, Blade & Soul, в которую компания NCsoft вложила огромное количество денег, завоёвывает все больше и больше геймерских сердец, благодаря своей потрясающей графике и шикарной боевой системе. Но поиграть в неё удалось пока что далеко не каждому. Многие просто следят за проектом посредством видео роликов и различных статей в интернете. По сути, главным качеством Blade & Soul является кропотливый дизайн действий и боевой стратегии, которые можно оценить лишь поиграв в игру.
-Клиент скачан 24 октября 2012 года. Запуск клиента производится с официального сайта игры. Что возможно только при наличии аккаунта С ПОДТВЕРЖДЕННЫМ СЕРТИФИКАТОМ ЛИЧНОСТИ. Другими словами вам нужно либо купить готовый аккаунт, либо найти друга корейца, либо третий вариант - вы и есть кореец.
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: MMORPGЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F38FF717D61FD00E0046C0BD26800FD2FC43894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568611   (393497) от 01.11.2012
-
-Painkiller: Hell & Damnation [Ru] (RePack) 2012 | =Чувак=
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра со страшным названием Painkiller: Hell & Damnation, что на русском обозначает «Ад и Проклятье» - это ремейк оригинального Painkiller, появившегося на рынке в 2004 году.
-Начнём с того, что уровень графики совсем не опустился - благодаря движку Unreal Engine 3 локации по-прежнему выглядят превосходно. Уровни не подверглись практически никаким изменениям (разве что локации обогатились доселе невиданными секретными зонами). Зато история новая. Феерическое действие разворачивается после событий первой части. Кроме того, была существенно улучшена физика.
-Авторы из The Farm 51 порадуют геймеров ещё и свежими сетевыми режимами, онлайновыми турнирами и прочими интернет-вкусностями.(   Читать дальше...   )Тип издания: RePackРазработчик: The Farm 51Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C554D0540D3C0E444EECD510BC2A3C72758554
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1273061   (139683) от 30.12.2018
+
+Forces United - Andy Vortex (2018) [MP3|320 Kbps] <Heavy metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых узнаваемых вокалистов на российской тяжелой сцене Андрей Лобашёв (он же Andy Vortex) давно является активным бойцом FORCES UNITED, в рамках которой уже не первый год радует поклонников мелодичного метала многогранностью своего таланта. В прошлом он также отметился в составе других весомых коллективов - культовых Heavy/Power-формациях Arida Vortex и (   Читать дальше...   )1. Мировая Война
+2. Мы и Они
+3. Чёрная Легенда
+4. Спас на Крови(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD7423002ACE1EE9317208CF63EF6FD9BB633E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590770   (139672) от 18.12.2012
 
 Тальков Игорь (Младший) - Надо жить ! (2005) [MP3|320 кб/с]<Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139672.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ Bonnie Tyler - The RCA Years (2019) Compilation, 4CD,  Reissue, Remastered [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139671.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Riot Horse - Cold Hearted Woman (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139664.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ John Hackett & Nick Fletcher - Beyond the Stars (2018) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139655.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ The Marcus King Band - Carolina Confessions (2018) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139643.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Christian Tolle Project - Point Blank (2018) [FLAC|Lossless|tracks + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139636.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ George Lynch & Jeff Pilson - Heavy Hitters (2020) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139627.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Chrome Division - One Last Ride (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139624.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Glass Hammer - Chronomonaut (2018) [FLAC|Lossless|tracks + .cue] <Symphonic Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139610.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Destruction - Born To Thrash: Live In Germany (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139573.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Clepsydra - The Gap (2019) 2xCD, Remastered, 2021, Oskar [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139503.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Alex Harvey - The Last Of The Teenage Idols (2016) 14 CD Box Set, Limited Editio
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139344.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139295.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Neil Young - Songs for Judy (2018) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Country Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139228.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Grace and Fire - Elysium (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139172.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139140.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Rocka Rollas - The Road To Destruction (2014) [MP3|320 кб/с]<Speed Metal, Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139121.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Grotto - Smokonomicon (2016) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139096.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ Grotto - Circle of Magi (2017) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139070.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ Nicolette Larson - Nicolette (1978) Remastered, 2013, Warner Bros. Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139026.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139011.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ Jon Lord - Beyond The Notes (2004) SACD [FLAC|Lossless|tracks + .cue] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138993.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Kreator - Violence Unleashed (2016) EP [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138926.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ Dante Fox - Six String Revolver (2017) [FLAC|Lossless|tracks + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138811.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ Bon Jovi - This Left Feels Right (2003) SACD [FLAC|Lossless|tracks + .cue] <Aren
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138760.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ Bon Jovi - This Left Feels Right (2003) SACD [FLAC|Lossless|tracks + .cue] <Aren
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE440350F753647BCF83C2E750B803CB04128B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970540   (138677) от 31.12.2015
-
-Chris Rea - The Road To Hell (1989) Geffen Records [FLAC|Lossless|image + .cue] <Blues Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell (Part I)
-02. The Road To Hell (Part II)
-03. You Must Be Evil
-04. Texas(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AB6BDBFA7589C5D4ECE4093A7826A5813BEBBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

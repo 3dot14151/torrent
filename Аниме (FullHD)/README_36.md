@@ -6,7 +6,7 @@ Captain Earth | Капитан Земля [2014, TV, 25] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386227.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385639.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gochuumon wa Usagi Desuka?? Sing for You | Кролика заказывали? 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385505.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gochuumon wa Usagi Desuka?? Dear My Sister | Кролика заказывали
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385504.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Yuru Yuri San Hai! / Свободу лесбиянкам! Три подружк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384258.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ One Punch Man | One-Punch Man | Ванпанчмен [2015, TV, 12 + 6sp] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384159.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381552.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381538.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Aria the Benedizione | Ария: Благословение [2021, Movie] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381534.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ai no Utagoe o Kikasete | Sing a Bit of Harmony | Спой немного гар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381464.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381457.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381448.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381414.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Amanchu! / Аманчу! [2016, TV, 12 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380799.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ghost in the Shell: Stand Alone Complex 2nd GIG / Призрак в доспех
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379748.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Liz to Aoi Tori | Liz and the Blue Bird | Лиз и синяя птица [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378643.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Asagao to Kase-san. | Kase-san and Morning Glories. | Сияние утра и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378642.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Eiga Odd Taxi: In the Woods | Необычное такси (фильм) [2022, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376925.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Under the Dog | Побитые псы [2016, OVA] BD-rip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376259.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1993-1996
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372470.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Sangatsu no Lion S1+S2 | March Comes in like a Lion S1+S2 | Мартовский
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368006.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367865.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fukumenkei Noise | Anonymous Noise | Не скрывая крик [2017, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367662.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Konbini Kareshi | Convenience Store Boy Friends | Парни из магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367658.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! | High School 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367342.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366495.jpg" />
 </div>
 
 

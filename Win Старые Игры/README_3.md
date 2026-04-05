@@ -1,3 +1,55 @@
+###  Публикация: 228021   (985670) от 24.01.2020
+
+Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой этой истории – мальчик Льюис, который ничем бы не отличался от своих сверстников, если бы не некоторые обстоятельства. Прежде всего, он растет без родителей и страстно мечтает найти семью. Кроме этого, он обладает поразительной способностью изобретать самые нереальные и фантастические приспособления. И наконец, ему предстоит совершить самое интригующее (   Читать дальше...   )Тип издания: LicenseРазработчик: Disney Interactive StudiosЖанр: Arcade, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4F4EB461A4267EFACB6DFD9AD4181913B1B849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355020   (984394) от 25.01.2020
+
+Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждут лучшие национальные команды и крупнейшие лиги, а также насыщенный однопользовательский режим. Невероятная тактическая глубина, позволяющая воссоздать все тонкости этого вида спорта. Меняйте план на лету, продумывайте построение, ищите слабые места во вражеской обороне и помогите своей команде победить!Тип издания: LicenseРазработчик: Eko SoftwareЖанр: Симуляторы, Спортивные игры, РегбиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, Французский, Итальянский, ЯпонскийЯзык интерфейса: Английский, Французский, Итальянский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577E50CB60172958A5193E1C1C8D4A36B717F9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355708   (981893) от 27.01.2020
 
 Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
@@ -6,7 +58,7 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981893.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979881.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Psychonauts (2005) [Ru/Multi] (1.1.603.0/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978734.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Onimusha: Warlords / Onimusha: Путь самурая [Ru/En/Jp] (Repack/1.2) 2
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978266.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970293.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Stranglehold Collector's Edition / Stranglehold. Коллекционное из
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968144.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966313.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Project: Snowblind / Операция Снегопад  [Ru/En] (P) 2007
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962190.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Crystal Caves (1991) [En] (1.0.0.28043) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956612.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954916.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953284.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953277.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Alpha Prime (2007) [En] (1.01) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951531.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946932.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946438.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943255.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943251.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Ignition (1997) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939638.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936704.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Tachyon: The Fringe / Жестокие звезды (2000) [Ru/En] (1.00.00.36r)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934691.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Wolfenstein 3D: Spear of Destiny (1993) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934554.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931621.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929853.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927190.jpg" />
 </div>
 
 
@@ -617,62 +669,6 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1A078F4CEB597097B828263325B5EC350489525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631137   (926174) от 16.03.2013
-
-Galactic Civilizations: Ultimate Edition [En] (L) 2003 | PROPHET
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Galactic Civilizations является космической пошаговой стратегией, в которой на ваши плечи ляжет судьба всего человечества.
-
-В 2178 году Земной Альянс изобрел новую технологию, позволившую людям совершать межзвездные путешествия за короткие промежутки времени. Но такое открытие века, в скором времени, стало достоянием и других цивилизаций, населяющих нашу планету, что послужило началом гонки за мировой господство.
-
-Вам как лидеру United Earth предстоит исследовать новые технологии, развивать экономику, накапливать военную мощь, вести политическую деятельность, развивать дипломатию и торговлю, чтобы получить неоспоримое превосходство над другими расами в борьбе за господство в Галактике.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy (TBS)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53719C9DA5273E91D5837625CF4126CAC08865CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363892   (925038) от 10.03.2020
-
-WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (Beta, 1.00-1.27b) Unofficial [Patches]
-
->>Win Старые Игры
->>Patch/Tweak/Trainer/Other для Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальные exe-патчи Warcraft ROC/TFT Beta-1.00-1.27b. Так как официальные ftp сервера со старыми патчами отключены, то раздача имеет статус коллекционной. Включает в себя 231 патч, отсутствуют 10 патчей.Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времени, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D884E7FF6A6B0E67DA29F9DBECA1EFF8970EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

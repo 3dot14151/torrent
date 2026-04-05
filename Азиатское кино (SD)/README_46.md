@@ -1,3 +1,55 @@
+###  Публикация: 98118   (263659) от 15.12.2017
+
+Сезон любви / Koi No Kisetsu (1969) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мори Ёко вот-вот закончит учебу и начнет работать, помогая своей небогатой семье. Сбежав с вечера танцев от своего поклонника студента Ясумуро, она случайно прячется в машине Куросавы — управляющего фирмы, куда Ёко устраивается на работу…Производство: Япония, Shochiku CompanyЖанр: Мюзикл, мелодрамаРежиссер: Умэцугу ИноэАктеры: Ёко Кон, Джордж Хамано, Луис Такано, Кенсаку Морита, Ясунори ИрикаваПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6347C85F9A41D5D925CD094D349D2D6DB91524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339344   (263590) от 24.11.2019
+
+Сын генерала / Janggunui adeul  / Son of the General (1990) BDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предвоенные 30-е годы, оккупированная японскими войсками Корея. Ким Ду Хан, который с юных лет стал сиротой и находится под надзором полиции, ищет свое место в жизни. В городишке Янг Ро он прибивается в клану местного гангстера Ву Ми Квана. Идет борьба клана за сферы влияния с японскими якудза. В ходе этой борьбы молодой Ким Ду Хан быстро завоевывает авторитет в (   Читать дальше...   )Производство: Южная Корея, Taehung PicturesЖанр: Боевик, драма, криминалРежиссер: Лим Гвон-тхэкАктеры: Пак Сан-мин, Щин Хён-джун, Ли Иль-джэ, Пан Ын-хи, Ким Хён-иль, Хван Джон-мин, Чон Ду-хон, Но Сын-джинПеревод: Одноголосый любительский (Неизвестно, найден в сети)Субтитры: отсутствуютПродолжительность: 01:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29B00DD740EE7B59CCF647EB17572126E6B9703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340268   (263586) от 24.11.2019
 
 Глаза призрака / Gui yan / Ghost Eyes (1974) DVDRip [VO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263586.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263584.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263580.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263578.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263549.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263135.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263132.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263129.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262890.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262827.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262707.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262363.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262325.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262323.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262313.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262305.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262304.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262303.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262298.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262279.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262079.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260723.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259394.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258197.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC6CA68773E1A1910799478EFF405B7A0BDF3B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837069   (256383) от 15.11.2025
-
-Затоичи / Zatoichi (2003) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам серии романов Кана Симодзавы о слепом массажисте, мастере кэндзюцу и иайдо по имени Затоичи... Япония. XIX век. Слепой странник Затоичи зарабатывает игрой в кости и массажем. Но на самом деле он искусный боец. Однажды он попадает в городок, находящийся во власти шайки Гиндзо. Здесь Затоичи знакомится с сёстрами-гейшами, которые хотят отомстить за (   Читать дальше...   )Производство: Япония / Office Kitano, Bandai Visual Company, DENTSU Music And EntertainmentЖанр: драма, криминал, боевикРежиссер: Такэси КитаноАктеры: Такэси Китано, Таданобу Асано, Митиё Окусу, Гадаруканару Така, Дайгоро Татибана, Юко Дайкэ, Юи Нацукава, Иттоку Кисибэ, Сабуро Исикура, Акира Эмото, Бэн Хиура, Кодзи Миура, Хидебо, Рон II, СудзиПеревод: дублированный, профессиональный многоголосый, авторский (Дмитрий Пучков)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6167F0D86FA85445009BB3C3754B84FCF73D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625893   (255253) от 12.04.2023
-
-Убить Пок-сун / Gil Boksun / Kill Boksoon (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наёмная убийца Пок-сун считается одной из лучших в этом деле, и она дорожит своей профессиональной репутацией, но последнее время женщину больше беспокоит, что дочь-подросток стала от неё отдаляться. Пок-сун изо всех сил старается быть хорошей матерью и пытается найти баланс между работой и воспитанием ребёнка, но скрывать от дочери сферу своей деятельности ей становится (   Читать дальше...   )Производство: Южная Корея / Netflix, See At FilmЖанр: боевик, драма, криминалРежиссер: Пён Сон-хёнАктеры: Чон До-ён, Соль Гён-гу, Ким Щи-а, Исом, Ку Гё-хван, Ли Ён, Чхве Бён-мо, Ким Ги-чхон, Пак Кван-джэ, Чан Ин-сопПеревод: Многоголосый профессиональный (TVShows), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: английские (forced, full, SDH), русские, украинскиеПродолжительность: 02:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F7734C96B84523319750851B4F647F850F1A10
 ```
 
 https://mybot314.ru/tekegram_catalog/

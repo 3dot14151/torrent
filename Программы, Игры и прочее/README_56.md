@@ -1,3 +1,112 @@
+###  Публикация: 1530808   (727622) от 12.02.2022
+
+Учить английский: Читать книги v1.0.11 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учить английский бесплатно (Free) с помощью Express English, самый лучший метод по изучению языков для всех уровней.Тип издания: Пиратка (Premium)Релиз состоялся: 6 февраля 2022 г.Разработчик: DevPalmПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5D7322D5B71FE453487E0C2056747DA8F8F50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128537   (727204) от 25.04.2017
+
+Заметки: персональный блокнот 1.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заметки: персональный блокнот - это быстрое и удобное приложение для записи своих мыслей, планов, сообщений или чего угодно важного. Приложение выполнено в стиле Material Design, интуитивно понятно и отзывчиво в использовании.Тип издания: FreeРелиз состоялся: 2016Разработчик: DuoSoftПоддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A36BC367C7E789A5248CAB6AD6EAD9874934D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531061   (726514) от 13.02.2022
+
+Переводчик чата SwiftTranslate v1.4.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переводчик чата - Swift Translate преодолевает языковой барьер, позволяя общаться в чате с людьми, говорящими на другом языке. Он переводит их сообщения на ваш язык и переводит ваши сообщения на их язык, делая общение проще и быстрее. Может использоваться во всех популярных приложениях для обмена сообщениями, таких как WhatsApp и Messenger.
+
+Переводчик чата - Swift (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 12 февраля 2022 г.Разработчик: YDZ LabsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9387FD9B82A1734B7E0E055B11D3FBB97384023F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531052   (726505) от 13.02.2022
+
+RawBT служба печати v5.52.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что умеет программа:
+1. Работать как стандартная служба печати.
+Как распечатать html страницу из Google Chrome :
+а) "..." в шапке(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 6 января 2022 г.Разработчик: 402dПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94608E0BD2F44B2454B34E7CBE883798B809AD9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473334   (726255) от 13.02.2022
 
 iHeart: #1 for Radio, Podcasts v10.12.0 [En] (обновляемая)
@@ -6,7 +115,7 @@ iHeart: #1 for Radio, Podcasts v10.12.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726255.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726105.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Onkyo HF Player v2.9.1 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726037.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ Runtastic PRO GPS Бег и фитнес v6.8.1 [Ru/Multi] - GPS трекер, �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725617.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ Terabox: облачное хранилище v2.10.3 Premium MegaMod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723986.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ Month: виджет календаря 2.9.16.5.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723828.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723633.jpg" />
 </div>
 
 
@@ -192,7 +301,7 @@ Legs Workout and Exercises v1.3.31 [Ru/Multi] - Комплекс упражне�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723527.jpg" />
 </div>
 
 
@@ -218,7 +327,7 @@ Butt Workout v1.3.31 [Ru/Multi] - Тренировка Ягодиц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723523.jpg" />
 </div>
 
 
@@ -244,7 +353,7 @@ Chest Workout v2.4.31 [Ru/Multi] - Тренировка грудных мышц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723517.jpg" />
 </div>
 
 
@@ -270,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723362.jpg" />
 </div>
 
 
@@ -296,7 +405,7 @@ DigiSender TV Launcher 2.6.3 RU [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722934.jpg" />
 </div>
 
 
@@ -322,7 +431,7 @@ GlassWire для Android (Data Usage Privacy) 1.0.50r [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722276.jpg" />
 </div>
 
 
@@ -348,7 +457,7 @@ Balance BY Pro 6.0.203 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721822.jpg" />
 </div>
 
 
@@ -374,7 +483,7 @@ Talking Tom Gold Run 1.0.1.561 Mod [Infinite Gold Bars] [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721601.jpg" />
 </div>
 
 
@@ -400,7 +509,7 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721328.jpg" />
 </div>
 
 
@@ -426,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721113.jpg" />
 </div>
 
 
@@ -452,7 +561,7 @@ CamMove  - фоторегистратор из телефона (2014) <Ru>
 >>ПО и Игры на Java
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717683.jpg" />
 </div>
 
 
@@ -478,7 +587,7 @@ AutoBoy v3.5.1 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716050.jpg" />
 </div>
 
 
@@ -504,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715878.jpg" />
 </div>
 
 
@@ -530,7 +639,7 @@ MScopesPro for USB Camera v1.28 [En/Rus] - запись видео с внешн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715874.jpg" />
 </div>
 
 
@@ -556,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714408.jpg" />
 </div>
 
 
@@ -567,111 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA9864BBA46FD093B4C2218DD9A8D1690E7C1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990906   (714310) от 19.02.2022
-
-Infinite Design v3.4.21 [En/Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный редактор-рисовалка. Работает в паре с Infinite Painter (Galaxy Note). Отличный встроенный учебник. Самый толковый (ИМХО) на сегодня.  К сожалению, пока не русифицирован.Тип издания: Пиратка (Unlocked)Релиз состоялся: 29.11.2020Разработчик: Infinite Studio MobileПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский и руссифицированная от papasha55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8521ADB380633B1D68FBBACB6E8B199CF1C2669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130419   (712176) от 03.05.2017
-
-Gboard – Google Клавиатура 6.2.34.154174348 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712176.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Gboard собраны все лучшие возможности Google Клавиатуры: скорость и надежность, непрерывный и голосовой ввод, встроенный поиск и много других функций. Находите нужную информацию с помощью клавиатуры и сразу делитесь ею с друзьями. Это очень удобно!
-Вы можете без труда искать смайлики и GIF-изображения, а многоязыковой ввод позволит набирать текст на нескольких (   Читать дальше...   )Тип издания: FreeРазработчик: Google Inc.Поддерживаемая ОС: Android 4.2+Язык интерфейса: Ru/Multi 120 -мультиязыковой (Русский язык присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829246C34441587668B7FAFC8AD3EF27C267E898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005533   (711768) от 11.06.2016
-
-Рецепты супов и борщей v1.62 Ad-Free [Ru/Multi] - более 125 рецептов вкусных горячих и холодных супов и других первых блюд
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711768.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приложении Вы найдете более 125 рецептов вкусных горячих и холодных супов и других первых блюд! Все рецепты горячих и холодных супов и других первых блюд представлены в приложении с пошаговой инструкцией приготовления!  Вы также сможете выбирать понравившиеся рецепты и сохранять рецепты в Избранное. Приложение не требует обязательного подключения к интернету и понравившиеся (   Читать дальше...   )Тип издания: Ad-FreeРелиз состоялся: 06.06.2016Разработчик: DILПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45859DDF095C7F73A3E953976129D175C47ACC9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021544   (711642) от 11.06.2016
-
-Baby Daybook - Daily Tracker v2.0.15 Pro [Ru/Multi]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baby Daybook - идеальное приложение для отслеживания дневной активности младенца!Тип издания: Пиратка (Pro features unlocked)Релиз состоялся: 04.06.2016Разработчик: DrillyAppsПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA381A6D63FE902899067C494723E2E2313FE162
 ```
 
 https://mybot314.ru/tekegram_catalog/

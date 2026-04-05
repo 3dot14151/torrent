@@ -1,3 +1,118 @@
+###  Публикация: 1574072   (387932) от 04.09.2022
+
+Moderator - In the Garden (2022) EP [MP3|320 Kbps] <Trip-Hop, Downtempo, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jazz Tales [00:02:29]
+02 - Cherry [00:02:13]
+03 - Saudades [00:02:45]
+04 - Half Light [00:02:21](   Читать дальше...   )Жанр: Trip-Hop, Downtempo, JazzПродолжительность: 00:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572E6A2B490E3B2E3C2F296668D01C85BE8E3F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414216   (387878) от 07.10.2020
+
+Ian Hawgood - Peace Fragments (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fragment I 18:12
+2. Fragment II 40:06
+3. Fragment III 05:38Жанр: Ambient, Drone, MinimalПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7316D946771F1693DF40AA554F3125B3D049E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414241   (387876) от 07.10.2020
+
+Mathieu Karsenti - Downstream Blue (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pales 06:24
+2. Loosen 05:36
+3. Further 05:12
+4. Only Light 04:42Жанр: Ambient, Electrocoustic, MinimalПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35879B58D8CAD3CAF473C2D8D20EEB5C59F7AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067707   (387822) от 29.10.2016
+
+VA - Halloween Chillout Selections (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoMbra Modos – Shared Happiness – Original Mix
+ 02. Arrojas – Clouds – Original Mix
+ 03. Diario – Do You Remember Me? – Original Mix
+ 04. Kaxamalka – Bonne Route – Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555B832A882CF1B28BC21B058BF436C8CF4C2602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067717   (387812) от 29.10.2016
 
 VA - Suanda Acoustic Collection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +121,7 @@ VA - Suanda Acoustic Collection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387812.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Federico Mosconi - Il Tempo Della Nostra Estate (2020) Slowcraft Records [FLAC|L
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387743.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Simon Le Grec - Reflections (Best Of) (2020) Compilation [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387730.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Robert Parker - End of the Night (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387697.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Neon Nox - Syndicate Shadow (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <El
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387613.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ VA - Best of Chill out Vocal Trance 2019 (2018) [MP3|320 Kbps] <Trance,Vocal Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387591.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Zainetica | Cyan341 - Discography 26 Releases (2003-2020) Boltfish Recordings, R
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387587.jpg" />
 </div>
 
 
@@ -206,7 +321,7 @@ IC3PEAK - До Свидания (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387574.jpg" />
 </div>
 
 
@@ -235,7 +350,7 @@ VA - Keep It up Workout, Vol. 1 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387537.jpg" />
 </div>
 
 
@@ -264,7 +379,7 @@ VA - Deep House Drops (Autumn '17) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387529.jpg" />
 </div>
 
 
@@ -293,7 +408,7 @@ Tears For Fears - Rule The World: The Greatest Hits (2017) Virgin EMI Records [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387472.jpg" />
 </div>
 
 
@@ -322,7 +437,7 @@ VA - Take a Trip, Pt. 5 (2019) [FLAC|Lossless|Web-DL|tracks] <Trip-Hop, Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387417.jpg" />
 </div>
 
 
@@ -351,7 +466,7 @@ VA - Spacesynth Revolutions, Episode One (2010) [FLAC|Lossless|tracks + .cue] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387411.jpg" />
 </div>
 
 
@@ -380,7 +495,7 @@ Sex Music Zone - Kamasutra Music 2020 [FLAC|Lossless|WEB-DL|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387401.jpg" />
 </div>
 
 
@@ -409,7 +524,7 @@ Eguana - Qvantur (2020) Plexus Music [FLAC|Lossless|WEB-24Bit|tracks] <Dark Ambi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387400.jpg" />
 </div>
 
 
@@ -438,7 +553,7 @@ DJ Mixx - Everybody Dance (Free Ends Guest Mix) (2014) [FLAC|Lossless|image + .c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387388.jpg" />
 </div>
 
 
@@ -467,7 +582,7 @@ VA - Armin van Buuren - Universal Religion (2008) [FLAC|Lossless|WEB-DL|tracks] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387272.jpg" />
 </div>
 
 
@@ -496,7 +611,7 @@ Ferry Corsten - Hello World (2016) [FLAC|Lossless|image + .cue] <Progressive Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387260.jpg" />
 </div>
 
 
@@ -525,7 +640,7 @@ Cervello Elettronico - Collection 10 Releases (2007-2020) [FLAC|Lossless|tracks+
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386952.jpg" />
 </div>
 
 
@@ -554,7 +669,7 @@ Arms and Sleepers - Discography 66 Releases (2006-2020) Expect Candy, Fake Chapt
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386705.jpg" />
 </div>
 
 
@@ -580,7 +695,7 @@ Ledina Celo - Can U Touch Me Baby (WEB) (2012) [MP3|320 кб/с]<House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386032.jpg" />
 </div>
 
 
@@ -609,7 +724,7 @@ VA - Summer In Space Vol.5 (2022) (2CD) [OGG Vorbis|485 Kbps] <Synthpop, Spacesy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385699.jpg" />
 </div>
 
 
@@ -623,122 +738,6 @@ VA - Summer In Space Vol.5 (2022) (2CD) [OGG Vorbis|485 Kbps] <Synthpop, Spacesy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEC241F35A21B021EA2567B367CCC530AE85B117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414441   (385622) от 08.10.2020
-
-VA - The Sacred Rage (2020) Morphine Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Contemporary, Techno, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Kameel Farah and Thomas Brinkmann - Sans Titre (06:40)
- 02. "A" trio - Over (07:06)
- 03. Monolake - Beirut (07:53)
- 04. Irena and Vojtech Havlovi - Radek 2 (06:13)(   Читать дальше...   )Жанр: Experimental, Contemporary, Techno, AmbientПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B9A8590666C2B96F2F5C6441C7663424920B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414222   (385621) от 08.10.2020
-
-Tomas Senkyrik - Fond (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hana 04:56
-2. Eugen 06:46
-3. Fond 11:28
-4. Tata 04:14Жанр: Ambient, Electrocoustic, Field RecordingПродолжительность: 00:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18ABD62DB079FDEC45E09A0A4A067E80467E7BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414455   (385617) от 08.10.2020
-
-Sciama - Illusion of Separation (2020) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Selui	8:37
-2	Unfolding Self	8:00
-3	Somnium	5:12
-4	Illusion Of Separation	6:40(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092613C8B3B39FD72C68E8F5FFFBE79EF9FE4EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253211   (385552) от 08.10.2018
-
-VA - Amsterdam Dance Essentials Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utku Erbay - Gonna Be Free (Original Mix)
-02. Eric Senn - Days To Come (Original Mix)
-03. Angelica S - Monologue Of The Soul (Science Deal Remix)
-04. James Dust - Bagged (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8950F8879A3E1C7AFACE13485FC11B85226A3A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

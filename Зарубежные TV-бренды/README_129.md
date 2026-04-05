@@ -6,7 +6,7 @@
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14359.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14315.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13943.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13925.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13641.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13391.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13057.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12988.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12867.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11852.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11436.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ History: Кевин Костнер: Запад / Kevin Costner's the West (2025)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9911.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9361.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9162.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9132.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PBS: Первые люди / First Peoples (2015) WEB-DL [H.264/1080p] (сезо
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9119.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9106.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2013) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9065.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Discovery: Челюсти против кракена / Jaws vs Kraken (2022) WE
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8822.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6138.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6105.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3727.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3425.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2815.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Discovery. Великий замысел по Стивену Хокингу / St
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2729.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_342.jpg" />
 </div>
 
 

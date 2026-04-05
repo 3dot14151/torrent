@@ -1,3 +1,82 @@
+###  Публикация: 1402879   (695434) от 17.08.2020
+
+Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуальная новелла об абьюзе, идеализации и интимности. Проведите лето неблагополучной любви с разветвленными сюжетными линиями, неожиданными поворотами, внезапными изменениями и инновационной механикой, где вы сами выбираете, какие органы чувств задействовать с вашим партнером. В эти моменты вы будете узнвать новое о нем, его личности и его прошлом, что заставит (   Читать дальше...   )Тип издания: LicenseРазработчик: Eyeguys, Lorenzo RedaelliЖанр: Приключение, Визуальные новеллы, ДрамаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07608501F8913B7BD01E42FB011D0F0460A55C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027903   (693882) от 20.06.2016
+
+CRIMSON ROOM DECADE (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя десять лет после выхода «Crimson Room», оригинальной игры на Flash, встречайте ее сиквел – игру «Crimson Room Decade». Инспектор Жан-Жак Годо оказывается запертым в Красной комнате. Закрытая дверь, подвешенная лампочка, разбросанные повсюду бутылки вина... Он уже был здесь?
+Чтобы выбраться, вам нужно использовать все, что находится вокруг вас. Исследуйте каждый (   Читать дальше...   )Тип издания: RepackРазработчик: Dream Holdings, TAKAGISM Inc.Жанр: Adventure, 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B7BD88931F5ED0E4BB7D8E54D26C2F09896BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288772   (693511) от 12.03.2019
+
+Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычный отпуск в 60-х годах в параллельной вселенной! Научно-фантастическая приключенческая игра с созданными вручную декорациями. Trüberbrook – это захватывающая, полная тайн и загадок приключенческая игра в научно-фантастическом-антураже.Тип издания: LicenseРазработчик: btfЖанр: Adventure, Quest, Mystery, Sci-FiЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492F450F85FC05FD3AEC315D4C661EF0A98B5D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139397   (693411) от 12.03.2019
 
 RiME (2017) [Ru/Multi] (1.04) License CODEX
@@ -6,7 +85,7 @@ RiME (2017) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693411.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ PLAY WITH ME (2018) [Ru/Multi] (1.22.21) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692879.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Kageroh: Shadow Corridor (2019) [En/Ja/Ko] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691635.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Inked (2018) [Multi] (20180425-1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691041.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ INFRA (2016) [Ru/Multi] (3.3.0/dlc) License CODEX [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690961.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ The Fan (2017) [En/Fr] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690780.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Dark Earth (1997) [Ru] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690010.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Peaky Blinders: Mastermind (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689874.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Battletoads (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689855.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ Breached (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688095.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Asemblance (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688085.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688061.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Loom (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686745.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686515.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Re;Lord 2 ~The witch of Cologne and black cat~ (2021) [En] (1.00/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686021.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685860.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Room 404 (2016) [En/Pt] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685780.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ Breached (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685775.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ Monster Prom (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684561.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684361.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684351.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ The Bad, the Ugly and the Sober / Злой, плохой и трезвый [Ru] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683823.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681825.jpg" />
 </div>
 
 
@@ -595,84 +674,6 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C39529EA06B40E0A4B3715E24765C864CF4B86B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135585   (680524) от 19.05.2017
-
-The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Был обычный день, когда Джейк собрался отвезти свою дочь Рейчел на занятия по танцам. Но после того как они спустились в метро, их обыденной жизни наступил конец. Что-то потустороннее подвесило их во времени между 1974 годом и настоящим, в период, когда кое-что ужасное произошло в подземке. Джейк оказался в ловушке и потерял свою дочь, которая была похищена загадочной (   Читать дальше...   )Тип издания: LicenseРазработчик: Delusion Arts Entertainment, LLCЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1C921F258CAE2EA3011ECCCD8E130742D4C851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290185   (679943) от 19.03.2019
-
-GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грис - наивная девочка, запершаяся в собственном мире из-за боли, окутавшей ее в реальности. Ее скорбь находит воплощение в ее платье, которое дает разные способности, позволяющие лучше ориентироваться в своем мире. По ходу сюжета Грис (Gris) эмоционально крепнет и начинает видеть свой мир немного иначе, открывая все новые и новые пути.Тип издания: LicenseРазработчик: Nomada StudioЖанр: Приключение, Головоломка, ПлатформерЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6966663F204E0FAF7A8480EADD99726E22EE816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123750   (679841) от 19.03.2019
-
-Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы пытаетесь избавиться от пелены перед глазами и подняться на ноги. Стоит сделать шаг, как портал, через который вы прибыли, закрывается за вашей спиной. Вы в ловушке – пути назад нет... «Quern. Вечные мысли» – приключенческая игра-головоломка с видом от первого лица. Она приглашает вас исследовать загадочный мир и узнать, что он для вас приготовил.Тип издания: LicenseРазработчик: Zadbox EntertainmentЖанр: Приключение, Головоломка, ДетективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEB82B2C2892A5DB260B555DDF9117065CCF560
 ```
 
 https://mybot314.ru/tekegram_catalog/

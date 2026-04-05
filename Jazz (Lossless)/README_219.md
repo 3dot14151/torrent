@@ -6,7 +6,7 @@ Diana Krall - This Dream Of You (2020) Verve Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308571.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ingrid Mapson - Rhythms Of Your Heart (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308056.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Traci Cooper - Stepping Stone (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308052.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Christine Pedi - Good To Mama (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307987.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Barbara Fasano - Busy Being Free (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307985.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Peggy Lee - 2 Compilations (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307900.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Roland Guerin Sextet - Live At The Blue Note (1999) Half Note [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307875.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tom Harrell - Upswing (1993) Chesky Records [WavPack|Lossless|image + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307865.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Chuck Mangione - Save Tonight For Me (1986) CBS [FLAC|Lossless|image + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307864.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Buck Clayton - Jam Session: How Hi The Fi (1953, 1954) 2005, Membran Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307796.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Elina Duni - Partir (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Balkan Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307785.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Benny Carter - The Best of Benny Carter (1980) 1987, Pablo Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307710.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Ruby Braff - Born To Play (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307659.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Alan Broadbent & The London Metropolitan Orchestra - Developing Story (2017) Ede
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307657.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Ruby Braff & Ellis Larkins - The Grand Reunion (1972) 1999, Chiaroscuro Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307656.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Ruby Braff & Ellis Larkins - Two By Two: Ruby And Ellis Play Rodgers And Hart (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307654.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Count Basie - Salle Pleyel, Apr. 17th, 1972 (Paris Jazz Concert) (2002) 2CD [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307224.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Oddjob - Koyo (2004) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307176.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Oddjob - Oddjob (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307174.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Oddjob - Folk (2015) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307172.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Oddjob - Luma (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307170.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Jacques Loussier Trio - Play Bach 1, 2, 3, 4, 5 &  Aux Champs-Elysees (1959-1965
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306931.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ The Art Farmer Benny Golson Jazztet - I Remember Clifford (1960) 1999, Jazz Hour
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306412.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Sonny Rollins - Brass / Trio (1958) 1983, Verve Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306411.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Clifford Brown - Jazz Immortal (1953, 1954) 2019, MatchBall Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306300.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Dorothy Donegan - Dorothy Donegan (1975) 1994, Four Leaf Clover Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305658.jpg" />
 </div>
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1492383   (903451) от 29.08.2021
+
+Udemy, Emiel Sleegers | Military Game Asset Creation in Blender 2.83, Substance Painter & Marmoset (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как работает профессиональный художник пропсов при создании пропсов для игр.
+Вы узнаете всё необходимое для создания ассета, показанного на изображениях и трейлере, с нуля.
+В конце также будет бонусная глава, в которой будет показан таймлапс создания сцены внутри Unreal Engine 4.Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 18:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAE1D71127DE443823DA1E14D5FA1942EFEAE29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492385   (903416) от 29.08.2021
 
 ArtStation, Ben Keeling | Authoring Props For Games [Blender, ZBrush, Substance Painter, Marmoset] (2020) PCRec [EN]
@@ -6,7 +34,7 @@ ArtStation, Ben Keeling | Authoring Props For Games [Blender, ZBrush, Substance 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903416.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903339.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ Bang Bang Education | Английский через иллюстрацию / E
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903030.jpg" />
 </div>
 
 
@@ -91,7 +119,7 @@ cmiVFX, Shivani Sondhi | Houdini Cloth Techniques (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902351.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ cmiVFX, Alvaro Segura | Houdini Debris Systems (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902318.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ cmiVFX, Adam Swaab | Houdini Particle Morphing Effects (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902300.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ cmiVFX, Dennis Weil | Houdini Mograph Title Design (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902288.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ School of Motion, Mike Frederick | Design Bootcamp Week 3 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902083.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ javascript.ninja, Виталий Слободин, Илья Климов | CI/CD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901784.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ Udemy | Создание фотореалистичной станции мет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901417.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ Udemy | Создание фотореалистичной улицы в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901349.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ Rohan Dalvi | Mograph in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900700.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ Rohan Dalvi | Making dessert in Houdini Part 1 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900687.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ Udemy, Guillaume Duhan | Svelte.js & Firebase: Pokedex edition (2021) WEB-DL [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900590.jpg" />
 </div>
 
 
@@ -390,7 +418,7 @@ Rohan Dalvi | Rocket Bus (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900534.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900468.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 1 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900455.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900441.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ School of Motion, Joey Korenman | FreelanceU (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_900335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_900335.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ Udemy, Tim Buchalka's Learn Programming Academy, Jason Fedin | Advanced C Progra
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900166.jpg" />
 </div>
 
 
@@ -553,7 +581,7 @@ Udemy | Секреты фотореализма в Blender 2.8 / The Secrets to 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899893.jpg" />
 </div>
 
 
@@ -581,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898964.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898946.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898780.jpg" />
 </div>
 
 
@@ -665,7 +693,7 @@ SVS, Will Terry | Draw 50 Things (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898758.jpg" />
 </div>
 
 
@@ -677,34 +705,6 @@ SVS, Will Terry | Draw 50 Things (2017) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC627F7889150C624E82AB2C3CC1F3477AB4C05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991315   (898751) от 03.03.2016
-
-Context Tools | Автоматизация контекстной рекламы с помощью Context Tools (2016) PCRec [H.264/1080p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надстройка Context-Tools для Microsoft Excel. Эта программа создана для специалистов по контекстной рекламе, чтобы автоматизировать многие рутинные операции при создании кампаний. На данный момент программа насчитывает более 80 функций!
-
-Скачайте бесплатный видеокурс. Он в простой форме раскроет все возможности программы не в теории, а на реальных примерах из практики (   Читать дальше...   )Жанр: Яндекс Директ, Google Adwords, ExcelПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E570DB5C2EC858E6038E39028B0724FFAD855C26
 ```
 
 https://mybot314.ru/tekegram_catalog/

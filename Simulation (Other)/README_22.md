@@ -1,3 +1,29 @@
+###  Публикация: 1287015   (58099) от 30.04.2024
+
+Dawn of Man (2019) [Multi] (1.8.2) License GOG (обновляемая)
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dawn of Man - уникальная историческая стратегия в реальном времени с изометрическим видом камеры от создателей Planetbase. Вам предстоит взять под контроль поселение первых современных людей и провести их через века, борясь за выживание. Игра начнется во времена каменного века и продолжиться до самого железного века, охватывая более 10 000 лет человеческой предыстории. (   Читать дальше...   )Тип издания: LicenseРазработчик: Madruga WorksЖанр: Стратегия, Строительство, МенеджментЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C569D56EDCD7B7AFDD8AB29FC897CFA69BC3C88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719598   (58066) от 30.04.2024
 
 Oriental Valley (2024) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
@@ -6,7 +32,7 @@ Oriental Valley (2024) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58066.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ The Game of Sisyphus (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57676.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Internet Cafe Evolution (2024) [Multi] (1.2.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57431.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Little Kitty, Big City (2024) [Multi] (1.24.5.8_3487) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56484.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55757.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55756.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.1.361/dlc) Repack Decepticon [Ju
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55700.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55645.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.03B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55488.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.544) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55248.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack FitGirl [Platinum E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55157.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Sucker for Love: Date to Die For (2024) [En] (1.30) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55071.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Vox Machinae (2022) [En] (1.4.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55065.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Ozymandias: Bronze Age Empire Sim (2022) [Ru/Multi] (1.6.0.10) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55058.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Relaxing Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54500.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Touhou Mystia's Izakaya (2021) [Multi] (4.1.2/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54490.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ The Tribe Must Survive (2024) [Multi] (1.0.16) Repack FitGirl [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54314.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Rolling Hills: Make Sushi, Make Friends (2024) [Multi] (1.0.9) Scene Razor1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54161.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Hotel Business Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54100.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Chef: A Restaurant Tycoon Game (2020) [Ru/Multi] (1.6/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54018.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Scene FairLight [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53993.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ MY DESTINY GIRLS (2024) [Multi] (20240417) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53799.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.526/dlc) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53773.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Long Way (2024) [Ru/Multi] (0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53700.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ ENDLOOP (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53677.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ ENDLOOP (2024) [Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2989C0652175579CC9B4B62B3954CFC9C293974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694640   (53567) от 12.06.2024
-
-Cuisineer (2023) [Multi] (1.1.3909) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cuisineer - восхитительная игра, сочетающая в себе подземелья, кулинарию и управление рестораном, которая погружает в увлекательную историю Пом, энергичной искательницы приключений, которой предстоит спасти семейную закусочную в Паэлле. Вооружившись кулинарными способностями, она отправляется в путешествие за пределы родного города, вступая в кулинарные схватки с (   Читать дальше...   )Тип издания: SceneРазработчик: BattleBrew ProductionsЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3124B0219A2ACE4069A220BD12077F3165CAE0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

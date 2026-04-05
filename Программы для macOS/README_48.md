@@ -1,3 +1,56 @@
+###  Публикация: 1276810   (787251) от 18.01.2019
+
+Hedge 18.3.9 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Резервное копирование и проверка файлов
+Есть много вариантов, когда речь заходит об утилитах копирования и проверки. Одна из новейших программ, называется Hedge For Mac. Hedge For Mac позволяет пользователю создавать несколько резервных копий своих мультимедийных носителей и полностью проверять эти копии. Программа использует очень простой пользовательский интерфейс, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: hedgeformacПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AE6FB57EFFDC657200255CE0E6F7593BAABFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276916   (787240) от 18.01.2019
+
+Silverstack Lab 6.4.9 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silverstack Lab - это первое программное обеспечение, которое позволяет одновременно обрабатывать и  управлять данными и создавать ежедневные заметки в одном инструменте. Резервное копирование видеозаписей может быть надежно организовано и прозрачно - в то же время можно создавать ежедневные газеты. Благодаря такому одновременному подходу все цифровые активы становятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Pomfort GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8424BEF7D91D02217F3E13A3C9FFFE1D9F856EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276911   (787233) от 18.01.2019
 
 FileMaker Pro 17 Advanced 17.0.4.400 [Multi]
@@ -6,7 +59,7 @@ FileMaker Pro 17 Advanced 17.0.4.400 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787233.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ DxO PhotoLab 4 ELITE Edition 4.3.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787125.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Allavsoft Video Downloader Converter 3.24.0.7999 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787123.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Flexi Player Turntable 1.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787118.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ iExplorer 4.5.0 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787041.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Silverstack XT 6.4.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787005.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ OmniOutliner Pro 5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786348.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ SQL Dynamite 2.1.2.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786324.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ Chocolat 3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786151.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ Adobe Muse CC 2017.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786034.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ Adobe InDesign CC 2017.1 (12.1) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786013.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ Receipts 1.4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785976.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ PDF Reader++ 1.59 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785866.jpg" />
 </div>
 
 
@@ -360,7 +413,7 @@ Resume Templates 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785765.jpg" />
 </div>
 
 
@@ -388,7 +441,7 @@ Certificates Templates for Pages 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785626.jpg" />
 </div>
 
 
@@ -416,7 +469,7 @@ Fresh 2.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785621.jpg" />
 </div>
 
 
@@ -445,7 +498,7 @@ MarginNote X - Efficient study PDF & EPUB books 2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785580.jpg" />
 </div>
 
 
@@ -473,7 +526,7 @@ SmartSound SonicFire Pro 5.8.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785567.jpg" />
 </div>
 
 
@@ -499,7 +552,7 @@ CyberLink PhotoDirector Ultra 10.0.2302 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785371.jpg" />
 </div>
 
 
@@ -525,7 +578,7 @@ Google Docs Templates by GN 4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785320.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ PaintCode 3.4.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785252.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ ClassicWeather Premium 4.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785017.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ iFunia Media Player 3.3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784999.jpg" />
 </div>
 
 
@@ -631,7 +684,7 @@ dDNS Broker 2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784618.jpg" />
 </div>
 
 
@@ -644,61 +697,6 @@ dDNS Broker 2.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8333A96FDFCEC04D3C3932850AF081ACD5B6CEBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204727   (784386) от 07.02.2018
-
-BookmarkApp 1.7.6 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784386.jpg" />
-</div>
-
-
-###  Подробнее
-
-BookmarkApp является уникальным и полезным инструментом для организации закладок в Вашем браузере Safari. Все, кто использует Safari в качестве основного браузера имеет много дубликатов закладок. Даже после очистки, во время импорта или добавления новых закладок может появиться также много дубликатов. Цель этого инструмента сделать Ваш Safari чистым и организованным, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2018Разработчик: Ruslan HakimzhanovПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50A3F30D7346A874F2E6DD3B9687AE7CCD32CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204726   (784377) от 07.02.2018
-
-VirusKiller Antivirus 4.1.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Endurance Antivirus - Adware & Malware антивирус.
-" ... проведенное исследование группы независимых разработчиков, в области антивирусной безопасности, - атаки на системы с macOS в 2017 г. увеличились на 78% (что несомненно говорит, о все растущей популярности компьютеров Mac)."
-
-Приложение тщательно сканирует все файлы и папки в вашей системе. Уникальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: EDELWEISS SRLПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4408FE0DCDA2FCA61983AE98F2C9ABA76FBCEEB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

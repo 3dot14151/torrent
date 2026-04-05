@@ -6,7 +6,7 @@ Veilcaste - Precipice (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236164.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pe Roto - 2 Albums (2016-2023) [MP3|320 Kbps] <Sludge, Stoner, Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236156.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fifth Angel - When Angels Kill (2023) [MP3|320 Kbps] <Heavy, Power Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236052.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Otu - Moonic Of A Down (2022) [MP3|320 kbps] <Sludge, Drone, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235827.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sunborn - Imperishable (2021) [MP3|320 Kbps] <Melodic Death, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235796.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235784.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Schysma - Schysma (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, Female 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235721.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Prevail in Darkness - Inferno (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235612.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ dEMOTIONAL - Scandinavian Aftermath (2021) Deluxe Edition, 2023, Relapse Records
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235597.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Andromida - Hellscape (2021) [MP3|320 Kbps] <Progressive Metal, Djent>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235593.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Saturnus - The Storm Within (2023) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235484.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tomb of Lucifer - Ode to Judah (2023) [MP3|320 Kbps] <Oriental Blackened Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235472.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Walk With Titans - Olympian Dystopia (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235130.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Domkraft - 6 Albums (2016-2021) [MP3|320 Kbps] <Psychedelic Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235049.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Welcome to Holyland - Ominous (2023) [MP3|320 Kbps] <Doom Sludge, Stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235018.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Insidious Nature - A Prelude to the Endless (2023) [MP3|320 Kbps] <Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235013.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Eremit - Bearer of Many Names (2021) [MP3|320 Kbps] <Atmospheric Sludge, Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234917.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Slipknot - The End, So Far (2022) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234832.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Inmundus - The God Machine (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234739.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Immortal - War Against All (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234732.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Tyranis - Failure to Yield (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234707.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Tulus - Fandens Kall (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234663.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Nemesis - False Reality (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234396.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Autonoesis - Autonoesis (2020) [MP3|320 Kbps] <Melodic Thrash, Black, Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234251.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Alcotopia - It Hits the Spot (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234243.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Crypta - Echoes of the Soul (2021) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234235.jpg" />
 </div>
 
 

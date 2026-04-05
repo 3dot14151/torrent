@@ -1,3 +1,29 @@
+###  Публикация: 1105773   (872519) от 19.02.2017
+
+Алор Брокер | Спецназ ЛЧИ (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы докажем Вам, что зарабатывать на фондовой бирже может каждый, нужны только желание и прибыльная торговая стратегия! Вы получите сразу несколько торговых стратегий, которые реально работают. Их эффективность была продемонстрирована в ходе конкурса «Лучший частный инвестор 2013». Каждый из четырех преподавателей расскажет о своей стратегии. Пройдя обучение, Вы сможете (   Читать дальше...   )Жанр: Трейдинг,фьючерсыПродолжительность: 29:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110C462D042A0A173868EA4F829E46C4D6961D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496390   (872489) от 17.09.2021
 
 Зуши Плетнев | Чат-бот Мастер 2.0 [Тариф Полный] (2021) WEB-DL [AD]
@@ -6,7 +32,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872489.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872472.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ Digital Tutors, Joshua Kinney | Game Asset Production Pipeline for Unity (2015) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871049.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870921.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870894.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ Pixel, Сергей Галак | Анимация персонажа в After Ef
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870824.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870819.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870792.jpg" />
 </div>
 
 
@@ -230,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870710.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870706.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870617.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869952.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ Cornacchia | Cornacchia\ Декорирование ткани (2015) PCRec [H.2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869813.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869408.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ Udemy, Manuel End | LPIC-1 - Linux System Administrator Masterclass (2021) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869364.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867770.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867583.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867440.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867185.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867114.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867112.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866331.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866082.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866078.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ Udemy, Denis Buchel, Vyara Georgieva | Композиция в фотограф�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866076.jpg" />
 </div>
 
 
@@ -676,35 +702,6 @@ Udemy, Denis Buchel, Vyara Georgieva | Композиция в фотограф�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7128501488DAD09761CA4B5B2724C7AE241FD96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497188   (865936) от 21.09.2021
-
-PythonYoga | Python/Django + React QR Digital Menu Builder (2021) WEB-DL [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделано для ресторанов, кафе, пабов и отелей. Ваши клиенты могут делать заказы со своего стола или со своего дивана дома.
-Почему QR-код для меню?
-COVID-19
-Экономьте на расходах на печать(   Читать дальше...   )Производство: PythonYogaЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D875D744B9C784F30FB53F60F9D692CD6B79751
 ```
 
 https://mybot314.ru/tekegram_catalog/

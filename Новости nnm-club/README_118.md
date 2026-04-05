@@ -1,3 +1,56 @@
+###  Публикация: 1031053   (652949) от 03.07.2016
+
+Бэтмен против Супермена: На заре справедливости / Batman v Superman: Dawn of Justice (2016) WEB-DL [H.264/1080p-LQ] [Extended Ultimate Edition] [RU/EN Sub]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опасаясь, что действия богоподобного супергероя так и останутся бесконтрольными, грозный и могущественный страж Готэм Сити бросает вызов самому почитаемому в наши дни спасителю Метрополиса, в то время как весь остальной мир решает, какой герой ему по-настоящему нужен. И пока Бэтмен и Супермен пребывают в состоянии войны друг с другом, возникает новая угроза, которая (   Читать дальше...   )Производство: США / DC Entertainment, Dune Entertainment, SyncopyЖанр: фантастика, боевикРежиссер: Зак СнайдерАктеры: Генри Кавилл, Бен Аффлек, Галь Гадот, Джейсон Момоа, Эми Адамс, Джесси Айзенберг, Джена Мэлоун, Эзра Миллер, Дайан Лэйн, Джереми АйронсПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 03:02:31Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD02CA65032F6560E3C5E97CC9B7B8F50C25DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512969   (652847) от 28.06.2012
+
+Побег из тюрьмы / Prison Break [1-4 сезоны + The Final Break] (2005 - 2009) [1080p] BDRip (Collection Polnometragnie)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проектировщик тюрем намеренно совершает преступление и попадает в одну из построенных им зон с целью помочь несправедливо осужденному брату избежать смертного приговора.
+Майкл Скофилд – отчаявшийся человек в отчаянных обстоятельствах: его родной брат Линкольн приговорен к смертной казни за убийство и пребывает в камере смертников в одной из самых строго охраняемых (   Читать дальше...   )Жанр: Драма, БоевикРежиссер: Бретт Рэтнер и др.Актеры: Уэнтуорт Миллер, Доминик Перселл, Робин Танни, Питер Стормаре, Уильям Фихтнер, Сара Уэйн Кэллис, Арнори Ноласко, Рокмонд Данбар, Уэйд Уильямс, Пол Эделстейн, Роберт Неппер, Маршалл ОлманПеревод: Дублированный "REN-TV"Формат: WMAПродолжительность: 1 ч. 28 м.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904912   (652803) от 04.06.2015
 
 Maxthon Cloud Browser 4.4.5.3000 Final + Portable [Multi/Ru]
@@ -6,7 +59,7 @@ Maxthon Cloud Browser 4.4.5.3000 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652803.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ VRoot 1.8.5.15185[En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652738.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652732.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651869.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.38/dlc) License CODEX [Enhanced Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651625.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_651116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_651116.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_651024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_651024.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650896.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650893.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650892.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650890.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Max Payne 3 (Repack/1.0.0.28) [Ru/En/Multi6] 2012 l R.G. ReCoding
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650709.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650642.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650641.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_650216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_650216.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_650140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_650140.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650002.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1620]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649961.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648949.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648888.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ Skype 8.42.0.60 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648280.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648231.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ Adobe Premiere Pro CC 2019 13.1.0.193 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648178.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648163.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4A4AC867124AD5C28BBEC835B385CD558F8EA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292160   (648161) от 28.03.2019
-
-Acronis True Image 2019 Build 17750 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC2E037E557FD8C68FDAB121ED6530645E82CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523454   (648093) от 01.04.2022
-
-Sabikui Bisco | Rust-Eater Bisco | Биско-ржавоед [2022, TV, 12 эп.] WebRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся Япония превратилась в выжженную пустошь, когда взрыв огромного оружия привёл к возникновению «Ржавого ветра», загадочного феномена, пожирающего города и живые организмы. Биско Акабоси — представитель печально известного клана «Грибных стражей», который отправляется в путь, чтобы найти волшебный гриб «Ржавоед» и спасти своего учителя от верной гибели. В дороге (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Итагаки АцусиПеревод: Funimation; Wakanim (1-9) + AniLibria (10-12)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC18FEE942D6D76E057A0AFB02E937768175C09
 ```
 
 https://mybot314.ru/tekegram_catalog/

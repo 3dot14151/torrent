@@ -1,3 +1,133 @@
+###  Публикация: 1355367   (983144) от 26.01.2020
+
+Горбун из Нотр Дама / The Hunchback of Notre Dame (1996) BDRip [H.265/1080p-LQ] [10-bit] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная цыганка Эсмеральда зарабатывает на жизнь танцами. У нее есть друзья, но недоброжелатели столь могущественны, что Эсмеральда попадает в тюрьму. Звонарь Квазимодо устраивает девушке побег. А потом спасает ее, когда ослепленный ненавистью епископ Фролло пытается сам расправиться с ней. Этот мультфильм, в отличии от известного романа В. Гюго, кончается счастливо (   Читать дальше...   )Производство: США / WWalt Disney Feature Animation, Walt Disney PicturesЖанр: мультфильм, мюзикл, драма, мелодрама, семейныйРежиссер: Гари Труздейл, Кирк УайзПеревод: Дублированный, Многоголосый профессиональный, Авторский x5Субтитры: русские (полные), английские (полные, для слабослышащих)Продолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D967712F6414E663E73C82020AABD3D77F723C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355474   (983141) от 26.01.2020
+
+Рапунцель: Запутанная история / Tangled (2010) BDRip [H.265/1080p-LQ] [10-bit] [Локализованная версия]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обаятельный разбойник Флинн путешествует по жизни с легкостью, лишь потому, что он красив, болтлив и удачлив. И, казалось, фортуна всегда на его стороне, пока однажды он не выбирает высокую башню в густой чаще леса в качестве «спокойного» убежища. Флинн оказывается связанным по рукам и ногам юной красавицей по имени Рапунцель.Производство: США / alt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Нэйтан Грено, Байрон ХовардПеревод: Дублированный (Лицензия)Язык озвучки: Русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD618B7786D36213D131B4D7440B207DCE60BF82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741461   (982772) от 03.01.2014
+
+Рио / Rio (2011) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попугай-зануда оставляет свою уютную сытую жизнь в клетке и из Миннесоты отправляется в Рио-де-Жанейро, город грез всех и каждого. Неминуемые встречи, препятствия, опасности и любовь к последней представительнице его рода заставляют нашего героя по-другому посмотреть на мир и из скучного домоседа превратиться в милого симпатягу, узнавшего цену дружбе и смелости.Производство: СШАЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Карлос СалданаПеревод: ДублированыйПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D3AD553EDC137CE79C694298E4ED5BD2C5B79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435962   (982323) от 13.01.2012
+
+Приключения Hello Kitty и ее друзей: Счастливого Хэллоуина / Hello Kitty (2010) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения Hello Kitty и ее друзей! Это новый увлекательный и красочный мультсериал для самых маленьких, где происходят удивительные события с главной героиней мультика котенком Hello Kitty и ее друзьями: это познание мира с помощью красок, это проверка дружбы, это то как важно всегда говорить правду и как весело и дружно маленькие герои выходят из любой трудной (   Читать дальше...   )Жанр: Детский, ОбучающийРежиссер: Мэтью СвенсонПерсонажи: KittyПеревод: ДублированныйПродолжительность: 02:00:04 ( 10 x ~ 00:12:00 )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886F8966E8003235433D28F2BD8BEC12C510211C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355700   (982215) от 27.01.2020
+
+Муха-цокотуха (1960) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982215.jpg" />
+</div>
+
+
+###  Подробнее
+
+По стихотворной сказке Чуковского о Мухе, которую отважный Комар спас от жестокого Паука.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Владимир Сутеев, Борис ДежкинСубтитры: ОтсутствуютПродолжительность: 00:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBE6C5FED98C3810A7F61FD443C46D69654B2C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613923   (982147) от 04.02.2013
 
 Везуха! (2012) DVDRip (Сезон 1-2, 1-19) [Обновляемая]
@@ -6,7 +136,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982147.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982130.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982126.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981880.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981088.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981049.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980971.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980890.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980880.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980762.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980547.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980522.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980518.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980507.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Mister Пронька (1991) WEBRip
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980495.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980457.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980444.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980389.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980045.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979966.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979954.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478112AD939F794728B377BBDFF728FE33455A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355965   (979620) от 29.01.2020
-
-Стражи Арктики / Arctic Justice (2019) BDRip [H.264/1080p] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на ЗвероПолюс, где власть находится в лапах больших, сильных и зубастых. Ради собственного превосходства они готовы переделать под себя весь мир. Лишь маленькие, но очень храбрые встанут на защиту не только родного Северного полюса, но и целой планеты. Именно они — настоящие Стражи Арктики.Производство: Индия, Великобритания, Китай, Канада, Япония, Корея Южная, США, AMBI Group, Arctic Justice Movie, Assemblage EntertainmentЖанр: Комедия, Приключения, ФэнтезиРежиссер: Аарон ВудлиПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430CE3AEA3D92BDC2AABEFDE92219E8BFA1CD021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742204   (979456) от 05.01.2014
-
-Черепашки Мутанты Ниндзя / Teenage Mutant Ninja Turtles (2012 - 2013) WEB-DL [720p] (Сезон: 1, Серии: 1-26 из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из скрытого логова в коллекторах Черепашки Мутанты Ниндзя в самый первый раз отправлятся на поверхность, чтобы противостоять поразительному и враждебному миру Нью-Йорка! Они сталкиваются с группой головорезов, пытающихся похитить Эйприл О'Нил и её отеца Кирби. Будучи не в состоянии спасти Кирби, ребята обещает помочь Эйприл найти её отца, и вместе, они познают важность (   Читать дальше...   )Жанр: Экшн, Приключения, Фэнтези, КомедияРежиссер: Майкл ЧангПерсонажи: Леонардо, Рафаэль, Донателло, Микеланджело, Сплинтер, Эйприл О’Нил, Шреддер, КараиПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютФормат: MKVПродолжительность: ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6400E5BBEFD594F49F6BC4FE49CABC0257E04EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614849   (979397) от 06.02.2013
-
-Школа монстров. Классные девчонки / Monster High: Ghouls Rule (2012) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа монстров проливает свет на давний конфликт между людьми и монстрами — и события начинают принимать пугающий оборот! Годами студенты Школы монстров верили, что в ночь Хеллоуина следует не высовываться на улицу и избегать конфликтов любой ценой. Но Фрэнки и ее друзья узнают, что, оказывается, когда-то вампиры и люди с удовольствием отмечали этот праздник вместе! (   Читать дальше...   )Производство: СШАЖанр: Приключения, СемейныйРежиссер: Майк Феттерли, Стив СаксАктеры: Лора Бэйли , Хэнк Банки, Эндрю Дункан, Эрин Фицджералд, Кейт Хиггинс, Джули МаддаленаПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973582   (979051) от 09.01.2016
-
-Котики, вперёд! (2012-2015) WEB-DL [H.264/720p] (32 серий + бонусы)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные персонажи мультфильма — малыши Катя и Котя и их родители. Катя — непоседа, которая старается всё делать не по правилам, а Котя, как старший брат, более ответственный и серьёзный, но при этом любит поспорить. Все споры малышам помогают разрешать их добрые родители, а в волшебной коробке с игрушками, где даже самые смелые фантазии становятся реальностью, маленькие (   Читать дальше...   )Производство: Россия / студия "Toonbox"Жанр: Мультсериал, Детский, Обучающий, ПознавательныйРежиссер: Владимир ПономарёвАктеры: Слава Кагарманов, Алиса Ландер, Олег Щербинин, Юлия Яблонская, Джейкоб Клеман, Люси Джексон, Grace Gonglewski, Buck Schrirner, Chloe BernardeteПродолжительность: Серия по ~ 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14E177927D16BEAEAD1A2E3BE11BF1CB0D261C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356462   (979020) от 30.01.2020
-
-Младший брат (1976) WEBRip [H.264/1080p-LQ] [PR]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм «Младший брат» рассказывает о мальчике Вове, который предпочитает больше времени проводить со своим котенком, чем с маленьким братиком, у которого тем временем просыпается талант фотографа.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Леонид КаюковСубтитры: ОтсутствуютПродолжительность: 00:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B34421E3A84846692E58119401532F92DB18CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

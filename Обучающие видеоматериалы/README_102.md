@@ -1,3 +1,29 @@
+###  Публикация: 1011701   (777761) от 03.05.2016
+
+ITVDN | HTML5 Web Components (2016) PCRec [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777761.jpg" />
+</div>
+
+
+###  Подробнее
+
+HTML5 Web Components - это видео курс, который будет полезен любому разработчику. Мир разработки настольных приложений потерпел много изменений. Технологии, разработанные для создания пользовательских интерфейсов для desktop приложений хорошо развиты и многие годы, используются разработчиками. Но в веб ориентированных интерфейсах на сегодняшний день еще не сформировался (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 02:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FCC4A4A6131C12C41796EC81A78CC03DE6791C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011705   (777758) от 03.05.2016
 
 ITVDN | C# Essential Express (2015) PCRec [H.264/720p]
@@ -6,7 +32,7 @@ ITVDN | C# Essential Express (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777758.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ITVDN | Создание адаптивного сайта с Bootstrap 3 (2015)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777757.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ videosharp | Игра Сокобан на C# (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777453.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ W.D.I | Типографика в веб (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777427.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ ProfIT | PHP Готовимся к собеседованию (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777426.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Unity3DSchool | Основы языка C# в unity3D для написания 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777032.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776994.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Geekbrains | Node.js Серверное программирование на Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776987.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Happy Hope | Simple System Start (2013) PCRec [H.264]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776611.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Laracasts | Skills (2014-2017) PCRec [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775658.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Laracasts | Extra Series (2013-2018) PCRec [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775654.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775585.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ Udemy | Certified Metasploit Framework Professional (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773206.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ Lynda | Топ 10 проблем маркетинга (2016) PCRec [EN]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773193.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773057.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ CG Cookie | Создание воксельного арта в Blender 2.8 / Cr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772791.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ CG Cookie | Основы цифрового скульптинга в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772625.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ Victory3D | Создание игрового окружения "Античны
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772495.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Udemy | Unreal Engine Blueprints The Ultimate Developer Course (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772438.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ CG Cookie | Создание игры Portalethium часть 2: Дизайн у
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771270.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ Skillbox | Photoshop с нуля до PRO (2020) WEBRip [H.264/1080p-LQ]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771171.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770955.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770392.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ Polygon Runway | Создание 3D леттеринга в Blender 2.82 / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770390.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770300.jpg" />
 </div>
 
 
@@ -665,34 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFE47A412F5872B4E767FFE081FCF0025DFF5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392020   (770294) от 23.06.2020
-
-Polygon Runway | Стань 3D иллюстратором в Blender 2.8 / Become a 3D illustrator in Blender 2.8 by Roman Klco (2020) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите стили иллюстраций, которые помогли мне достичь аудитории 100k+. Поднимитесь на борт и раскройте свой творческий потенциал уже сегодня!
-Со мной вы сразу же переходите к действию и в течение первого часа Вы получите свою первую 3D-иллюстрацию! Позвольте мне показать вам образ, который создал один из студентов. Один час урока - это все, что потребовалось!
-Я (   Читать дальше...   )Производство: Polygon RunwayЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 20:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3446BF416ACD2521D15C460CFBF5755294D4296
 ```
 
 https://mybot314.ru/tekegram_catalog/

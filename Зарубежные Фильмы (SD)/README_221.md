@@ -1,55 +1,3 @@
-###  Публикация: 1521725   (764107) от 03.01.2022
-
-Заложники Марса / Settlers (2021) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764107.jpg" />
-</div>
-
-
-###  Подробнее
-
-2078 год. Жизнь на Марсе стала реальностью. Ремми родилась на этой планете и никогда не была на Земле. Её семья живёт в изолированной колонии, ограниченной кислородным куполом. Но когда на их дом нападают вооруженные захватчики, Ремми вынуждена столкнуться с тем, от чего её уберегали родители, и узнать, что на самом деле скрывает Марс.Производство: Великобритания, ЮАР / Brittle-Star Pictures, Film Constellation, Jericho Motion PicturesЖанр: Фантастика, триллер, драмаРежиссер: Уайатт РокфеллерАктеры: София Бутелла, Джонни Ли Миллер, Нелл Тайгер Фри, Бруклин Принс, Исмаэль Круз, Натали Уолш, Мэттью Ван ЛеевеПеревод: Дублированный ( iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), АнглийскиеПродолжительность: 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C39A845DAF24768FFF503231E7841E88FDBD595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521694   (764103) от 03.01.2022
-
-Заложники Марса / Settlers (2021) BDRip [H.265]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764103.jpg" />
-</div>
-
-
-###  Подробнее
-
-2078 год. Жизнь на Марсе стала реальностью. Ремми родилась на этой планете и никогда не была на Земле. Её семья живёт в изолированной колонии, ограниченной кислородным куполом. Но когда на их дом нападают вооруженные захватчики, Ремми вынуждена столкнуться с тем, от чего её уберегали родители, и узнать, что на самом деле скрывает Марс.Производство: Великобритания / Brittle-Star Pictures, Film Constellation, Jericho Motion PicturesЖанр: Фантастика, триллер, драмаРежиссер: Уайатт РокфеллерАктеры: София Бутелла, Джонни Ли Миллер, Нелл Тайгер Фри, Бруклин Принс, Исмаэль Круз, Натали Уолш, Мэттью Ван ЛеевеПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C308AF526AB0BF5CD96B47C84D2D6769766AF7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279685   (764050) от 31.01.2019
 
 Бамблби / Bumblebee (2018) WEBRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764050.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763893.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763850.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763813.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763629.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763389.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763209.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763148.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763122.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763113.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763109.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763058.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762968.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762879.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762864.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762855.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762844.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762753.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762723.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762632.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762479.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762402.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762389.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762264.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E8A83A585AAA317FA860FD1EB7D005925DC81F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886874   (762170) от 10.04.2015
+
+Голоса / The Voices (2014) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джерри — оптимистичный, приятный парень, но он душевно болен и в последнее время не принимал назначенные ему препараты. В своих галлюцинациях он видит, как его кот предлагает ему стать серийным убийцей, в то время как его пес пытается убедить его, что он хороший человек. Начав вновь принимать препараты, он переживает короткие периоды ясности, в которые понимает, что в его жизни гораздо больше насилия, чем он себе представлял...Производство: USA, Germany / 1984 Private Defense Contractors, Mandalay Vision, Studio BabelsbergЖанр: триллер, комедия, криминалРежиссер: Маржан СатрапиАктеры: Райан Рейнольдс, Джемма Артертон, Анна Кендрик, Джеки Уивер, Элла Смит, Пол Чахиди, Стэнли Таунсенд, Ади Шанкар, Сэм Спруэлл, Валери Кох, Гулливер МакГрат, Пол Брайтвелл, Михаэль Пинк, Алекс Тондовски, Харви Фридман, Стефани Вогт, Кай Фанг Рик, Антье РауПеревод: профессиональный (многоголосый закадровый) (Gears Media)Язык субтитров: русский, английскийПродолжительность: 01:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6358822ACF0E4EA0E284F78A71871569ED73D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394649   (762113) от 06.07.2020
+
+Сестра твоей сестры / Your Sister's Sister (2011) BDRip [H.264] [VO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запутавшийся и потерявший всякую надежду Джек, скорбящий по недавно скончавшемуся брату, находит смысл дальнейшей жизни? благодаря своей близкой подруге Айрис. Она предлагает ему отправиться на остров Пьюджет-Саунд, где он сможет привести свой разум в порядок. Однако на месте он обнаруживает одинокую женщину Ханну, которая оказывается родной сестрой Айрис. И вот, (   Читать дальше...   )Производство: США / Ada FilmsЖанр: Драма, КомедияРежиссер: Линн ШелтонАктеры: Эмили Блант, Розмари ДеУитт, Марк Дюпласс, Майк Бирбилья, Майкл Хэрринг, Джейсон Додсон, Пит Эриксон, Кэтрин Лебо, Ивэн Мошер, Дженнифер МаасПеревод: Одноголосый любительскийСубтитры: Русские, английскиеПродолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4522ABD5915192DEEE94E348036512D80D55EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,84 +1,3 @@
-###  Публикация: 1195480   (140883) от 30.12.2017
-
-С. Моложавый, Е. Шимкевич | Проблемы трудовой школы в марксистском освещении (1924) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый вниманию товарищей-педагогов ряд статей является результатом нашей не только теоретической, но и практической работы как в дореволюционной школе, так и в школе трудовой. Продолжительная работа в средних учебных заведениях старой школы на непосредственном опыте вскрыл перед нами вое дефекты и ложные предпосылки прежней школьной системы и ее методов, побудила (   Читать дальше...   )Жанр: История, политология, искусство, психология, педагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D510CB1363FE221D3E5AC82E3FDE13D35BCE8DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195759   (140806) от 30.12.2017
-
-Н. Лебедев (сост.) | Ленин, Сталин, партия о кино (1938) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140806.jpg" />
-</div>
-
-
-###  Подробнее
-
-За двадцать лет пролетарской диктатуры советская кинематография добилась крупнейших успехов.
-
-Кинофицированы огромные территории многонациональных советских республик. На голом месте создана мощная пленочная и киномеханическая промышленность. Широко поставлено производство кинохроники и учебных фильмов. Освоена техника звукового и осваивается сложнейшая техника цветного (   Читать дальше...   )Жанр: История, политология, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEC2FC73DC7B70E91512C09AF3D15A6F8F01B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088393   (140753) от 30.12.2016
-
-Алексей Толпыго | Загадки истории. Злодеи и жертвы Французской революции (2016) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая французская революция стала поворотным моментом в истории Франции, да, пожалуй, и всей Европы. На арену общественной жизни вышло третье сословие.
-События этой революции потрясают не только своей масштабностью, но и жестокостью: тысячи людей стали жертвами революционного террора, который, как обещали его вдохновители – Марат, Дантон, Робеспьер, – был призван (   Читать дальше...   )Жанр: Документальная литература, Историческая литература, ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32B0A60AB6C2474600C7FBE9A1EBAC8127753C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348960   (140711) от 29.12.2019
 
 Эндрю Лумис | Забавы с карандашом. Самый легкий способ научиться рисовать (2016) [EPUB]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140711.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140585.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140058.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140028.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139850.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139723.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139697.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139695.jpg" />
 </div>
 
 
@@ -296,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139583.jpg" />
 </div>
 
 
@@ -322,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139576.jpg" />
 </div>
 
 
@@ -348,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139572.jpg" />
 </div>
 
 
@@ -375,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139561.jpg" />
 </div>
 
 
@@ -401,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139525.jpg" />
 </div>
 
 
@@ -428,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139511.jpg" />
 </div>
 
 
@@ -454,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139501.jpg" />
 </div>
 
 
@@ -480,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139479.jpg" />
 </div>
 
 
@@ -506,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139477.jpg" />
 </div>
 
 
@@ -532,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139417.jpg" />
 </div>
 
 
@@ -559,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139317.jpg" />
 </div>
 
 
@@ -585,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139306.jpg" />
 </div>
 
 
@@ -611,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139296.jpg" />
 </div>
 
 
@@ -638,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139287.jpg" />
 </div>
 
 
@@ -664,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139270.jpg" />
 </div>
 
 
@@ -675,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABA32AD00324C789482D08FA35FC4AAF5C3706DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970694   (139262) от 31.12.2015
+
+П. П. Гайденко, Ю. Н. Давыдов | История и рациональность: Социология М. Вебера и веберовский ренессанс (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известных советских специалистов в области западной философской и социологический мысли посвящена всестороннему рассмотрению взглядов классика социологии XX в. немецкого ученою Макса Вебера и их влияния на последующее развитие социологической мысли. Особое внимание в работе обращается на анализ таких важных категорий, как ”рациональность”, ”право”, ”демократия”, (   Читать дальше...   )Жанр: Общество, социологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FFB742D51645725301B88CB3B8FAE2904903B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970648   (139243) от 31.12.2015
+
+Имре Лакатос | Избранные произведения по философии и методологии науки (2008) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139243.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «Доказательствах и опровержениях» Имре Лакатос (1922 —1974), мыслитель, оказавший значительное влияние на философию и историю науки XX века, разбирает доказательства знаменитой теоремы Эйлера о многогранниках и получающихся при этом парадоксах. В работе «Фальсификация и методология научно-исследовательских программ» (1970) он выступает одним из наиболее глубоких (   Читать дальше...   )Жанр: ФилософияПеревод: И. Н. Веселовский, А. Л. Никифоров, В. Н. ПорусФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981A3FB2B957EA49CC08D1987ABB35852B23A295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970620   (139223) от 31.12.2015
+
+Мераб Мамардашвили | Очерк современной европейской философии (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139223.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлена первая публикация лекций, прочитанных М.К. Мамардашвили (1930-1990) студентам ВГИКа в 1978-1979 гг. Внутренний сюжет «Лекций о современной философии» образует переплетение двух тем: единократное историческое событие рождения современности с ее специфическими возможностями и невозможностями и вечно возобновляющееся, но ничем не гарантированное (   Читать дальше...   )Жанр: История философииФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423357F0831B00D950E42F618D145C3B088EC3DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

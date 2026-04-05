@@ -1,3 +1,140 @@
+###  Публикация: 452378   (76360) от 15.02.2012
+
+Журнал | Penthouse № 1 USA (январь)[2012] [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Penthouse - приносит вам наши собственные обжигающие рассказы запрещенных желаний, ненасытных потребностей и невысказанных вожделений...Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453067   (76267) от 15.02.2012
+
+Журнал | Cosmopolitan [Россия] №204 (март 2012) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan – женский глянцевый журнал №1 в России. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo. Для своих постоянных читательниц журнал стал настоящей подругой, с которой можно поболтать о моде, косметике, отношениях, сексе и многом другом. СегодняФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8828002ACBA3D10535A7203118161AFA581AB032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452114   (76134) от 14.02.2012
+
+Журнал | Playboy [Россия] №3 (2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy — легендарный журнал для мужчин. Эксклюзивные съёмки знаменитостей. Престижные автомобили. Стильный и современный Playboy неизменно привлекает внимание читателей. Это издание для успешных современных мужчин, берущих от жизни всё! В каждом номере — девушка месяца и галерея Playboy.
+Playboy — классический мужской life style журнал!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786D898C86A7EB9CC77F835F592002B723B784AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452286   (76092) от 14.02.2012
+
+Журнал | Men's Health [Россия] №3 (2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. РусскоязычныйФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521B7269A7AB910B51853F5448898109C48B6D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358226   (75141) от 09.02.2012
+
+Журнал | Проект Периметр [2011-12] [PDF, JAR] Обновлено 9.02.2012
+
+>>Журналы
+>>Игровые журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставляя журнал «S.T.A.L.K.E.R. World» сайту STG, мы расширяем свои рамки до «Проекта "Периметр"». В нём найдётся место не только Зоне, но и Пятизонью, Метро, Зоне Смерти и всем тем постапокалиптическим мирам, в которых нас называют одним и тем же словом – Сталкер. Это миры, в которых каждый из нас находит то, что заслуживает: азарт приключений и горечь потерь, любовь и ненависть, дружбу и предательство.
+
+Но, наряду с этим, мы не забываем и о реальном мире, в котором существует ЧАЭС, совсем не та ЧАЭС, которую мы видим в игре, и ещё множество всяких АЭС и потенциально опасных техногенных объектов, несущих угрозу всему Человечеству. Мы отдаём дань памяти всем, кто положил своё здоровье и свою жизнь на алтарь служения людям.
+
+Добро пожаловать домой, Сталкер!
+
+Личное мнение: Журнал маленький и "молодой", но все таки чувствуется, что редакция "разбирается как следует")))2011-12Формат: PDF - для ПК, JAR - для мобилок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C5F871E32D43B802B276437C1B018C81AE2298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 347719   (75068) от 09.02.2012
 
 Журнал | Autodesk Community Magazine №№ 1-2 [2011] [PDF]
@@ -6,7 +143,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75068.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74873.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74821.jpg" />
 </div>
 
 
@@ -87,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74816.jpg" />
 </div>
 
 
@@ -115,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74800.jpg" />
 </div>
 
 
@@ -143,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74633.jpg" />
 </div>
 
 
@@ -171,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74363.jpg" />
 </div>
 
 
@@ -197,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74358.jpg" />
 </div>
 
 
@@ -223,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74025.jpg" />
 </div>
 
 
@@ -249,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72957.jpg" />
 </div>
 
 
@@ -275,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72917.jpg" />
 </div>
 
 
@@ -301,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72795.jpg" />
 </div>
 
 
@@ -327,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72700.jpg" />
 </div>
 
 
@@ -354,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72594.jpg" />
 </div>
 
 
@@ -380,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72030.jpg" />
 </div>
 
 
@@ -406,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72005.jpg" />
 </div>
 
 
@@ -432,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71521.jpg" />
 </div>
 
 
@@ -458,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71520.jpg" />
 </div>
 
 
@@ -484,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71505.jpg" />
 </div>
 
 
@@ -510,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71498.jpg" />
 </div>
 
 
@@ -536,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71488.jpg" />
 </div>
 
 
@@ -547,138 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:015BA4CA1606318CF2CEB48060A8B95A6AB3CFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775335   (71452) от 26.01.2025
-
-Журнал | Российская Федерация сегодня №1 (январь 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71452.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Российская Федерация сегодня» — общественно-политический журнал Федерального Собрания Российской Федерации. Освещает деятельность как высших исполнительных и законодательных органов государственной власти, так и региональных, а также органов местного самоуправления.Жанр: общественно-политический журналИздательство: АНО "Парламентская газета"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18EBB55DD38B5A69BF3E4608B33650E910EF7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775557   (71416) от 27.01.2025
-
-Журнал | Профиль №49-50 (244) (декабрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52EA8F96A3E8C6A29F3453E628061630FF993B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775827   (71390) от 28.01.2025
-
-Журнал | Приусадебное хозяйство №1 (январь 2025) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91BC40A36062A1A962455AC6F0FEDFA56C90931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776067   (71349) от 30.01.2025
-
-Журнал | Юность №10 (827) (октябрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71349.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
-До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05ACC255430B7B13396BE41121E646D4EAE7A8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776143   (71346) от 30.01.2025
-
-Журнал | Военно-исторический журнал №2 (778) (февраль 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71346.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A5C05934EBABFDA94519C9CB217ECEF81D3280
 ```
 
 https://mybot314.ru/tekegram_catalog/

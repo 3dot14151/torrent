@@ -1,3 +1,30 @@
+###  Публикация: 1417555   (355212) от 21.10.2020
+
+Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.508.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542D1BA74DACA698CB9FFCD0194B33E832EB03AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417554   (355205) от 21.10.2020
 
 Windows Server, Version 20H2 (10.0.19042.508) - Оригинальные образы от Microsoft MSDN [Ru/En]
@@ -6,7 +33,7 @@ Windows Server, Version 20H2 (10.0.19042.508) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355205.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Windows 10 IoT Enterprise, Version 20H2 (10.0.19042.508) - Оригинальн�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355021.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные обр�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352658.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Microsoft Windows 11 [10.0.22000.978], Version 21H2 (Updated September 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352057.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Microsoft Windows 10.0.19043.2006, Version 21H1 (Updated September 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352054.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.4 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351760.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Recovery DVD for Acer Aspire One 522 / Windows 7 Starter (х86) SP1 [русск�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_349674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_349674.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349631.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Microsoft Windows 10.0.18362.1139 Version 1903 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348949.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ Microsoft Windows 10.0.17763.1518 Version 1809 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348936.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ Microsoft Windows 10.0.18363.1139 Version 1909 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348813.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ Microsoft Windows 10.0.18362.1139 Version 1903 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348796.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ Microsoft Windows 10.0.17763.1518 Version 1809 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348670.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ Microsoft Windows 10.0.19041.572 Version 2004 (Updated Oct 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348531.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ Microsoft Windows 10.0.18363.1139 Version 1909 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348530.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1518 (Updated Oct 2020) Ори
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348387.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ Microsoft Windows 10.0.19044.2006, Version 21H2 (Updated September 2022)  - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347208.jpg" />
 </div>
 
 
@@ -469,7 +496,7 @@ Microsoft Windows 10.0.19041.572 Version 2004 (Updated Oct 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345973.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v11 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344933.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ Microsoft Windows 11 [10.0.22621.382], Version 22H2 - Оригинальные �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342417.jpg" />
 </div>
 
 
@@ -551,7 +578,7 @@ Recovery USB HDD (FLASH) ISO for HP Pavilion dv6-6b63er / Windows 7 Home Basic 6
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_341906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341906.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339284.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ Recovery DVD for Lenovo IdeaPad S10-3S / Windows 7 Starter (х32) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336879.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ Microsoft Windows 11 [10.0.22621.525], Version 22H2 (Updated September 2022)  - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332753.jpg" />
 </div>
 
 
@@ -656,7 +683,7 @@ Microsoft Windows 10 Enterprise 10.0.10586 Version 1511 - Оригинальны
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330752.jpg" />
 </div>
 
 
@@ -667,32 +694,6 @@ Microsoft Windows 10 Enterprise 10.0.10586 Version 1511 - Оригинальны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB68B191B9DCB6B32EFD9C8290593779F850D9C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955978   (330748) от 13.11.2015
-
-Microsoft Windows 10 Pro-Home | Single Language 10.0.10586 Version 1511 - Оригинальные образы [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E146E96131826C10D4949E03D028F53035C91F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

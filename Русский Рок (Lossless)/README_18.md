@@ -1,62 +1,3 @@
-###  Публикация: 1279526   (765331) от 30.01.2019
-
-Линда - АлеАда (2006) [FLAC|Lossless|tracks + .cue] <Breakbeat, Alternative Rock, Downtempo>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Любовь в конверте (3:51)
-02.Мечена Я (3:53)
-03.Я украду! (3:04)
-04.Толкай на любовь (3:16)(   Читать дальше...   )Жанр: Breakbeat, Alternative Rock, DowntempoПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B492B56D8488469869D0C7EDB01B3E229996A7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617879   (765195) от 18.04.2017
-
-Табула Раса - 5 альбомов (1999-2017) [FLAC, APE|Lossless|image + .cue] <Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765195.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Табула Раса» — украинская музыкальная группа, основанная в 1989 году.
-Основателем и бессменным фронтменом группы является Олег Лапоногов. Олег родился в Бродах Львовской области в 1964 году. Закончил школу в Сумах и поступил в Киевский театральный институт им. Карпенко-Карого.1999 - Бетельгейзе
-2003 - Українська колекція
-2005 - Цветочные календари
-2007 - Музыка народов ПтицЖанр: Indie-RockПродолжительность: 03:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC987EB65061D4C65BC6CBC1F52F4A56C17250BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214392   (764865) от 21.03.2018
 
 Хелависа - Люцифераза (2018) [APE|Lossless|tracks] WEB <Folk-Rock>
@@ -65,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764865.jpg" />
 </div>
 
 
@@ -94,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762883.jpg" />
 </div>
 
 
@@ -123,7 +64,7 @@ Lumen - Забытое и найденное (2018) [FLAC|Lossless|tracks] <Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761289.jpg" />
 </div>
 
 
@@ -152,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761280.jpg" />
 </div>
 
 
@@ -181,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761154.jpg" />
 </div>
 
 
@@ -210,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760594.jpg" />
 </div>
 
 
@@ -239,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760206.jpg" />
 </div>
 
 
@@ -268,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758651.jpg" />
 </div>
 
 
@@ -295,7 +236,7 @@ Kauan - 8 Albums (2007-2017) [FLAC|Lossless|image + .cue] <Atmospheric Post Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758512.jpg" />
 </div>
 
 
@@ -324,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758003.jpg" />
 </div>
 
 
@@ -353,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756577.jpg" />
 </div>
 
 
@@ -382,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755429.jpg" />
 </div>
 
 
@@ -411,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755072.jpg" />
 </div>
 
 
@@ -440,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_754435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754435.jpg" />
 </div>
 
 
@@ -475,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753587.jpg" />
 </div>
 
 
@@ -504,7 +445,7 @@ Animal ДжаZ - Хранитель весны (2015) [FLAC|Lossless]<Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751530.jpg" />
 </div>
 
 
@@ -533,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750193.jpg" />
 </div>
 
 
@@ -562,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749924.jpg" />
 </div>
 
 
@@ -591,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749571.jpg" />
 </div>
 
 
@@ -620,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749569.jpg" />
 </div>
 
 
@@ -649,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749209.jpg" />
 </div>
 
 
@@ -678,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746747.jpg" />
 </div>
 
 
@@ -707,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746522.jpg" />
 </div>
 
 
@@ -736,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746513.jpg" />
 </div>
 
 
@@ -750,6 +691,64 @@ CD - 1 - Каннибал:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D575761A407A07B3ACF57EFA56E5D7B4154996C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020240   (744854) от 26.05.2016
+
+Би-2 - ... и корабль плывёт (2000) 2xCD, 2016, Мистерия звука [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744854.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. И корабль плывет... (3:53)
+02. Восток (3:54)
+03. Сердце (5:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:16 + 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4196CBFBAC53A54471587DFECF78F8102D63BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665477   (744207) от 06.06.2013
+
+Земфира - Спасибо, Вендетта (2007) [FLAC|Lossless|image + .cue]<Rock, Acoustic, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В метро [2:54]
+02. Воскресенье [2:31]
+03. Дом [3:49]
+04. Мы разбиваемся [3:20](   Читать дальше...   )Жанр: Rock, Acoustic, Pop RockПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

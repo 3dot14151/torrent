@@ -1,3 +1,107 @@
+###  Публикация: 1819237   (1660) от 21.09.2025
+
+Узлы 3D / Knots 3D v10.2.0 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Paid / FullРелиз состоялся: 21.09.2025Разработчик: Nynix LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55569C30298B1A56F3821AB99FF53329D328D847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819300   (1654) от 21.09.2025
+
+Device Info / Информация об устройстве v3.4.0.2 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Device Info — простое, но мощное приложение для Android, которое предоставляет полную информацию о мобильном устройстве с расширенными пользовательскими интерфейсами. Например, информация об устройстве/телефоне включает информацию о ЦП, оперативной памяти, ОС, датчиках, памяти, аккумуляторе, SIM-карте, Bluetooth, сети, установленных приложениях, системных приложениях, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 21.09.2025Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EED5CC41CDD170D49EE51A13B652269A59CA155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819238   (1638) от 21.09.2025
+
+Jigsawscapes® - Пазлы v4.2.1 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пазлы — игра-головоломка для взрослых в хорошем качестве. Любимая миллионами, увлекательная игра в магазине Google Play. Вы можете скачать бесплатную игру в пазлы для телефона или планшета Android. Она поможет вам держать мозг в тонусе и отвлечься от повседневных забот. Пазлы развивают ваше логические мышление и укрепляют память. Игра в пазлы - это хороший способ (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 20.09.2025Разработчик: Oakever GamesПоддерживаемая ОС: Android 7.0+Жанр: Головоломка, ПазлыЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C0C0E21434536F83BC325CDC50C8B42558AE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819234   (1628) от 21.09.2025
+
+Flud v1.11.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flud - простой и элегантный BitTorrent клиент для операционной системы Android. Все возможности протокола BitTorrent на Вашем мобильном устройстве. Скачивайте и раздавайте файлы непосредственно со своего смартфона или планшета.Тип издания: ModРелиз состоялся: 21.09.2025Разработчик: Delphi SoftwaresПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE4DEE93D066C791B7A2BD182DBCEF829877D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819533   (1481) от 22.09.2025
 
 Remini / Улучшение Фото v3.7.1126.202516929 Mod by Mixroot [Ru/Multi]
@@ -6,7 +110,7 @@ Remini / Улучшение Фото v3.7.1126.202516929 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1481.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ SnapEdit - AI photo editor v7.4.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1472.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ HiPER Calc Pro v11.2.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1446.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Relax Rain: sleeping sounds v9.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1321.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.708 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1318.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Purvpn 9.5 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1187.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ My TTS: Text-to-Speech v1.5.4 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1173.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Material Pods: батарея AirPods v6.68 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1158.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ RUTUBE - видео, шоу, трансляции 30.10.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1037.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Rosetta Stone: Изучение языков 8.34.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1004.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ ByeByeDPI v1.6.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_907.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ FullReader - читалка книг v4.3.6 b365 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_638.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Purvpn 9.6 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_604.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_595.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.9.57961 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_583.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ AIDA64 v2.12 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_577.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ WPS Office + PDF v18.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_570.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Flud v1.11.8.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_559.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.1 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_554.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ PictureThis - Plant Identification v5.13.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_549.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Auto Reply: автоответчик v5.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_533.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.126 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_531.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ WaveEditor для Android™ — это профессиональный инс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D7F745A71419E67B20DEEB3BB3E51CAEBE585E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820434   (530) от 27.09.2025
-
-AndroVid Pro Video Editor v7.0.8.5 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_530.jpg" />
-</div>
-
-
-###  Подробнее
-
-AndroVid Pro представляет собой простой и удобный в использовании видео-редактор и графическое приложение для YouTube, Instagram, Tik Tok, Facebook и других социальных сетей. Просто скачайте это приложение прямо сейчас, чтобы создать красочные ролики с музыкой, текстом, графикой, стикерами и другими классными эффектами.Тип издания: ProРелиз состоялся: 27.09.2025Разработчик: Fogosoft LtdПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893B6038A4BEB23ED962EB99AA7EA205FC97AD99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820684   (391) от 28.09.2025
-
-Универсальный Пульт для ТВ v1.7.2 Mod by MustHave [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите получить максимум от Вашего телевизора? Мы хотим помочь вам с этим, поэтому создали UniMote - универсальный пульт дистанционного управления для любого телевизора. Наше приложение поможет вам управлять своим телевизором и ваше устройство Android станет пультом дистанционного управления для Smart TV, Андроид ТВ, Google TV, Samsung, LG, TCL, Sony и т. д. Вы можете (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.09.2025Разработчик: SensusTech LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED32A3E4A284A1AE8F6996D54112E4DE1E74C2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820361   (352) от 28.09.2025
-
-FBReader Premium v3.8.18 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 26.09.2025Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684F0C67C8B85C5BEE8C5807035726B3571A0251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820575   (344) от 28.09.2025
-
-Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.1.2 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш Android не распознаёт подключенный к нему USB-носитель? Вероятно, файловая система внешнего накопителя не поддерживается устройством. Установите приложение Microsoft exFAT/NTFS for USB by Paragon Software, чтобы монтировать систему внешнего USB-накопителя и управлять файлами прямо с вашего Android-устройства.Тип издания: Pro / Extra ModРелиз состоялся: 28.09.2025Разработчик: Paragon Technologie GmbHПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C915FA054CECA8B08FEB5E2F52A464E08C61A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

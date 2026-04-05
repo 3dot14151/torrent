@@ -1,3 +1,32 @@
+###  Публикация: 1182075   (319216) от 09.11.2017
+
+Amberian Dawn - Darkness of Eternity (2017) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm the One
+02. Sky Is Falling
+03. Dragonflies
+04. Maybe(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53ADFF7676EFC883336836ABD8FE65A04E8F89B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182207   (319202) от 09.11.2017
 
 Shakra - Snakes & Ladders (2017) [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +35,7 @@ Shakra - Snakes & Ladders (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319202.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tetrafusion - Dreaming Of Sleep (2017) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319179.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Vauxdvihl - To Dimension Logic - Extended Version (1994) Remastered, 2014, 2CD [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319178.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Toxik - III Works (2018) 3CD [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319174.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Metrolites - In Spy-Fi (2004) [FLAC|Lossless|tracks + .cue] <Surf, Garage Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319171.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Metrolites - For The People (2006) [FLAC|Lossless|tracks + .cue] <Surf, Gara
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319163.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Slade - Alive At Reading (1980) Bootleg [MP3|192 кб/с]<Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319129.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Foo Fighters - Saint Cecilia (2015) EP [MP3|320 кб/с]<Alt. Rock, Post-Grunge,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319123.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319096.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Kid Rock - Sweet Southern Sugar (2017) [MP3|320 Kbps] <Rock, Country Rock, South
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319092.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319061.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318936.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ EldersThrone - 1978 (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318935.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Amaurot - ...to Tread the Ancient Waters (2022) [FLAC|Lossless|WEB-DL|tracks] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318934.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Them - Return To Hemmersmoor (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318931.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Egoist - Наследие (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318929.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318928.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Magical Heart - Heartsonic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318927.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318926.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Fallujah - Empyrean (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318924.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Wolfheart - King Of The North (2022) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318915.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Vended - 1 EP, 1 Single (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu-Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318909.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Scorpions - Savage Amusement (1988) 50th Anniversary Deluxe Edition, Remastered,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318867.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Paul McCartney - 73 Albums, 31 Singles (1970-2013) Discography [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_318846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_318846.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Loudness - Tokuma Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318824.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ Loudness - Tokuma Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:685AF11923A54C1DA56CDC695FDDE543DDFC5863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075114   (318820) от 23.11.2016
-
-Loudness - Masters Of Loudness (1996) Japanese Edition 2CD Compilation [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Dust 04:45
-02. Dream Fantasy 04:34
-03. Speed (Live) 07:59
-04. Let It Go 04:13(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90698FD8BB77317E00945ED50E33253D16B1F967
 ```
 
 https://mybot314.ru/tekegram_catalog/

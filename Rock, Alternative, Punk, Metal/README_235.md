@@ -1,3 +1,148 @@
+###  Публикация: 1497956   (859891) от 25.09.2021
+
+A Pale Horse Named Death - Infernum In Terra (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernum
+02. Believe In Something (You Are Lost)
+03. Cast Out From The Sky
+04. Shards Of Glass(   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98AACBD1484859EB5B3C5CF0E1FE806362017E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497950   (859890) от 25.09.2021
+
+Rebel's End - Sing To The Devil (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DCLXVI
+02. Evil Eye
+03. Black Crow
+04. Rawhead(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C03F741C2DA738BF1B8041C7648CA9D1A80DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498078   (859778) от 25.09.2021
+
+John Dallas - Love & Glory (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anymore
+02. Bad Sister
+03. Drive Me Tonight
+04. Glory(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6DEF79A67E578F790F8E477507A32DC8B3D1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498077   (859777) от 25.09.2021
+
+Dream Ocean - The Missing Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightmare (Intro)
+02. Dark Miracles
+03. Pendulum Of Time
+04. The Great Silence(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FD0ABF57AFFD55833653DE1E6BBA2F1D3B5F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498075   (859772) от 25.09.2021
+
+Brothers In Arms - Sunset And Clark (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitch Is Crazy
+02. Last To Know
+03. The City Never Sleeps
+04. Feel The Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4710ADC489E2346B7E3BF30D58C634A791086A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497985   (859766) от 25.09.2021
 
 Steve Hackett - Surrender of Silence (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
@@ -6,7 +151,7 @@ Steve Hackett - Surrender of Silence (2021) [FLAC|Lossless|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859766.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Mephisto Walz - Discography (8 albums) (1986-2004) [MP3|192-320 kbps] <Gothic Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859599.jpg" />
 </div>
 
 
@@ -70,7 +215,7 @@ Second Reign - Gravity (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859536.jpg" />
 </div>
 
 
@@ -99,7 +244,7 @@ R.E.M. - Дискография (1982-2011) [MP3|320 kbps]<Rock | Alt Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859502.jpg" />
 </div>
 
 
@@ -125,7 +270,7 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970/2021) (50th Annive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859431.jpg" />
 </div>
 
 
@@ -154,7 +299,7 @@ Infrared - No Peace (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859364.jpg" />
 </div>
 
 
@@ -183,7 +328,7 @@ Endless - The Truth, The Chaos, The Insanity (2016) [MP3|320 кб/с] <Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859333.jpg" />
 </div>
 
 
@@ -212,7 +357,7 @@ Dream Police - Dream Police (1990) Remastered, 1992, Epic, Japanese Edition [APE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859321.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ Eternity's End - The Fire Within (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859315.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ Sleep For The Weary - Nocturns (2016) [MP3|320 кб/с] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859312.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ Sniff'n'The Tears - Love/Action (1981) [FLAC|Lossless|image + .cue]<Pop Rock, So
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859304.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Metal Church - XI (2016) [MP3|320 кб/с] <Heavy Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859266.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Caliban - Gravity (2016) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859203.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Queensryche - Greatest Hits (2000) Compilation, Remastered [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859202.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Tool - Undertow (2001) Jараn Еditiоn [FLAC|Lossless|tracks] <Rock, Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859200.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphon
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859153.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859103.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Moonspell - Night Eternal (2008) Reissue, 2019, Alma Mater Records [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859032.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859026.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ Moonspell - Memorial (2006) 2CD, Reissue, 2020, Alma Mater Records [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859022.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858987.jpg" />
 </div>
 
 
@@ -597,151 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93043B918F76EFEE98760E040B7EAC7F348B0F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376586   (858926) от 18.04.2020
-
-Moonspell - Memorial (2006) 2CD, Reissue, 2020, Alma Mater Records [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. In Memoriam (Instrumental) [00:01:25]
-02. Finisterra [00:04:08]
-03. Memento Mori [00:04:27](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2253CC6C3B6C3ECD14ACF823FB28925B46373589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376536   (858798) от 18.04.2020
-
-Звери - Одинокому везде пустыня (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дама с собачкой
-2. Попрыгунья
-3. Человек в футляре
-4. Палата №6(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6753A7BC7879A76DCE3F25FEEE4D731D2C998BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376566   (858558) от 18.04.2020
-
-No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:00:37]
-02 - Highway Robbery [00:03:30]
-03 - Rolling Around [00:04:03]
-04 - One Last Time [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D7342A4C4A7C71AD406790196D5DC970CBCC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498398   (858185) от 26.09.2021
-
-Virial - Transhumanism (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discovery [00:00:32]
-02. Project Cyclops [00:05:44]
-03. Interstellar Voyage [00:05:38]
-04. March of Prometheus [00:04:29](   Читать дальше...   )Жанр: Progressive Death, Melodic DeathПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD1D93EFC6EBC6C0FFF2435B2F905D2232080F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498286   (858071) от 26.09.2021
-
-Brainstorm - Wall Of Skulls (2021) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chamber Thirteen
-02. Where Ravens Fly
-03. Solitude
-04. Escape The Silence(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6C52A9BD214330FEEC1104747AC7AEAFF17325
 ```
 
 https://mybot314.ru/tekegram_catalog/

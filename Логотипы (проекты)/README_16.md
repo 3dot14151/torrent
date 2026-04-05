@@ -1,3 +1,31 @@
+###  Публикация: 1018776   (753572) от 21.05.2016
+
+Проекты - VideoHive - Sci-Fi Hi Tech Micro Electric Wire [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sci-Fi Hi Tech Micro Electric Wire - это фантастический, высокотехнологичный проект для создания логотипа.
+Шаблон настраиваемый. Можно изменить цвет фона, цвет фона частиц, блики, цвет HUD.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0002A2656A368FDCBDB36A69B69F92391D78AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018735   (753556) от 21.05.2016
 
 Проекты - VideoHive - Retro Logo intro pack - 7978489 [AEP]
@@ -6,7 +34,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753556.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753552.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752104.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751988.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751982.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751980.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751975.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751890.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749968.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749952.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749751.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748193.jpg" />
 </div>
 
 
@@ -319,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748189.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748066.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747939.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747869.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747379.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746489.jpg" />
 </div>
 
 
@@ -475,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746487.jpg" />
 </div>
 
 
@@ -501,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746353.jpg" />
 </div>
 
 
@@ -527,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746053.jpg" />
 </div>
 
 
@@ -553,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746046.jpg" />
 </div>
 
 
@@ -580,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745220.jpg" />
 </div>
 
 
@@ -606,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745131.jpg" />
 </div>
 
 
@@ -632,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745056.jpg" />
 </div>
 
 
@@ -643,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4814D71B96BEBCA1C4B140FBFEF95B568A95D30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282392   (744926) от 12.02.2019
-
-Проекты - VideoHive - West Desert Opener - 23285141 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект "West Desert Opener" - это кинематографическое движение камеры с облаками, раскрывающими ваш экструдированный 3D-текст заголовка или логотип на фоне дикой пустыни.
-Эта ретро-анимация может быть использована в качестве захватывающей, в стиле дикого запада заставки. Для представления фильма, игры, приложения, продюсерской компании, телеканала, фильма, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BC6BBE6E42AFBCD28A1F95D7E72E9A9031FA11
 ```
 
 https://mybot314.ru/tekegram_catalog/

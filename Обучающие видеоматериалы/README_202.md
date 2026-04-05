@@ -1,3 +1,29 @@
+###  Публикация: 1557753   (213274) от 17.06.2022
+
+Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush and Unreal Engine (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание скальной породы для игр. Unreal Engine 4.6.1, Photoshop, Maya, nDo2, xNormal, ZBrushПроизводство: Digital TutorsЖанр: Создание ассетовЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2EBE065254AD103A5A7EB0218E5191A557D600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558111   (213261) от 18.06.2022
 
 Gumroad, Flycat | Blender 3.0 - JinX Modeling – Full process video and 3D model by Flycat (2022) PCRec
@@ -6,7 +32,7 @@ Gumroad, Flycat | Blender 3.0 - JinX Modeling – Full process video and 3D mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213261.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Flycat | Blender 3.1 – Tracer Character Modeling – Full process videos and 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213258.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Amlab, Каюрова Наталия | Как рисовать в Photoshop (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213257.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Udemy, Зоя Теммерман | 3Д моделирование в SketchUp (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213250.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213247.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213234.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213231.jpg" />
 </div>
 
 
@@ -206,7 +232,7 @@ Gumroad, Flycat | Create an MMORPG character style in Blender – Real-time proc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213199.jpg" />
 </div>
 
 
@@ -232,7 +258,7 @@ Gumroad, Flycat | Blender – Bunny Girl – Full process videos by Flycat (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213198.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ Samouchka School, Алексей Меркулов, Максим Маркевич
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213179.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ Regina Doctor | Все, что нужно знать про анализы (2022
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213144.jpg" />
 </div>
 
 
@@ -313,7 +339,7 @@ KodeKloud, Mumshad Mannambeth, Vijin Palazhi | Learning Linux Basics Course & La
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213141.jpg" />
 </div>
 
 
@@ -340,7 +366,7 @@ KodeKloud, Mumshad Mannambeth | DevOps Pre-Requisite Course (2022) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213136.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213131.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213123.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213107.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Rocket Sales, Георгий Кичев | Цифровой отдел прода
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213015.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212994.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212984.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212980.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212954.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ Vesperfin, Арина Веспер | Личные финансы (2022) WEB-DL [
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212933.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212823.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ Altblog, Кирилл Рамирас | Курс «Ракурс» — взгля�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212797.jpg" />
 </div>
 
 
@@ -678,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212682.jpg" />
 </div>
 
 
@@ -691,33 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E629B34AC40A6450C9FCFF1AD5C474F49BFB3A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563039   (212657) от 12.07.2022
-
-Rebelway, Saber Jlassi | Transferring High-Res Assets from Houdini to Unreal Engine (2021) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212657.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом туториале вы узнаете все необходимое, чтобы правильно импортировать ассеты из Houdini в Unreal, включая UV, карты и многое другое. Мы даже погрузимся в тему процедурных UV-координат для меша.
-Это бесплатный мастер-класс по импорту ресурсов с высоким разрешением из Houdini в Unreal Engine. Если туториал оказался вам полезен, мы настоятельно рекомендуем проверить (   Читать дальше...   )Производство: RebelwayЖанр: Houdini, UnrealEngineЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FF19A0BE3B083430E2E8E329B174F05461D524
 ```
 
 https://mybot314.ru/tekegram_catalog/

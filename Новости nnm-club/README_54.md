@@ -1,3 +1,29 @@
+###  Публикация: 1106651   (869529) от 21.02.2017
+
+Космический телескоп Hubble "увидел" древние галактики, свет от которых первым озарил молодую Вселенную
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_869529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая технология, которая за счет некоторых причуд Общей теории относительности Альберта Эйнштейна позволяет удалить свет от галактик, находящихся на переднем плане, позволила ученым-астрономам напрямую увидеть галактики самого первого поколения. Эти галактики сформировались, когда Вселенная находилась еще в "младенческом" возрасте, и их свет стал первым (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998158   (869406) от 19.03.2016
 
 Цензура в СМИ. Дебаты Навального и Познера. (2016) HDTVRip [H.264] [MP4|960x540]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869406.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_869389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_869389.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869275.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ JetBrains PhpStorm 2016.1 Build #PS-145.258 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869263.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (19.03.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869259.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869250.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2019 SmokieBlahBlah 2021.09.19 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869207.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869014.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ V-Ray 3.40.03 for 3ds Max 2015-2017 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869001.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868784.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868687.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Apple и Google будут следить за пользователями дл
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_868519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_868519.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Windows Vista Ultimate SP2 6.0.6002 by Burnoutman 2020 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868458.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_868398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_868398.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Kaspersky Endpoint Security 10.2.4.674 sp1 (mr2) RePack by alex zed [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867403.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Adobe Photoshop Lightroom 6.5 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867396.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Skype v6.26.0.1313 Free / AD-Free и Mod 3.2.0.6673 v19.1 [Ru/Multi] - прог�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867393.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867389.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ BERSERK and the Band of the Hawk (2017) [En] (1.0.0.1) License HI2U
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867206.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Call of Duty: Modern Warfare - Remastered (2016) [Ru/En] (1.7.83/u4) Rip R.G. Re
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867203.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866958.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866924.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866916.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866912.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_865945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_865945.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497103   (865920) от 21.09.2021
-
-NVIDIA GeForce Desktop Game Ready 472.12 WHQL + DCH [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865920.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3EFB3A0ECAF22F1EDBA7D8080781F7CF1E349D
 ```
 
 https://mybot314.ru/tekegram_catalog/

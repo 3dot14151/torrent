@@ -1,3 +1,32 @@
+###  Публикация: 1585380   (222687) от 21.10.2022
+
+Ketha - 4 Albums (2012-2022) [MP3|320 Kbps] <Progressive Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoneclad [00:05:32]
+02. Kanati [00:07:08]
+03. Seventhunders [00:05:22]
+04. Coyotes [00:04:45](   Читать дальше...   )Жанр: Progressive Metal, ExperimentalПродолжительность: 4 CD, 02:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A32740D9AA9E9E4776E1CFD058FFAF27FBB86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585261   (222682) от 21.10.2022
 
 Voodoo Skin - 2 Albums (2019-2022) [MP3|320 Kbps] <Alternative, Hard Rock>
@@ -6,7 +35,7 @@ Voodoo Skin - 2 Albums (2019-2022) [MP3|320 Kbps] <Alternative, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222682.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vertical Hair Factory - Afterlife (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222680.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Maxysteel - Найт-Сити (2021) Debut Single [MP3|320 Kbps] <Hard Rock, Met
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222672.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Gateway - Galgendood (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222671.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lynx - Watcher of Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222664.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Gateway - Gateway (2015) [FLAC|Lossless|tracks + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222661.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Collateral - Re-Wired (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222659.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Abyssos - Together We Summon The Dark (1997) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222656.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Nothingness - The Hollow Gaze of Death (2019) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222650.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Cadaver - The Age of the Offended (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222644.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Turkish Delight - Volume One (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222638.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Youstn - True (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222631.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222629.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ XIII - 8 Albums (2017-2022) [MP3|320 Kbps] <Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222628.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ White Skull - Metal Never Rusts (2022) [MP3|320 Kbps] <Heavy Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222619.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Iggy Pop - Naughty Little Doggie (1996) [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222617.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Signum Draconis - The Divine Comedy: Inferno (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222614.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Вепри - Мемы и депрессия (2022) [MP3|320 Kbps] <Rock, Alt
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222608.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222606.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Abyssos - Fhinsthanian Nightbreed (1999) [FLAC|Lossless|image + .cue] <Melodic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222604.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Abyssos - Fhinsthanian Nightbreed (1999) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222594.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Black Veil Brides - The Mourning (2022) EP [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222589.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ DragonForce - 12 Release (2003-2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222585.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Decompression - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222578.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222577.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B84F774D4BED99572AFA03B49398740D0FEA3C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651259   (222570) от 06.08.2023
-
-Tombstalker - 2 Albums (2015-2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Black Metal, Crust>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forlorn Recollections [00:01:41]
-02. Chaos Undivided [00:03:32]
-03. Blood Thirster [00:04:36]
-04. Fate Weaver [00:03:34](   Читать дальше...   )Жанр: Death Metal, Black Metal, CrustПродолжительность: 2 CD, 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8E9CFDE6C87AEEF8C1703DFD636CE44B5E2A48
 ```
 
 https://mybot314.ru/tekegram_catalog/

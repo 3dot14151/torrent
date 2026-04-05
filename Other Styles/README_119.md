@@ -1,3 +1,61 @@
+###  Публикация: 1253206   (385551) от 08.10.2018
+
+VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forestdene - Sweet Lullaby (03:57)
+02. Ron Asprey - I Will Always Love You (04:00)
+03. Louis Clark - Pachelbelt`s Canon (03:31)
+04. Alessandra Ruffini - The Flower Duet from Lakme (01:36)(   Читать дальше...   )Жанр: New Age,Instrumental,JazzПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B35FF7D319B5F5CA3623166480566916E28C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252679   (385456) от 08.10.2018
+
+Anthony Greninger - A Light in Darkness (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Music Box in the Woods
+02 Destined
+03 Snowfall
+04 Life's Blessings(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BE4FA2BDF17544841C730557F3E7BED13B1405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253057   (385447) от 08.10.2018
 
 Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385447.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Junichi Kamiyama - The Best Musics for Overcoming Anxiety and the Stress Managem
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385347.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385325.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385250.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383646.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Covarino/Incorvaia - Chiodi (2018) [FLAC|Lossless|tracks + .cue] <Acoustic, Ambi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383563.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Paul Mauriat - The Ultimate Paul Mauriat (2013), (3CD) [OGG Vorbis|485 Kbps] <Cl
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383547.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383305.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383003.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Dominique German - God's Peace (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382955.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - The Worlds Most Beautiful Flute Music. Instrumental Dreams (2004) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382578.jpg" />
 </div>
 
 
@@ -330,7 +388,7 @@ Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381765.jpg" />
 </div>
 
 
@@ -359,7 +417,7 @@ Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381764.jpg" />
 </div>
 
 
@@ -388,7 +446,7 @@ Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381762.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381760.jpg" />
 </div>
 
 
@@ -446,7 +504,7 @@ Constance Demby - Light of This World (1987) [FLAC|Lossless|tracks + .cue] <NewA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381687.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ Junichi Kamiyama - The Best Musics for Recovery from Fatigue and to Get Healthy 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381605.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ VA - Александр Зацепин: Песни из к-ф 31 июня (1996)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381504.jpg" />
 </div>
 
 
@@ -533,7 +591,7 @@ Aeoliah - Sacred Mantras (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381082.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Darshan Ambient - Lingering Day: Anatomy of a Daydream (2017) [FLAC|Lossless|WEB
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381079.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ VA - Modern Sound Orchestras - Moonlight Sonata (1992) [FLAC|Lossless|image + .c
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380787.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Galactic Agents - Human Contact (2002) [MP3|320 Kbps] <New Age, Worldbeat, Nativ
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380610.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Steve Orchard - Zanzibar (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380602.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ VA - Romantic Collection: Instrumental Vol.1-3 (2000-2002) [MP3|320 Kbps] <Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380522.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ VA - Romantic Collection: Instrumental Vol.1-3 (2000-2002) [MP3|320 Kbps] <Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE7176922BAB738F6B76D655091168DA3BD41E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068170   (380281) от 01.11.2016
-
-Gianni Marchetti - Le Notti Porno Nel Mondo N. 2 (Original Motion Picture Soundtrack) (1978) Remastered, Limited Edition, 2011, Beat Records Company [MP3|320 Kbps] <Smooth Jazz, Jazz-Funk, Easy  ...
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seq. 1
-02. Seq. 2
-03. Seq. 3
-04. Seq. 4(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Easy ListeningПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA477C5C6EFD2B63D96D07E5C2787F2FB3D10AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833941   (380072) от 24.10.2014
-
-Ennio Morricone - The Very Best Of (2000) [WavPack|Lossless|image + .cue] <Score>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fistful of Dollars (2:58)
-02. For a Few Dollars More (2:31)
-03. The Good, the Bad and the Ugly (2:38)
-04. Chi Mai (5:06)(   Читать дальше...   )Жанр: Stage & Screen, ScoreПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEC71659A8BB8552300EC50CF0B22E19EB8EBE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

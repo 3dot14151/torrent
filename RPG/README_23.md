@@ -1,3 +1,55 @@
+###  Публикация: 1220670   (603024) от 24.04.2019
+
+For The King (2018) [Ru/Multi] (1.0.10.9949) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603024.jpg" />
+</div>
+
+
+###  Подробнее
+
+For The King — это стратегическая RPG, которая сочетает в себе элементы настолки и рогалика в захватывающем приключении, меняющем судьбы королевств. Можно играть в одиночку или в компании с другими игроками как онлайн, так и по локальной сети.Тип издания: RepackРазработчик: IronOak GamesЖанр: RPG, TBS (Action), 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFC7C978AC5774366E039FB497C0F73CC72ACCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547496   (602753) от 28.04.2022
+
+The Serpent Rogue (2022) [Ru/Multi] (0.0.160) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602753.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Serpent Rogue — это приключенческий экшен, в котором вам предстоит исследовать фэнтезийный средневековый мир, изучать искусство алхимии и приручать диких зверей. Вы Страж, загадочный алхимик, которому нужно защитить мир от надвигающейся скверны. Варите, смешивайте, выпаривайте и проводите ритуалы, чтобы сдержать натиск Змеиного Отступника!Тип издания: RepackРазработчик: Sengi GamesЖанр: Adventure, Action, RPG, 3DЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684860C6ADFC3036837623AF7E448436BE8DD50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149244   (602323) от 09.07.2017
 
 We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602323.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) Repack Other s [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601537.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Witches, Heroes and Magic (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600783.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Waylanders (2022) [Ru/Multi] (1.10) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600711.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) License PLAZA [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600671.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ SUPER DRAGON BALL HEROES WORLD MISSION (2019) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597408.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594754.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (1.0.2) License FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594465.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Fallout of Nevada (2015) [Ru] (1.0/upd2) Repack ak97nsk
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588020.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Immortal: Unchained (2018) [Ru/Multi] (1.15/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587816.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586904.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Goliath (2016) [Ru/Multi] (1.0.6-GLU/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586090.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585120.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585091.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Titan Quest (2016) [Ru/Multi] (2.1/dlc) License PLAZA [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584945.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.5.16.6) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577512.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573976.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573967.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Final Fantasy XIII-2 / Final Fantasy 13-2 (2014) [Ru] (1.0/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572132.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Children of Zodiarcs (2017) [En] (1.0.0.4) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571920.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Two Worlds (2007) [Ru/En] (1.07/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571877.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Children of Zodiarcs (2017) [Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570087.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ ICY (2015) [En] License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569530.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Pathologic 2 (2019) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568462.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Pathologic 2 (2019) [Ru/En] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBAAB362DA2227648D78D6EFE8572706CB5554F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043959   (568320) от 18.08.2016
-
-Anima: Gate of Memories (2014) [Ru/Multi] (1.0) Repack Valdeni
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568320.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Анима: врата воспоминаний» - ролевая боевая игра от третьего лица. Она основана на истории пары, связанной невольным договором: легендарного чудища и девушки без прошлого... Они должны быть вместе, и их судьба меняется, когда они обнаруживают, что втянуты в зловещую тайную войну.Тип издания: RepackРазработчик: Edge EntertainmentЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D08B0CB156EBEBC760B6B774CE65C8ACA8A7A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043964   (568312) от 18.08.2016
-
-Xuan-Yuan Sword EX: The Gate of Firmament (2016) [En/Multi] (1.0) Repack АRMENIAC
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры вращается вокруг наследников двух павших династий - Юй Вэнь Ту и Чэнь Цзин Цзоу. Они собираются восстановить и вернуть то, что им по праву унаследовано – династии Чэнь и Северная Чжоу. Но чтобы получить желаемое, для начала им необходимо отыскать мистическое оружие, которое обладает невероятной силой, что поможет им закрыть врата ада, тем самым не впустив (   Читать дальше...   )Тип издания: RepackРазработчик: DOMO StudioЖанр: Action RPGЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB46FE3858C7F8D79FCEFBE1ECE26C683C59EE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 871163   (586598) от 15.07.2015
+
+Обновления для Microsoft Office 2007 RTM до 12.0.6726.5000 [Ru] (Обновляемая)
+
+>>ОС Windows
+>>Разное (RC, Beta и Service Packs)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник официальных обновлений и исправлений от компании Microsoft для Microsoft Office 2007 с сайта Windows Update. Полный набор (все обновления, которые предлагаются на OU). Для автоматической установки обновлений, я использовал MInstall.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254706D94EB4CF6A2E5BD1AEA48706212CB4CD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040593   (586098) от 05.08.2016
 
 Microsoft Windows 10 Multiple Editions 10.0.14393 Version 1607 - Оригинальные образы от Microsoft MSDN [Ukr]
@@ -6,7 +32,7 @@ Microsoft Windows 10 Multiple Editions 10.0.14393 Version 1607 - Оригина�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586098.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Recovery USB-Flash for DELL 3542 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584655.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Recovery DVD for Asus K43E / Windows 7 Home Basic (х64) [Multi/Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584653.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 (x64) [En] WZT
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582122.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579039.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Microsoft Windows 10 Enterprise N 2016 LTSB 10.0.14393 Version 1607 - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579036.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579033.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x86-x64) WZT [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578592.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Microsoft Hyper-V Server 2012 R2 9600.16384 (130821-1623) [Ru/En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578563.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Microsoft Windows 10 Home Single Language 10.0.10240 RTM (x86-x64) WZT [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578562.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Microsoft Windows 10 Enterprise 10.0.10240 RTM (x86-x64) WZT [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578558.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Microsoft Windows 10 10.0.15063.413 Version 1703 (Updated June 2017) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573830.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x86-x64) WZT [Ru]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573022.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Microsoft Windows Server 2012 R2 VL with Update 3 - Оригинальные о�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571192.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Microsoft Windows Embedded 8.1 Enterprise x86 with Update 3 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569527.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Microsoft Windows Embedded 8.1 Enterprise x64 with Update 3 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569510.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Microsoft Windows 10 Pro-Home + Single Language 10.0.10240 [Ru]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567781.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565935.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Microsoft Windows 10 N - Оригинальные образы от Microsoft MS
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565927.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Microsoft Windows 10 Enterprise 10.0.10240 - Оригинальные образ
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565917.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565915.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x64) WZT [He]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565908.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x86) WZT [He]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562193.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560292.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Microsoft Windows 10 Pro - Оригинальные образы от Microsoft 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558518.jpg" />
 </div>
 
 
@@ -646,34 +672,6 @@ Microsoft Windows 10 Pro - Оригинальные образы от Microsoft 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6855DA932AC1D8A61B71BB2276275698AE84A1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305371   (556764) от 30.05.2019
-
-Языковые пакеты (Language packs) для Windows 10 Version 1903/1909 x86-x64 [Multi/Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор языковых пакетов для Windows 10 10.0.18362/10.0.18363 Version 1903/1909 для интеграции с помощью утилиты DISM ( среды средств развертывания и работы с образами)
-
-Так же важно отметить, что ADK(WAIK) не будет выпущен отдельно для 1909. Microsoft уведомляет, что необходимо использовать ADK(WAIK) версии 1903.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4E3C7B8CECA30DE870BF35C98A6F37CF494B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

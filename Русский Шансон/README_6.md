@@ -1,3 +1,32 @@
+###  Публикация: 901118   (625688) от 18.06.2015
+
+Александр Шапиро - Тет-а-тет (2015) [MP3|320 кб/с]<Поп, шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Адель
+02 - Тет-а-тет
+03 - Женщина моя
+04 - Тонкими пальцами по белым клавишам(   Читать дальше...   )Жанр: Поп, шансонПродолжительность: 1:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43443AEC57B8FAA438D8A4E5B47C9F5528A30D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 452322   (625459) от 09.04.2019
 
 Стас Михайлов и Елена Ваенга - Две Звезды (сборник дуэтов) (2012) [MP3|320 kbps]<Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625459.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625422.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620482.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614840.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610558.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606586.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601846.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596715.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ VA - Шансон 2019 года (Музыкальный хит-парад) [MP3|
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593444.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590843.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580660.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578568.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574461.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571378.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570862.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568115.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563940.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563816.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562043.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559219.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559006.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539312.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536673.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535264.jpg" />
 </div>
 
 
@@ -735,7 +764,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535154.jpg" />
 </div>
 
 
@@ -749,35 +778,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F0A88E21DFD015EE80D420FCAA2258E6DED546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155177   (534973) от 02.08.2017
-
-Александр Вестов - Лучшие песни о любви (2017) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Яд
-2. Ты такая,как и все
-3. За что нам это счастье
-4. К тебе хочу(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67C81E7F2CF540BECE16521975BBDE445A61DAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1754269   (40865) от 09.10.2024
+
+Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ah! Mes AmisPavarottiPour Mon Ame (La Fille Du Regiment) 6:57
+02. Pour Me Rapprochher De Marie (La Fille Du Regiment) 3:40
+03. Quanto E Bella (L'elisir D'amore) 2:27
+04. Una Furtiva Lagrima (L'elisir D'amore) 4:48(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC8D0BBFB1CD0581E176AFCA02673B85E130C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755568   (40192) от 16.10.2024
 
 Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
@@ -6,7 +35,7 @@ Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40192.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Anastasia Calmus - Revelations (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40159.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Wolfgang Amadeus Mozart - The Horn Concertos - Oboe Concerto (2001) [FLAC|Lossle
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37459.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|image + .cue] 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36700.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ VA - Piano and Violin Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36669.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ VA - Top Romantic Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36239.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ VA - Famous Classical Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35725.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Andre Rieu & Johann Strauss Orchestra - The Sound of Heaven (2024) [FLAC|Lossles
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35228.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ VA - Bach vs Mozart (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35221.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Johannes Brahms - Brahms at Bedtime: A Sleepytime Serenade (1996) CD, Compilatio
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34378.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ VA - Great Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34084.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ VA - Classical Music Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33058.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ VA - Classical Music Heritage (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32818.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Andre Rieu, Johann Strauss Orchestra - Love Is All Around (Live) (2024) [FLAC|Lo
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32186.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ VA - Essential Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31037.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ VA - Heavy Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29999.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ VA - Reflections on Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29116.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Bach 333: The New Complete Edition (222CD) (2018) [FLAC|Lossless|tracks + .cue] 
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28270.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Johann Sebastian Bach - Die kompletten Werke von (Edition Bachakademie) (2011) 1
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26999.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Mozarteumorchester Salzburg - Next Generation Mozart Soloists Vol.11 (2025) [FLA
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26984.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26951.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24161.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ André Rieu, Johann Strauss Orchestra - Jewels Of Romance (2023) [FLAC|Lossless|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23004.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Andre Rieu - Power of Love (Live in Maastricht 2024) (2025) [FLAC|Lossless|WEB-D
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21759.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Michael Nyman - 54 альбома (1985-2009) [MP3|320 кб/с]<Minimalism, Clas
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19312.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Michael Nyman - 54 альбома (1985-2009) [MP3|320 кб/с]<Minimalism, Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50A915A42FA1F04DA338F334D46FCEACF25DD8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795636   (19239) от 05.05.2025
-
-VA - Modern Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Sergey Bryukhno - Hope (1:29)
-03. Katya Kramer-Lapin - Minuet in G Major (From Notebook for Anna Magdalena Bach, BWV Anh. 114) (1:49)
-04. Sergey Bryukhno - When the Stars Are Shining (1:25)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A2741197244EECBC5F476744F31E7F97667C39
 ```
 
 https://mybot314.ru/tekegram_catalog/

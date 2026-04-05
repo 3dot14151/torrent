@@ -1,3 +1,30 @@
+###  Публикация: 1702857   (115516) от 26.02.2024
+
+Фёдор Достоевский | Подросток (2022) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
+«Я взял душу безгрешную, но уже загаженную страшною возможностью разврата, раннею ненавистью за ничтожность и “случайность” свою…» В 1875 году в первых (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ЭксмоПродолжительность: 27:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B650D1FBB89FBB513934054EFEB68267821FE868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702803   (115508) от 26.02.2024
 
 Фёдор Достоевский | Бедные люди (2006) [MP3, Иннокентий Смоктуновский]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115508.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115498.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115496.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115495.jpg" />
 </div>
 
 
@@ -118,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115494.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115493.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115490.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115410.jpg" />
 </div>
 
 
@@ -227,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115405.jpg" />
 </div>
 
 
@@ -255,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115374.jpg" />
 </div>
 
 
@@ -283,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115351.jpg" />
 </div>
 
 
@@ -311,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115343.jpg" />
 </div>
 
 
@@ -338,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115130.jpg" />
 </div>
 
 
@@ -366,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115002.jpg" />
 </div>
 
 
@@ -394,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114937.jpg" />
 </div>
 
 
@@ -421,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114237.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114206.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114133.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114128.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114092.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114061.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114056.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113989.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113967.jpg" />
 </div>
 
 
@@ -667,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113950.jpg" />
 </div>
 
 
@@ -681,35 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E5A8651CEE213F0F245C70FA65C65C9CA6EFFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705485   (113848) от 08.03.2024
-
-Генри Джеймс | Рассказы (2014) [MP3, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союз классика.
-Генри Джеймс (1843–1916) – классик американской литературы, писатель-экспериментатор и теоретик литературы, автор сложной психологической прозы.
-В этом сборнике вас ждут аудиоверсии некоторых рассказов писателя: «Урок мастера», «Ученик», «В клетке».
-Переводчик Алексей Матвеевич Шадрин.(   Читать дальше...   )Жанр: Зарубежная литература, классика, повесть, рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 10:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8388361ADF770ED5863A5F38354B2AEACB8D4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1575085   (379504) от 08.09.2022
+
+Garden Of Shadows - Heart Of The Corona (1997) (EP) Reissue, 1998, X-Rated Records [FLAC|Lossless|tracks] <Atmospheric, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solar Pulse (intro) (00:53)
+02. Heart of the Corona (05:51)
+03. Lovely Cold (07:32)
+04. Company in Solitude (07:56)(   Читать дальше...   )Жанр: Atmospheric, Melodic Death MetalПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746F82306B0C97AA2BF1D9B197C3CFFF2AEBD069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574972   (379503) от 08.09.2022
 
 Voltage - Tomorrow Hits Today (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
@@ -6,7 +35,7 @@ Voltage - Tomorrow Hits Today (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379503.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Khold - Svartsyn (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379502.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Eruption - Cloaks Of Oblivion (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379501.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Darkwvlf - All The World's A Stage (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379500.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Aeternam - Heir of the Rising Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379499.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Eruption - Tenses Collide (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379498.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Cian - Surefire (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379497.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379466.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Smash Into Pieces - Evolver (2018) [MP3|320 Kbps] <Alternative Rock, Modern Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379428.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Harlequin - Origin of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379426.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Light? - Преждевременно и Навсегда (2022) [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379425.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Before I Die - Mental Prison (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379421.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Eruption - Lifeless Paradise (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379420.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ October Thorns - Circle Game (2022) [MP3|320 Kbps] <Progressive Metal, Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379418.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Eruption - Cloaks Of Oblivion (2017) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379416.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Horizon Ignited - After the Storm (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379414.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Defacing God - The Resurrection Of Lilith (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379412.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Horizon Ignited - Towards The Dying Lands (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379407.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Squealer - Behind Closed Doors (2018) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379402.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Grave Digger - Symbol of Eternity (2022) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379400.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Before I Die - Мертвая Вечность (2022) [MP3|320 Kbps] <Metalcore,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379399.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Bloodbath - Survival Of The Sickest (2022) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379398.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Eruption - Tellurian Rupture (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379397.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379376.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Rod Stewart - Another Country (2015) Deluxe Edition [MP3|320 кб/с]<Hard Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379372.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Rod Stewart - Another Country (2015) Deluxe Edition [MP3|320 кб/с]<Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:531AF1189176A409399EC704F5EC34B0EEFD30C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574800   (379356) от 08.09.2022
-
-Yungblud (Dominic Richard Harrison) - 7 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Punk, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Funeral [00:03:30]
-02. Tissues [00:03:35]
-03. Memories [00:02:35]
-04. King Charles [00:02:44](   Читать дальше...   )Жанр: Alternative Rock, Pop Punk, Hip-HopПродолжительность: 7CD, 03:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA43246B81B78F25B4DFF9C36B8FE89B5A2232B
 ```
 
 https://mybot314.ru/tekegram_catalog/

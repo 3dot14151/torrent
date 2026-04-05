@@ -1,3 +1,148 @@
+###  Публикация: 955162   (337029) от 09.11.2015
+
+VA - Only Best Hits. Зажигательная дискотека (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitbull Feat. Sean Paul - Ah Leke
+02. Аллан Камилов - Не Молчи
+03. Calvin Harris - Burnin
+04. Fariborz Mokhtari & Maraal - Dooset Daram(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B3C82F8113B5CAD2C2ED3C8E6807124E580B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330778   (336721) от 12.10.2019
+
+VA - German Top 100 Single Charts 11.10.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Capital Bra x Samra - 110 (feat. LEA)
+03. Apache 207 - Roller
+04. Apache 207 - 200 km/h(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25E315862E776051A006A09DFAA70DD782D64D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330714   (336365) от 12.10.2019
+
+VA - Shazam Хит-парад Russia Top 100 Сентябрь (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336365.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SAINt JHN - Roses (Imanbek Remix) 2:56
+002. Tones And I - Dance Monkey 3:30
+003. Artik & Asti - Под гипнозом 3:29
+004. RSAC - NBA (Rompasso Remix) 2:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E18545068C3D3F7F9C3E200AF48FE65A2311933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074763   (336222) от 20.11.2016
+
+VA - Музыкальный Заряд 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Olstan Van Guard - Капли Дождя 4:52
+002.U3u - Нравится 3:07
+003.Анна Шульгина - Другая Я 3:06
+004.Бьянка - Никто Кроме Ты 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74368AA05768322EBB6CEB686008974AE7CE4A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181284   (335585) от 06.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 013 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёздный Дождь ( Сергей Иванов ) - Звёздный Дождь ( 1992 )
+02. Ночной Ангел - Вьюга ( 1992 )
+03. Летний Вечер - Московский Мальчик ( 1990 )
+04. Бисквит ( Ольга Москвина ) - Роман С Камнем ( 1992 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAB37DD24DC2221A815FF500ABB1719F7D086B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181146   (335477) от 06.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 010 (2017) [MP3|320 Kbps]<Pop>
@@ -6,7 +151,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 010 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335477.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 011 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335474.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 014 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335468.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 012 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335463.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 015 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335456.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Lian Ross Projects (2009) 2CD [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335373.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Музыкальный Деликатес (2015) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335163.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Shazam Хит-парад Russia Top 100 Октябрь (2020) [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334940.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Muza80 Prezentuje Italo Disco Vol.1-62 + MiX & ReMiX vol.1-3 [MP3|320 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334194.jpg" />
 </div>
 
 
@@ -273,7 +418,7 @@ VA - XXXL Русский  №11 (2010) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333521.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ VA - Осень на Love Radio (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333253.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ VA - Radio DFM Top D-Chart Октябрь (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332283.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ VA - Звездные 90-е Выпуск 2 (2010) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331730.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Танцуют все с DFM (2015) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330988.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - German Top 100 Single Charts 30.09.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330715.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - Старое Диско в Новом Формате: Выпуск 09 (2015
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330153.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329315.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - Fetenhits: Best Of 80’s (2015) [MP3|320 кб/с]<Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328406.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Дискотека забытых хитов (зарубежная) - 18 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328288.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327490.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327443.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEE0ACA012B3AA9BCF4C852474BD0F164FD31C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957036   (327435) от 17.11.2015
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 (Зарубежный выпуск - 10 ) (2015) [MP3|192 - 320 кб/с]<Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Damiani & Tayma Vs. Savage - Only You (Alexandra Damiani Extended Mix) (05:15)
-02. Bad Boys Blue - For Your Love (Mahnovsky Edit 2014) (05:02)
-03. C.C.Catch - You Can't Run Aways From It (Eurobeat Mix) (04:01)
-04. Boney M - Bahama Mama (Platinum Dj's Remix) (03:15)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9786B8D6784B1A9116988C0051773CBB89736EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957483   (326534) от 18.11.2015
-
-VA - Заводной музон в дальнюю дорогу (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IKA - Do You Like
-02. Би - 2 - Над Пропостью Во Ржи
-03. MBAND - Она Вернётся (Kolkunov & Arxe Radio Remix)
-04. Роман Полонский - Жестокая Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EB20EB7B059D8F4368C819713E5AB68AB0D77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957426   (326382) от 18.11.2015
-
-VA - Затёртый Винил. Песни далёкой молодости (2014) [MP3|320 кб/с]<Советская эстрада>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пламя - Не надо печалиться
-02. Самоцветы - Багульник
-03. Ялла - Три колодца
-04. Весёлые ребята - Что ты хочешь мне сказать(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 02:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7942C4023CBFB4D2782852E99EEB1E1BC9AF1108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958096   (324841) от 20.11.2015
-
-VA - Top 100 singles 9000 (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Selena Gomez - Good For You (Feat.A$AP Rocky)
-002 Mark Ronson - Uptown Funk (Feat. Bruno Mars)
-003 Silento - Watch Me (Whip _Nae Nae)
-004 The Weeknd - Can't Feel My Face(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4009CA6B14843E49C802589A1264E0A3A9B9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075030   (323302) от 21.11.2016
-
-Наталия Гулькина - Музыкальная Коллекция (часть 1) (2016) [MP3|320 Kbps] <Поп, Диско>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не могу без тебя (03:21)
-02. Ветер Скажи (remix) (04:01)
-03. Ночь (05:45)
-04. Прощай (03:26)(   Читать дальше...   )Жанр: Поп, ДискоПродолжительность: 04:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418C42FE1FB9AD172D79FBF2D3A62FB7963894CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

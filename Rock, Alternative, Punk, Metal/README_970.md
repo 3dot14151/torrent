@@ -1,3 +1,32 @@
+###  Публикация: 1624023   (200377) от 04.04.2023
+
+VA - Greatest 70's Classic Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster)
+02. The Doobie Brothers - Listen to the Music
+03. Led Zeppelin - Stairway to Heaven
+04. Chaka Khan - I'm Every Woman(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 04:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888965B71E24F894BDC35BC915AC7AE71308215B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623449   (200308) от 04.04.2023
 
 Воскресение - Юбилей с симфоническим оркестром (2023) 2xCD [FLAC|Lossless|image + .cue] <Classical Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200308.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Linkin Park - Meteora (2003) 3CD, 20th Anniversary Edition [FLAC|Lossless|image 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200218.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Linkin Park - Meteora (2003) 6CD, 20th Anniversary Edition, 2023, Warner Records
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200207.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ison - Stars & Embers (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Post-Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200082.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200062.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ LASCALA - Play-Off (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199986.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Golden Oldies 70's Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199977.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sabaton - Stories From The Western Front (2023) EP [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199962.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Soilwork - Live In The Heart Of Helsinki (2015) 2XCD, Limited Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199955.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Metallica - 72 Seasons (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199877.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Metallica - 72 Seasons (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Thrash Metal, Heav
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199861.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Erdling - Mana (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199833.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Soulfly - Chama (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Thrash Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199831.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Metallica - 72 Seasons (2023) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199766.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Our Hollow, Our Home - Burn in the Flood (2021) 2023, Deluxe [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199637.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Roman Rain - 9 Альбомов, 6 Синглов (2005-2023) [MP3|320 Kbps] <Al
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199474.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199459.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199343.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Bravo Hits Party Rock (2023) 3CD, Compilation, Digipack [MP3|320 Kbps] <Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199333.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - 70s Classic Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198926.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Brett Walker - Highlights From The Last Parade (2023) 2xCD, Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198517.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Mark Knopfler - The Studio Albums 2009-2018 (2022) 6CD Box-Set, Reissue, Remaste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198462.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Delain - Сollection (2006 - 2023) 16CD [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198429.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Behemoth - Сollection (1993-2022) 32 CD [FLAC|Lossless|image + .cue] <Black Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198247.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Chris Rea - The Best of Chris Rea (1998) [FLAC|Lossless|tracks + .cue] <Soft Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197670.jpg" />
 </div>
 
 
@@ -716,36 +745,6 @@ Chris Rea - The Best of Chris Rea (1998) [FLAC|Lossless|tracks + .cue] <Soft Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DDF4FEA070D319D28DFCB168177D5B19EDDC382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349880   (197592) от 01.06.2023
-
-Ben Harper - 17 альбомов (1994 - 2018) [FLAC|Lossless|tracks + .cue|image + .cue]<Rock, Blues, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стиль его игры на акустической гитаре формировался под влиянием великих блюзменов и фолк-музыкантов, а технику игры он совершенствовал на слайд-гитаре Weissenborn, которую еще в конце 20-х создал Herman Weissenborn. Этот инструмент стал фирменной фишкой гитариста.
-"Я считаю, что нет ничего плохого в том, чтобы пытаться изменить восприятие слушателями традиционных (   Читать дальше...   )Список альбомов:
-1994 - Welcome to the Cruel World
-1995 - Fight For Your Mind
-1997 - The Will To LiveЖанр: Rock, Blues, Folk, Funk / Soul, ReggaeПродолжительность: 18:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B9C4BA4D4CF8572985552DB7D2C9EACC3B4955
 ```
 
 https://mybot314.ru/tekegram_catalog/

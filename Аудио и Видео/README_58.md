@@ -6,7 +6,7 @@ VA - Soulvibes: Urban Chillout Music (2021) [AAC|~309 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804630.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Nizza Lounge, Vol. 1 (2017) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804625.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fausto Papetti - Musicals (1990) [AAC|~338 Kbps] <Jazz, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804542.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804462.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804422.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804411.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804358.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804355.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804351.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804326.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804323.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804045.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803624.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803414.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803406.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803262.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Mystic Chill, vol. 3 (2021) [AAC|~339 Kbps] <Psychill, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803040.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Trance Missiles, Vol. 2 (2021) [AAC|~341 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803038.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Trance Missiles, Vol. 4 (2021) [AAC|~338 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803037.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Trance Missiles, Vol. 3 (2021) [AAC|~343 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803035.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Trance Missiles, Vol. 1 (2021) [AAC|~339 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803025.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Trance Missiles, Vol. 5 (2021) [AAC|~334 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803023.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803016.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Avengers Grimm  /  Мстители: Гримм (2015) WEB-DL [720p] ATV
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802983.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Bon Jovi - Have A Nice Day (2005) [ALAC|2.0 24/48|tracks]<Rock>
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802979.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802918.jpg" />
 </div>
 
 

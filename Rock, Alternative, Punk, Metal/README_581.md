@@ -1,3 +1,58 @@
+###  Публикация: 936039   (496286) от 11.09.2015
+
+Slayer - Repentless (2015) [FLAC|Lossless|WEB-DL]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496286.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:55] 01. Delusions Of Saviour
+[03:19] 02. Repentless
+[03:13] 03. Take Control
+[03:32] 04. Vices(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F5E315B8FCC1FC6B3DB94C49704B32A7F67175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543186   (496218) от 05.09.2012
+
+Don Ray Band - 3 albums (2009 - 2012) [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues RockПродолжительность: 02:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188B0E299F02D896AD3B5A6E955824BECDB4AABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936140   (496156) от 11.09.2015
 
 Slayer - Repentless (2015) Limited Edition [FLAC|image+.cue]<Thrash Metal>
@@ -6,7 +61,7 @@ Slayer - Repentless (2015) Limited Edition [FLAC|image+.cue]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496156.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Hollywood Vampires - Hollywood Vampires (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496155.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Stratovarius - Eternal (2015) [FLAC|image+.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496154.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ The Rolling Stones - Foxes In The Boxes Vol. 1-3 (2015) 3CDs [FLAC|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496152.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ The Breeders - All Nerve (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496099.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Lez Zeppelin - Lez Zeppelin (2007) [FLAC|Lossless]<Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496069.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ Stereophonics - Decade in the Sun: The Best of Stereophonics (2008) 2CD, Deluxe 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496028.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ Cliff Richard - Just... Fabulous Rock'n'Roll (2016) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496023.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ Tarja Turunen - Ave Maria - En Plein Air (2015) [MP3|320 кб/с]<Neo-Classical,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495934.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ VA - Ultimate  Rock / 4CDs Of Great Rock Music (2015) Box Set, 4CD[FLAC|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495932.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ Muse - Showbiz (1999) [FLAC 2.0 24/96|tracks (WEB-DL)] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495793.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ Robin Beck - Underneath (2013) [FLAC|Lossless]<Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495773.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ Muse - Black Holes And Revelations (2006) [FLAC 2.0 24/96|tracks (WEB-DL)] <Rock
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495742.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Bring Me The Horizon - That’s the Spirit (2015) [MP3|320 кб/с]<Alt. Rock, M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495740.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ Eluveitie - The Early Years (2012) [FLAC|Lossless]<Folk Metal/Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495598.jpg" />
 </div>
 
 
@@ -445,7 +500,7 @@ ZZ Top - Rocking The Castle (1985) 2CD Live [MP3|320 Kbps] <Blues Rock, Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495580.jpg" />
 </div>
 
 
@@ -474,7 +529,7 @@ Kiss - Destroyer (Resurrected) (1976/2012) [FLAC|Lossless]<Hard Rock/Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495485.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ Hinder - The Reign (2017) [MP3|320 Kbps] <Hard Rock, Alternative Rock, Post-Grun
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495418.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ VA - Play Station (приложение Audio CD к журналу Play #08'06) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495291.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ Unleash The Archers - Abyss (2020) 2CD [MP3|320 Kbps] <Melodic Death, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495278.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ VA - Classic Rock Presents: ZZ Top & The Best Of The Year So Far (2012) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495224.jpg" />
 </div>
 
 
@@ -631,7 +686,7 @@ Bobby Stoker - Everglow (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495010.jpg" />
 </div>
 
 
@@ -660,7 +715,7 @@ Supasonic Fuzz - Without… (2017) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495007.jpg" />
 </div>
 
 
@@ -689,7 +744,7 @@ Mosara - Only the Dead Know Our Secrets (2022) [MP3|320 Kbps] <Atavistic Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495005.jpg" />
 </div>
 
 
@@ -703,64 +758,6 @@ Mosara - Only the Dead Know Our Secrets (2022) [MP3|320 Kbps] <Atavistic Doom Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960478774CAF60EC36A97A3F3F1F1D0BCE7180DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565230   (495003) от 23.07.2022
-
-Bells and Ravens - What Death Cannot End (2022) [MP3|320 Kbps] <Progressive Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Last Sacrifice (feat. Tommy Laasch & Julian Scott) (04:58)
-02. The Headless Horseman (feat. Tim "Ripper" Owens) (05:58)
-03. Scourge Of The Seven Seas (feat. Zak Stevens) (08:16)
-04. Martyrs & Illusionists (Victory), Pt. I (feat. Selin Schonbeck) (06:00)(   Читать дальше...   )Жанр: Progressive Heavy, Power MetalПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A91EA5D85A20819A1DE5F7168A630F3FABE6E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565081   (495002) от 23.07.2022
-
-Villain of the Story - Divided (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Again (4:00)
-02. Jester (4:02)
-03. Karma (4:00)
-04. Under My Skin (3:43)(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2603CD62D6B32BBC9563E6C36C8DAC17EBBE02F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

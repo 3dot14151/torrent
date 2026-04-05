@@ -1,3 +1,29 @@
+###  Публикация: 1127974   (730079) от 23.04.2017
+
+Георгий Краснов | Операция «Сломанная трубка» (1982) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести современного чувашского писателя из жизни красных следопытов.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7935A102319CE06964E9EE6CA5EAAFC5D49949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127978   (730067) от 23.04.2017
 
 Мария Дюричкова | Хлеб великанов (1987) [DJVU]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730067.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729824.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729823.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729819.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729394.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729317.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Disney | DeAgostini | Энциклопедия. Открой мир вокруг
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729083.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729012.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729011.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729007.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729006.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728999.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728946.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728716.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728561.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728446.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728424.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728246.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728229.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728166.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727883.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727881.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727859.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727843.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727819.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DD054FF72C41816781DDE3CFB6CFC414D6CA1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022783   (727771) от 03.06.2016
-
-Саша Черный и др. | Сказки про собак (антология) (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727771.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник «Сказки про собак» вошли как авторские, так и народные сказки. Многим из нас эти сказки знакомы еще с детства. Их юмор, фантазия и мудрость не оставит равнодушными ни взрослого, ни ребенка. Чтение этой книги отправит вас в замечательное путешествие по удивительному миру, созданному братьями Гримм, Редьярдом Киплингом, Сашей Черным и др. Герои этих захватывающих (   Читать дальше...   )Жанр: Детская проза, сказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52F6ED174D10437DCAB5257C34281B0939BEC4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

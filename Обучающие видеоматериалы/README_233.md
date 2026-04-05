@@ -1,3 +1,29 @@
+###  Публикация: 1330467   (190265) от 10.09.2023
+
+Маковецкий Сергей и др. | Motion–дизайн в Adobe After Affects (2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motion-дизайн в Adobe After Effects — это уникальный курс, основанный на систематизированных материалах и огромном практическом опыте преподавателей.Жанр: Adobe After Effects, обучающее видеоПродолжительность: 35:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5035868846344375C07D5C6E254B2D56DAE576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589614   (189856) от 10.11.2022
 
 Udemy, Oscar Villarreal | Procedurally Generated Scenes with Blender, Python & NumPy (2022) PCRec [EN / EN Sub]
@@ -6,7 +32,7 @@ Udemy, Oscar Villarreal | Procedurally Generated Scenes with Blender, Python & N
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189856.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Udemy, Abbass Masri | Mastering Jetpack Compose: Building Dynamic User Interface
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189623.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ Laravelcreative.ru | Excel Import Laravel Inertia Vue Tailwind [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189568.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет чат (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189545.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Kitze | Zero To Shipped (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189182.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Babok-school, Анна Вичугова | Основы архитектуры и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189116.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Proglib.Academy, Евгений Тюменцев | Архитектура и ш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189101.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Stepik, Evgeniy Lestopadov | Windows CMD - быстрый старт (2023) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189095.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет Форум (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189072.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188734.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Babok-school, Анна Вичугова | Разработка ТЗ на инф�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188699.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ kobezzza.channel, Андрей Кобец | «Computer Science во Frontend». 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188652.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Stepik, Evgeniy Lestopadov | Xml на примерах (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188383.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Stepik, Evgeniy Lestopadov | Регулярные выражения на при
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188354.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Bonnie & Slide, Егор Мараев | Убойная анимация 2.0 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188348.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ OTUS, Алексей Железной | Data Warehouse Analyst (2023) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188315.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ Stepik, Дмитрий Читалов | Создаем чат-бот на баз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188312.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ Udemy, ASOMobile ASOTeam | Стань ASO специалистом: базовы
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187958.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ Web Dev Simplified | React Simplified - Beginner (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187940.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ Color Grading Master, Александр Макаров | FUSION. Basic VFX Clas
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187938.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ Udemy, Aniket Rawat | Creating a Traditional Chinese Room Environment in UE5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187930.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Web Dev Simplified | React Simplified - Advanced (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187928.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Domestika, Calder Moore | 3D Toon-Style Environment Art with Arnold (2023) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187926.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187912.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5 - Product Animation - Visualization (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187897.jpg" />
 </div>
 
 
@@ -673,35 +699,6 @@ Udemy, Nafay Sheikh | Unreal Engine 5 - Product Animation - Visualization (2023)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C9B169F097554F84DF2C3E258245CA0D12421F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662359   (187885) от 17.09.2023
-
-Синхронизация | Гид по философии (2020) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недостаточно овладеть премудростью, нужно также уметь пользоваться ею.
-
-Изучение философии — это путешествие в мир идей, в котором легко сбиться без точной карты. Можно свернуть в неважные темы, заскучать, не разобраться.
-(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 13:14:16Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FF8DD8C02EDCE8D61ECC72A34EEA307B5DFF42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,136 +1,3 @@
-###  Публикация: 1795963   (18964) от 08.05.2025
-
-А.П. Забияко, А.Н. Красников, Е.С. Элбакян (ред.) | Энциклопедия религий (2020) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается единственное в своем роде иллюстрированное издание, в котором наиболее полно представлены не только традиционные религии и конфессии, но и новые религиозные движения. Энциклопедия содержит толкования важнейших религиозных и теологических понятий, а также подробные статьи о религиозных философах, реформаторах, теологах (богословах), (   Читать дальше...   )Жанр: религиоведение, история религий, энциклопедияИздательство: Академический проектФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C804996A06B5E6E01F2101C24686D590D3B2DFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796802   (18546) от 12.05.2025
-
-А.Г. Мерников | Стрелковое оружие Великой Отечественной войны (2025) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18546.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном издании широко представлено личное оружие солдата, применявшееся во время Великой Отечественной войны по обе стороны фронта: револьверы и пистолеты, винтовки и противотанковые ружья, истолеты-пулеметы и пулеметы. История создания и использования различных видов огнестрельного оружия рассказывается с энциклопедической достоверностью, особенности конструкции (   Читать дальше...   )Жанр: ИсторияИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2CEE33635BE8D548106DBC3EB13FEED976D498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796511   (18533) от 12.05.2025
-
-Библиотека ЖАФИК, Vol. 7: Бунтари и утописты Америки 1960-1970-х: Хиппи, Йиппи, Протест, Вудсток, Контркультура (Дополнения) [102 книги] (1969-2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Источники по истории молодёжной Америки 1960-1970-х достаточно разрозненны, это дополнение восполняет данный пробел.
-
-В пакете обновление библиотеки ЖАФИК, по направлениям:
-– 60% – фотоальбомы (молодежная Америка 1960-1970-х)(   Читать дальше...   )Жанр: Живопись, альбомы, фотографияЯзык: АнглийскийИздательство: РазличныеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576C0BBB8F2E7CE676B8FBE988E61634688F7605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796462   (18523) от 12.05.2025
-
-Книжная серия | Обзор химических элементов по группам периодической системы [10 книг] (1972 - 1985) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг по элементам периодической системы Д.И. Менделеева.Жанр: ХимияИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1097BCBA0A9011FB45B4537662B9F038BAC1FC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796780   (18518) от 12.05.2025
-
-Валерий Новоселов | Старение, мозг, деменция. Взгляд в зазеркалье болезни Альцгеймера (2024) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18518.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фокусе внимания данной книги - хорошо знакомое нашему современнику слово «Альцгеймер». Или болезнь Альцгеймера. Несмотря на широкую известность данного термина, у большинства людей остается низкой осведомленность о первых признаках этого заболевания, как и о возможностях его профилактики. Многие стороны этой болезни настолько запутаны, что сама она приобрела очертания (   Читать дальше...   )Жанр: монография, здоровье, геронтологияИздательство: Longevity BooksФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694DE91EF5CF120AF044786FB552BFE089850BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521175   (18489) от 13.05.2025
 
 Ф. Трикоми | Книги Ф. Трикоми по математике [1957 - 1962] [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18489.jpg" />
 </div>
 
 
@@ -168,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18434.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18342.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18329.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18327.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18233.jpg" />
 </div>
 
 
@@ -299,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18137.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18124.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17903.jpg" />
 </div>
 
 
@@ -381,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17871.jpg" />
 </div>
 
 
@@ -407,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17814.jpg" />
 </div>
 
 
@@ -434,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17800.jpg" />
 </div>
 
 
@@ -460,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17760.jpg" />
 </div>
 
 
@@ -487,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17586.jpg" />
 </div>
 
 
@@ -513,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17410.jpg" />
 </div>
 
 
@@ -539,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17377.jpg" />
 </div>
 
 
@@ -565,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17311.jpg" />
 </div>
 
 
@@ -591,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17129.jpg" />
 </div>
 
 
@@ -618,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17125.jpg" />
 </div>
 
 
@@ -645,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16883.jpg" />
 </div>
 
 
@@ -672,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16638.jpg" />
 </div>
 
 
@@ -685,6 +552,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51E6E4C88A999ECD444AD0684E8A4DBFFF91E36B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799724   (16376) от 29.05.2025
+
+Жиль Делез | Ницше и философия. 2-е издание (2024) [PDF, FB2, RTF, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из первых больших книг Жиля Делёза, вышедшая по-французски в 1962 году, посвящена Фридриху Ницше – мыслителю-визионеру, создателю множества оригинальных концептов, обладателю хлесткого литературного стиля и бескомпромиссному полемисту. Историко-философский пафос этой работы заключался в том, чтобы рассеять недоразумения вокруг фигуры Ницше, порожденные тенденциозными (   Читать дальше...   )Жанр: монография, философияПеревод: Олег ХомаИздательство: Ад Маргинем ПрессФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5CCF801A50BBD7BFFB7DCC9BF9B81C4FEA709B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799705   (16252) от 30.05.2025
+
+Г.М. Энтин | Практическое руководство по лечению алкоголизма (1972) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассчитана на врачей-наркологов, работающих в стационарных и амбулаторных психоневрологических лечебных учреждениях, на психиатров и врачей других специальностей (невропатологов, терапевтов, фтизиатров), занимающихся лечением алкоголизма и алкогольных заболеваний, а также на организаторов здравоохранения.
+В книге подробно описываются современные методы лечения (   Читать дальше...   )Жанр: медицина, наркологияИздательство: МедицинаФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EABE4B13A5082A6D735423F5553FD572337014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799903   (16096) от 31.05.2025
+
+В.В. Бурьян, С.А. Кузенков, Т.А Темирханов и др. | Горная подготовка (2022) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник «Горная подготовка» предназначен для слушателей и курсантов Военного института физической культуры. Он имеет своей целью помочь слушателям и курсантам овладеть программным материалом по горной подготовке. Может быть использован специалистами по физической подготовке и спорту, преподавателями, инструкторами горной подготовки в организации и проведении обучения (   Читать дальше...   )Жанр: УчебникИздательство: ВИФКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939A480F32258AE20FAB7DFB5A232705760D9525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 161719   (16050) от 01.06.2025
+
+М.В. Вишневский | Несъедобные, ядовитые и галлюциногенные грибы. (2001) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приводятся сведения о 60 видах грибов, по тем или иным причинам представляющих опасность для здоровья человека.Жанр: СправочникФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495D548B6A11EFCC37306FBDCAC7A148187095F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800009   (15965) от 01.06.2025
+
+Дж. Бейклесс | Америка глазами первооткрывателей (1969) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15965.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге сделана попытка изобразить современную территорию США такой, какой увидели ее белые первооткрыватели, когда впервые вступили на неведомый до того времени европейцам континент. Книга написана на основе многочисленных географических, историко-географических и этнографических первоисточников. Первое знакомство с Югом континента испанских конкистадоров XVI (   Читать дальше...   )Жанр: История, этнография, социология, культурология, искусство, география, публицистикаИздательство: ПрогрессФормат: DJVU, PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E53CF568FDB945F88CCB57ECF37B2CA50A7C2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594216.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594175.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Angry Birds в кино / Angry Birds (2016) BDRip [720p] ATV
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594141.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593980.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593931.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593845.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593840.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593838.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593836.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593676.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593560.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593366.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593365.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593326.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593124.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592957.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592950.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592943.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Music & Wine, Vol. 1 (2011) [AAC|~328 Kbps] <Jazz, Easy Listening, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592652.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Sex and the Chill, Vol. 1 (2012) [AAC|~318 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592633.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Песни нашей Родины. День Победы! (2022) [AAC|~225
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592631.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Sex and the Chill, Vol. 2 (2013) [AAC|~318 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592630.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Guntis Vecgailis, Zigmars Liepins, Olegs Upenieks, Harijs Zarins - Pulse 2 (1986
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592508.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592477.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - The Best Remixes (2022) [AAC|~323 Kbps] <Electro, Dance, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592474.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Любимые 90-е (2022) [AAC|~348 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592459.jpg" />
 </div>
 
 

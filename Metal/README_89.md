@@ -6,7 +6,7 @@ Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238218.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238137.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ River Of Deceit - The Dead Won't Raise Themselves (2023) [MP3|320 Kbps] <Heavy, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238117.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Abbath - Dread Reaver (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238110.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ekrom - Uten N​adigst Formildelse (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238078.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dieth - To Hell and Back (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238031.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Coffin Torture - 2 Albums (2018-2022) [MP3|320 Kbps] <Sludge, Doom, Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237981.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Black & Damned - Servants Of The Devil (2023) [MP3|320 Kbps] <Heavy, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237969.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Inherus - Beholden (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237900.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gods of Gaia - As Daylight Dies (2023) [MP3|320 Kbps] <Symphonic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237731.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Slow Fall - Obsidian Waves (2023) [MP3|320 Kbps] <Progressive Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237687.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Coronary - Sinbad (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237641.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mindfar - Prophet Of The Astral Gods (2021) [MP3|320 Kbps] <Symphonic Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237567.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Aramis - Crimson (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237497.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Avarice - Avarice (2023) [MP3|320 Kbps] <Melodic Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237445.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ LAC - Limbo (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237408.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Phlesh - The Decomposing (2023) [MP3|320 Kbps] <Gothic, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237401.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Motus Tenebrae - 4 Albums (2008-2016) [MP3|320 Kbps] <Gothic Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237164.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Vulcanodon Phazer - 4 Albums (2019-2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236948.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Max Enix - Far From Home (2023) [MP3|320 Kbps] <Cinematic Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236581.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Rainover - NOX (2023) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236494.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Distance of Thought - Edge of Forever (2023) [MP3|320 Kbps] <Progressive Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236407.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Disillusive Play - Songs for the Non-Existent (2023) [MP3|320 Kbps] <Symphonic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236400.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Righteous Goat - Paths of Deviance (2022) [MP3|320 Kbps] <Psychedelic Doom, Ston
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236283.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Luger - Revelations of the Sacred Skull (2023) [MP3|320 Kbps] <Doom Metal, Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236180.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Primitai - Violence of the Skies (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236178.jpg" />
 </div>
 
 

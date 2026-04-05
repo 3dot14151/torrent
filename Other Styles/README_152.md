@@ -1,3 +1,61 @@
+###  Публикация: 1426446   (214818) от 24.11.2020
+
+Pregnancy and Birthing Specialists - Pregnancy Music New Age Collection 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother's Heart (4:44)
+02. Embrace of Love (4:20)
+03. Motherly Intuition (4:35)
+04. Bouquet of Roses (3:55)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56190C686AFB10B11FE0AB2D0B48F7411154361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085285   (214805) от 21.12.2016
+
+Jack Pashley - The Music of Ollundra (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chronicles of Ollundra [00:04:04]
+02. Khellus's Theme [00:03:46]
+03. The Mystery of Eogwen [00:02:00]
+04. Ninalla's Spell [00:02:46](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7EDE2B66A69CBCF11D7598310ACAE59392FFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586962   (214647) от 28.10.2022
 
 Vitamin Therapy - Therapy Yoga Songs - Music for Inner Care (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
@@ -6,7 +64,7 @@ Vitamin Therapy - Therapy Yoga Songs - Music for Inner Care (2022) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214647.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Amy Lynne Johnson - Piano Poetry Peace to You (2015) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214501.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Guitar Heroes (1997) [MP3|320 Kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214324.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Amethystium - Aurorae (2012) EP [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214135.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Latin Dance Aerobic Workout 2018 (2017) [MP3|320 Kbps] <Bachata, Merengue, 
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213996.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Gregorian - 25 Live (The Best of 25 Years) (25th Anniversary Tour Version [Live]
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212459.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211916.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Armik - Guitar Seduction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211303.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210886.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210447.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209877.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209763.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209317.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Nino Rota - Greatest Film Hits (2012) 5xCD, BOX Set [FLAC|Lossless|image + .cue]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208994.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208002.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207980.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Theodor Bastard - Oikoumene (2012) 10th Anniversary Edition, 2023, Theodor Basta
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207761.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Folk Country Songs USA (2023) [MP3|320 Kbps] <Country, Folk, Country Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207740.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206918.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Ennio Morricone - Love Songs and Romantic Scores (2023) [OGG Vorbis|480 Kbps] <F
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206889.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206888.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206882.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206744.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Song
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206693.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Song
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80EF1A2A5EEB6DACA553345BB10DC2C2A004DACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652298   (206626) от 10.08.2023
-
-Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orlando (4:56)
-02. Seveness (5:29)
-03. Laguna (6:36)
-04. Pavane (3:01)(   Читать дальше...   )Жанр: Instrumental, New Age, AmbientПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DDA83986FD2CCA2B1176906F13061E804C0B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615834   (206188) от 28.02.2023
-
-VA - Romantic Collection. New Age (2000) [OGG Vorbis|480 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era - Ameno
-02. Deep Forest - Sweet Lullaby
-03. Shiva - Shiva's Dance
-04. Enigma - Principles Of Lust(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD26CE5AED08709844A0E1CBE55B46F00894163
 ```
 
 https://mybot314.ru/tekegram_catalog/

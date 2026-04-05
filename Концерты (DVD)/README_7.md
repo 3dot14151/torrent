@@ -6,7 +6,7 @@ The BEATLES: Invade Paris! Conquer America! 1964 Vol.1 (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568821.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wizards And Demons - Официальная история Uriah Heep / Uriah He
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566445.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Norah Jones - Live At Ronnie Scott's 2017 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565558.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Paul Rodgers - Free Spirit '2017 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563941.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559341.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ The Cure - In Orange (1987) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556875.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552281.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548765.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Eric Clapton - Live At Baloise Session (2013) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548721.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547700.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547647.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545822.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545780.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Iron Maiden - The Book Of Souls: The Live Chapter (2017) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544420.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543067.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535776.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Sting - Live At The Olympia Paris (2017) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534892.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Chet Atkins - Certified Guitar Player'87 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534010.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Doors - The Very Best Of (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531348.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Rick Astley. Live in Berlin 27.08.2016 DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530682.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Gary Moore. Ballads & Blues (1982-1994) , Live Blues.
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514341.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503062.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502016.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501967.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Pet Shop Boys - Pandemonium (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500890.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500874.jpg" />
 </div>
 
 

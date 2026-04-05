@@ -1,3 +1,159 @@
+###  Публикация: 1207897   (780139) от 20.02.2018
+
+Скиф (2017) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит во время смены цивилизаций. В Евразии начинается новая эра. Ушли в небытие гордые воины — скифы, их вымирающие потомки превратились в безжалостных наемных убийц, «волков Ареса». Ратнику Лютобору предстоит тяжелое испытание. Втянутый в междоусобные интриги он отправляется в опасный путь ради спасения семьи, а его проводником становится пленный (   Читать дальше...   )Производство: Россия, Кинокомпания СТВЖанр: Драма, История, Фэнтези, Боевик, ПриключенияРежиссер: Рустам МосафирАктеры: Алексей Фаддеев, Виталий Кравченко, Александр Кузнецов, Александр Пацевич, Юрий Цурило, Андрей Пермяков, Василиса Измайлова, Алексей Овсянников, Фёдор Рощин, Рустам МосафирПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027B7A68246834569C25178A1076CC1B8B356027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207877   (780135) от 20.02.2018
+
+Red Giant Magic Bullet Suite 13.0.6 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Magic Bullet Suite — пакет мощных плагинов для профессиональной цветокорекции, регулировки освещения используемые в программах: Adobe After Effects, Adobe Premiere Pro, Adobe Photoshop, Sony Vegas. В комплект входят основные инструменты: Magic Bullet Looks 3, Magic Bullet Colorista III, Magic Bullet Film, Magic Bullet Mojo 2, Magic Bullet Cosmo 2, Denoiser (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D0C586B0C31404970D905B071AECAE3B33AFDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062747   (780134) от 20.02.2018
+
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) Repack Other s [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Warrior 2 — продолжение ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры 1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog. В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A07E937C60E61AB87F932BC71E10ACCD853F144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062599   (780133) от 20.02.2018
+
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/upd17/dlc) Repack =nemos= [Deluxe Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Warrior 2 - продолжение  ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры  1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog.  В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EAD37D80C2EC54E5BD376E6A3CC73B06A517ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207986   (780033) от 21.02.2018
+
+Роскомнадзор признал невостребованность закона о блокировке VPN-сервисов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закон действует уже три месяца, но ни один сервис его не исполняет.Роскомнадзор за три месяца действия закона о блокировке VPN-сервисов ещё ни разу не требовал ни от одного сервиса или анонимайзера блокировать для пользователей доступ к сайтам, которые внесены в реестр запрещенной информации. Об этом РБК сообщил представитель ведомства.Закон о запрете обхода блокировок (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208432   (779862) от 22.02.2018
+
+Новые правила прохождения техосмотра вступили в силу
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_779862.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России вступили в силу новые правила прохождения техосмотра. Постановление правительства опубликовано на официальном интернет-портале правовой информации.Теперь автомобилисты обязаны иметь не только знак аварийной остановки, но и аптечку.Кроме того, новый регламент запрещает эксплуатировать машину при повреждениях и дефектах усилителя руля.При использовании шипованной (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208177   (779828) от 22.02.2018
 
 GS Group запустил массовое производство первых российских SSD-накопителей
@@ -6,7 +162,7 @@ GS Group запустил массовое производство первых
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_779828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_779828.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779823.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779714.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_779710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_779710.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779709.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ Win 10 Tweaker 6.0 Portable by XpucT [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779699.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ uTorrent Pro 3.5.3  Build 44358  Stable RePack (& Portable) by D!akov  [Multi/Ru
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779696.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779695.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779693.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Debian 9 Xfce Custom v2 2018.02.19 [amd64] 1xDVD
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779692.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779691.jpg" />
 </div>
 
 
@@ -297,7 +453,7 @@ SpaceX запустила ракету с первыми тестовыми сп
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779581.jpg" />
 </div>
 
 
@@ -323,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779576.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ Daum PotPlayer 1.7.8557 Stable RePack (& portable) by 7sh3 (20.02.2018) [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779559.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779551.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 02.2018 by OVGorskiy® 1DVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779547.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779546.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779545.jpg" />
 </div>
 
 
@@ -480,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779443.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 23.02.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779423.jpg" />
 </div>
 
 
@@ -521,162 +677,6 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 23.02.18 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCB4BA26084E6D4FBEE23E9AD56F4207C1208B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208661   (779417) от 25.02.2018
-
-Тор: Рагнарёк/ Thor: Ragnarok (2017) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel Entertainment, Marvel Studios, Walt Disney PicturesЖанр: Фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B91C4C7B09A31A95DA7A8C9D5B95592EBB94A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209059   (779413) от 25.02.2018
-
-7 хранителей гробницы / 7 Guardians of the Tomb (2018) WEB-DLRip [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческий фильм ужасов Хранители гробницы с элементами боевика был снят Китаем совместно с Российскими актерами. Сюжет фильма повествует о компании археологов, которым предстоит отправится в самое опасное место на земле. Они пытаются разыскать своего пропавшего друга и для этого спускаются в древние подземелья. Но вот вместо друга, они там находят разумный (   Читать дальше...   )Производство: Китай, Австралия, Россия, Таиланд / Nest Holdings, Sleeping Otters ProductionsЖанр: Боевик, приключения, ужасыРежиссер: Брайан О'МэллиАктеры: Бинбин Ли, Келлан Латс, У Чунь, Келси Грэммер, Стэф Доусон, Ясмин Кассим, Тим Драксл, Шэйн Джейкобсон, Райан Джонсон, Джейсон ЧонгПеревод: Любительский (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:29:02Реклама: Присутствуют вставки текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3582450DEB86D6D99B09D25359963DB05F53E8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208781   (779410) от 25.02.2018
-
-Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 23.02.18 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779410.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по февраль 2018 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки, см. 1-й скриншот). Язык офиса зависит от выбранного языка (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE3C4149435AF111C2EBFB8D5186C72CF28425C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207835   (779409) от 25.02.2018
-
-Карп отмороженный (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Елена Михайловна скромно живёт на пенсии в провинциальном городке. Неожиданно для себя она узнаёт о смертельном диагнозе, который может в любой момент оборвать её жизнь. Чтобы лишний раз не тревожить любимого, но постоянно занятого сына, работающего в большом городе бизнес-тренером, и избавить его от потенциальных забот, Елена Михайловна берет дело в свои руки и (   Читать дальше...   )Производство: Россия / ООО "КиноКластер"Жанр: Комедия, ДрамаРежиссер: Владимир КоттАктеры: Марина Неёлова, Алиса Фрейндлих, Евгений Миронов, Сергей Пускепалис, Александр Баширов, Наталья Суркова, Татьяна Рассказова, Антон Шпиньков, Артем Лещик, Анна ЕкатерининскаяПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E66278F29DA6330BAFFEDB42FE366A70B5748B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209356   (779313) от 26.02.2018
-
-Win 10 Tweaker 7.0 Portable by XpucT [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию и очистку Windows в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и возможностями Windows, поэтому антивирусы не ругаются (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AF0D3019FB37814D79FABE066C3D1844D2FA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209139   (779310) от 26.02.2018
-
-Легенда о Коловрате (2017) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779310.jpg" />
-</div>
-
-
-###  Подробнее
-
-XIII век. Русь раздроблена и вот-вот падет на колени перед ханом Золотой Орды Батыем. Испепеляя города и заливая русские земли кровью, захватчики не встречают серьезного сопротивления, и лишь один воин бросает им вызов. Молодой рязанский витязь Евпатий Коловрат возглавляет отряд смельчаков, чтобы отомстить за свою любовь и за свою родину. Его отвага поразит даже (   Читать дальше...   )Производство: Россия / Централ ПартнершипЖанр: история, боевик, фэнтезиРежиссер: Джаник Файзиев, Иван ШурховецкийАктеры: Илья Малаков, Полина Чернышова, Алексей Серебряков, Александр Ильин мл., Игорь Савочкин, Тимофей Трибунцев, Александр Цой, Юлия Хлынина, Андрей Бурковский, Виктор ПроскуринПеревод: Не требуется (Русский, Лицензия BD GER)Субтитры: ОтсутствуютПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673F670AE7A1578306E69FF60B35978D370F0AD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

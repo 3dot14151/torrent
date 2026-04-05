@@ -1,137 +1,3 @@
-###  Публикация: 1790413   (21957) от 09.04.2025
-
-Книжная серия | Библиотека сборника "Математика" [95 книг из 97] (1959 - 1975) [PDF, DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги серии содержат подбор статей иностранных математиков. Тематика книг содержат как элементы школьного курса математики повышенной сложности, так и статьи основных разделов высшей математики: линейной алгебры, математического анализа, комбинаторной математики, теории чисел и другое.
-Книги будет полезны широкому кругу читателей и аспирантов высших учебных заведений.Жанр: МатематикаИздательство: МирФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF604F75661B5F750D31BA9013B7D1FE7AA90D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790498   (21935) от 09.04.2025
-
-Н.С. Кошляков | Основные дифференциальные уравнения математической физики (1936) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собою извлечения из лекций, читаемых мною в Ленинградском государственном университете и в Ленинградском электротехническом институте им. В. И. Ульянова (Ленина). В виду невозможности издать свои лекции полностью, я был принужден опустить целый ряд отделов: так, например, решение задачи Dirichlet по способу арифметических средних, основы (   Читать дальше...   )Жанр: МатематикаИздательство: Главная редакция общетехнической литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554265A4FD6AA4366B044C7AEA0C3273060ED494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790494   (21933) от 09.04.2025
-
-Н.С. Кошляков, Э.Б. Глинер, М.М. Смирнов | Уравнения в частных производных математической физики (1970) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вывод основных уравнений математической физики (например, уравнение колебаний струны, мембраны, уравнения гидродинамики и звуковых волн и т. д. ); приводится классификация уравнений первого и второго порядка; а также рассматривается: применение метода характеристик к изучению малых колебаний струны; продольные колебания стержня; уравнения гиперболического типа с (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15998C679E3733336B3D8E4154CB9E656AC0B0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790545   (21889) от 10.04.2025
-
-Кирилл Шатилов | Как сказать по-британски. Британский сленг в миниатюрах (2022) [PDF, FB2, EPUB] [RU, EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21889.jpg" />
-</div>
-
-
-###  Подробнее
-
-И смех, и грех — так можно коротко охарактеризовать британский сленг. Вместе с тем, в нём таится много интересного из истории и культуры, попавших на Британские острова народов. Перед вами одна из редких отечественных книг, рассматривающая британский сленг с разных сторон и в сочных примерах. Предназначена для широкого круга читателей, знакомых с английским языком. (   Читать дальше...   )Жанр: Языкознание. Английский язык.Издательство: Издательские решения в системе RideroФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ABFFA9E109EB3DE1C887C808638DE288206663B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790560   (21884) от 10.04.2025
-
-О.А. Астафьева, И.А. Башкирова, Т.А. Колоскова | Секреты современной русской орфографии (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методическое пособие включает таблицы, алгоритмы и схемы по тем вопросам орфографии, которые, по наблюдениям авторов, вызывают наибольшее затруднение при выработке навыков грамотного письма.
-
-Весь теоретический материал изложен в табличной форме. Таблицы располагаются в соответствии с распределением языкового материала по блокам.
-(   Читать дальше...   )Жанр: Учебно-методическое пособиеИздательство: РИО ГГТУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65F5DB98C9E7C10B4165E0FCD69DB6E220A611B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791647   (21355) от 15.04.2025
 
 А.Т. Фоменко | Наглядная геометрия и топология. Математические образы в реальном мире (1998) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21355.jpg" />
 </div>
 
 
@@ -168,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21151.jpg" />
 </div>
 
 
@@ -194,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21124.jpg" />
 </div>
 
 
@@ -220,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21099.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21084.jpg" />
 </div>
 
 
@@ -273,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21053.jpg" />
 </div>
 
 
@@ -301,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21017.jpg" />
 </div>
 
 
@@ -327,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20837.jpg" />
 </div>
 
 
@@ -353,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20817.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20783.jpg" />
 </div>
 
 
@@ -405,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20762.jpg" />
 </div>
 
 
@@ -431,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20728.jpg" />
 </div>
 
 
@@ -457,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20603.jpg" />
 </div>
 
 
@@ -483,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20601.jpg" />
 </div>
 
 
@@ -509,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20572.jpg" />
 </div>
 
 
@@ -535,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20565.jpg" />
 </div>
 
 
@@ -564,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20549.jpg" />
 </div>
 
 
@@ -591,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20541.jpg" />
 </div>
 
 
@@ -617,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20537.jpg" />
 </div>
 
 
@@ -644,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20462.jpg" />
 </div>
 
 
@@ -670,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20461.jpg" />
 </div>
 
 
@@ -681,6 +547,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82228BA1A8B6373EB29AC2B30D61DE48A61F5491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682679   (20455) от 24.04.2025
+
+Игорь Борщенко | Подборка книг (6 книг) [2012-2013] [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка книг, где  читатель найдет уникальную методику кандидата медицинских наук Игоря Анатольевича Борщенко. Методика уникальна по своей простоте и доступности. Она годится для всех, кто страдает заболеваниями опорно-двигательной системы, для больных, получивших травму или перенесших операцию на позвоночнике и суставах, для тех, кто испытывает боли в спине, в руках (   Читать дальше...   )Издательство: АСТ, Астрель, Метафора, ВКТФормат: FB2Качество: Изначально электронное (ebook) с ил.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DAFA66941EB67293C0AA72CFAA7424B512181B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483399   (20449) от 24.04.2025
+
+Подборка | Книги по хирургии-Часть 3 (1939-2013) [CHM, DOC(X), DJVU, FB2, PDF, TIF, ТХТ, JPG, ISO, HTML]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя подборка книг по хирургии. Собиралась из разных источников в течении нескольких лет, присутствуют собственные сканы книг. Все книги разделены по тематическим разделам для удобства пользования. Вы можете не качать всю раздачу, а выбрать только нужную вам книгу.Жанр: ХирургияЯзык: Русский, английский, украинскийФормат: CHM, DOC(X), DJVU, FB2, PDF, TIFF, ТХТ, JPG, ISO, HTMLКачество: отсканированные страницы,  OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2D3B6FF539AFA845A66EC165AC5E99413169F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 67645   (20346) от 25.04.2025
+
+Р.Д. Синельников, Я.Р. Синельников | Атлас анатомии человека [Том 1] (1996) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20346.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первом томе рассматриваются учение о костях, учение о соединениях костей, учение о мышцах. Отражены взаимоотношения костных образований и прикрепляющихся к ним мышц, что позволяет раскрыть скелетотопию особенно сложных мышечных комплексов. Иллюстративный материал представлен рисунками препаратов, специально подготовленных для атласа, и рентгенограммами. Все анатомические (   Читать дальше...   )Жанр: Анатомия и физиологияИздательство: МедицинаФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC41F2127203E14CDCFD2F4CFBEB823ABA581054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793531   (20309) от 25.04.2025
+
+Василий Шуров | Над пропастью не ржи. Записки нарколога (2024) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20309.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я всегда смогу бросить», «Женский алкоголизм не лечится», «Пиво – не алкоголь». С зависимостями связано множество заблуждений. Эта книга написана для того, чтобы развеять иллюзии. Кто заболеет, а кто выстоит? Ни раса, ни цвет глаз, ни вероисповедание, ни достаток никак и ни от чего вас не застрахуют. «Над пропастью не ржи. Записки нарколога» – книга, из которой (   Читать дальше...   )Жанр: Здоровье, Психология, ЗависимостиИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7945ED362C28C254406E214A9966E99184A9DE13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751422   (20238) от 26.04.2025
+
+Р.Д. Синельников и др. | Атлас анатомии человека в 4 томах [4 книги] (2009-2010) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атлас состоит из 4-х томов, посвященных строению организма человека, который так тщательно пытаются изучать студенты первого курса медицинских ВУЗов или колледжей. Материал изложен очень подробно, с отличными рисунками, которые позволяют максимально доходчиво визуализировать всю ту информацию, о которой так много написано в страницах учебника.
+Предназначается для (   Читать дальше...   )Жанр: Анатомия и физиологияФормат: DJVU, PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FC0D94BD08D995E26DD20C2E03E895845EC0AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

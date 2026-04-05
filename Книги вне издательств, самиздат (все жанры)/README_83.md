@@ -1,3 +1,84 @@
+###  Публикация: 1162015   (461432) от 31.08.2017
+
+Александр Левин | Внешний Фактор (2014) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во вселенную Star Wars многими замечательными авторами, включая меня самого, были переселены/перенесены и т.д. уже несколько тысяч попаданцев. Чаще всего, эти персонажи отличались ЗДЕСЬ весьма заурядной жизнью, а там становились... Все поняли?
+А теперь подумаем, что будет, если туда попадут двое. Мужчина и женщина. Из двух разных стран, находящихся в состоянии военного (   Читать дальше...   )Жанр: Фантастика, Star Wars ФанфикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6813BDA46681EC07B935144C6239B2147139537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162008   (461188) от 31.08.2017
+
+Александр Левин | Сенсор (2016) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина двадцать первого века. Человечество осваивает космос и не только его. Экстрасенсорные способности давно стали повседневностью. Один из обладателей подобных способностей, сенсор министерства обороны, приписанный к засекреченному научному центру, участвует в эксперимент по переносу сознания в параллельный мир с целью получения их технологий. Эксперимент заканчивается (   Читать дальше...   )Жанр: Фантастика, Star Wars ФанфикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107BE4E539568AA5AB7AE194FEDF19F3BFF99A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161943   (461059) от 31.08.2017
+
+Стивен Кинг, Ричард Чизмар | Гвенди и её шкатулка (2017) [DOCX, FB2, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из города Касл-Рок есть три пути до Касл-Вью: Дорога 117, Плезант роуд (Приятная дорога) и Сьюсайд Стэас (Лестница Самоубийства). Летом 1974 года двенадцатилетняя Гвенди Петерсон каждый день поднималась по ступенькам, удерживающимся крепкими (хоть и ржавыми от времени) железными болтами, и зигзагами поднималась вверх по скале.
+
+Однажды Гвенди подзывает незнакомец: (   Читать дальше...   )Жанр: Мистика и ужасы, ПовестьФормат: DOCX, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9934063ED5EBA9BE573C7B37CD2ADDC6333D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162187   (461050) от 31.08.2017
 
 Алекс Извозчиков | Хуторянин (2016) [FB2, EPUB]
@@ -6,7 +87,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461050.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460895.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460051.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459632.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459570.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459524.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458837.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458641.jpg" />
 </div>
 
 
@@ -225,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458622.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458620.jpg" />
 </div>
 
 
@@ -280,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458169.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456897.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456826.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ Neon13 | Джой Гунган (2016) [FB2, EPUB]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456819.jpg" />
 </div>
 
 
@@ -385,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456817.jpg" />
 </div>
 
 
@@ -412,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456811.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456810.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456729.jpg" />
 </div>
 
 
@@ -494,7 +575,7 @@ Neon13 | Меняя историю в мире Звездных войн -2 (201
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456728.jpg" />
 </div>
 
 
@@ -523,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456718.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456716.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456619.jpg" />
 </div>
 
 
@@ -606,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456614.jpg" />
 </div>
 
 
@@ -619,92 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49512DF884E17CC993FEF1ACB1478A7BBAF783AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162509   (456613) от 02.09.2017
-
-Таран Матару | Инквизиция (2016) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман трилогии «О Флетчере, его демоне Игнатусе и войне против орков»
-
-Еще больше демонов, эпичных сражений и схваток не на жизнь, а на смерть — в новой книге трилогии «Призыватель», которую нельзя пропустить… На суде за преступление, которого не совершал, Флетчеру придется встретиться лицом к лицу с Инквизицией, которая определит его будущее. Это тяжелый (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDDAD9E0104D00EF3A6FB57995207768E5A3127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162506   (456603) от 02.09.2017
-
-Таран Матару | Новичок (2016) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман трилогии «О Флетчере, его демоне Игнатусе и войне против орков»
-
-Когда ученик кузнеца Флетчер узнает, что обладает способностью призывать демонов из другого мира, он отправляется в Военную Академию для Одаренных. Там ученики тренируют свои навыки призывания.
-Флетчер проходит через изнурительные тренировки на боевого мага, чтобы бороться с орками в войне (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEACD66345335F68A4E38CB9B9938723C8C6607E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162511   (456513) от 02.09.2017
-
-Геннадий Ищенко | Проверка (2017) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Проверка»
-
-Миров с разумными обитателями, за которыми не присматривают боги, очень мало. Один из них — это мир нашей Земли.
-Люди в своем большинстве не способны оценивать долговременные последствия своих поступков. Они слишком жадны, эгоистичны и живут только сегодняшним днем, что часто приводит их миры к катастрофам.(   Читать дальше...   )Жанр: ФэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A2E7A9E1787880DBEDD2E314888A3643E5D4EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

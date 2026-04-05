@@ -1,3 +1,109 @@
+###  Публикация: 1374734   (772427) от 21.06.2020
+
+Yesterday o Utatte | Sing "Yesterday" for Me | Спой мне "Yesterday" [2020, TV, 12 из 12 эп.] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772427.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о любви и человечности разворачивается на окраине Синдзюку, в маленьком городке, через который проходит частная линия поездов. В центре сюжета – два парня и две девушки, которые пытаются жить полной жизнью вопреки всем трудностям. Маленькие недоразумения приводят к серьёзным сложностям, и чувства сплетаются в запутанный клубок...Производство: студия Doga Kobo / 動画工房Жанр: романтикаРежиссер: Фудзивара ЁсиюкиЯзык озвучки: РусскийСубтитры: ОтсутствуютФормат: MKVПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B11058E3DBE1C996D8307BCE94574DE3645121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390985   (770275) от 23.06.2020
+
+ReLife | Повторная Жизнь [2016, TV, 13 ep + 4 OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никому не дано вернуть юношеские годы. Они пролетят, не успеешь опомниться. И вот ты стоишь на пороге взрослой жизни, осторожно открываешь дверь, а за ней... А за ней не всегда оказывается то, о чём ты мечтал. Открывший когда-то эту дверь Арата Кайзаки продержался недолго — его новая реальность буквально вышвырнула за порог. Потрудившись после выпуска из университета (   Читать дальше...   )Производство: TMS Entertainment, ЯпонияЖанр: Комедия, Повседневность, РомантикаРежиссер: Косака СаторуОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 17 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC0023B9B59299AE944A324CEB0B8D39BC36A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391809   (770273) от 23.06.2020
+
+Ore no Imouto | Ну не Может Моя Сестрёнка Быть Такой Милой [TV-1] [2010, TV, 12 ep + 4 SP] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770273.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-летний Кёсукэ Косака не общался со своей 14-летней сестрой уже несколько лет. Как так получилось — он и сам не знает, просто с какого-то момента Кирино начала провожать его подозрительными взглядами, полностью игнорируя все попытки завести разговор. Похоже, отношения испортились навсегда.
+Однажды Кёсукэ находит в доме DVD с махо-сёдзё на обложке. Чьё бы это могло (   Читать дальше...   )Производство: AIC, ЯпонияЖанр: Комедия, ПовседневностьРежиссер: Камбэ ХироюкиОзвучка: Одноголосая, Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 16 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0468EA908BE4CC9AB3AE77CEF5F4B42BB37A45C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391894   (770271) от 23.06.2020
+
+Another | Иная [2012, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770271.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 лет назад в одном из третьих классов средней школы был некий ученик по имени Мисаки. Он был хорош в учёбе и в спорте, красив внешностью и пользовался популярностью в своём классе. Однако внезапно умер. После чего его одноклассники решили до самого выпуска вести себя так, как будто он всё ещё рядом.
+Спустя много лет, весной 1998 года, юноша по имени Коити Сакакибара (   Читать дальше...   )Производство: P.A. Works, ЯпонияЖанр: Триллер, МистикаРежиссер: Мидзусима ЦутомуОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0365918904E61070720EE9AE756671345C10DB0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374713   (769266) от 25.06.2020
 
 Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 из 12 эп.] WEB-DL 1080p rus
@@ -6,7 +112,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 из 12 эп.] WEB-DL 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769266.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Tachibanakan to Lie Angle | Любовные Страсти Пансиона Т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768908.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Carnival Phantasm | Карнавальный Фантазм [2011, TV, 12 ep + 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768903.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Kore wa Zombie Desuka? Of the Dead | Уж не Зомби ли Это? Сред�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768837.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ Sora no Otoshimono Final: Eternal My Master | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768836.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Sora no Otoshimono: Tokeijikake no Angeloid | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768835.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [2011-2012, OVA, 3 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768833.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ Sora no Otoshimono: Forte | Утраченное Небесами: Сильне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768832.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Sora no Otoshimono | Утраченное Небесами [TV-1] [2009, TV, 13 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768831.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767148.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ Suisei no Gargantia | Гаргантия на Зелёной Планете [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766649.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ Ore no Imouto 2 | Ну не Может Моя Сестрёнка Быть Так
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766647.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ Toradora! | Торадора! [2008, TV, 25 ep + OVA + 4 sp] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765885.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ Kobayashi-san Chi no Maidragon | Miss Kobayashi's Dragon Maid | Кобаяси �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765851.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ Hataraku Saibou | Клетки за Работой! [TV-1] [2018, TV, 14 ep + 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765092.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ Deadman Wonderland | Страна Чудес Смертников [2011, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765091.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ High School Fleet | HaiFuri | Морская Академия [2016, TV, 12 ep +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764191.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ Lie Huo Jiao Chou | Drowning Sorrows in Raging Fire | Топить печаль 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764114.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ Brave Witches | Храбрые Ведьмы [2016, TV, 12 ep + OVA] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763392.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ Beastars | Выдающиеся звери [ТВ-1] [2019, TV, 12 эп.] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759782.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ Youjuu Toshi | Wicked City | Город чудищ [1987, Movie] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759737.jpg" />
 </div>
 
 
@@ -559,7 +665,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758055.jpg" />
 </div>
 
 
@@ -571,111 +677,6 @@ TV-1 (Anilibria), (Persona99), (SHIZA Project), (SovetRomantica), - внешни
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63B27FA1659944C1964199F411EB12CD283E0496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281464   (751028) от 08.02.2019
-
-Тайная жизнь пингвинов | Penguin Highway [2018, Movie] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любознательный четвероклассник Аояма ведет дневник, куда записывает все свои открытия и эксперименты. Однажды в его родном городе вдали от морского побережья необъяснимым образом появляются пингвины. А на окраине города возникает некая неземная океаническая сфера. Мальчик берется разгадать этот удивительный феномен, который оказывается связан не только с его жизнью, (   Читать дальше...   )Производство: Япония, Studio Colorido Co.Жанр: Аниме, Мультфильм, Фентези, ПриключениеРежиссер: Исида ХироясуПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A2A6DB56034A6CA03FC6C020DC78B9E249F5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382722   (748023) от 14.07.2020
-
-Strike the Blood: Kieta Seisou Hen | Удар Крови: Потерянное Святое Копьё [2020, OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_748023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акацуки Коджа не так давно принял участие в сражении, и в результате было много разрушений. Возможно, это стало причиной того, что в регионе тонули корабли. Королевские львы отправляются обследовать личный корабль конгломерата Яза Акинавус Грей 2. Корабль был довольно крупным. Химэраги разбудила Коджо. Она спала рядом с ним на матах, но как они там оказались оба (   Читать дальше...   )Производство: Connect, ЯпонияЖанр: Приключения, ФантастикаРежиссер: Ямамото ХидэёОзвучка: Одноголосая, Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C50EF060DAAED277CCC7B6203670AAC221F68E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524068   (746377) от 14.01.2022
-
-Рыцари и магия | Knight's & Magic [2017, TV, 13 из 13] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в наше время и повествует нам о главном герое, 28 летнем отаку по имени Курата, который увлекается мехой и работает в издательстве . Однажды после окончания работы в офисе, по пути домой его сбивает машина и он перевоплощается в другом мире под именем Эрнести Эшевалье, также известного как Эру. В этом мире существует огромное человекоподобное (   Читать дальше...   )Жанр: Приключения, фантастика, меха, школаРежиссер: Ямамото ЮсукэЯзык озвучки: Русский многоголосый, закадровый (Kansai), ЯпонскийСубтитры: Русские (внешние) ASS надписи/полные
-LiteSun, AkiraПродолжительность: 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB39D03E68D0DE8ED5759395518281F156DA84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129736   (745780) от 02.04.2018
-
-Tokyo Ravens / Токийские вороны [2013, TV, 24 эп. + SP] BDRip 1080р 10bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, в которой живут главные герои данного аниме, отличается от той, которая в нашем мире. В сериале это страна в которой царит магия, летают духи и существуют шаманы. Города поднебесной часто подвергаются нападению злых умерших и частые духовные катастрофы стали серьезной проблемой для общества. Специально для борьбы с духами люди создали бюро шаманов. Это некая (   Читать дальше...   )Производство: Япония/8-BitЖанр: приключение, комедия, мистикаРежиссер: Канасаки Такаоми (Kanasaki Takaomi)Язык озвучки: Русский от Anidub, AniLibria, SHIZA, ARRUСубтитры: Русские, любительские от (YakuSub Studio)Продолжительность: 24 эп., ~24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E6DC13C9F11B0013EBC9F6A08253E76A5A1881
 ```
 
 https://mybot314.ru/tekegram_catalog/

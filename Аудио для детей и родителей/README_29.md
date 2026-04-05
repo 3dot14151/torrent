@@ -1,3 +1,29 @@
+###  Публикация: 873190   (759979) от 07.07.2020
+
+Владислав Крапивин | Бабочка на штанге [Авторский релиз] (2015) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все в этом мире уравновешено, взаимосвязано и сбалансировано. Повлиять на ход событий, изменить его в ту либо иную сторону может малейший фактор. Подобно тому, как невесомая бабочка, севшая на штангу, поднятую атлетом, может нарушить зыбкий баланс. Невидимые струны тонких материй мироздания сходятся в кафе "Арцеуловъ". Именно здесь, в загадочном кафе, друзья (   Читать дальше...   )Жанр: Фантастика, детская литератураПродолжительность: 09:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6485188513102E4615F71FC1C9E55E1CE9DD1546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395273   (757266) от 09.07.2020
 
 Литл Бэйби Бам - Кем я хочу стать (2020) [MP3|192-320 Kbps]<Детские песни>
@@ -6,7 +32,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757266.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757263.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757185.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756775.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ Volker Rosin - 40 Albums (2003-2011) [MP3|192-320 kbps]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756719.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756507.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755578.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755569.jpg" />
 </div>
 
 
@@ -232,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755066.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754000.jpg" />
 </div>
 
 
@@ -286,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753953.jpg" />
 </div>
 
 
@@ -314,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753827.jpg" />
 </div>
 
 
@@ -343,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753298.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752545.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752356.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752209.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752129.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ VA - Jugando a imaginar (2000) [MP3|192 kbps]<Мексиканские детс�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751932.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ Raimond Lap - A Baby CD – Music To Settle And Relax Your Baby — Part 1: Soot
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751920.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ VA - Les 100 plus belles chansons et mélodies d'enfants (2000) [MP3|192 kbps]<�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751919.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751566.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ VA - Перлини класичної музики. Співають діти (
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751454.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751447.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ VA  - Колыбельные - Музыка для самых маленьких
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751446.jpg" />
 </div>
 
 
@@ -692,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748678.jpg" />
 </div>
 
 
@@ -706,35 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA1CD4C3E68AAB0FED2F657718ED6F099096E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409848   (748112) от 14.07.2020
-
-VA - Мульти-Пульти. Лучшие песенки из мультфильмов (2011) [MP3|128 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748112.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Песня Винни-Пуха
-002 Вместе Весело Шагать
-003 Дуэт Короля И Принцессы
-004 А Может Быть, Ворона(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 07:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4CF73E76754F6B73811750A67546DC5E0C5ED7
 ```
 
 https://mybot314.ru/tekegram_catalog/
